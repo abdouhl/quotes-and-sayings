@@ -1,0 +1,39 @@
++++
+author = "Anne Enright"
+title = "Anne Enright Quotes"
+quotes_len = "33"
+description = "the best33 Anne Enright Quotes"
++++
+- I can't think of anything you might say about Irish people that is absolutely true.
+- I do wish I could write like some of the American women, who can be clever and heartfelt and hopeful; people like Lorrie Moore and Jennifer Egan. But Ireland messed me up too much, I think, so I can't.
+- I find being Irish quite a wearing thing. It takes so much work because it is a social construction. People think you are going to be this, this, and this.
+- When I'm working, I'm not so much disciplined as obsessive. I have this feeling that I need to clear everything away and get this down.
+- The writing day can be, in some ways, too short, but it's actually a long series of hours, for months at a time, and there is a stillness there.
+- I think it's very important to write a demythologized woman character. My characters are flawed. They are no better than they should be.
+- I was raised in a very old fashioned Ireland where women were reared to be lovely.
+- In more static societies, like Ireland, you can tell where a person is from by their surname, or where their grandparents are from.
+- I have a small room to write in. One wall is completely covered in books. And I face the window with the curtain closed to stop the light hitting the computer.
+- I'm really lucky with the people around me. They know me, so they don't confuse the issues, really. They know what a book is and they know who I am and they know the difference between the two.
+- There's no such thing as a life that is not normal, or, there's no such thing as a life that is not abnormal. We all have amazing lives; we all have very dull lives.
+- I've heard people, usually writers, say that no one wrote a great book after winning the Booker, but I honestly did not feel any big pressure. 'The Gathering' did hang over me in that it was darker than I thought at the time.
+- Ireland is a series of stories that have been told to us, starting with the Irish Celtic national revival. I never believed in 'Old Ireland.' It has been made all of kitsch by the diaspora, looking back and deciding what Ireland is. Yes, it is green. Yes, it is friendly. I can't think of anything else for definite.
+- I work at the sentences. Many of the things people find distinctive about my writing, I think of as natural.
+- I never wanted to be mainstream as a writer, but look at what's happened.
+- There are certain books that should be taken away from young writers; that should be prised out of their clutching fingers and locked away until they are all grown up and ready to read them without being smitten.
+- I'm very keenly aware that there aren't very many women writing literary fiction in Ireland and so that gives me a sense that what I say matters, in some small way.
+- If your life just falls apart early on, you can put it together again. It's the people who are always on the brink of crisis who don't hit bottom who are in trouble.
+- Recently I read the stories I wrote in my early 20s, to put in a volume. And here is this brittle young woman, writing about marriage as, not the worst thing, but the most boring thing that could happen to a person. Now I think I was wrong. I like to be proven wrong.
+- I'm quite interested in the absolute roots of narrative, why we tell stories at all: where the monsters come from.
+- You write a book and you finish the book. That's your job done, right? You win the Booker and you have a whole new job. You have to be the thing, right? So instead of writing the story, you somehow are the story. And that I found that sort of terrible.
+- I write anywhere - when I have an idea, it's hard not to write. I used to be kind of precious about where I wrote. Everything had to be quiet and I couldn't be disturbed; it really filled my day.
+- For 10 or 11 years, I had my kids, I wrote four or five books, and I was working all the damn time.
+- I love the characters not knowing everything and the reader knowing more than them. There's more mischief in that and more room for seriousness, too.
+- I became a full-time writer in 1993 and have been very happy, insofar as anybody is, since.
+- Naming is nice. It took me days before I was able to speak a name for my first child (what if people did not like it?), and I suspect we gave her a secret, second name as well, to keep her safe.
+- I'm starting to think my narrators' sentences are getting too big for them, and they are getting to sound a bit samey and, more disturbingly, a bit too much like me.
+- If you grow up in Ireland and read books then you really are obliged to attempt your own some time. It is not exactly a choice. I still don't know if I am a writer. Believe me, there are days when I have my doubts.
+- It is very hard to trace the effect of words on a life.
+- There often is a dark secret in books... There is often a gathering sense of dread; there's a gap sometimes in the text from which all kinds of monsters can emerge.
+- I am interested in levels of brain discourse. How articulate are the voices in your head? You know, there's a different voice for the phone, and a different voice if you're talking in bed. When you're starting off with a narrator, it's interesting to think, where is their voice coming from, what part of their brain?
+- If you can just actually let the character be for a bit, then you get the right sense.
+- To be able to have the space to sit down and write has always been my central policy.

@@ -1,0 +1,77 @@
++++
+author = "Angela Duckworth"
+title = "Angela Duckworth Quotes"
+quotes_len = "71"
+description = "the best71 Angela Duckworth Quotes"
++++
+- When people tell me I can't do something, I have a visceral reflex to say, 'Yes, I can.'
+- People's lives really do turn out differently. And it certainly can't be explained by how intelligent you remember them being when they were sitting next to you in organic chemistry class.
+- Gritty people train at the edge of their comfort zone. They zero in on one narrow aspect of their performance and set a stretch goal to improve it.
+- The most important thing parents can do, although it's not the only thing they should do, is model the behavior they want from their kids.
+- Grit may carry risk because it's about putting all your eggs in one basket, to some extent.
+- There haven't been genetic studies on grit, but we often think that challenge is inherited but grit is learned. That's not what science says. Science says grit comes from both nature and nurture.
+- As our knees and hips and eyesight deteriorate, we become more dependable, less impulsive, kinder, and less moody. Psychologists call this the maturity principle. My own life experience fits this principle to a T.
+- If you're never able to tolerate a little bit of pain and discomfort, you'll never get better.
+- If the quality and quantity of continuous effort toward goals matters as much as I think it does, we may actually get more productive, not less, as we get older - even if we can't pull all-nighters like we used to.
+- Most people who are really, enduringly interested in something eventually find that it's important, too - and important to other people. Very few people can keep going their whole life doing something and feel like it's merely personally fascinating.
+- There's this really awesome theory of human motivation - that human beings all want three things. One is to be competent, one is to belong, and one is be free, as in to have choice: to not be told what to do but to choose what to do.
+- At various points, in big ways and small, we get knocked down. If we stay down, grit loses. If we get up, grit prevails.
+- I think that is just a limitation of any questionnaire - that we apply a frame of reference or standard. It's a well-known finding in psychology that when people are total beginners at a skill, they tend to overrate their skill level. They don't know what they don't know. The more expert you are, the more critical you become.
+- I do think that whatever ambition I may have had natively was amplified by my father's clear valuing of it. I knew that was what my dad really cared about.
+- Being gritty doesn't mean not showing pain or pretending everything is O.K. In fact, when you look at healthy and successful and giving people, they are extraordinarily meta-cognitive. They're able to say things like, 'Dude, I totally lost my temper this morning.' That ability to reflect on yourself is signature to grit.
+- Boredom is a very self-conscious emotion by definition. Interest is not. So you can actually be completely absorbed in something and, at certain points in your development, not even realize that you're into it.
+- To me, the most shocking thing about grit is how little we know, how little science knows, about building it. Every day, parents and teachers ask me, 'How do I build grit in kids? What do I do to teach kids a solid work ethic? How do I keep them motivated for the long run?' The honest answer is, I don't know.
+- Why do some people try, try again, and why do some people not? That's what I'm after.
+- Many, many individuals will report starting to form their lifelong interests around adolescence. Why that is, researchers don't fully know. But if you can take a trip down memory lane and see what interested you, that's at least a clue as to where your interest may begin to develop.
+- Substituting nuance for novelty is what experts do, and that is why they are never bored.
+- I think it's very important to send the message that, while parents are needed to remind you to practice and occasionally force you to finish things... they also need to learn to respect you. You as an individual, ultimately, are the captain of where you're going.
+- I define talent as the rate at which you get better at something when you try. To be very talented means you get better faster and more easily than other people or other things that you try.
+- I would be surprised if my girls ended up as women without grit. I really would.
+- What we reliably find is that people's perseverance scores are actually higher than their passion scores, and I think it really does get to the fact that working hard is hard, but maybe finding your passion is even more difficult.
+- Everybody knows that effort matters. What was revelatory to me was how much it mattered.
+- Negative feelings are typical of learning, and you shouldn't feel like you're stupid when you're frustrated doing something. You might say to yourself, 'I can't do this,' but you should say, 'That's great.' That means you really have the potential to learn something there.
+- When people think of the word 'drive,' they often think you have it or you don't, and that's where we're wrong. Drive is something that can be encouraged by a wonderful teacher, by a terrific classroom environment, by an awesome soccer team that you are on, and it can be squashed as well.
+- We have found a direct correlation between grit and positive emotions, but the fact that I have no evidence that grit is bad for you doesn't mean it's not. It's always a possibility that in the future researchers will discover a downside to grit.
+- The focus on just thinking about standardized test scores as being synonymous with achievement for teenagers is ridiculous, right? There are so many things that kids care about, where they excel, where they try hard, where they learn important life lessons, that are not picked up by test scores.
+- I didn't tell my kids, 'You have to play viola, and you have to play piano.' They chose these things on their own, and I don't think we have to give kids every choice, but we do have to give them some choice because that autonomy is crucial for fostering passion.
+- One thing that's true of gritty people is they love what they do, and they keep loving what they do. So they're not just in love for a day or a week. People who are really gritty - they're still interested.
+- During all my undergrad years and in high school, I was involved in tutoring and public service. At Harvard, I spent over 35 hours a week doing service. I was a Big Sister, I worked for the homeless, the elderly; it was the epicenter of my focus.
+- Childhood is generally far too early to know what we want to be when we grow up. Longitudinal studies following thousands of people across time have shown that most people only begin to gravitate toward certain vocational interests, and away from others, around middle school.
+- The parenting style that is good for grit is also the parenting style good for most other things: Be really, really demanding, and be very, very supportive.
+- I know a lot of CEOs who are looking for three- to four-year varsity athletes - not necessarily because these people are going to be doing pushups or spiking volleyballs in the workplace, but because they're looking for that continuity, that person who was gritty about something.
+- I do feel it's hard to be modest and humble and egoless when people are telling you you are so great and wanting to give you prizes and energy. I'm trying hard not to be an awful, narcissistic human being.
+- It is important to realize that the process of 'fostering' a passion takes trial and error. It takes experience; you cannot do it all in your head. And it takes a long time.
+- Is it 'a drag' that passions don't come to us all at once, as epiphanies, without the need to actively develop them? Maybe. But the reality is that our early interests are fragile, vaguely defined, and in need of energetic, years-long cultivation and refinement.
+- My dad was not super-intentional in his parenting. He was very self-absorbed. I won't say mean or selfish per se, but very self-absorbed. I think he was just thinking out loud.
+- I now have Grit Scale scores from thousands of American adults. My data provide a snapshot of grit across adulthood. And I've discovered a strikingly consistent pattern: grit and age go hand in hand. Sixty-somethings tend to be grittier, on average, than fifty-somethings, who are in turn grittier than forty-somethings, and so on.
+- You cannot will yourself to be interested in something you're not interested in. But you can actively discover and deepen your interest.
+- It's a very good thing to teach kids to finish what they started in the sense of fulfilling their commitments. So when my daughter told me on the second track meet that she was done with it because she discovered she didn't like competing, I made her finish the season.
+- There's something about taking the path of least resistance that makes a lot of sense. But at the same time, we have to figure out which things in life are worth struggling through.
+- I worked hard when I was a consultant. I worked hard when I was in graduate school looking at neuroscience. I worked hard as a teacher. But those are completely different career paths. And the lack of direction is why I didn't get far enough in any of those things.
+- There are no shortcuts to true excellence.
+- Grit is living life like it's a marathon, not a sprint.
+- I know that instructional time is a zero-sum game, but if we want kids to do well academically, it's hard to imagine that happening if they don't have some control over their attention.
+- I'm so much more gratified by my life now that I have an expertise. I wake up every day thinking about a fairly small set of scientific questions all related to the psychology of achievement, and I'll never get bored of those questions. That's something I couldn't say to you when I was 22 or 25 or probably even 31.
+- Grittier students are more likely to earn their diplomas; grittier teachers are more effective in the classroom. Grittier soldiers are more likely to complete their training, and grittier salespeople are more likely to keep their jobs. The more challenging the domain, the more grit seems to matter.
+- There is a fluency and an ease with which true mastery and expertise always expresses itself, whether it be in writing, whether it be in a mathematical proof, whether it be in a dance that you see on stage, really in every domain. But I think the question is, you know, where does that fluency and mastery come from?
+- Most teachers, when surveyed, say that it is part of their job to help students develop things like grit. This is especially true at the elementary and middle school levels. They feel it's part of their vocation to teach other things that are not formally academic content.
+- When I was 27 years old, I left a very demanding job in management consulting for a job that was even more demanding: teaching. I went to teach seventh graders math in the New York City public schools.
+- Many things matter other than our measured intelligence, so let's get to work on them.
+- Grit and self-control are related, but they're not the same thing.
+- I was a good novice teacher, but I did the things that were obvious. I stayed for lunch for extra tutoring, gave kids my cell phone, and was available. In my first year of teaching, I ended up doubling the math time that a conventional school would have. But I don't think any of these things were path-breaking or unusual.
+- I don't spend a lot of time thinking about my genes because I can't do anything about them.
+- One of the challenges of commencement speeches is that you have this older, wiser person who is accomplished talking to young, not-yet-so-wise, not-yet-accomplished adults or, in high school or middle school, even younger.
+- I think the questions on the grit scale about not letting setbacks disappoint you, finishing what you begin, doing things with focus, I think that those are things I would aspire to or hope for for all our children.
+- Nobody gets to be good at something without effort, no matter what your aptitude is.
+- If you are a young person who is wanting to develop a passion, you cannot expect anyone else to tell you what that passion would be.
+- Grit, in a word, is stamina. But it's not just stamina in your effort. It's also stamina in your direction, stamina in your interests. If you are working on different things but all of them very hard, you're not really going to get anywhere. You'll never become an expert.
+- I believe kids should choose what they want to do, because it's their life, but they have to choose something, and they can't quit in the middle unless there's a really good reason. There are going to be peaks and valleys. You don't want to let kids quit during a valley.
+- I'm not a policy oriented person. I'm constrained to what I study. But educational policy has not yet taken adequate note of the whole child. Kids are not just their IQ or standardized test scores. It matters whether or not they show up, how hard they work.
+- I don't think that every child in America is going to necessarily aspire to, you know, a four-year degree from a liberal arts college or a certain kind of life. I think that people should learn to be excellent in the thing that they choose to do.
+- Some of the things we do are great, but they often have these iterations that are not great. We screw up sometimes. We get rejected.
+- Really, what matters in the long run is sticking with things and working daily to get better at them.
+- The words that we use I think are symbolic of the values that we hold.
+- I think the very idea of character, of developing not just grit, but empathy and curiosity, emotional intelligence - you know, the things that I want my own daughters to develop - the idea that we're going to get there through rewards and punishments seems completely at odds with the idea of character itself.
+- Striving is exhausting. Sometimes I do say things like, 'I wish I were not quite this driven to be excellent.' It's not a comfortable life. It's not relaxed. I'm not relaxed as a person. I mean, I'm not unhappy. But... it's the opposite of being comfortable.
+- Some people prefer a world where we're all equally talented in everything. Whether you prefer that world or not, I don't think that world exists.
+- I will say that if my wildest dreams come true, I will, like, wake up one day, and I will be Carol Dweck, right? Because she is like everything I want to be.

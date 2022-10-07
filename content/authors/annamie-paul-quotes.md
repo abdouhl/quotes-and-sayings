@@ -1,0 +1,82 @@
++++
+author = "Annamie Paul"
+title = "Annamie Paul Quotes"
+quotes_len = "76"
+description = "the best76 Annamie Paul Quotes"
++++
+- There is no question that the Green Party has work to do in addressing racism, anti-Semitism, systemic discrimination in all its forms.
+- I just love traveling.
+- A small group of councillors sought to force a vote of no-confidence in my leadership. They did so with no substantive consultation with the members they represent.
+- There are many parties that have climate messages. I know that it is really challenging to distinguish between plans that really aren't a plan and plans that are credible.
+- I was very painfully honest in saying that there had been times that I thought about stepping down.
+- Even as the leader of the party, my first duty always is to the people who elected me, my first duty always is going to be to represent the people of this riding in Ottawa.
+- I hope people will continue to support me.
+- How many times will we allow Justin Trudeau to get away with pushing strong, competent capable women out of politics when they are seeking to serve?
+- Every single person who is a member of our party deserves to have certainty. They deserve to know that my attention and focus is where it belongs.
+- There are differences of opinion that come up naturally within parties. And certainly Israel and Palestine is one that has demonstrated the differences of opinion.
+- It is extremely hard to have your integrity questioned when you value it so much.
+- Any Green that is elected to Parliament is someone that you can count on, absolutely, to be a climate champion, to work concretely across party lines on this non-partisan issue, which is how we are going to reduce global warming.
+- I didn't apply for shadow cabinet, because as an MP, I had nine critic portfolios, and so it doesn't make any sense for me to be focusing on just one of those as an adviser on policy to the party.
+- I am willing to run anywhere that the Green Party and our membership thinks it makes sense for me to run.
+- Collaboration and collegiality does not mean bowing down. It doesn't mean being brought to heel.
+- To the prime minister, Justin Trudeau, you are no ally and you are no feminist.
+- My grandmother worked as a front-line service worker in the hospitals of Toronto Centre and broke her back doing it in the process.
+- I want to make sure if I do something, I want to make sure it will help and not harm.
+- My children are grown... my husband is an international human rights lawyer and all of his work is outside of Canada. So, I have bags, will travel.
+- The Liberals are intellectually exhausted.
+- We believe that we can win seats with integrity, with good public policy, with evidence-based public policy and that's what it's about for me.
+- I'm going to be working as hard as I can to give a strong Green option to residents and to give them the option of some real representation.
+- Most of the attacks, most of the online hate that I've received has really been targeted at my Jewish identity.
+- People who don't see themselves reflected in an institution tend not to associate themselves with those institutions.
+- Sometimes the most negative voices in the room are the loudest and it's easy for them to drown out the rest.
+- There seems to be this perception that there was some seat waiting out there for me, that Greens were absolutely guaranteed to win - and there wasn't.
+- But I would not have been the leader that I hoped to be if I hadn't put my name forward to represent this community. You have to be daring.
+- Politics still remains a very hostile, unwelcoming place for diverse peoples. It's the reason that we have so few of them in politics.
+- I will do my best and our candidates will do their best to earn one vote at a time.
+- What people need to realize is that when I was elected and put in this role, I was breaking a glass ceiling. What I didn't realize at the time was that I was breaking a glass ceiling that was going to fall on my head and leave a lot of shards of glass that I was going to have to crawl over throughout my time as a leader.
+- Anti-Semitism was a constant presence in the campaign after it became known I was Jewish.
+- If you got the hips, you gotta work 'em.
+- The anti-Semitism was not easy, and it still isn't. You never really get used to it. You're aware it's out there but you're never fully prepared for it.
+- It should not be this difficult for people of good will, people with experience, to offer it in service to their country. There are too many good people that have found it impossible and I simply didn't want to be one of them.
+- We need to move towards a truly just and equitable society by... making sure that every Canadian - whether they're living in long-term care or they're working part-time or they're students or they're Black or they're Indigenous - whatever their circumstances, can live in dignity and security.
+- I do not agree with many of the views that have been expressed by our MPs, but they are of course welcome to express them - and everyone knows that is the Green Party ethos.
+- The Green Party has the most progressive platform and policies related to issues of social and racial justice.
+- I don't think anything replaces the face-to-face meetings and the personal connections that you get when you're in the same room or same place with people.
+- My mother taught in the schools in Toronto Centre.
+- But certainly, I think that it's important to have humility and to acknowledge that you're learning every day as a leader.
+- I'm assuming good will, that people that are running for our council are seeking to do so in the best interest of our party.
+- First woman of colour, first Black person and first Jewish woman elected to lead a major federal party - it was never going to be a walk in the park.
+- Anyone who knows Black women and their hair knows it is a big commitment.
+- For-profit long-term care absolutely needs to go.
+- My son was born between my first and year of graduate studies.
+- It was nothing I ever hid and when I was asked about my background, I of course mentioned I'm Jewish. It's an important part of who I am.
+- The difference between the Liberals and the Conservatives is that the Conservatives are being honest that what they're planning to do is not going to get us past 30 per cent greenhouse gas emissions reductions.
+- It's good news that all the parties, well, with the exception of the People's Party, recognize that we're in a climate crisis. It's bad news that there are parties that still are not being upfront and honest with the people of Canada about what we need to do about it.
+- I have been subjected to what can only be described as an unrelenting onslaught of comments and commentary and trolling online.
+- As only the second Jewish person to lead a federal party with seats, I will say that antisemitism has no place in politics.
+- I'm not going to discuss things that are internal party matters and things that are not supposed to be in public domain.
+- Unfortunately, a platitude is not a plan. So I am encouraging people to turn towards the Green Party if they're looking for a real plan, because what we see is that the other parties, unfortunately, are intellectually exhausted.
+- We cannot abandon those who helped us - the personnel who helped us and aided our efforts when we were in Afghanistan.
+- I was born in Toronto Centre.
+- I'm not taking anything for granted at all.
+- Canada is so far behind on issues related to systemic racism.
+- You have got to have social justice to have climate justice.
+- I have not had any opportunity to develop any hobbies, habits, anything like that.
+- I joined the Green Party because I believe it to be the most progressive party in Canadian politics and offering the most progressive policies and to be constantly working toward a more just and equitable society.
+- When I came back to Canada after my graduate studies, I founded the first organization in Canada focused on political under-representation and trying to change that, and to support a whole new generation of public policy leaders from marginalized groups.
+- Often, when people like me are elected or appointed to positions of senior leadership, the rules of the game seem to change.
+- In the case of a Black woman like myself, the most classic trope of all is that we are angry or we are aggressive. It's very difficult to navigate that because in order to be a leader, and particularly a senior leader, you need to be able to speak with conviction to direct people.
+- Canada's only becoming more diverse. And that still isn't sufficiently reflected in our in our political culture.
+- The Liberal Party of Canada has demonstrated that it is hell bent on winning their majority at almost any cost.
+- It's important to be frank with people: I think that any kind of fruit on pizza is an abomination. I have never been able to understand that. It's not a deal-breaker for me in terms of friendships, but does raise questions for me.
+- We have a profound lack of diversity at the highest levels in our political leadership and it has always been the case.
+- I'm very firmly of the belief that if we want different outcomes, then we're going to have to make some different choices.
+- If you have a diversity of views at the table, you're much more likely to avoid pitfalls.
+- And of course, we've never had a Black person or a woman of color lead a party.
+- I was definitely one of those kids who, for whatever reason, followed politics and public policy.
+- People in Canada are starting to see all of the dimensions of the Green Party.
+- I just don't have the heart for it. I just will not spend any more time focused on political games as opposed to public policy, which is what I entered politics for in the first place, particularly at a time when it is so needed.
+- What I bring is hope to all the people who have not seen themselves represented in politics to this point, hope it's possible we can have a more inclusive style of politics.
+- The climate emergency is and remains the existential crisis of our times and we cannot forget about it because it has not forgotten about us.
+- I'm going to try to live up to what I know the expectations will be for me.
+- It's very important to match a party and to match leadership to a moment.

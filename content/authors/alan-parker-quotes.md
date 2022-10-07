@@ -1,0 +1,21 @@
++++
+author = "Alan Parker"
+title = "Alan Parker Quotes"
+quotes_len = "15"
+description = "the best15 Alan Parker Quotes"
++++
+- A great movie evolves when everybody has the same vision in their heads.
+- Period recreation is very difficult unless you make a black-and-white movie.
+- I've always been completely autocratic. I've never learned to be diplomatic or democratic.
+- Film-making is a physically hard job.
+- A lot of directors prefer the solitude of the editing process, but I revel in the craziness of what a film set is.
+- I was once described by one of my critics as an aesthetic fascist.
+- I'm always afraid someone's going to tap me on the shoulder one day and say, 'Back to North London.'
+- I'm a pluralist. I've always argued that as many different films as possible should be made.
+- Rain is also very difficult to film, particularly in Ireland because it's quite fine, so fine that the Irish don't even acknowledge that it exists.
+- I always argued against the auteur theory; films are a collaborative art form. I've had some fantastically good people help me make the movies.
+- Most directors have little lists in their heads of people they really want to work with.
+- Personally I am very much against the death penalty for several reasons.
+- The films that I do tend to polarise people's views.
+- Making a film is so hard that if you don't have your main actors going along with the ride with the rest of the crew it can make your life very difficult.
+- I turn on the TV sometimes, start watching something and think: 'This seems quite good, a bit familiar.' Then I realise... It's one of my movies. It's a pretty odd feeling.

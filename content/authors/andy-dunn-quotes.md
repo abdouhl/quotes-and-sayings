@@ -1,0 +1,106 @@
++++
+author = "Andy Dunn"
+title = "Andy Dunn Quotes"
+quotes_len = "100"
+description = "the best100 Andy Dunn Quotes"
++++
+- Oddly, I believe that emotional proximity we feel to close loved ones makes it hard to be honest with them about feelings of depression.
+- The more defensive and angry I get, the more I later discover those feelings are usually just projections of feelings I am having towards myself.
+- I want to be Batman.
+- There are five kinds of great apes: bonobos, chimpanzees, orangutans, gorillas, and the one which people always think of last: Humans!
+- I've been in thousands of conversations dripping with misogyny. I've initiated many of those conversations myself. From my fraternity roots to my bachelor days in New York, I know I have not always shown up in ways that I am proud of.
+- Money greases the wheel of American democracy and corrupts it all.
+- I don't feel I'm better than any man out there or that I have anything to teach, and the more I learn about myself, the less comfortable I feel saying anything at all.
+- Graduating business school, I had $150,000 of debt. An investment firm offered me a steady job, but it didn't feel right. It was 2007 in Silicon Valley, and I dreamed of starting an Internet company.
+- Marc Lore has been a mentor of mine for a long time. He taught me how to hire people and how to do the hardest thing in business, which is to make a great culture. I believe Marc is the most innovative and ambitious e-commerce entrepreneur on the planet.
+- The digitally native vertical brand (DNVB) is born on the Internet. It is aimed squarely at millennials and digital natives. It doesn't have to adapt to the future; it is the future. It doesn't need to get younger customers. It starts with younger customers.
+- Taking risks and being focused, sometimes, are at odds. Both are required to build a great company.
+- Who would you rather be with: someone with more alternatives or someone with fewer?
+- As a society, we must not allow human rights abuses to go unnoticed and undocumented; it is a vital mission to fight ignorance of these tragic events.
+- A good idea is not enough. It must be the fit of a particular idea for a particular entrepreneur and, ideally, unfair advantages in why said particular entrepreneur is going to address said particular idea.
+- What Americans do is we come to each other's aid.
+- From Nike, we buy victory. From Under Armour, we buy protection. From Lululemon, we buy zen. From Patagonia, we buy conservation. From BMW, we buy performance.
+- Entrepreneurs are not that special. If you are one, stop drinking the Kool Aid, and if you aren't, definitely don't drink it.
+- My own hope is that, as a human species, we are on a long journey of evolution toward increasingly more tolerant and nonviolent behavior.
+- Being a founder is about being so driven to distraction by the world that you want to put something new in it. It's an act of creation, of irreverence, of defiance, of hope, and arguably one of narcissism.
+- Bonobos are not monkeys! Bonobos are apes.
+- Plenty of entrepreneurs can start a company. What is more rare is to evolve it and to scale with it over time.
+- We do not talk enough about spirit in business, yet it is what moves employees, customers, and shareholders alike.
+- No one gave me a recipe for how to create company culture. I wish I had had one.
+- At Bonobos, we believe in the future of men.
+- Culture is an output of a bunch of inputs that have to come together the right way. Specifically, it is the collision of people and their context, how they interact with each other in that context, and then how that context evolves based on those interactions as they multiply.
+- A little narcissism is good. At least that's what I am telling myself.
+- Lincoln was an American messiah, seemingly sent by God to save our country, our union, and our soul. He prioritized unity above all. Perhaps we should do the same.
+- Sometimes, to move into the future, you must go back the past.
+- Most of the time, when you need something at a company, you make it. If you want to sell a product, you create it. If you need a head of marketing, you hire one. If you want to create a great company culture, what do you do? The lack of a clear answer on this is why I believe most companies don't have a great culture.
+- My Indian grandmother was born in Punjab.
+- The prescience of the founding fathers continues to astonish me. They were freedom fighters. They made America. They gave us this magical country. They also were slaveowners - which is confusing to their legacy. How could such brilliant men have only secured freedom for themselves, but not their wives or their slaves?
+- My own belief is all men should be feminists, and with enthusiasm.
+- The history of innovation is the story of ideas that seemed dumb at the time.
+- Too many entrepreneurs think their valuation is the real economic price of their company. It's not. It's not a real economic price unless you are selling 100%.
+- A founder plays a magical role at the company: they invented or, as in my case, co-invented it. If and when a founder walks out the door, there is something spiritual that walks out the door, too.
+- Tolerance, diversity, and inclusion are not political opinions. They are non-negotiable human rights - hard fought and secured in America.
+- My definition of gender expands beyond just two genders.
+- Perhaps America works like this: Presidencies swing, as reactions to each other, like a pendulum. My optimistic belief is it is how we keep our country in balance.
+- A company that can't fire people well is like a forest that never has a fire. It becomes overgrown, full of weeds, and it fails.
+- Everyone knows robots write the best books and make the best music. Just look at Daft Punk.
+- At Bonobos, we believe that human beings are tired of shopping in stores.
+- Money talks, and when it starts to say goodbye, humans listen and act accordingly.
+- Everyone is entitled to their own political opinions. It is what makes our country great.
+- A great merchant delivers both joy and profit. Then profit gets reinvested in more joy.
+- When it came to religion, I felt I belonged to no one. It saddened me, it angered me, it confused me, and it made me religiously ambivalent. So I chose my calling: Cubs baseball.
+- Why should men be constrained by antiquated stereotypes of masculinity? What does it even mean to 'Be a Real Man' anymore? Shouldn't we all be celebrating a wide range of definitions of manhood?
+- Narcissistic personality disorder (NPD) cannot be medicated. It is treatable only through therapy. The problem is therapy is rarely sought by the afflicted. It cannot be cured.
+- 'Hamilton' is not just the best musical I've ever seen. It may be the best thing I've ever seen.
+- Marriage equality is not an issue of politics: it is an issue of justice achieved by political means.
+- The loudest voice in the room, sometimes, is the absent voice of the silenced.
+- Leadership is inspiring people. Management is keeping the trains running on time.
+- 'I'm sorry, honey. I was wrong.' Are there six more magical words you can say to your wife?
+- My mom is a Sikh immigrant born in a refugee camp. My Irish-Swedish-Norwegian-Danish-English-American dad grew up Baptist.
+- Passion provides purpose, but data drives decisions.
+- Good parents are always on time. So are good CEOs.
+- The act of founding a company is its own act of narcissism: 'I alone can do this.'
+- Maybe everyone lives forever. Or maybe, like in the animated movie 'Coco,' only those whose stories get told by the living definitely do. It takes a story worth telling.
+- You don't think, when you start a company as the founding CEO, that if your venture actually works, you end up with three jobs: founder, CEO, and chair of the board. The first eight years at Bonobos, I have learned a lot about the tension between the first two. It didn't even occur to me that I had the third job until much later.
+- I'm not naive enough to believe it's in our nature to step outside our comfort zones.
+- When the forces of liberalism and capitalism converge, change happens.
+- Tenacity is not about avoiding being overwhelmed but being indomitable in the face of the overwhelming odds of your venture's failure.
+- History rewards those who can change their minds when the stakes are high.
+- I have always loved the Day of the Dead - a chance to celebrate death rather than to treat it like that awful scene in the cemetery.
+- Your sympathy is worthless to people in need without action.
+- A founder is the emotional energy aorta of a company. The energy that emanates from a founder attracts people and capital to the endeavor. When that energy goes away, it can feel impossible to do the job.
+- Honesty is love.
+- The story of the merchant is told by the marketer. They need each other, and if they get along, it's peanut butter and jelly. If they don't, it's oil and water.
+- It's now arguably over-written about and over-discussed how hard it is to be an entrepreneur. Of course it's hard. So is being a parent. Let's stop over-congratulating ourselves and let's just do our work.
+- The American lionization of the entrepreneur is to ignore its foibles - the narcissism, the workaholism, the neglect of family, the imbalance, the obsession. These are not universally good things, though they are frequently universal to building great companies.
+- In a conversation with a male executive, he tells me that he doesn't hire women because 'it's not worth the trouble.' I mentally blacklist him.
+- Since its founding, I've been friends with ModCloth's cofounders and many of its executives and investors. I have long imagined we would one day belong under one roof with that brand as a force in the future of apparel.
+- It is obvious, in retrospect, to lean on those who love us most. With depression, in part because of the shame attached to it, it's harder to be honest.
+- To an entrepreneur, closing a financing often feels like the end of a marathon. It's actually the starting gun.
+- I have come to an odd belief, which is that we don't make decisions so much as the decisions make us. The goal of a decision isn't just to find the path forward, but to become someone entirely different than who we might have been as a function of the path we take.
+- What separates humans from other animals is our empathy. With the possible exception of bonobos, we are the most empathetic animal on the planet.
+- Growing up, my religious identity was primarily one of confusion. Nothing was pushed on me; nothing was overtly offered.
+- Business books are generally read and written by people who aren't good at business.
+- The illusion when things are going your way is that it's gonna just keep going. But it never does.
+- Only by being obsessed with little things do amazing things emerge.
+- The youngest boy in an Indian family has a good life. Growing up in a matriarchal family where my Indian mom's culture was dominant, I experienced this first hand.
+- With more women in the workplace and in positions of power and leadership, with the legalization of gay marriage and the emerging liberation of the LGBTQ community, traditional definitions of masculinity are changing for the better.
+- The life of an entrepreneur is the life of a human. Some days are amazing. Some days are a struggle. A lot are in between. It's the same for all of us.
+- We built Bonobos, with more than a few dozen customers and counting, and the industry we were disrupting didn't seem to care. Then we 'sold out' to Walmart. Abracadabra. The red carpet rolled open.
+- I am particularly wary of authors who put themselves on the cover of their own book.
+- If you are a real leader, every single thing is your fault.
+- However much risk we are taking, we can and probably should take more.
+- Every company can use someone advocating loudly for the customer.
+- If you are not something, how do you become it? It is not obvious to me that you can be something you are not.
+- The rise of women and feminism is well documented. What is equally fascinating - and less talked about - is the impact this has had on men.
+- The hardest thing in leadership is managing your own psychology, and yet it's also the least talked about.
+- Not all Millennials think alike. A demographic is not a psychographic.
+- The only reason courage exists is because sometimes it is required.
+- The general rule is that entrepreneurs need the fear of their brand's demise to make it magic. It is too safe to do it as a corporate subsidiary.
+- A protective self-narrative during conflict and duress sometimes obscures us from seeing the worst in ourselves. When the self-sustaining haze lifts after that conflict has subsided, we may recognize in ourselves the flaws the other saw in us at the time that we didn't have the emotional bandwidth to examine in the moment.
+- Empathy is the bridge to understand those who you may be lucky to one day lead, and it is - in my opinion - the most under-appreciated human skill in business.
+- The digitally-native vertical brand drives a lot more customer intimacy than its competition. The data is better because every transaction and interaction is captured.
+- The people that elected Donald Trump are Americans. They are every bit as entitled to weigh in on who should lead as any of us. The fact that they disagree with the values some of us hold dear is the point - America has always been about a battle of ideas that plays out over time.
+- People who are great at making decisions in the face of uncertainty have great judgment.
+- It's easy to be cynical about American politics. It's more important not to be.
+- We all have an entrepreneur in us; it's just whether we choose the tradeoffs to become one.

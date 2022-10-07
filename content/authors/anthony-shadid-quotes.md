@@ -1,0 +1,14 @@
++++
+author = "Anthony Shadid"
+title = "Anthony Shadid Quotes"
+quotes_len = "8"
+description = "the best8 Anthony Shadid Quotes"
++++
+- I think Syria is often covered by phone. You have to talk to activists. You have to try to read the tea leaves. You have to talk to government officials. It's remote-control reporting in a way.
+- I had a great childhood. I think writers are always better off when they have more twisted childhoods, but I didn't.
+- The Americans invaded a country without understanding what eight years of a war with Iran had meant, how that traumatized Iraq. They didn't appreciate what they support for a decade of sanctions in Iraq had done to Iraq and the bitterness that it created and that it wiped out the middle class.
+- Journalism is always the art of the incomplete. You get bits and pieces.
+- I don't think there's any story worth dying for, but I do think there are stories worth taking risks for.
+- On the flip side, I enjoy covering the Arab world, I've spent my entire career here in the Middle East, but I would never call myself a war correspondent.
+- I started doing some interviews with elderly people in the family because I knew they would pass away and we would lose the power of their story.
+- The one thing that shaped my life was when I was 15 or 16: I knew I wanted to be a journalist. And not just a journalist, but a journalist in the Middle East, and to go back to the Arab world and try to understand what it meant to be Lebanese.

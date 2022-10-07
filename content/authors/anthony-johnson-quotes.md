@@ -1,0 +1,106 @@
++++
+author = "Anthony Johnson"
+title = "Anthony Johnson Quotes"
+quotes_len = "100"
+description = "the best100 Anthony Johnson Quotes"
++++
+- I take my job seriously.
+- I've been down a pretty crazy road. The story of me is pretty out there.
+- First and foremost, I want to be the champ.
+- I don't think losing too much weight is healthy at all, but look who's talking. I used to lose 40-to-50 pounds.
+- I don't think anybody should put limits on what you believe you can do.
+- I'm a good wrestler.
+- I don't worry about what the media has to say.
+- Exciting fighters put on exciting fights, and that's what fans want to see.
+- I'm not perfect. Show me somebody that hasn't talked trash about somebody and put it on Facebook.
+- I'm working hard to get to the title, I've been busting my butt off to get to the title.
+- The grandmothers always want someone to eat.
+- I'll always keep fighting, keep being myself and be as respectful as I can be to stay as true to myself as I can and stay humble.
+- When you face a guy like Nogueira, you think, 'OK, this is about to be a battle,' because the last name Nogueira means a lot.
+- I just don't see anything Vitor can do to me that I can't do to him and then some.
+- I learn from my mistakes and I learned how to accept things and how to take them whenever my opponent changes.
+- I enjoyed the UFC.
+- I want to fight as long as possible.
+- When I was younger, I was young and wild.
+- We're supposed to make mistakes and learn.
+- I never come into a fight with any type of emotion.
+- My grandparents are amazing and most people love their grandparents. It's no different with me.
+- I hold my breath with my punches in the fight and you know how that catches up with you.
+- We all work hard. We don't have time to sit back and wait on anyone. It's a short career.
+- Speaking on all of it in general, I think we, as MMA fighters, should be getting paid just as well as the NBA players, the NFL players and Major League Baseball, hockey as well, I'm not trying to skip any sport as I don't think any sport is superior to the other.
+- I just gotta keep improving until I know that if I end up in a certain situations I know that I can feel comfortable.
+- I don't believe in fighting any dog period.
+- I am who I am. I'm not living for anyone else, I'm doing things for me. Regardless of what I do, someone's going to have an opinion about something. And that goes for... no matter who you are.
+- Nobody's perfect and if somebody says they're perfect then please, let me meet them.
+- There was only one person that was just too big for me and that was Andrei Arlovski.
+- In this sport, you're going to have your losses. That's just the name of the sport, nobody can stay on top forever.
+- When I dropped Daniel Cormier I definitely tried to finish him off.
+- When you're fighting a guy like me, you just never know what's going to happen.
+- I was sitting around bored one day and was thinking of a name that would fit me. They have 'Cabbage,' 'Rampage,' 'Shogun,' and 'Ninja' so why can't we have a 'Rumble?'
+- If I see an opening, I go for it.
+- I learned you can't control everything. You've got to roll with the dice sometimes.
+- When you're fighting a guy like Gustafsson, you just never know what's going to happen.
+- At first, I wanted to compete and win a world title because I knew I was supposed to win a world title. I felt it.
+- You win some, you lose some; it's all about can you bounce back.
+- I take very good care of all my dogs and I treat them all the same.
+- I'm going to believe in myself. I don't care what anyone says.
+- I don't take anybody for granted, but I see myself beating each and every fighter that I face.
+- After I got cut by the UFC for not making weight, I realized I was making myself look like a fool. I was hurting my team. I was hurting my family. I was hurting myself.
+- When I was fighting at 170 I thought everybody was big. At the same time, I don't see guys as being too big for me as long as I can see them eye-to-eye.
+- I don't know what I'm painted as. I can be happy as hell and then someone says something and I feel different. People are going to say whatever they want to say to... get people to read their story. I just ask people to write the whole, complete story.
+- GSP will lose eventually.
+- I make people adjust to what I do, and worry about what I do.
+- I don't expect to fight people who are not on my level.
+- You make a mistake, you better hope I wasn't paying attention and didn't see it, but if I catch you doing it and you think I'm not paying attention, then that's when you get in trouble.
+- I know I can end a fight in a second, but I never think about being one of the most dangerous guys. I'm just not that way.
+- Whatever the champion can do, you always need to believe you can do more. It's a mental thing.
+- I want to be like Georges St Pierre, working my way up from the ground and be the best.
+- If I never got invited back into the UFC, I would have accepted it and made it work to the best of my ability. If that's the way the dice rolled, then that's just how they rolled.
+- I had my issues for 2014, but at the end of the day, it was still an amazing year for me.
+- I've trained with some of the best when it comes to stand up.
+- I want to stand with everybody as that is where you show the men from the boys.
+- It wasn't that I didn't think I could hang with the guys at 185 or 205. I just thought I'd be the more dominant guy at 170. I'm not afraid of anybody in any weight class. That has never been an issue.
+- I was super excited to fight Yoel. He's dangerous; super dangerous.
+- Things happen all the time and nothing ever goes the way you truly planned.
+- I'm a wrestler at heart. And, for wrestling, we usually lose as much weight as we can. We're pretty stubborn. If we say we're going to do something, we do it. That's just how wrestlers are. I just felt like I was the bigger, stronger, faster guy at 170. That's why I did it.
+- As long as I win and keep moving forward, I make a statement every time I win.
+- A lot can happen in 41 seconds.
+- I don't mind fighting Vitor or anybody else they give me. I don't care.
+- There was a time when my siblings could have walked up to me and we could have had a conversation and I wouldn't have recognized them as my blood.
+- At 185 in the UFC they had Rich Franklin and Anderson Silva, and I couldn't go to 205 - they had Randy Couture, Chuck Liddell and all of those big guys. I just wasn't mature enough, so if I hadn't fought at 170 I probably wouldn't have had the career I've had.
+- I just enjoy my life, go with the flow and spend time with the people that I love.
+- When you're walking out to the cage and fighting a guy like Vitor Belfort and you've got the crowd going crazy, most people would lose the fight right there and then. Since I've fought in a crowd that crazy and wild, I feel that nothing else is going to be like that.
+- DC will always talk. I just found out he just talks. I kind of figured it out. He talks just to hear himself talk. I know he wants to be that guy that's a big time promoter and all this other stuff, but I think he's his own biggest cheerleader and his worst promoter for sure.
+- In Sweden everybody is so calm and relaxed. I love it.
+- There's no man on the planet that has a five-fight win streak that isn't confident.
+- Glover is a brawler.
+- Much respect to Daniel Cormier, he's a hell of an athlete and hell of a champion.
+- Koscheck has evolved and he's a great fighter and now he's got hands, so he's more dangerous.
+- One thing you have to know is that I'm a guy who likes sweet drinks.
+- Either I'm going out on my shield or you're going out on your shield. That's just what it is. I go out there and fight. I see an opening, I take it. You make a mistake, I take it.
+- I go in and I fight and I do my best, win or lose. That's just what it is with me.
+- I wish the best for everybody.
+- I'm trained to fight, not chase people around.
+- Wrestling is not on my radar.
+- I've been working hard. I'm working on my wrestling, grappling more and I'm always working on my cardio.
+- If I win, I make a statement, and if I lose, I made a statement, too. Either way, it's going to let everyone know where I belong. But I'll tell you, I never believe I'm going to lose a fight.
+- I like all sports, even golf.
+- People have ups and downs. Things happen for a reason.
+- Most people when I hit them once, they're done.
+- I got fat but I was happy.
+- I'm ready for whatever D.C. can throw at me. But if he stands there and tries to dish with me, be my guest.
+- It's not just Georges St. Pierre, I see myself being able to beat every fighter.
+- As long as my friends and family know who I am, I sleep well at night.
+- If I'm tired one day, then I'll take the day off instead of pushing through it, because then that's when you hurt yourself.
+- I do believe in ring rust. If you got it, you got it. And if you don't, you don't.
+- I ain't trying to fight until I'm 35. I'm trying to make my money and go on to something different - do bigger and better things with my life. Hell, I don't want to get punched in the head that damn much. I've got other things I want to do.
+- I definitely want to give the fans what they want to see.
+- I think NFT is a grand slam.
+- Going down to 170 was hell. But if I hadn't fought at 170, people wouldn't know who Anthony 'Rumble' Johnson is.
+- I feel like I aged for the better, for sure.
+- I played baseball a little bit and ran some track. I was a catcher at one point and I was at shortstop.
+- I sleep well at night. I have a nice comfy bed. I have awesome friends. I sleep well at night.
+- I want to keep making history, keep entertaining, and keep making guys shake in their boots.
+- I don't wait around. I do what I have to do to win. They make a mistake and it's lights out. That's just how it is.
+- If you're a fighter, you're an alpha male. You have a chip on your shoulder.
+- Every fight, I feel that I get better, and better.

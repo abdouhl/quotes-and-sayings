@@ -1,0 +1,34 @@
++++
+author = "Adam Richman"
+title = "Adam Richman Quotes"
+quotes_len = "28"
+description = "the best28 Adam Richman Quotes"
++++
+- In a day and age when there are so many culinary competitions - ranging from contests of taste to those of technique - The World Food Championships will be the ultimate food competition.
+- Natto, Japanese ferment bean paste, will never cross my lips again. Spam Musubi, on the other hand, is something I love. I used to have a roommate of Vietnamese descent, and he would eat it all the time. It looked gross, but I finally had it - wrapped in seaweed and rice - it was terrific.
+- A good spicy challenge strikes a balance between flavour and fear.
+- To combat the monotony of gym workouts, I started playing soccer. I looked at workouts as training sessions. My soccer training includes squats, pushups, resistance-band work, and sprints. Ninety minutes of running became part of my love of the game rather than a chore.
+- To go from hating the way I looked to being a 'Cosmo' centerfold is a profound honor.
+- I always hated watching cooking shows where the chef would use ingredients that I couldn't get my hands on, cooking implements that I couldn't afford, recipes that I could never have access to.
+- I've long struggled with my body image and have worked hard to achieve a healthy weight.
+- I like being the people's champion when it comes to dining.
+- Super polished signage is not always a good sign. I'm always looking for places that you have to know about to find. Also, just food-wise, if I'm eating ethnic cuisine - I hate that phrase, but still - If I'm eating Mexican food, I'm looking to see that there are Mexicans in the restaurant. They know if the food is being made right.
+- Now you can get artisanal everything - pickles, coffees, house-cured meats, mustard. The pendulum has swung back to this kind of food, and it gives me the greatest hope for the future, especially because we're living in a time with issues like polluted Gulf Coast seafood and food labeled organic that may not really be organic.
+- I love that you can pick up your phone at a hotel and have something to eat in your bed. I love home, but there are amenities at a hotel that you simply don't have at home.
+- These $40 burgers with foie gras and truffles and all of that flies in the face of one of the most proletarian foods around. It's overpriced, overdone and just not worth it.
+- In L.A., I love the L'Ermitage in Beverly Hills. Also, the Beverly Wilshire, where they make great huevos rancheros. I also love Shutters on the Beach, where I walk around everywhere in a bathrobe.
+- If you do a quantity challenge, the problem you'd face would be a starchy challenge. If it has a lot of potatoes, a lot of bread or fried elements, that's difficult. With heat challenges, challenges that use the whole pepper are much, much easier than ones that use pepper extract. That's concentrated, and also devoid of flavour. It's just heat.
+- Back in the day, I used to watch 'The Cajun Chef' with Justin Wilson. His mixing would go one way, and his stomach would go the other.
+- I realized that I didn't need nearly as many calories as I'd grown accustomed to. I ate 100 to 200 calories every two hours or so, consumed healthy proteins (yogurt, lean meat, turkey jerky), and drank a gallon of water a day. And as my weight dropped, my energy soared.
+- The Travel Channel had success with their 'Food Paradise' series, '10 Best Places to Pig Out' and those types of specials, so they knew there was a market for comfort food and wanted to develop a show around it.
+- There is no right way to go on an edible journey. You can never tell what is going to be great, so you have to try everything. If you become doctrinaire about sticking to lowbrow foods or epicurean delights, your just being an extremist, and it won't do you any good.
+- I was logging 15-hour days, sampling food every minute. I had access to these amazing dishes, and it was easy to lose sight of how quickly the bites added up.
+- My most memorable food challenge was probably the Big Texan in Amarillo. All the big executives called me because it was such an iconic challenge, and a victory in that would be a legitimizing device for myself as much as for the show.
+- It's weird because people think the biggest guys are the biggest eaters, but fat doesn't expand as much as muscle, so you want someone with a big frame who can expand.
+- I knew what I was getting into: 72-ounce steaks, shakes by the quart, atomic wings. When I landed 'Man v. Food' in 2008, I accepted the fact that my weight would fluctuate. But instead of stressing about the scale, I made my long-term health a primary concern.
+- I went in for a checkup, and when my doctor had me stand on the scale, even he was surprised. Seeing that number (which I'll take to the grave) was a turning point. I knew I needed to make a change. I cut out white flour and starches and worked with my doctor and a nutritionist to develop a plan.
+- There's no way that I could have known about a 72-oz. steak challenge in Amarillo unless thousands upon thousands of locals and travellers alike had attempted it. I guess if 'Man V Food' is me paying homage to these legends, then I suppose 'Man V Food Nation' is the legacy.
+- The first Mardi Gras I went to, I stayed at the Tulane AE Pi house on Broadway. Slept on a pool table one night, slept under it the next.
+- If you're a guy who's always been the fun-to-be-around teddy bear, then all of a sudden people are viewing you as sexy, it's nice. It's great not having to be the plucky best friend or the comic relief anymore - I love that.
+- 'Man v. Food' was the biggest career-defining opportunity. I went from anonymity to someone of note with access to amazing eateries.
+- I remember my late father, who was the biggest football fan I have ever known, used to stress when I was younger that, win or lose, you always have to compete with honor.

@@ -1,0 +1,17 @@
++++
+author = "Anthony Storr"
+title = "Anthony Storr Quotes"
+quotes_len = "11"
+description = "the best11 Anthony Storr Quotes"
++++
+- If we did not look to marriage as the principal source of happiness, fewer marriages would end in tears.
+- It is only when we no longer compulsively need someone that we can have a real relationship with them.
+- I get intrigued by a puzzle, and writing a book is the best way to solve it.
+- Since I was not able wholly to subscribe to any one set of beliefs advanced by any 'guru' I had to fall back on my own, however derivative.
+- I want to show that the dividing lines between sanity and mental illness have been drawn in the wrong place.
+- The sane are madder than we think, the mad saner.
+- It's not psychopathology that counts. It's what you do with it.
+- The professional must learn to be moved and touched emotionally, yet at the same time stand back objectively: I've seen a lot of damage done by tea and sympathy.
+- With the exception of certain rodents, no other vertebrate except Homo sapiens habitually destroys members of his own species.
+- I owed Lewis one thing, at least. Once you had suffered the experience of presenting a case at one of his Monday morning conferences, no other public appearance, whether on radio, TV or the lecture platform, could hold any terrors for you.
+- Originality implies being bold enough to go beyond accepted norms.

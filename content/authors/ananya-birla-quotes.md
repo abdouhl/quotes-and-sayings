@@ -1,0 +1,106 @@
++++
+author = "Ananya Birla"
+title = "Ananya Birla Quotes"
+quotes_len = "100"
+description = "the best100 Ananya Birla Quotes"
++++
+- I write about personal experiences.
+- I've been hugely inspired by Khalid, XXX, Post Malone, and The Weekend. That's the kind of sound that has really inspired me.
+- 'Let There Be Love' is going to be my very first international single release after going independent and I'm beyond excited.
+- Some relationships don't last for a lifetime but we still feel like it is the one that is meant to be.
+- I want to work on reaching out to people, through my music, at the grass-roots level.
+- I work out one-and-a-half hours a day, five times a week to strengthen my muscles and increase tone.
+- Music has influenced my life and is one of the most treasured things for me. It speaks a universal language and for me, it is extremely important to stay connected to it.
+- I don't think my vibe will work in Bollywood. But Hollywood, maybe.
+- I look up to people like Michael Jackson because he set up pop culture.
+- My creative energy and inputs have always been respected.
+- To me, it is all about churning out good music. But, criticisms, which are personal, hurt of course.
+- When I was at university in England, I went through a difficult phase. Outwardly everything seemed fine, and I was doing really well academically, but I was suffering from anxiety and frequent panic attacks and found it so difficult to reach out for help without people undermining my abilities.
+- After my day at the Uni winded up, I used to go and perform gigs - I used to look forward to playing in front of an audience. It was when people came to me and gave me positive feedback that I got the confidence to pursue this as a dream.
+- I used to be locked up in my bedroom for hours, just listening to music, making some of my own, doodling and writing poetry.
+- I am completely invested in my music - committed to it full time.
+- Of course, I have privileges that others don't. But, you don't choose where you are born. If you want to hate me for that, I am sorry.
+- I love soft music, slow tracks and rap.
+- I believe it is only when one comes out of adversity, that one starts to see real beauty.
+- Mumbai can be contagious. The pace of life is so fast that if I travel out of the city I am happy for a few days, but then I crave the Mumbai hit.
+- My future was planned before my birth. I was supposed to get married or be involved in the family business. But I was all about breaking barriers and started thinking out of the box when I was 13-14 years old. Finally, at 17, I floated my own Microfinance Institution (MFI) called Svatantra.
+- My father has never influenced the strategy anywhere.
+- I started writing poetry when I was 12 years old and also undertook vocal training since a young age. However, it was only during my time at the University of Oxford did the musician in me came alive.
+- My parents have always been very supportive. Whenever any of them says they are proud of me that's the highlight of my day!
+- I have seen the way a conglomerate works. My personal calling was in start-ups, so I built my own start-up.
+- I actually started learning the santoor around the age of 9. I was inspired by my mother who I used to watch play for hours.
+- The beauty of music is that it is a universal language. I truly believe it knows no boundaries of any kind.
+- I am my own person with my own experiences, personality, and definition of success.
+- There were certainly more conventional and predictable paths that I could have taken in life, but I believe in being true to oneself and following the thing that sets your soul on fire. For me, that is music.
+- I bought a Burberry jacket that I call my Chris Martin jacket. It's a bomber and was very expensive - there are just two in the world - and I felt very guilty.
+- I have promised my mum that I am going to get a degree even if I turn 50.
+- An empowered and enriched workforce is the backbone of a company's success framework.
+- I love playing acoustic guitar because I strum with my hands to feel more connected.
+- All my music is driven by an urge to connect with people, to share with them in the experience of being human - the good, the bad, and the ugly!
+- I didn't have any pressure to join my dad to help with the family business. I don't think he needs any sort of support at all. That said, whenever he needs my help, I will always be there for him.
+- South India, and in particular Hyderabad, holds a special place in my heart because I have a huge fan base here.
+- I love music and I want to make India proud on a global level and I will not stop till it happens, I don't think there will be a finish line.
+- The pandemic has been such an awful time for so many people around the world, but it has also been a reminder for us about the things that really matter - the people in our lives and the love we have for them.
+- What attracted me towards microfinance is it's a very sustainable business, which has an impact on people's lives yet it can be very profitable.
+- The only powerful emotion that we have control over is love.
+- In India, there is a huge stigma attached to one having a mental illness; this not only makes it worse for the sufferer but also for their caregivers.
+- 'Unstoppable' is a song that I wrote about my mom.
+- The Microfinance segment is a challenging client servicing space and thus requires a great amount of dedication, integrity and teamwork.
+- I am following my dream. I've always loved music and believed in making music.
+- An entrepreneur need not know everything but he or she should lead a team of persons who are thorough in different aspects.
+- If business has my mind, music has my heart and soul.
+- It is as imperative to take care of our minds as is our bodies and hence seeking help for mental illness is of paramount importance.
+- I often buy things, feel a little guilty, but then think that it's so worth it.
+- It's important to be unconventional.
+- My father has a golden voice and sings beautifully. So does my brother, and my sister pursues dance as well. Love for the fine arts runs in our family in some way or the other.
+- I think that when people see that a successful person who has suffered and is a survivor of mental illness, and is still very successful, I think it gives them a lot of strength.
+- It's okay to have moments where you feel weak; you don't always have to be strong.
+- I am vibe oriented and am able to read people right most of the time.
+- Aaron Pearce, a Grammy-winning producer sent me 14 songs, out of which I opted for Let There be Love.' My strategic manager Greg Thompson pitched it to SiriusXM and it all just came together.
+- I respect and admire my family, but they've never expected me to walk in their footsteps.
+- My mom is very open-minded and has made Dad open-minded too.
+- At university, I used to cheat and use precooked meals and then tell my friends that I've cooked it. They thought I had skills!
+- Farhan Akhtar is a good friend of mine.
+- I witnessed first-hand the self-defeating results of putting yourself under so much pressure to perform.
+- My earliest memory of music has to be watching my mother play the santoor.
+- Junk food was never allowed at home, and personally too, there is no love for aerated drinks.
+- Power and money are not what truly matter, qualities of heart matter more.
+- Mental health is an issue ailing everyone - it is so omnipresent in society, we must work towards making it better.
+- It is so important to stay hydrated when you fly.
+- I fly to London or the U.S. to record my music nearly once a month.
+- I like to come up with new ideas and see them grow.
+- I heard that Hubballi-Dharwad is going to be a Smart City. But it should ensure the sense of community and love is not lost.
+- I just came from school one day and told my mom I want to start my finance company.
+- Svatantra's journey began with a vision to make women in rural areas self-sustainable.
+- The first song I learnt to play was Leaving on a Jet Plane.'
+- The jet lag really gets to me sometimes and I still haven't found a cure.
+- When I was growing up, my father was naturally a very busy man and was not around for long periods of time. Despite that he was always emotionally with me.
+- I have always felt most comfortable singing in English, perhaps because I think in English.
+- If I want to dance, I listen to Meghan Trainor, Katy Perry, Justin Timeberlake.
+- My mom Neerja and I started this movement called Mpower. The whole idea is to break the stigma attached to mental illnesses.
+- I often take off with my friends for a beach break in Maldives.
+- I would say that for me while growing up, music was my best friend in many ways, and I hope my music can do that for others, to make them feel less alone.
+- I would describe my sound in the field of electro pop. A combination of deep yet simple lyrics coupled with easy beats.
+- There are not many musicians from India who are working internationally in pop. My aim is to change that and show the world that we have so much more to offer.
+- I am privileged to have people around me who understand mental illnesses and mental health. However, the stigma around it is huge.
+- My family is in business since long. No one has been in the entertainment industry and in the public eye. So, it was a great deal for me to get into.
+- I have always been musically inclined, whether it's been playing the santoor from a young age or writing poetry that has now evolved into songwriting. So, I wouldn't really call it a focus shift, but just pursuing a career path I am passionate about.
+- I believe that friendship is life's most precious and amazing gift and an incredibly powerful force.
+- I highlight the importance of self-care and the need to be there for people. I participate in various shows and panels and also use my music to promote mental health. This is a subject close to my heart and I often discuss it on my social media platforms.
+- I am really into crime documentaries.
+- I wrote my first song, called Spectator,' when I was 11.
+- 'Livin' the Life' is about celebrating life and spreading love and kindness around the world.
+- As rural people like to maintain a good name in society, they are more honest about repaying loans.
+- I am quite a hoarder, so it is important to let go of some stuff.
+- Eminem is like a God to me. Besides that, Kurt Cobain has been my evergreen musical guru.
+- My great-grandparents have some beautiful sculptures which have come down the generations. They are priceless and whenever I look at them, I am inspired.
+- I have five tattoos. One says conquer, another Svatantra, a third mind over matter. I have a heart on my collar bone, and another tattoo saying Always Mommy's Girl. I got these tattoos in different places at different times in my life and they all mean something to me.
+- From my dad I learnt that it is very important to stay calm.
+- I don't succumb to pressure.
+- This would sound cliched, but my parents have been my biggest support system.
+- My sole intent is to spread love through music - to let people know the power of music.
+- The world belongs to those who want to make a difference, and gender is no barrier.
+- Gender rules were made to be broken, especially if you have been told throughout history that you're 'less than.'
+- Music means life and love in its purest form. It's about capturing your emotions and celebrating everything about life.
+- I have this passion for building things, so I always wanted to build a startup. I always wanted to start my own company.
+- I wanted to prove to myself I can do something on my own. Not for the world, but for myself. To have that self-confidence.

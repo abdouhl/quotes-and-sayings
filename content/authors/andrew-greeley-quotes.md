@@ -1,0 +1,36 @@
++++
+author = "Andrew Greeley"
+title = "Andrew Greeley Quotes"
+quotes_len = "30"
+description = "the best30 Andrew Greeley Quotes"
++++
+- I don't think Jesus was an exclusivist. He said, and we believe, that He is the unique representation of God in the world. But that doesn't mean this is the only way God can work.
+- I write easily, let's put it that way. And in a novel particularly, the characters take over. And they tell me what to say and they tell me what they're doing. And I'm a third of the way into a novel and then I just let the characters finish it for me.
+- As the criminal, sinful war in Iraq enters its third year, the president goes to Europe to heal the wounds between the United States and its former allies, on his own terms of course.
+- I think the real problem for American religion are those minority of fundamentalists who try to identify political policies with religion.
+- Well, religion has been passed down through the years by stories people tell around the campfire. Stories about God, stories about love. Stories about good spirits and evil spirits.
+- You're a Catholic in Italy when you're born, it's unthinkable to stop being Catholic. You just take the rules a lot more seriously, because it pervades your culture.
+- Note the three most important Cabinet positions. Rice said that it was better to find the weapons of mass destruction than to see a mushroom cloud.
+- If we get you in the early years of your life and we fill your head with all of the Catholic stories, then it's very hard for you to stop being Catholic. Catholics are Catholics because they like being Catholic.
+- Yet, if the most frequent sex and apparently the best sex is that between married partners who are faithful to one another, is there not a hint that affection might be an important aspect of sex? Even love?
+- I wouldn't say the world is my parish, but my readers are my parish. And especially the readers that write to me. They're my parish. And it's a responsibility that I enjoy.
+- Is the patience of the American people that long suffering? Is there no outrage left in the country?
+- Nobody puts constraints on God. She doesn't like it.
+- An adolescent is somebody who is in between things. A teenager is somebody who's kind of permanently there. And so living with them through the various teenage hopes and sorrows and joys was curiously enough a maturing experience for me.
+- I have to say that I have no regrets about my decision to become a priest or about the major directions my ministry has taken me... I have been and am happy as a priest, and I have never been lonely... I could have used a bit more solitude.
+- The leadership lost its nerve. Instead of taking the lead in the reform movement... they pulled the plug on it. They tried and are still trying to return the church to the dry ice of the previous century and a half.
+- Priest organizations around the country, both local and national, should realize that their membership has a serious image problem and undertake programs to improve it.
+- Would it not be much better to have a president who deliberately lied to the people because he thought a war was essential than to have one who was so dumb as to be taken in by intelligence agencies, especially those who told him what he wanted to hear?
+- I think that the core doctrines of Christianity - the incarnation, the resurrection, life after death-these are as strong as ever. In fact, the belief in life after death has increased in this century.
+- In God, the characteristics of men and women that we admire in men and women are combined. That's been a traditional Catholic teaching that God is the combination of opposites.
+- Practically speaking, your religion is the story you tell about your life.
+- Two studies from the year 2000, however, indicate that Catholics give lower ratings to their clergy's ministerial activities across the board than do Protestants.
+- There is good news in the data the strongest support for priests is to be found among the younger generation.
+- It was generally believed that Catholics were not interested in arts and science graduate schools. They weren't going to be intellectuals. And so I put the theses to the test. And they all collapsed.
+- Everyone takes surveys. Whoever makes a statement about human behavior has engaged in a survey of some sort.
+- It is also asserted that the election settled the matters of the war and the torture of prisoners. These are dead issues that no longer need be addressed.
+- The Catholic men are more upset about women not being able to be priests than are Catholic women.
+- One cannot escape the harsh fact that as a ministerial profession, the priesthood has very serious problems. They are not new. They did not develop yesterday or last year.
+- There has always been a certain proportion of people who leave the Church on issues of authority and sex. That hasn't changed since we started doing research on it back in the early 1960s.
+- I have terrible handwriting. I now say it's a learning disability... but a nun who was a very troubled woman hit me over the fingers with a ruler because my writing was so bad.
+- I think the only kind of acceptable evangelization is the evangelization of good example.

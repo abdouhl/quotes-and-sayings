@@ -1,0 +1,15 @@
++++
+author = "Adam Rex"
+title = "Adam Rex Quotes"
+quotes_len = "9"
+description = "the best9 Adam Rex Quotes"
++++
+- I've had 'Spanish Flea' stuck in my head since 1998, so in a subjective sense, that is the song that's playing whenever I enter a room.
+- I don't know if I'd call it a favorite, but there was an entree in the rotation at my grade school cafeteria called 'Salisbury Steak' that was some kind of freestanding spongiform potage covered in a sauce that would probably have to be spelled 'grayvee' for legal reasons.
+- After I work with my editor to get the manuscript in good shape, I sketch and lay out a whole book loosely, usually in black and white. You learn things about your text when you have to think about pacing and page-turns.
+- In the future, I'd like to continue being honest with myself and admit when I'd be better off asking someone else to illustrate my writing.
+- The original release of 'Star Wars' was literally the first movie I remember seeing in a theater. Four years old was probably too young - I recall believing, for some time, that Darth Vader was a robot.
+- Vampirism is like celebrity now. Vampires are these eternally young, thin, sexy apparitions of perpetual nightlife and absolutely nothing like their folkloric European boogeyman predecessors. We don't even make our vampires sleep in coffins anymore, or the ground.
+- I haven't read the 'Twilight' books, though I suppose, in general, I thought it might be fun to deflate all of the notions of vampire sexiness, secret societies, the idea that anyone could learn to divide the population of the world between fellow vampires and perishable food sources and expect to retain their humanity, etc.
+- After we got our first family car with a tape deck, my dad acquired exactly three cassette tapes: A 'Best of ABBA,' 'Private Heaven' by Sheena Easton, and the soundtrack to 'Xanadu.' I also unironically love 'Xanadu.'
+- My favorite classic novel may be 'The Invisible Man.' It's smart and genuinely funny. Otherwise, my favorite character is probably Frankenstein's Monster/Frankenstein the Monster.

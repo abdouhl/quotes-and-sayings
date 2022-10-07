@@ -1,0 +1,57 @@
++++
+author = "Amish Tripathi"
+title = "Amish Tripathi Quotes"
+quotes_len = "51"
+description = "the best51 Amish Tripathi Quotes"
++++
+- I think it's a fallacy to say that a good book sells itself. It doesn't happen. I'm a voracious reader and I can give you a long list of books which should have been best sellers but they aren't. How can you buy a book if you haven't heard of it?
+- No disrespect to any other god, but Shiva's an outsider god. He breaks the rules. He's a brilliant musician, a brilliant dancer; he treats his wife as an equal, and she opposes him many times, but he obsessively loves her.
+- When I was young, I was an academically oriented guy like most academically oriented guys. I graduated in science, did an MBA. My dreams as a young boy were I wanted to be an industrialist, or I wanted to be a scientist.
+- I was a very happy banker, but I feel happier as an author.
+- In the ancient times, bards went around singing the epics, which were storehouses of philosophy.
+- Mythology and history are my passion. I grew up in a religious family and learnt about our scriptures and philosophies. It's the language I'm comfortable with.
+- Even though many Indians can read or speak English, for most, it is not their first language. At the office, we speak in English, but we consume our culture in our own language.
+- In the early '90s, I was disillusioned after the blasts and riots in Mumbai. I was in college and started thinking that religion was the root cause of all these evils. While my father told me not to blame religion because of a few bad people, I wasn't convinced. The faith was restored after I started writing my first book.
+- I am a voracious reader, so it's difficult for me to give a list of my favourite authors of all time.
+- A bad book and good marketing won't work, the same way a good book and bad marketing will also not work. There is no choice in the matter that if you need to write a good book, you also need to have good marketing for it.
+- I'm certainly not surprised by the passion of the youth for our myths. Mythology is almost a part of an Indian's DNA.
+- I never thought my ideas would actually get published.
+- My father's family hails from Banaras. My grandfather taught mathematics at Banaras Hindu University. Banaras is also dedicated to Lord Shiva, home to one of the great jyotirlings, the Kashi Vishwanath temple.
+- I'm one of those lucky guys making a living out of something I really enjoy doing. That's a blessing. But you never know. What if my subsequent book series flops? I don't come from a wealthy background, so I'd be left with no choice. I'd have to go back into banking!
+- When I was young, I never thought I was going to be a writer! I was academically orientated and active at sports, but I didn't have one creative bone in my body.
+- I see a sense of unity in the universe. Spirituality is not limited to only one religion. One can experience it across different religions. I am fascinated by philosophy of Advaita and philosophy of unity. We have to get over the illusion that God is different from us.
+- I never really wanted to be a writer. I know it sounds strange, but I honestly believe that I didn't pick the story; the story has picked me. I've written absolutely no fiction before 'The Immortals of Meluha.' Not even a short story in school - absolutely nothing.
+- When I'm writing, I am lost in my book. Except family and close friends, I don't care about what critics, publishers or readers might think.
+- In any industry, the people with the freshest ideas usually come from outside.
+- With due apologies to Shakespeare, some people are born writers, some people achieve it after a lot of hard work, some people have a writing career thrust upon them. I am in that last group.
+- A writer can't afford to just focus on writing and leave marketing aside in today's competitive market.
+- At the outset, I think that one should be natural, not just when it comes to writing but in every area of life. If you try to be something that you are not just to impress others, then it's a rather sad life.
+- Songs of different moods are like keys, which help me enter the world of my book's characters.
+- Anuj Bahari has always been a really good literary agent for me. What a good agent does is that he manages many of your business aspects so you can keep your time free for writing.
+- India is a musical country, so it would appear obvious to use our collective passion for music to promote a book.
+- In India, it is not a contradiction for religion and liberalism to co-exist.
+- Since I don't come from a privileged background, I couldn't afford to be irresponsible with career decisions. I wrote two books alongside my job and resigned only when I realised I can make a living.
+- There is a wealth of readership for regional language literature in India that is not given importance. We must give respect to our own languages.
+- In the India I was growing up in, history wasn't really a wise career option. People would joke and say, 'History's okay, but what's your actual job?' I didn't come from a privileged background and couldn't afford to be irresponsible, so I did the pragmatic thing and did a MBA.
+- Writing about our gods in English is unnatural, but I believe language is just a carrier - a means to an end.
+- I consider myself lucky that Sonu Nigam, Bikram Ghosh and Taufiq Quereshi came forward to create an original soundtrack to promote my book, something that hasn't been tried here before!
+- If your purpose is to make money, you shouldn't get into writing.
+- I loved history in my school days, and I have always been a voracious reader. But in India, you end up doing MBA, engineering or medicine.
+- While in some countries there's a feeling that literature must stay away from religion, this is not so in India - in the Indian way, literature is just another means to find a more spiritual life, to find our way to God.
+- When the book is over, I think of innovative marketing ways to reach to a larger audience. I think wine and cheese book launch parties are a waste.
+- Myths are part of our DNA. We're a civilisation with a continuous culture. The effort to modernize it keeps it alive. Readers connect with it.
+- Fortunately, I grew up in a traditional family where questioning was encouraged, particularly by my pandit grandfather. We are all voracious readers, seeking knowledge. I learn a lot from discussions with my wife, siblings and parents.
+- I believe if you want to convey a complex philosophy, it's advisable to keep it simple: day-to-day lingo.
+- I see everything like a movie. I laugh and cry, I smell, touch, see and describe my own experience. I don't care if this sounds strange; I am not the creator - I am only the channel. The story is given to me.
+- I don't think I'm any competition to the already-existing canon of writers in Kannada. How can I ever even think of comparing myself?
+- If you have to write a fictional adventure to convey a philosophy of evil, the best person is the destroyer of evil himself, Lord Shiva.
+- The good news is that a vast majority of Indians from different religions see no contradiction between religiosity and liberalism, keep India stable. We religious liberals don't talk loudly enough.
+- As a writer, it's important to stay true to your story without giving a hoot about publishers, critics and readers. You should do your karma as an author the way you want to, and rest is up to God.
+- When I write, I tend to be quite cut off from the world. At that point of time, I'm not thinking about editors, publishers or readers. I write the story the way it comes to me.
+- Most educated Indians are bilingual. Amongst the urban elite though, there is a disdain for regional languages. That's unfortunate.
+- He has turned my life around by 180 degrees, I still don't understand why Shiva has blessed me so much. I believe he'll bless the worst of us first because we need it the most.
+- India has a long tradition of reinterpreting religious myths.
+- I turned atheist in the '90s when India went through troubled times - communal riots, bomb blasts... Mumbai, where I live, was badly affected. I blamed religion; also, extremists on both sides - right and left.
+- Creating music is a wonderful way to celebrate our devotion for Lord Shiva.
+- The youth in India tend to be rebellious, as with everywhere else, and that makes Shiva exciting. He has the rebellious qualities that the youths like.
+- I am a disciplined person. When I am writing, I write for 7-8 hours.

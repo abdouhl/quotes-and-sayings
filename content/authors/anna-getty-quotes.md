@@ -1,0 +1,31 @@
++++
+author = "Anna Getty"
+title = "Anna Getty Quotes"
+quotes_len = "25"
+description = "the best25 Anna Getty Quotes"
++++
+- I have become quite good at repurposing and reusing much of what comes into the house. The goal is to generate as little waste as possible.
+- If you want to eat well and be healthy, there are so many different options now, and you can make a big difference even if it's committing to just one thing.
+- I love being in Ojai. It's kind of a travel destination because I drive to it from Los Angeles. I also love Italy.
+- Parenting is not just about you and your kid; it's also about whomever you're parenting your child with. So there is a kind of 'awareness' involved for everybody. It's all about the way you interact with your child and participate in your child's life.
+- Growing your own garden is way less expensive than going out shopping and eating.
+- I like to encourage people interested in gardening or planting to begin with a simple herb garden. Even if you live in a small apartment, you can have some herb pots.
+- I buy my produce at the local farmer's market, which is actually cheaper than shopping at the grocery store.
+- If you make a huge pot of soup, you can freeze part of it and eat off it for days. I love making green bean soup, and I'll throw in some cashews, almonds or tofu, and voila, I've got a soup that's loaded with protein and vegetables.
+- I just think the whole kale thing has gone a little overboard. It's everywhere you go, and it can actually inhibit thyroid function.
+- Becoming a mother has been the best thing ever for me. It's become my life's work. Not just parenting, but sharing information and encouraging other women to be receptive to the basic nature of motherhood.
+- I'm super supportive of locally grown foods and farmers. Here in L.A., I know all of my farmers markets and go there weekly.
+- At home, I like my kids to drink out of stainless steel tumblers. They are non-breakable and non-toxic.
+- For me, conscious parenting is staying attuned to your child, being really open and in the moment. It means staying as present as possible in your own breath for the betterment of your whole family.
+- I got rid of all of my non-stick pots and pans, anything that had a kind of toxic surface in terms of cooking.
+- Eat kale sometimes, but skip it as a trend.
+- My husband and I were very addicted to our Nespresso coffee maker. It's incredibly un-eco friendly. Not only is the coffee not organic, you're using these pods where there is no way to recycle them. We gave it away to someone who didn't mind.
+- I love salt. Then again, who doesn't?
+- I learned how to cook by making soups, so I was thinking of how to make the most eco-friendly and green way to make soup. Obviously, using water and vegetables from your garden is the most sustainable way.
+- I stopped using plastic cooking spoons years ago and love my bamboo spoons and spatulas by Bambuhome.
+- Really connect to food and know what you're eating.
+- I am a huge proponent of having a water filter of some kind in your home.
+- When you find a way to be really receptive to your child's needs and really listen, you can be more open to what they say they want or what they say they need.
+- During my teenage years, I rebelled and ate everything under the sun, but when I was 18 or 19, I became vegetarian-focused and got disgusted by meat.
+- Don't be afraid to get your hands in the dirt. Buy gloves if you are squeamish about it.
+- I try to plan my day around not using my car.

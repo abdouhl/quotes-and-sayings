@@ -1,0 +1,106 @@
++++
+author = "Antonio Conte"
+title = "Antonio Conte Quotes"
+quotes_len = "100"
+description = "the best100 Antonio Conte Quotes"
++++
+- You have to respect the job of the other coach and then stop. He's an opponent: I stop. Finish. I have respect for his job. He must have respect for my job.
+- Paolo Maldini never won, but he was the best defender in the world. Gianluigi Buffon never won; he was the best goalkeeper in the world for many years. But this is the story of the Ballon d'Or.
+- I like to follow the training session with my voice. To call at them and explain my reasons and my ideas of football. It's important to make them understand: when to move, to time it right, not wrong - the right movement.
+- Every coach has to put himself in his club and to try to become a really important coach for his club. The most important thing is that the club can be happy, the fans can be happy, and the players can be happy with your work. This must be our task. Then, if you are No. 4, No. 5, No. 6, this is not important.
+- If you saw me as a footballer, when I played, I always showed a great passion. You saw Antonio Conte during the game showing passion.
+- The Premier League is an extremely difficult competition.
+- During a season, you have different moments, up and down, but you have to hope in a good team to have good stability.
+- If you trust in an idea of football, and you trust in the team, it's important to have a squad with good balance.
+- For you to even enquire about one player, he is expensive. You go to buy a right-back, a left-back, or a central defender, and he is expensive.
+- My worry is to try to improve my players, to work with them, to find the best solution for the club, and to give satisfaction to the fans because they deserve the best.
+- When I became a manager, my enthusiasm became more because when you have the possibility to waste your energy and show your passion during the game; it is good.
+- For me, to have my family with me is very important.
+- When I was a player, I wanted to win the Ballon d'Or, but I knew my characteristics; I knew that it was impossible.
+- I like to go to church. Religion is an important part in my life. It has helped me in bad moments.
+- I think my task is to work with my players, to improve my team. This is my task.
+- I want to protect my club. I want to try to protect my players. I want to try to protect my fans. Also, I want to try to protect the Premier League.
+- Sometimes the opponents deserve a red card, but instead, they carry on playing with 11 men. So you also have to be more lucky in the future.
+- Video analysis is big for me. Through video, you see good things and bad things and can show players how to improve.
+- You are never relaxed in England. You have a tough league, the Champions League, the FA Cup and Carabao Cup.
+- Even more than results, it matters that the players give everything for their shirt, and if they do that whether they're relegated or not, the fans are ready to applaud.
+- Sometimes you can win, and you are preparing to disrupt yourself. Sometimes you don't win, but you are preparing yourself to be better.
+- Only one player is not important. The most important thing is the squad, and it's important to be together. You can't just lose it over one player.
+- You don't create a big and strong team easily.
+- I must take the best decision for the club, not for a single player.
+- The pitch is the most important thing for us: not the words, not on paper.
+- As a player, I was very lucky to have so many good managers in my career. I remember the first two at Lecce: Eugenio Fascetti and Carlo Mazzone. They were very important for me and my growth.
+- When you are in a new country, and you are alone and know that your family don't stay here, it is not simple.
+- I hope to have my players in good physical condition, all players, and then to face all competitions.
+- When I first starting coaching, I used a megaphone.
+- Every game, I have to make the best decision. I repeat: my players must be happy to stay in Chelsea and to play for Chelsea and to play for our fans. They must be happy if they start the game or if they stay on the bench and come on.
+- When you are a player, a footballer, or a manager of a great club like Chelsea, you must play to win. To win. To win the title. Or to fight and, at the end, to compete with the other teams to win the title and reach your targets.
+- I think, in every situation, it's important to find the right balance. If you have to spend money, try and spend that money in the right way to take players with the right characteristics for your idea of football.
+- Every team has to understand what their ambitions are. If their ambitions are to fight for the title or win the Champions League, you must buy expensive players. Otherwise, you continue to stay in your level. It's simple.
+- It is important that when you play at home in front of your own fans, not to lose and to always try and win, to always give your all.
+- Every coach, when starting work at a new club, hopes to stay many, many years because it means you are working very well. You have the possibility to improve your players, to improve your team, and to grow together.
+- If the club decides to sack me, honestly, I don't feel this pressure.
+- After the training session, video analysis. You can see the good and the bad, show players how to improve. Not because I want to find blame. Sometimes 20 or 30 minutes of video is more important than three training sessions.
+- You have to have respect on the pitch.
+- For every manager, it is important to explain your ideas. It's very important the club understand those ideas and are ready to work together.
+- My talent as a footballer was medium. But I had heart, a will to win, to work to overcome my limitations.
+- It is very difficult in the transfer market for the teams that need to improve their squads.
+- It's important to understand that sometimes you have players with great talent to score goals - these players are important.
+- I miss Italy; that's beyond doubt.
+- I don't trust the people when they say, 'There's pressure when you're top.' I prefer the pressure of being top of the table.
+- The English experience has greatly enriched me, and I'd like to carry on as manager.
+- When I was in Italy, I liked to say, no, that the manager, the coach, is like a tailor. A tailor who must build a dress, the best dress for the team.
+- I like to see the present, to work for the present, and to try to improve for the future.
+- I try to dress well. Not just now at Chelsea, but all my career, at my clubs and the national team in Italy, I like to wear a nice suit on the touchline.
+- The most important thing for me is the work, my job, and then to go to my house to be satisfied with my work.
+- When the technique doesn't arrive at the best level, arrive with your heart, with head, with enthusiasm, with passion, with work.
+- I prefer to be favourites on the pitch; not with words.
+- David Luiz has to work with the others if he deserves to play; otherwise, he will stay on the bench or in the stands.
+- You can win, but you have to show that you win with the idea of playing good football.
+- It's important to win with style.
+- We have to try to do our best in every game with great ambition, because we must always have the right ambition. But at the same time, sometimes you have to compliment your opponent. You must be honest and accept the result.
+- I prefer to be a great team not only on paper but also on the pitch. The pitch is the truth. The pitch speaks.
+- In Italy, you're in your comfort zone when it comes to language, lifestyle, your habits and preparations, and moving abroad is not easy. It's not easy to carry over your own ideas about football, your own methods. You have to get everything across in a different language, and that wastes a lot of energy.
+- I adapt my idea of football to my players, not adapt my players in my idea of football. It's important because there are others players that must play. The players are the most important things in football. I adapt my idea within my players.
+- I think that when I start a season, I speak with my players, and I always talk about education and respect. And I demand this, but I give this.
+- The pressure, for me, is not important. I was born with pressure. The pressure is not important for me.
+- I don't want advantages for my team. I want the same rest as our opponents. It's very difficult to do this? I don't think so.
+- When someone makes a mistake, it's right to underline this type of situation and find the best solution to avoid the same mistake in the future.
+- To play three games in seven days is not simple, above all for our wings-backs.
+- It's important for the coach when you arrive to understand the players and to understand every single player's strength and their weakness.
+- When you try to build a team, you need a mix of talent.
+- For me, it is sad when I listen to this, that one player must be more selfish to reach the top level.
+- I like to call it a 'sacred fire' when you have it inside you: the will to win every game.
+- When a player deserves to play, with me, he'll play.
+- Every manager must be prepared to face every situation.
+- I try to avoid all mistakes. I try to prepare my players and to put them in the best condition to play the game. If you discover a problem during the game, it is too late. You must anticipate and prepare.
+- Every coach, during a game, it is important to understand the situation to change.
+- Perhaps I'll work as a director of football. I don't know.
+- The way I suffer after a defeat is not for all, because I suffer. I suffer. But those who know me know that, after this, I start stronger with more hunger, more desire, because I don't like to lose.
+- I think, when you reach the top level, it is less about the money itself; it is important only because the level of earning shows the importance of the player or the manager. I don't think people want to have the money just to spend it. It is a reflection of your importance in football.
+- Ours is the most precarious work, as you are in one place today, and tomorrow you are in another.
+- It is important for the manager to find the right solution for your team.
+- I don't want to go into the situation of the other teams, other clubs, other managers. Every single club decides their own strategy.
+- Every season is tough.
+- I think the past is not important. For every player, for every single player, the past stay there. If you did well in the past, OK.
+- To arrive and try to fight for the Champions League, to try to fight to be the best in the world, you need time.
+- In my team, I don't want selfish players. I prefer to lose a game than have selfish players. I don't want that in my club. Never.
+- Many times, I know before I speak to the player what they are thinking. It's very important to know when to push, when to put the pressure on, and when to take it off.
+- The target for every great champion is to play for the team.
+- I like to study everything: the way to be dangerous when you are attacking; what the players should do when you don't have the ball; where they should be. The tactics you tell the players to follow come from all this study.
+- To defend - it is very difficult to win two titles in a row.
+- It's not important, the relationship between the coaches.
+- Foreseeing the future is always difficult.
+- Our target is to win, not to try to make all the players happy.
+- It's important for me to exalt my players in their strengths and to try and cover their weakness, no?
+- I always show great respect for everyone, including Manchester United.
+- When a new coach comes to a new club with new ways, new ideas, the players have to adapt.
+- Chelsea belongs in the Champions League, and we must stay there.
+- If they deserve it, I'm ready to play with very young players. Why not?
+- I don't think a player like Messi is a selfish player.
+- When you lose, you learn a lot about yourself. That experience is important.
+- All my coaching life, I am the same, always on the touchline, the same way. I am in the game all the time. I am focused.
+- When I am not working, my family are the most important.
+- For me, it's important to concentrate to the present and leave the past.
+- To be captain and win a lot at Juventus, to play for 20 years, to play in the World Cup, European Cup, I think I had a good career, no?
+- Sometimes you can win, but you are not building something positive for your future.

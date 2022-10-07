@@ -1,0 +1,15 @@
++++
+author = "Alexander Kluge"
+title = "Alexander Kluge Quotes"
+quotes_len = "9"
+description = "the best9 Alexander Kluge Quotes"
++++
+- Hidden in a long text, there are perhaps three lines that count.
+- I don't pay attention to target audiences and therefore I often hear that I am a ratings killer, somebody who fundamentally doesn't care whether one person is watching or an entire soccer stadium.
+- Similar to the telescope or the telephone, television enables us to see or hear things we never dreamed of. When you look at the details, a concrete scene between people is really something incredibly unlikely, something subtle that requires extended description.
+- If they had Mozart today, they couldn't work with him, although he was a very adaptable man.
+- As soon as you judge communication a little more rigorously, there is a possibility that the message will not be democratized. I have to say what I believe to be right. I have to spread out the statement among all the means of expression available to us at present.
+- We don't perceive a contradiction between writing books, making films or producing a television program. These days you can't choose how you want to express yourself anymore.
+- The one thing about program television that's absolutely incompatible with any concept of art is that all decisions have to be made by program directors, whereas art is autonomous. It may be dependent, but it knows no superiors.
+- When I think of the library of Alexandria and of the fact that, although it burnt down, people continue to sort the letters of the alphabet according to that tradition, then that makes certain expressions of modernity, even of interventions on the textual level, possible.
+- You cannot limit yourself to one area of specialized craft. Instead, regardless of craft, you have to charge all forms of expression that lead to the community, to other people, with meaning.

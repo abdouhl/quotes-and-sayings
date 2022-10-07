@@ -1,0 +1,34 @@
++++
+author = "Angourie Rice"
+title = "Angourie Rice Quotes"
+quotes_len = "28"
+description = "the best28 Angourie Rice Quotes"
++++
+- People I get the most star-struck by are people I've sort of grown up with watching. So, for example, working with Debby Ryan, when I first met her, I was a bit nervous and a bit star-struck because I had grown up watching her TV shows on the Disney Channel.
+- I don't want to play the girlfriend who's there because she's the girlfriend. And. That's. Her. Job. I want to play women and girls who are active and strong and who have a character arc and make decisions and have a rich background.
+- I've often been told that I'm a 30-year-old trapped in a teenager's body. I don't know how I feel about that, but I'll take it, I guess. I'm definitely mature, and I'm the one that takes care of everyone in my friendship group.
+- My dad worked for a theatre company that was two minutes away from my primary school, so I'd just walk there after school and watch the rehearsals. I think that's probably when I fell in love with acting and telling stories.
+- A big way that I express myself is through what I wear and how I present myself. I think that's an important part of the characters that I play.
+- One of the things I do struggle with is being in the present.
+- I'd like to think that, if I'm unhappy, that I would try and change things so I am happy.
+- I think it's really important that women are represented in the media, and diverse women as well.
+- Sometimes, the best thing to do is just to sit down and listen to another person's experience and listen how they express themselves and want to be seen by others.
+- I see certain girls get the roles that I auditioned for, and I think, 'Oh, that's so annoying. I should have gotten that role!' But then I have to stop myself and actually think, 'No, she got it for a reason. She worked hard for it, and she was right for the role.'
+- The fantastic thing about 'Jasper Jones' is that although it's set in 1969, the themes are still so topical. We're still struggling with racism and sexism and domestic violence and abuse.
+- I really miss Melbourne food; Melbourne is very snobbish about their caffe culture, and I feel like I've become a snob, too.
+- I'm very interested in theories in how we exist: how people exist and how souls exist separate from their bodies or their brains.
+- I have found a love for acting, but I also would like to live abroad for awhile or definitely go to college someday.
+- The variable that really boosts your performance is the actors around you.
+- Sometimes, when I watch a movie where teenagers are played by actors that are 26 years old and look perfect, it makes you wonder what story is actually being told.
+- I've done quite a few films that are based on books, and it's always nerve-wracking because there's an audience who has read and loved the book, and what if they see the movie and hate it?
+- I would like to trade places with my sister. I think that would be really interesting. She's three years younger than me, and she's a gymnast. She goes to gymnastics, like, every single day, and that's a whole other world to me, and I think that would be very interesting.
+- I really enjoy drawing, and I enjoy design, fashion design especially. If acting doesn't work out, which I hope it does, I'd probably go into design.
+- I have my friends who like me because I'm me and not because I'm in films, and that's really important to me. They tell me, 'You look terrible; don't wear that,' or 'That joke wasn't funny,' and that's really important: they keep me grounded.
+- It's tough to sort of balance free time and schoolwork and work in general and family time and hanging out with friends, but it is manageable if you have a good support team behind you, which I do.
+- A huge part of my identity is being a woman, and that's really important for me, and that's a big part of my self-expression, so I think it's really interesting sort of exploring what it means if someone doesn't have that.
+- I went to my first school dance on the set of 'Spider-Man.' The funny thing is, it wasn't actually real. I didn't choose my dress or my date or anything about it. I just showed up for work.
+- I remember seeing 'The Bling Ring' in cinemas and loved it - it was so cool. And 'Marie Antoinette' - I watched that when I was, like, nine or something. I thought it was the best thing ever.
+- For me, it's my work - I have a job, and that job happens to be with insanely talented actors. At this stage, it's normal to me. But when I meet new people, I realise, 'Oh, yeah, it's actually really strange. I have a very unique hobby.'
+- For me, the audition is always the hardest part of the whole process. Once you get on set, once you're in costume, you're with the director, it's so much easier to get in the headspace.
+- Love is going to be experienced so many different ways by so many different people, and that's what makes it so special and unique, and that doesn't necessarily have to be classified by a type of person.
+- I really like school. I like going to school, which sounds a bit stupid, but I do. And I love the social aspect of it: it keeps me grounded, and it's nice to have that routine.

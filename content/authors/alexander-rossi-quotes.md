@@ -1,0 +1,12 @@
++++
+author = "Alexander Rossi"
+title = "Alexander Rossi Quotes"
+quotes_len = "6"
+description = "the best6 Alexander Rossi Quotes"
++++
+- American people are very patriotic, but there is no driver to get behind and support. I don't see why Formula One cannot be something America is a part of. I wouldn't say it's too European at all.
+- Corporate America doesn't really have an interest in Formula One because there is nothing American in it at this point. It is European and all made by Europeans. Until that changes, the interest isn't going to be at the level it needs to be.
+- Americans are very patriotic and they want someone to support. In order to entice more fans, and to allow F1 to compete with Nascar and IndyCar, there needs to be an American driver.
+- Caterham realises corporate America and the American consumer market... is the largest consumer market in the world and it is something that needs to be part of Formula One.
+- The Yas Marina circuit is really pretty impressive. The track itself has some quite slow corners and not a great deal of overtaking opportunities, but it seems to combine a road course with a circuit course.
+- My goal is to be a racer, and I want to be someone who inspires Americans to watch Formula One.

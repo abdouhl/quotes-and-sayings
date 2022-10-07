@@ -1,0 +1,106 @@
++++
+author = "Adam Driver"
+title = "Adam Driver Quotes"
+quotes_len = "100"
+description = "the best100 Adam Driver Quotes"
++++
+- I think it's good to live an artful life.
+- What is a struggle is that acting isn't a place where you go to work and you do that thing. There aren't set boundaries, like an office, where you go and work. For me, the work is always on my mind.
+- I loved being in the Marine Corps, I loved my job in the Marine Corps, and I loved the people I served with. It's one of the best things I've had a chance to do.
+- I trained myself, whenever I walk into auditions, to hate everyone in the room.
+- It was very clear to me I wanted to be an actor when I got out into civilian life.
+- I don't understand technology, and I'm very scared of it.
+- I'm conflicted with theater in the city because you want to reach a diverse audience, and that audience doesn't typically go to the theater.
+- The most you play a character in the theater is, like, a couple months, and then you put it away.
+- I wish I could pull shorts off. My wife tells me that I just can't. But that's okay. I'm tall, I can do other things, like change light bulbs.
+- If there's one organization in the United States that could work on its communication skills, it's the military.
+- I have this really big face.
+- I studied Morse code.
+- I'm one of those crazy people, if I'm watching the trailer for a movie and I'm really excited by it, I'll turn it off because I don't want to know anything. I want to be surprised because I love that more than knowing anything.
+- Interesting things always come from being really exhausted and really sick.
+- College wasn't something I saw myself doing.
+- There's so much emphasis on Daniel Day-Lewis and his process, which is appropriately his own. But I was just blown away by his generosity as an actor. He's so giving as an actor that he just naturally commands the focus on set.
+- I was having an argument with my stepfather, and he was like, 'Why don't you join the Marine Corps?' And I was like, 'Noooo! Well, maybe, actually... ' I went and saw the recruiter, who was like, 'Are you on the run from the cops? Because we've never had someone want to leave so fast.'
+- I was in a mountain biking accident and broke my sternum about three months before my unit was supposed to deploy to Iraq, and it's such a close-knit community that the idea of not getting to go is hugely jarring, so I tried to get put back in training and wound up injuring it worse.
+- I'm not such a big fan of having a linear answer to things.
+- You have to be forward-moving and able to balance a lot of things at the same time. I attribute a lot of that to the Marine Corps and Juilliard both.
+- I auditioned in Chicago for Juilliard and didn't get in. I was basically living in a back room of my parents' house, paying rent and not doing anything with my life. I'd like to say it was patriotic to join the Marines, but it was also that I was doing nothing honorable with my life and spending too much time at McDonald's.
+- I can tell more about my weaknesses than my strengths.
+- There were definitely dark nights when you're like, 'Maybe joining the military wasn't such a good idea.' But, in a way, it was the best training to be an actor.
+- Any actor is happy to be involved with something that's challenging, controversial, and not easily palatable. Things that are too dumbed down or easy to swallow are uninteresting... It's good when people have such a polarizing response.
+- I want to show that theater isn't just talking about feelings or people wearing tights.
+- I was born in California. When I was six, we moved to a small town in northern Indiana called Mishawaka.
+- 'Girls' feels very active and stirring a conversation and controversial, and you can't really ask for more as an actor.
+- It's hard to kill that father-son bond.
+- Obviously, 'Lincoln' is not about the telegraph operator. There's a whole other movie before and after the two isolated scenes that I'm in.
+- How do you take what you do as seriously as possible but not so seriously that it ends up inhibiting what you do?
+- I never played sports or got into the whole guy camaraderie of, like, 'I love you, man! Seniors forever!' So suddenly being in the military with these guys who were under these very heightened circumstances, isolated from their families, living this very kind of Greek lifestyle, it changed my life in a really big way.
+- For me, becoming a man had a lot to do with learning communication, and I learned about that by acting.
+- I think it's a common misconception in the civilian community that the military community is filled with just drills and discipline and pain. They forget that these are humans who are in an abnormal situation.
+- I don't really have foresight as an actor as far as career trajectory - I just stick to no-brainer situations.
+- Sophocles was a general: a warrior writing plays about military situations.
+- Just having the internet is a weird and dangerous thing because people become accustomed to knowing things when they want to know them and not having to work for it. I definitely see the value in not knowing everything and having mystery in life and mystery in people.
+- Acting, to me, has been many things: It's a business, and it's a craft, and it's a political act - it's whatever adjective is most applicable.
+- I'm not fashionable.
+- I don't feel like I have to dress up to go to the deli.
+- I don't have cable. I just never watched a lot of TV.
+- I used to eat a whole chicken, every day, for lunch. I did that for four years. But it got tiring - go to the store, buy it, eat it. It's a mess.
+- When you get out of the Marine Corps, you feel like you can do anything.
+- My plan was to be able to make a living as an actor.
+- I saw the pilot for 'Girls' about six months before it aired.
+- I did plays in high school, but I was convinced you couldn't make a living doing it. You don't have a lot of options in Indiana anyway, though, so I didn't want to stay there. I graduated early and worked a bunch of really odd jobs, and then I joined the Marines.
+- We don't understand why we're here, no one's giving us an answer, religion is vague, your parents can't help because they're just people, and it's all terrible, and there's no meaning to anything.
+- If I'm not doing something or working on something, I literally just sit in the room and think, which I don't think is productive. I won't go outside for days.
+- People always are desperate to have others acknowledge that they are different.
+- My wife changes the way that I dress. She makes me dress nicer than I want to dress. I feel like I perpetually dress like a 14-year-old boy, and she makes me stand up straight and wear clean clothes.
+- Something I learned in the Marine Corps that I've applied to acting is, one, taking direction, and then working with a group of people to accomplish a mission and knowing your role within that team.
+- I feel like I have to move violently once a day, or I'll lose my mind.
+- You have friends, and they die. You have a disease, someone you care about has a disease, Wall Street people are scamming everyone, the poor get poorer, the rich get richer. That's what we're surrounded by all the time.
+- When I happened to get into school, I felt like I could approach it as aggressively as things in the military.
+- The Marine Corps is supposed to be the toughest and most rigorous of its class.
+- There's a kind of immediacy that comes with being constantly connected that I don't really relate to in my generation.
+- The first job I got was this TV job in this show called 'The Unusuals.' Then I did a play called 'Slipping,' and at the same time I was rehearsing another play at Playwrights Horizons, and that kind of snowballed into a bunch of plays.
+- Acting is a business and a political act and a craft, but I also feel like it's a service - specifically, for a military audience.
+- You always read stories of people going out to California and making it as an actor with, like, two dollars, so I figured I'd try it.
+- I own a guitar, a piano, a bass.
+- The Marine Corps is some of the best acting training you could have. Having that responsibility for people's lives, suddenly time becomes a really valuable commodity and you want to make the most of it. And for acting, you just have to do the work, just keep doing it.
+- I was living in a small town in Indiana working as a telemarketer and a vacuum salesman. I was really bad: the vacuums seemed to always be falling apart. Every time I did a demonstration, I'd say, 'This is the material the astronauts used on Apollo 13.' And no sooner had that come out of my mouth, something would malfunction.
+- I feel like I'll never get over red carpets. They're so bizarre and awkward.
+- I like everything I do to have some kind of meaning.
+- I'm not an acting monk or anything. I'm not, like, the most well-adjusted actor.
+- Just being in the military, you're so violent. We got into fights about just random things all the time. I don't think as aggressively as I did when I was in the Marine Corps.
+- I don't know what else you could do that is more vulnerable - maybe dancing - than singing.
+- I don't consider myself a celebrity. That would be kind of sad.
+- My grandpa was in the Navy, but it wasn't something that was expected or planned for me to do.
+- Through theater and acting school, I found a way to articulate myself.
+- The military community in particular, I think, could always be more supported, especially people who are being processed out of the military and trying to readjust to being civilians.
+- Emphasis in the Marine Corps isn't on talking about your feelings.
+- Working on 'Girls' opened up a lot of opportunity for me. It's like a dream job. It's a dream.
+- I've got weird conflicting feelings about my generation.
+- I originally passed on 'Girls' because I thought TV was evil.
+- I have a control problem. I hate the feeling of not being in control.
+- At Juilliard, suddenly I was reading these great plays that could articulate the ways I was feeling in the Marine Corps, and that felt very therapeutic, by putting words to feelings, in a big way.
+- I mean, I did plays in high school, but I was convinced you couldn't make a living doing it.
+- Costume people are always saying they don't have clothes big enough for me.
+- Yeah, September 11 happened and all my friends were like, 'Let's join the military!' and I was the only one who actually did.
+- Acting, believe it or not, can get very self-involved! I feel fortunate to have been able to work on things with people who have a very specific point of view and perspective, and who feel like they're doing something very active.
+- Acting is really about having the courage to fail in front of people.
+- By the time I got into Juilliard, I was working at a Target distribution warehouse. It didn't make anything, it just shipped things, and my job was just to stand there and look at the security codes on the back of trucks and see if they would lock, and check them in.
+- I think some of my best theatre training has been in the Marine Corps. Not only meeting a bunch of characters, but growing up. You're in really adult situations at a young age, as far as being in charge of people.
+- I've seen incredible acts of humanity in the military because people put themselves aside, and it's about the other person.
+- In the military, you learn the essence of people. You see so many examples of self-sacrifice and moral courage. In the rest of life, you don't get that many opportunities to be sure of your friends.
+- September 11 happened, and all my friends were like, 'Let's join the military!' and I was the only one who actually did.
+- With 'Girls'... I feel like there's an impulse to try to make it look better or neater or more perfect, and when I watch theater, television, movies, it's always the imperfection I'm always more attracted to.
+- I was an infantry Marine, and there are only so many things you can do when you get out of the military that you can apply your job to. Either a janitor or a cop. I tried to do both of those things because what else are you going to do?
+- I'm like a sight gag.
+- There's such an emphasis on having a character be likable. I don't think it would be helpful if I worried about that. I mean, not everyone's likable.
+- I actually run a non-profit where one of the main objectives is to branch out and get a new audience for the theater. Just because the writing is so good and nothing is more effective than seeing something live and happening right in front of your face, so I definitely want to continue to pursue that.
+- Writers are so important.
+- My only close-to-game-plan is to follow good writing. If the writing is in TV or if it's in theater or in film, that's it. It doesn't really matter what the medium is.
+- Even on your hiatus, you feel like you need to keep the character in the back of your brain.
+- There's something really exciting about playing someone where you're given license to be unpredictable.
+- When I read for 'Girls,' I was like, 'The script says 'Handsome Carpenter,' so someone else is going to get the part. They'll have someone handsome, not me.'
+- With brain and body, it's great if you have a connection between the two, but when separated, that leads to a lot of conflict.
+- In the Marine Corps, everything had a purpose.
+- I'm constantly thinking about the role, and there's an infinite amount of questions you can ask yourself about a character to the point that it's hard to find the boundaries of when to not work.
+- Juilliard definitely emphasizes the theater. They don't train - at all really - for film acting. It's mostly process-oriented, pretty much for the stage.

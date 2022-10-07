@@ -1,0 +1,63 @@
++++
+author = "Alex Rodriguez"
+title = "Alex Rodriguez Quotes"
+quotes_len = "57"
+description = "the best57 Alex Rodriguez Quotes"
++++
+- It's a game that just takes so much out of you. Every aspect of your life has to be very narrow, very focused. Everything else has to go away. And because of that, I think it's obviously not healthy. The last thing I'm looking for is sympathy.
+- The more you play baseball, the less depends on your athletic ability. It's a mental war more than anything.
+- I'm very thankful to the Yankees and to Major League Baseball for allowing me to play this game.
+- When I grew up, baseball was the No. 1 sport.
+- Like everyone else, I've made a lot of mistakes in my life. The only way I know how to handle them is to learn from them and move forward.
+- It's tougher when you're established. Before, I'd see 13, 14, 15 pitches that I could drive in a game. Now, I see one, two or three, so I have to be better.
+- When I entered the pros, I was a young kid in the major leagues. I was 18 years old, right out of high school. I thought I knew everything, and I clearly didn't.
+- My style is not to challenge anything.
+- I just don't see the light. Where is the light? What am I in this for?
+- I take full responsibility for the mistakes that led to my suspension for the 2014 season.
+- You get to a point where you get tired of being stupid and selfish and not being honest with yourself.
+- I have a big scar in my thigh from a dog bite by my German shepherd. His name was Ripper. He was trying to get in a fight with another dog, and I tried to break it up, and he got me pretty good.
+- Enjoy your sweat because hard work doesn't guarantee success, but without it you don't have a chance.
+- I've been humbled by the reception I've received everywhere.
+- I will say this: when you take any substance, especially in baseball, it's half mental and half physical. If you take this glass of water and you say, 'I'm going to be a better baseball player,' then you probably will be.
+- I can't really decide for other people what to think.
+- I just want to be able to communicate with my fan base.
+- I don't trust anyone except a very, very few people.
+- No athlete ever ends his or her career the way you want to. We all want to play forever. But it doesn't work that way. Accepting the end gracefully is part of being a professional athlete.
+- I've always enjoyed challenges.
+- I'm guilty for a lot of things.
+- I've never felt overmatched on the baseball field. I've always been a very strong, dominant position.
+- I love New York.
+- I never like to think about going back; I only look forward.
+- I'm part of history.
+- Winners live in the present tense. People who come up short are consumed with future or past. I want to be living in the now.
+- This is how I define grace: you're on the main stage, and it looks like it has been rehearsed 100 times, everything goes so smoothly. That's where I get my confidence and success, from knowing that I have an edge because I know I'm prepared.
+- I love the challenge of the game. I love the work. My goal right now is to have a season next year that will make people forget about this one. I'll use things like this for motivation. I'm pumped. I'm hungry.
+- I've played almost 22 years in the major leagues, and I've never sat on the bench.
+- I had a very complex childhood, and when I met my wife, because she has a master's in psychology, she promoted me into getting help. It really has helped. I'm not healed yet, but I'm working on some issues I had as a child.
+- I'm never happy with my performance.
+- I've had a Ph.D. in saying dumb things over the years.
+- I like Jay Z, Journey, and Kings of Leon.
+- Having the respect of your peers means the world to me.
+- My daughters think I am a terrible cook, but I try really hard. I would really like to be a better cook.
+- What I found is that experience in the World Series made me connect more with the fans.
+- How can I ever dog Derek Jeter? It's impossible. There is nothing to knock. He's a great defensive player. He's a great offensive player.
+- I had a great year and left my guts out on the field.
+- There's absolutely no comparisons to me or anyone else to Willie Mays. Willie Mays, he's the greatest baseball player of all time.
+- My girls are great at making fun of Dad. They're never impressed with anything I do. I love that. I hope that never changes.
+- I'm a terrible singer. I feel lucky to play baseball. You can't be gifted in everything.
+- I've always said I'm a teacher at heart.
+- I would like to help out in financial literacy for the Hispanic community and the athletic community.
+- I went over a year without playing baseball. At 39, not playing for a year, a year and a half, there were a lot of nights I was saying, 'This is going to be tough.'
+- I had the greatest year of my career in 2007. It's a year that I'm very proud of.
+- There are a lot of people who don't like me.
+- I just hope that as I get older, I calm down and enjoy the moment, enjoy the great gifts that God has given me.
+- The births of my two daughters were the two greatest moments of my life.
+- I don't like talking about my relationships.
+- My father played baseball. That's what I know to do. That's my gift. God has given me the greatest gift. And that's what I love to do.
+- I'm grateful for every day.
+- In baseball 30 days is an eternity.
+- Babe Ruth is an icon, in sports and in our society.
+- Eventually, my W-2 income will wind down, and my investments can actually make that up.
+- All I want to do is play baseball.
+- When I arrived in Texas in 2001, I felt an enormous amount of pressure. I felt like I had all the weight of the world on top of me, and I needed to perform, and perform at a high level every day.
+- I feel like I owe the Yankee fan base my A-game.

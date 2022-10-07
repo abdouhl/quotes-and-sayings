@@ -1,0 +1,78 @@
++++
+author = "Alexander Armstrong"
+title = "Alexander Armstrong Quotes"
+quotes_len = "72"
+description = "the best72 Alexander Armstrong Quotes"
++++
+- For years we've had all the big-hitting HBO box-set dramas, all these brilliant, witty, clever shows, and in return the only thing we've had to offer is big period dramas like 'Downton Abbey'.
+- Someone put us onto 'Nashville' which we loved. To start with anyway. It was trash but proper trash if you know what I mean.
+- I was teased at school for having a posh voice even though there was nothing posh about us.
+- I lived on a barge for the first six months, with a cousin. Then on the floor of a friend's house.
+- The BBC is a brilliant, infuriating, delightful cornerstone of our culture but it drives me round the twist. I will never forgive them for selling off BBC Centre. It's probably the best studio facility in Europe, possibly the world, and it's being sold off for flats and a luxury hotel.
+- I've come to love 'This Country' on BBC Three. It takes a while to get into the swing of it because the humour is very subtle, but it's very beautifully done and there are quite a few guffaws to be had.
+- I don't know about scared, but 'Chernobyl' definitely made me deeply uncomfortable. Almost addictively uncomfortable: don't know what that says about me. But I came to love the tatty Soviet brutalism of it.
+- I suspect that you, like I once did, are picturing the Arctic as one endless Pingu landscape of flat ice, broken only by the occasional Berghaus-clad James Cracknell type striding manfully out of the spindrift.
+- At Classic FM we're not an exposed shoreline where anything might come in on the tide. We're a lagoon; it's safe. You can tune in late at night and know it won't be contemporary.
+- I'd take lying by the pool doing nothing over aimlessly wandering the streets clutching a guidebook.
+- I have four boys aged 10 and under. Fatherhood is lovely but there is this slightly shocking moment when you realise it is not something you just wear and take off.
+- I always think that in nearly every instance things that turn ugly, they almost invariably do so because of a misunderstanding, or because of poor communication.
+- I was quite an odd child. We grew up in the middle of nowhere in Northumberland - it was lovely, idyllic, but we had remarkably little contact with other people.
+- So, if I ever find myself hankering for the long, respectful silences of the olden days, I remind myself that classical music broadcasting was a whisker away from becoming one long silence itself.
+- I was a chorister at St Mary's Music School, from the ages of 11 to 13, after prep school and before I went to the Durham School. Edinburgh's my favourite city in the whole world. I don't think there's anywhere that comes close to it.
+- In the olden days you cut your teeth on the northern club circuit. I've cut mine on the southern black-tie circuit.
+- I'm the youngest of three children. We lived beside a big beech wood, on the edge of the moors, in Northumberland, which was enormously good fun.
+- Durham is the most beautiful place. Whenever I'm on a train going north I have to stand, nose pressed to the window, as we pass Durham. I don't think there's a better view in the world.
+- Our main house is in the country, all our stuff is in the country, and that's home, though the boys, who are four, two and one, are in school in London during the week.
+- I have never actually abandoned singing. I have sung at lots of friends' weddings and family events to keep up my classical repertoire, and I get together with a music teacher every few months.
+- I do love a good atmospheric soundtrack, me.
+- I love doing children's TV. You get such extraordinarily positive feedback from your audience too.
+- There's this weird thing going on where people think they've worked you out as a certain type of person, but probably better for them if they don't put me in a box, because if they do I am going to disappoint.
+- I am very shy with people I don't know. I'm positively awkward.
+- Alpacas are much more biddable creatures. Llamas are horrible. As a species, it's probably for the best that they're wary of us. But on a personal level, I find it very hard to come to terms with.
+- Actually, I've been doing stand-up on the quiet for the last 15 years, in the form of corporate gigs.
+- I would slap a tax on plastic to encourage people to use more biodegradable things. I would also like teachers, vicars and other community workers to be paid as much as lawyers.
+- My dad's a doctor. So when we were little, at our family Christmases, we'd always have a couple of his elderly patients over for lunch.
+- I love food and wine, they are both passions of mine.
+- There was a period in the Nineties when the BBC wanted to act as if it was a trendy Soho independent. They broke up all sorts of things and got people to work as freelancers who had previously been BBC employees. It corroded a sort of esprit de corps, I think.
+- I'm not very religious, but having reached middle age I rather enjoy the quiet and the contemplation of spending an hour in an old building.
+- I've been to Venice, Rome, and Dubrovnik, but none of them come close to Edinburgh.
+- I would love to think I'd inherited my father's patience. He's a man who achieves a great deal through gentleness.
+- I've always been a keen waker-upper. I very quickly get bored just lying in bed.
+- I'm staggered when I look back at how, when I got to Cambridge, I didn't know anything of the world.
+- The problem is you have people who are keenly aware of what their time span is. Governments work towards the next election; BBC governors work for their time there. You have extraordinary regimes that run at the BBC and different people have different outlooks.
+- I'm dementedly optimistic, and whoever I'm with usually feels they have to balance my more wayward optimism.
+- What I loved about Radio 3 back in the olden days, when it didn't give a toss about the youth, were the silences - socking great caesuras just left blank for quiet reflection.
+- I have a horrible capacity to be unctuous to people I want to impress.
+- I no longer have a Maserati - I now have children and a wife.
+- The Arctic as a lesser-known region of the world was the ideal destination - beautiful, mysterious, lethal, enchanting and, crucially, populated with extraordinary death-defying communities who somehow manage to thrive there.
+- The minute you watch your voice back with its proper animated character saying the words, that's when you learn exactly what you need to do next time.
+- The nearest village was a place called Pauperhaugh which was a village in the sense that it had a phone box and a bridge. By the time I got down south I had decades to catch up on. We only got colour television in 1978.
+- I was going to say that Mark Gattis is an unsung TV hero - but he's beginning to be sung like he should be.
+- It makes me cross that no one takes great pride in doing a good job. It's so rare to find someone who really loves their trade.
+- I always have my lunch watching Tim Wonnacott doing 'Bargain Hunt'. I get quite twitchy if it's not on for whatever reason.
+- I once started tennis lessons and turned some poor man grey overnight. Now I feign injuries when I'm asked for a game.
+- I've got four boys and villas are not astronomically expensive, especially if you share with another family.
+- I draw great comfort from remoteness and wildness. I suppose that is why I have always felt the lure of the Arctic so acutely.
+- I am going a bit deaf and I am hoping that technology is going to come on leaps and bounds and that one day I will hear better.
+- I'm a bit of a floating voter actually - I've voted for all parties.
+- I have a blessed life. I do a job that I really love and I have a really good close-knit network of friends and family.
+- I used to drive a scooter and once a minicab driver pulled a U-turn in front of me and I went flying over his bonnet. Happily I didn't do myself much of an injury at all. It was straight out of 'The Dukes of Hazzard'.
+- I'd love a rule to be introduced that you can only ring up and complain about a programme if you can prove you've watched the whole programme.
+- Genuine talent does shine through but, in my experience, ambition will get you much further than pure talent.
+- I ended up at Durham School, which was lovely, then Trinity College Cambridge.
+- Well I am breaking the omerta and telling the world about how the Arctic is surprisingly full of bustling conurbations and comfy hotels so no explorer will ever speak to me again.
+- There are plenty of reasons for disliking people, but this tribal aversion to anyone with a posh voice is very boring.
+- Danger Mouse' is James Bond essentially. A rodent James Bond. Oh and slightly Batman too I suppose. And let's chuck in a little bit Superman while we're there. He's an old-fashion swashbuckling hero.
+- I follow politics avidly. I like sensible people of all political persuasions. My ideal political party would be a pick and mix.
+- I'm a trained classical baritone.
+- Sherlock' is brilliant television. It has completely reinvented British drama, and upped the stakes for home-grown shows.
+- Countdown came about at a time when we'd just had our first baby, and, if I'm entirely honest, it looked like an income - a salary - something I'd never had before.
+- My parents were relaxed, but very strict on manners. They encouraged us to follow our instincts and desires, so they were quite bohemian in that sense, but we had to work hard and that included chores.
+- I would love not to be losing my hair.
+- Andy Parsons was always very funny. He was in a double act with a guy called Henry Naylor. Dan Mazer was always a very funny guy.
+- Why should your background be held against you? It is so short-sighted.
+- I love 'Pointless', part of the genius of the show is that it's always a different story.
+- When I'm filming, my fitness levels fall off, but when I'm not, I try to go to the gym a few times a week.
+- I suppose I am Scottish - Armstrong. They were thugs, basically, reivers - and I bet they were ravers, too. They lived in what was known as the Debatable Lands, so it didn't have any allegiance to either the English or the Scottish crown.
+- If you grow up somewhere where the pace of life is very slow you enjoy the gaps between the pulses. I read a lot and, boy, did I practise the piano.
+- I grew up the son of the village doctor, so my father was quite well known. At home in Northumberland, frankly Dad is the famous one.

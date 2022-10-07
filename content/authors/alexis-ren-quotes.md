@@ -1,0 +1,66 @@
++++
+author = "Alexis Ren"
+title = "Alexis Ren Quotes"
+quotes_len = "60"
+description = "the best60 Alexis Ren Quotes"
++++
+- I've, like, lived in a bikini my entire life, so modeling bikinis was, I don't know. It was just so natural to me.
+- I overworked myself to a point of malnourishment.
+- With acting, it wouldn't be about money: it would be about taking my life experiences and using them to create art.
+- I'm proud of how strong and capable my body is.
+- I'm really healthy, and that's one of the things I pride myself on.
+- I hate when people say I Photoshop myself.
+- I'm from Santa Monica, which was an awesome place to grow up. You're very spoiled being from California. When it's below 70, you complain. When it rains, you talk about it.
+- Looking up to girls for inspo is a beautiful thing, but comparing yourself is what creates the anxiety and self-hatred. It's really important that young girls know the difference.
+- I love creating art, whether it's with photos, my own body, or clothes.
+- I'm from L.A., and we don't usually get out of our workout clothes if we're in them.
+- It's OK to not be OK.
+- I have this thing called my 'Post It People': they're my closest family members. Those are the ones who count. The ones who I put their word as something special to me. So if they're all like, 'No you're good, we love you, we know who you are as a person,' then I don't take anything else personally, 'cause those are the ones who matter - my family.
+- I think of the sun as my battery, my charger.
+- I would look at my profile and be like, 'Look at this girl! She has, like, the most perfect life!' and I would feel so guilty for not feeling blessed all the time.
+- If I can make a girl's day by hugging her, hell yeah, I'll hug the crap out of her.
+- I was on Tumblr when I was 12 or 13. I was on YouTube, too. I had a channel and made music videos. It had 50,000 subscribers.
+- I accept my body, whether it fluctuates 10 pounds. I love it regardless.
+- I have nothing to hide.
+- I think being vulnerable to other humans is a form of strength.
+- I look up to Gigi Hadid. I love where she's taken herself, I love what brands she's working on. I respect her because I understand... I mean, girls like her open the doors for girls like me. So all I can do is thank her.
+- I have to get at least 20 minutes of sun every day. An hour is the best because it's good for you. You need it. I need it to have that little spark.
+- I pay for my own things, and that's how I've always been since I was 15.
+- I love a guy who knows who he is, can make me laugh, and challenges me intellectually.
+- I always associate blonde with sunshine and puppies and happiness, but I don't think sexiness.
+- I was home-schooled my entire life and never been in a classroom.
+- I don't tan my face, ever, because I don't want sun spots.
+- Pretty much the only thing I wear is either a little bit of concealer or a bronzer, and that's it. And highlighter, of course.
+- I don't think that people should be confined to any particular aesthetic.
+- It's hard to gain respect in fashion, especially if you're coming from social media, so it's been challenging at times.
+- I appreciate Love Advent because they like to experiment with creatively different concepts that are unforgettable and fun to shoot!
+- I started Instagramming, like, my model life, per se, when I was 14. I got into it as, like, this is an opportunity to be able to show yourself not just as a pretty face but as a personality, which I think models have never been able to have until now.
+- I'm very ambitious when it comes to business.
+- I felt like my body was the only reason why people liked me.
+- I love to show off my body, and I feel like I earned it.
+- Because of how much I've gone through, I want to say I'm more wise than my age.
+- I love talking about space, our society, and what the future holds for us as a civilization.
+- People think I don't have substance and I'm just another pretty face.
+- Mid-morning is a good time for selfies because of the natural light.
+- Lighting is everything in order to get the 'perfect' selfie.
+- I don't like tan lines, and I work out a lot.
+- I started posting on my social media super-young. I didn't really understand what it was. When I was about 15, I started posting behind-the-scenes of shoots, little things of me holding up the color corrector, cute things, me in a bikini. It was just all innocent and fun, and I saw people really starting to respond to it.
+- I was my worst critic ever.
+- I hate being categorized.
+- The idea of being a designer is always something that has intrigued me.
+- I've gone through a lot as far as health.
+- My biggest thing is that I never want to sell out. Or be a sellout.
+- I love documentaries and TED talks.
+- I have to have sun. That's why I travel so much.
+- For my bikinis, the smaller the better. That's how I've always been.
+- I don't work this hard on my body to be like, 'Nah, don't look at it.'
+- I love being challenged, goofing off, and lots of passion.
+- I like challenges, and I hate being categorized. It's always been a thing of mine.
+- Coconut oil is my best friend - I put it all over my body every night. And in the morning, I wash it off so I'm not all greasy.
+- People tend to judge a book by its cover. I love being unexpected and gaining respect for who I am and not how I look.
+- I'm from L.A., and when you work out in the day, you usually stay in your workout clothes. So I always liked it where I can go to meetings in my workout clothes and still feel on it and fashionable.
+- I consider myself a nerd. I love science and technology.
+- My all-time favorite TED talks are Brene Brown's 'The Power of Vulnerability' and Sir Ken Robinson's 'Do Schools Kill Creativity.'
+- It's not healthy to ever put someone first before yourself.
+- I don't use the front-facing camera because the quality of selfies isn't as good.
+- Chemically, if you are not happy, your body will not look or be happy.

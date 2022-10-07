@@ -1,0 +1,68 @@
++++
+author = "Aldis Hodge"
+title = "Aldis Hodge Quotes"
+quotes_len = "62"
+description = "the best62 Aldis Hodge Quotes"
++++
+- My standard for the women in my life is like, 'If no man can treat you better than I can treat you, they can't come.' You gotta step up to the plate. With respect, with acknowledgment, with support.
+- The danger in having modern music tied to a period piece is that hearing something may take you out of the moment.
+- What you do does matter. And people do remember it and feel it.
+- I was in public school until third or fourth grade, and after that, I was homeschooled. I was homeschooled until I was 14, and then when I was 14, I began attending college. Mom was not playing about that education.
+- For me personally, the way I've been trained, just through life experience - the harder something is, the harder you have to work for it, the more worthwhile it is, and you just have to know that going in.
+- It's crazy: the first black man to actually step foot in America came as a free man, as an explorer, with the Spaniards. That's something for me - as a black American, it gives me a little bit of pride because we were free and respected somewhere else before slavery became what it was.
+- We have far more options for black Americans to tell stories outside of slavery, but whenever it comes to slavery, it's an uncomfortable subject. Why? Because it's the most unresolved subject in American history.
+- As far as playing different characters within the character, I think that's fun. Very rarely, on TV, do you get to do that on such a regular basis.
+- Sometimes there's something that a writer doesn't see or a producer doesn't see when he's looking at a shot.
+- I don't believe in breaks. Not yet. I'm too young.
+- We're still talking about women's rights. We can't be the greatest country in the world. I think once we lose that illusionary veil of thinking that we are, we can face the problems and really try to fix them.
+- I feel Noah has been alone for the majority of his life and inherently searching for a family, even though he may not express that outwardly. But his encounter with Rosalee gave him hope in finding someone who thinks like him.
+- Every job you do, somebody's looking at it. You're leaving an impression on somebody. What is going to be your footprint?
+- My sister is raised to know her value and to know that she stands behind no man. You know, when she gets a husband, you stand side by side, equal partnership. You stand behind no one cause you have to lift each other up. You can't do that if you're 30 percent of the value in your relationship or the household.
+- You get into these executive offices, and people say, 'Oh, we have this project. Wait a minute, guys, we need diversity - let's choose a black actor for this; let's choose a Hispanic actor for this,' instead of saying, 'That's not diverse, that's just normal. That's what makes up America.'
+- For some reason, I think that I'm not doing enough work. People are like, 'You're on a series right now,' but I'm always like, 'Yeah, but I can do more!'
+- I'm not a starstuck dude. I've been in this game too long for that, but I do respect and acknowledge real work and real work ethic.
+- As an actor, it's very rare that you get a choice in a matter. But you're always looking for something that has some gravitas.
+- When you say 'diversity,' the term has been denigrated over the years because it has been used as a crutch.
+- If men were meant to be a dominant power, men would be on this earth by themselves. So, I don't understand when women's rights are challenged - because you're talking about human rights. You talk about subjugating an entire culture that we heavily depend on for everything we need for survival.
+- You don't ever want to seem less than a person.
+- Everybody wants somebody to look up to that looks like them so they can truly believe in that reality for themselves.
+- 'Die Hard' was a really awesome experience, but I was too young to understand what a big film it was.
+- It's crazy how intelligent kids can be at a very young age and how they know what they know.
+- With contemporary music, you automatically get connected. It connects you to the emotion of the characters.
+- My mom told us that we should have good shoes, a good suit, and a watch, so I was running around at age 10 looking like a little old man. But somehow I grew to understand that a watch is a representation of myself, of my culture, taste, awareness and aesthetic.
+- You can't just look like one culture and expect to inspire a multitude of people. That doesn't work over time. Everybody wants somebody to look up to that looks like them so they can truly believe in that reality for themselves.
+- A lot of people are afraid of the idea of enslavement, and that's because it's tied to so much shame and guilt... That is the big elephant in the room, but a part of why we're afraid to attack that subject matter is because of the way we've been taught about it.
+- You're living with these characters for years and years, you need to have a lock on who they are as people, what they like, what they don't like, what they experience, and what they go through.
+- What is a superhero? They're supposed to represent hope, opportunity, and strength for everybody.
+- I want to have a resume that is substantial enough to hold itself as respectful.
+- I'm constantly looking for ways to learn and elevate your craft, patience for yourself, and patience for this business. It's not a fair business. You may be great, but it may take years for someone to notice what you're capable of because of politics.
+- Nothing in my life has necessarily been easy, but eventually I see where it's gotten me to, and I say, 'Okay, it's been worth it.'
+- We owe a lot when it comes to women in terms of innovation, in terms of education, in terms of progression in life.
+- I can literally count on one hand how many slave stories have gotten notoriety over the past few years.
+- A new setting is amazing cause it's new for the team, and it's new for our characters. It's a breakaway from the normal deal. You get so tired, locked into a show for so many years. You get used to doing the same thing. A little shake-up and change is good.
+- You have a plantation where you have 10 white people and you have about 50 or 60 black people. The automatic thought was, 'Why didn't they raise up? Why didn't they overpower? They had the numbers.' But really these people, their hope was broken. Their sense of love was broken. Their appreciation for who they were was broken.
+- Every single step, although I couldn't see it, was a step forward and built to where I am now.
+- I don't understand actors who complain when they get work. 'I'm working too much. I've got to get up too early ...' Isn't this the point? There's somebody right now who's bussing tables who would love your problems.
+- Surviving the elements is working, but being on set and having to do a scene and being in a room with the same people who you actually enjoy and respect, your day project was easy.
+- I think that my humble beginnings were very deliberate, and I'm grateful for them because I'm not sure I would see my achievements the same way if they were handed to me. I'm not sure my work ethic would be the same.
+- There's a really great documentary called 'Many Rivers,' which documents the totality of slavery from its inception, and then it gives you a little history on how America came to prominence. It's crazy - the first black man to actually step foot in America came as a free man, as an explorer, with the Spaniards.
+- I've been a writer since I was 13. I've been writing scripts and having pitch meetings. So, when I do see people like Brit Marling getting things done, it lets me know that it's possible. It basically just tells me, 'Dude, get to work!' For some reason, I think that I'm not doing enough work.
+- When I was 18, I began attending college for art and design, and I designed all sorts of things from furniture to industrial designs and even watches.
+- As far as my contribution to this industry, I want to be like Dean Devlin, John Rogers, and Chris Downey. I want to give people jobs and put them on great shows. I want to create careers for people.
+- My brother does a series of movies called 'The Purge,' and they have the third one coming out this year, and then also he'll be starring in the second season of 'Secrets and Lies.' We want each other to win because we are a team, and this is how we've been since day one. That's the end game for all of us in the Hodge house.
+- This country is not built on one culture alone. We all make up this industry.
+- For someone like MC Ren, who is still alive and I can go talk to, that's more of a niche challenge because I do have to match his energy, and I do have to pay homage to who he is as a person, but that just comes with research. And the difference there is I can do the research there right on the spot. I can just go ask him.
+- I think enslavement has evolved to what may seem appropriate to this day's generation. Modern enslavement is imprisonment.
+- I was always really geeky about design and buildings. Always into architecture as a kid.
+- With any good projects, I feel like the off-screen chemistry factors on-screen. It's great when you don't have to force it, but when it's not there, you better focus on getting there because, as we live with these characters, we spend more time with one another than we do our families at home.
+- New Orleans is New Orleans. It's a great city and fun and great food. It's one of those cities that when you are working hard hours like we work, you have to do as much as possible to stay out of trouble. Not much of a problem for me, but in New Orleans, trouble tries so much to find you.
+- When you do learn these things, when you understand what inclusion is, then we can accomplish greater things together.
+- I came out of the womb drawing on everything; I used to draw on my mother's white furniture and her white walls with her red lipstick and my pencils. Little did she know that would later materialize into me doing what I do now - I'm a painter as well and a micromechanical engineer.
+- I've always known I wanted to be in design somehow. It was going to be architecture, but I would've had to quit acting for it. I realized with horology, I could learn at my own pace.
+- These superhero movies are starting to give more love to not only black characters but also to more female characters, which is necessary because you have boys and girls of all colors who are looking at these superheroes saying, 'I want to be that. I want to look like that. Show me somebody that I can automatically connect with.'
+- Most people say they're slaves, but in my opinion, to say that I am a slave is to take ownership of actually being a slave - to be a tool, be a thing. Basically cattle.
+- I think the knowledge of where you come from gives you more of an affinity for understanding different cultures and learning.
+- I remember, growing up as a kid, history class was very washed-over. They didn't really get into the gritty bits of slavery. It's a very, very small section in the history books. It's not something they really touch on directly with American curriculums.
+- I am fortunate enough to find opportunities that have a lot of presence.
+- My approach is always the same. I try to be as honest as possible. Find the real honesty and humanity in the character because even a fictional character is supposed to feel real. And my job is to find that reality and bring it to the screen.
+- I hear all the time from our audience about how it's nice to see a positive African-American role model for the younger kids out there that are watching.

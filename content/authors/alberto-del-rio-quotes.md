@@ -1,0 +1,68 @@
++++
+author = "Alberto Del Rio"
+title = "Alberto Del Rio Quotes"
+quotes_len = "62"
+description = "the best62 Alberto Del Rio Quotes"
++++
+- I learned from many people. I became a better wrestler thanks to my matches with Edge, with Christian, with Rey Mysterio, with John Cena - who, even though you, the fans, want to criticize him, John Cena is one of the best wrestlers of the universe.
+- Everybody knows I work every single day, I never rest, and I always work to give my best to the fans.
+- I'm one of those wrestlers that leaves everything to the audience and to the fans. I never plan anything, and you will never see Alberto Patron planning in the back what he is going to do in the match.
+- It's easy for a multi-billion company like WWE - it's for a company like that to hire anyone. So I'm glad Bobby Lashley is back in action with that company, 'cause he's a fantastic guy.
+- In the past, if I was in the middle of a situation involving my personal life, I was always keeping it to me and my family. I wasn't explaining or telling the fans what was going on because they don't need to know.
+- When I won my first MMA fight, I put myself out there for the world to see me.
+- I always take everything serious when it comes to my career and my life, but this decision to go back to the cage is a big decision for me.
+- I never put pressure on myself because I know who I am and where I come from.
+- I know all the guys in NXT have a lot of talent, and that's the reason why they are there. But in this sport, you can see guys with a lot of talent in the minor leagues, when they move into the major leagues, they become irrelevant.
+- My family is proud of all the things I have accomplished.
+- My work with Combate Americas, in particular, has been incredible because the company keeps growing at an incredible rate.
+- I'm for big challenges and can face anybody, but I know they have legends in 'WWE '12,' so I'd love to see myself against Andre the Giant.
+- We, as wrestlers, need to remember that this is a business. We started because we love the business, and we stay in it because we have a lot of passion for it, but you have to be rewarded for your work.
+- I love being the bad guy. I think that the audience prefer me as a bad guy.
+- I was never let go from that company - it was my decision to leave WWE. I had enough.
+- 'Lucha Underground' is a fantastic product. They have the right people, talent, and backing up the product.
+- I would like to wrestle some guys again like Dolph Ziggler, Ken Anderson, and many others in the business.
+- I competed in different places all over the world. I represented my country in the Pan-American championships.
+- I didn't want to be on the road for 210-220 days per year. That was one of my first things when I started having conversations with Impact Wrestling.
+- Don't get confused; doing choreography in the ring can be done by anyone. I take the guy who works in the gas station on the corner, and I teach him a choreography for a week, and I swear he can do it in a ring.
+- I wanted to be a wrestler since before I can remember.
+- We have a lot of Mexican-Americans with a lot of talent. I'm sure we're going to have another Rey Mysterio in the future; I just don't know when.
+- In Combate, we will push you. If you come to win, you come to prove that you belong in the sport; then, you belong in this company.
+- Wrestling is to go out there and perform and make people believe that either of the performers in the ring can win - either the bad guy or the good guy.
+- I've got the knowledge and experience to know what's going on in the cage or the ring. And I know how to entertain an audience and how to use the microphone. I know my market.
+- There are pictures of me in a Dos Caras mask when I was 3 years old.
+- I will stay in Impact as long as the fans want me there. They were so happy to have me there and treated me with a lot of respect. The office, talent, and staff are treated with respect by everyone, regardless of your position in the business.
+- I started wrestling when I was eight years old with the amateur wrestling team in Mexico.
+- I got tired of going to places and people wanting to pick fights with me or to prove something themselves or their drunk friends, so I decided to stop going out.
+- We have the right to go and try new things and, if those things don't work, go back to what we were doing at first.
+- I can tell you this, and I'm 100 percent sure: 90 percent of the people working for WWE have never been in a real fight in their lives.
+- Pro wrestling has always been my passion. I always wanted to be a pro wrestler.
+- That's actually the main reason I decided to leave WWE: the brutal schedule that you have when you work for a company like WWE.
+- In Mexico, luchadores, the wrestlers, are the only Mexican superheroes. And to keep the mystery behind the mask is really important.
+- I am so happy to work with Impact Wrestling. I have nothing but respect for them.
+- When it comes to things like social media, the only time I go crazy is when my kids get affected, like when they get someone stupid saying something ignorant to them about me because they are babies.
+- Top of my head is Rey Mysterio Jr. He is one of my best friends, fantastic wrestler, and a real-life legend. He would be the perfect person to do a world tour to say goodbye.
+- Fortunately for me, I do so well in pro wrestling that I don't have to go there and fight if they don't pay me what I was asking.
+- I swear, there is no one better listening to the fans and knowing what they wants and how to make them cheer other than John Cena.
+- WWE is a global brand, and it's a global company. So, we want to have superstars from all over the world.
+- There were many great moments in WWE, but the most special was to win the 'Royal Rumble' of 40 wrestlers.
+- We have years of tradition in lucha libre in Mexico.
+- We always talk about bullying, bullies; that is what social media is. It's just people we gave a voice to who didn't deserve to have a voice.
+- I'm not tired of wrestling; I love wrestling. Del Rio fans - I love my Del Rio fans.
+- I'm really happy with 'WWE '12.' It's amazing. The fact that I'm in a video game is incredible; it's a dream come true.
+- Returning to WWE before retiring is not a question of whether they want to or I want to return. Neither I hope nor want to return, nor do they expect me to return or want me to return.
+- John Cena is fantastic, seriously. I hate when people don't give Cena the credit he deserves.
+- WWE is a PG and a family product. Everybody can watch and enjoy WWE, whereas in the past, the parents were worried about what their kids were watching because of the blood, foul language, etc.
+- The difference between me and other talent that has left WWE is - I left the company. In most of the other situations, the company fired them or not wanting to do with business with them.
+- I went with my friends to 'Boxers and Brawlers' in San Antonio to train the way I am supposed to train when you are 40, but doing it at a higher level.
+- I once said that I never wanted to be a good guy or the 'baby face,' as we call it in the wrestling business. But you know, it is what it is, and I'll be whatever they want me to be. At the end of the day, we work for the WWE fans.
+- I have been blessed when it comes to winning the titles, as I have won it all, and I am always in the scheme of things.
+- I have a bunch of storylines that I could pass to other performers or especially all my knowledge that I have when it comes to building matches, to creating an exciting finish or telling stories in the ring.
+- I always had fun with my great friend Rey Mysterio Jr. I think it would be fantastic to have my very last match against someone like him because my very first match in WWE was against Rey Mysterio Jr. I know that all the pro wrestling fans, in particular the Mexican fans, would love to see Rey Mysterio against me for my very last match.
+- I enjoy Impact so much because some places, if they see you down, they won't be good enough to come take your hand and help you with what you're going through.
+- I was wrestling as Dos Caras Jr., wrestling pretty much in Mexico, but also did some appearances in Japan. That's where they found me and asked me to be a part of MMA.
+- Even though MMA and pro wrestling are very different, at the end of the day, it's all about entertaining. They are amazing athletes who go out there and give 100 percent.
+- For people like me, who appreciate the love and respect you get from the fans in Japan, there was no reason for me to turn my head to the other side and go try my options and luck in the UFC.
+- I have been saying this from the beginning: people are going to say whatever they want to say or believe whatever they want to believe. I say this to people: stick to the facts.
+- Putting yourself in the ring to wrestle - create those emotions, ups and downs within the match - one moment dominates the one, and one moment dominates the other, and without having created a choreography, that is the real wrestling.
+- My first six months were in Japan; then I went to Mexico and then went back to Japan. I had the opportunity to wrestle all the wrestlers from the United States, Europe, and Japan when I was there.
+- Even though I love pro wrestling and love MMA, I'm here because I have to pay those bills. I'm here to make money; nothing comes free.

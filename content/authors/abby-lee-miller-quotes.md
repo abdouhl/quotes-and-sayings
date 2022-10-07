@@ -1,0 +1,91 @@
++++
+author = "Abby Lee Miller"
+title = "Abby Lee Miller Quotes"
+quotes_len = "85"
+description = "the best85 Abby Lee Miller Quotes"
++++
+- I don't want a brat on my team.
+- I've taken so many kids out of Pittsburgh and onto the great white way in New York City right into a Broadway show.
+- I want to be an executive producer.
+- I made bad decisions. I'm not denying that I made bad decisions.
+- I make decisions all day, so it's nice for a woman like me to go to dinner and have the man take the menu and say, 'Let me order.' Other women would be offended by that, but I'm like, 'Good. Because I can't make one more decision today.' I want someone to rub my feet without being asked.
+- I don't want to hear the word 'can't.'
+- I have good days and bad days.
+- How does a nice Catholic girl end up going to prison for a year? It's crazy. I've made mistakes. I have to pay for those mistakes.
+- You always have to remember that if you say something negative, it's going to come back to haunt you.
+- If you have the ability to pick yourself up by the bootstraps and start over, you come out stronger because you learn from whatever mistakes you made.
+- If I could have worked from the time I was born until I was 18 and never had to work again, I would have done it.
+- I don't think I get that upset over things.
+- I have a little bit of PTSD when I hear a big bang or a loud noise or keys - I jump out of my skin.
+- People don't realise how difficult it is to work with people day in and day out that know absolutely nothing.
+- Doing a show for three weeks is nothing like doing a show for seven seasons.
+- I was told that someone on Facebook said something 'horrible' about me. Who cares? At least they're watching the show.
+- I don't want flowers or candy or anything like that. I just want somebody to say, 'Wow, you've done a great job.'
+- I'm an only child.
+- I can take a beginner kid that has never danced in their lives, and I can teach them something, or I can take a really advanced dancer, and I can make them into a professional.
+- I want to retire and want to be able to live out my days financially secure. That's what everyone wants.
+- I try to be vegan... I really, really try. I don't eat any red meat, and the whole animal thing really upsets me, so I've tried.
+- Competitions are a business, first and foremost.
+- I was never focused on me, me, me all the time. I was always focused on somebody else.
+- Do your job. Do it the best you can. Do it right, because somebody, sometimes your best friend, is waiting for you to screw up so she can take your place.
+- I have an eye for detail.
+- I was raised to be independent.
+- I just have always felt that people don't change, circumstances change.
+- My success rate speaks for itself.
+- I'm not talent. Not considered 'talent' by Lifetime. I'd like to say I'm their savior, but that would be cocky.
+- I don't like people going behind my back.
+- I create stars.
+- Britney Spears was an incredible dancer. That kid was amazing.
+- I was always interested in choreography - in making people think and feel something.
+- I always thought I would die of cancer because my mom and my dad both died of cancer. My dad died of osteocancer, and my mom died of colon cancer.
+- I think any activity you have your kids in, you're all trying to live vicariously through them. And you're jealous of the kid that's naturally more talented or has the facility, the body, the genes, or the God-given talent. People get jealous of that.
+- I'm not this horrible, evil person.
+- Dancers are always striving for perfection. A great dancer never achieves it: you always want to do another turn, a higher jump,a more difficult acrobatic jump.
+- The rules are there for a reason.
+- I hate what I look like on TV, and I want to look better, and nothing makes the mothers more jealous.
+- I have no problem yelling at anybody's kid - free of charge!
+- I've been in continuing education programs since taking my dance master's exam at age 21.
+- I've always put everybody else's child first before my own health, before my own outfit, before my own time frame.
+- I can make something magical and wonderful out of nothing.
+- When I tell a child something the first time, I'm nice. The 15th time, I start to get aggravated.
+- I'm a good teacher and am great at observation and picking out what's wrong and fixing it.
+- Like it or not, there are a lot of dance teachers in this country who respect me, whether they personally like me or not.
+- I've been invited to do 'Dancing With the Stars' three times, but Lifetime said no.
+- I have spent the greater part of my life in a hotel room with seven or eight kids, looking after everyone, sorting out fights, wiping noses, handing out towels, not having a clean towel left for me.
+- Everybody wants to be me. What can I say?
+- TV's a big deal in prison. A big deal. People watch it nonstop.
+- If you want someone to say, 'She's so sweet, and she's so cute, and, honey, point your foot,' that's not my school. You can go to the YMCA and have a nobody teach your kid if that's what you want to hear.
+- I just was never into performing. It's just hard work. It's hard work.
+- My wheelchair is like the Cadillac of wheelchairs; it goes up and down and back, and I can lay down in it.
+- If a whole bunch of people want to make your life a living hell, they're gonna do it.
+- I had a PET scan, and it was cleared. Not one cell of cancer after three rounds of chemo. But I still had seven more just for safety, which was stupid. I should have just worked on therapy.
+- I'm not a bad person.
+- Cry if you have a compound fracture, by all means. Or if your grandpa died. But otherwise, save it for your pillow.
+- As far as the general public is concerned, I always tell people that you need to look like a dance teacher like you're looking for a pediatrician.
+- Don't hire a prison consultant.
+- I like to choreograph and create and design the costumes and do it all and then step back and watch it and then move on to the next project.
+- When you're so busy shooting 12 hours a day, you just eat what someone sticks in front of you.
+- I rely on other people every day of my life.
+- My mother taught children to love to dance.
+- You don't need a lot of credentials to be prison guard in a federal prison. And, you know, you give them a set of keys and a weapon, and they're in power.
+- I have goals.
+- My name is not unfamiliar to anybody in the dance community. I'm talking the upper echelon of dance studios.
+- I'm a can-do girl.
+- I teach children to be winners.
+- I do not raise brats!
+- I made lots of mistakes - the number one mistake being trusting other people with my money.
+- It takes me about two hours to run into Target. People always want a picture. They hem and haw, and they can't spit the words out, so they waste about five minutes of my time just standing there getting ready for a picture. Just do it!
+- For the general public or psychos on Facebook, for everyone who's made one negative comment about me, I've probably gotten 250-300 positive comments.
+- If your mom cries a lot, you probably cry a lot. It's what you learn.
+- I didn't have any children of my own.
+- I like to work.
+- I've been talked about by a lot better people than the general public.
+- So many people think of me as a character on TV, but first and foremost, my passion is teaching dance and creating employable, working dancers.
+- When you walk into my classroom, I'm going to give it to you straight, just like in the real world, because that's the only way to prepare you for the real world.
+- I declared bankruptcy, and that was the worst thing I ever should have done.
+- I saw 'Magic Mike,' and I thought it was great.
+- According to Lifetime, I don't know anything about TV.
+- What I'm denying is that I'm this cutthroat financier.
+- I have dreams, and I want to see them come to fruition.
+- I have spent so much time and so much energy making other people's children stars.
+- I never wanted to perform and never proclaimed myself to be a performer.

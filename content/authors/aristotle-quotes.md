@@ -1,0 +1,160 @@
++++
+author = "Aristotle"
+title = "Aristotle Quotes"
+quotes_len = "154"
+description = "the best154 Aristotle Quotes"
++++
+- There is no great genius without some touch of madness.
+- In making a speech one must study three points: first, the means of producing persuasion; second, the language; third the proper arrangement of the various parts of the speech.
+- The roots of education are bitter, but the fruit is sweet.
+- Rhetoric may be defined as the faculty of observing in any given case the available means of persuasion. This is not a function of any other art.
+- It is the mark of an educated mind to be able to entertain a thought without accepting it.
+- Nature does nothing in vain.
+- Different men seek after happiness in different ways and by different means, and so make for themselves different modes of life and forms of government.
+- Therefore, the good of man must be the end of the science of politics.
+- We are not angry with people we fear or respect, as long as we fear or respect them; you cannot be afraid of a person and also at the same time angry with him.
+- Bring your desires down to your present means. Increase them only when your increased means permit.
+- Wit is educated insolence.
+- Misfortune shows those who are not really friends.
+- There was never a genius without a tincture of madness.
+- The energy of the mind is the essence of life.
+- Our judgments when we are pleased and friendly are not the same as when we are pained and hostile.
+- No excellent soul is exempt from a mixture of madness.
+- The gods too are fond of a joke.
+- He who can be, and therefore is, another's, and he who participates in reason enough to apprehend, but not to have, is a slave by nature.
+- Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.
+- A tyrant must put on the appearance of uncommon devotion to religion. Subjects are less apprehensive of illegal treatment from a ruler whom they consider god-fearing and pious. On the other hand, they do less easily move against him, believing that he has the gods on his side.
+- Character may almost be called the most effective means of persuasion.
+- The aim of art is to represent not the outward appearance of things, but their inward significance.
+- He who hath many friends hath none.
+- He who is to be a good ruler must have first been ruled.
+- Man is the only animal capable of reasoning, though many others possess the faculty of memory and instruction in common with him.
+- My best friend is the man who in wishing me well wishes it for my sake.
+- Quality is not an act, it is a habit.
+- Democracy arises out of the notion that those who are equal in any respect are equal in all respects; because men are equally free, they claim to be absolutely equal.
+- I count him braver who overcomes his desires than him who conquers his enemies; for the hardest victory is over self.
+- A constitution is the arrangement of magistracies in a state.
+- A tragedy is a representation of an action that is whole and complete and of a certain magnitude. A whole is what has a beginning and middle and end.
+- It is just that we should be grateful, not only to those with whose views we may agree, but also to those who have expressed more superficial views; for these also contributed something, by developing before us the powers of thought.
+- Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.
+- Persuasion is clearly a sort of demonstration, since we are most fully persuaded when we consider a thing to have been demonstrated.
+- We make war that we may live in peace.
+- Republics decline into democracies and democracies degenerate into despotisms.
+- It is not once nor twice but times without number that the same ideas make their appearance in the world.
+- For one swallow does not make a summer, nor does one day; and so too one day, or a short time, does not make a man blessed and happy.
+- The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival.
+- Anybody can become angry - that is easy, but to be angry with the right person and to the right degree and at the right time and for the right purpose, and in the right way - that is not within everybody's power and is not easy.
+- Both oligarch and tyrant mistrust the people, and therefore deprive them of their arms.
+- The ideal man bears the accidents of life with dignity and grace, making the best of circumstances.
+- What it lies in our power to do, it lies in our power not to do.
+- Jealousy is both reasonable and belongs to reasonable men, while envy is base and belongs to the base, for the one makes himself get good things by jealousy, while the other does not allow his neighbour to have them through envy.
+- Some animals utter a loud cry. Some are silent, and others have a voice, which in some cases may be expressed by a word; in others, it cannot. There are also noisy animals and silent animals, musical and unmusical kinds, but they are mostly noisy about the breeding season.
+- At his best, man is the noblest of all animals; separated from law and justice he is the worst.
+- The whole is more than the sum of its parts.
+- Those who educate children well are more to be honored than they who produce them; for these only gave them life, those the art of living well.
+- To attain any assured knowledge about the soul is one of the most difficult things in the world.
+- You will never do anything in this world without courage. It is the greatest quality of the mind next to honor.
+- Persuasion is achieved by the speaker's personal character when the speech is so spoken as to make us think him credible. We believe good men more fully and more readily than others: this is true generally whatever the question is, and absolutely true where exact certainty is impossible and opinions are divided.
+- The end of labor is to gain leisure.
+- Personal beauty is a greater recommendation than any letter of reference.
+- The least initial deviation from the truth is multiplied later a thousandfold.
+- The virtue of justice consists in moderation, as regulated by wisdom.
+- No notice is taken of a little evil, but when it increases it strikes the eye.
+- Bashfulness is an ornament to youth, but a reproach to old age.
+- Whether if soul did not exist time would exist or not, is a question that may fairly be asked; for if there cannot be someone to count there cannot be anything that can be counted, so that evidently there cannot be number; for number is either what has been, or what can be, counted.
+- The secret to humor is surprise.
+- All men by nature desire knowledge.
+- Suffering becomes beautiful when anyone bears great calamities with cheerfulness, not through insensibility but through greatness of mind.
+- Education is an ornament in prosperity and a refuge in adversity.
+- Mothers are fonder than fathers of their children because they are more certain they are their own.
+- For as the eyes of bats are to the blaze of day, so is the reason in our soul to the things which are by nature most evident of all.
+- Probable impossibilities are to be preferred to improbable possibilities.
+- All paid jobs absorb and degrade the mind.
+- Temperance is a mean with regard to pleasures.
+- I have gained this from philosophy: that I do without being commanded what others do only from fear of the law.
+- Democracy is when the indigent, and not the men of property, are the rulers.
+- Courage is a mean with regard to fear and confidence.
+- The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit.
+- Love is composed of a single soul inhabiting two bodies.
+- The eyes of some persons are large, others small, and others of a moderate size; the last-mentioned are the best. And some eyes are projecting, some deep-set, and some moderate, and those which are deep-set have the most acute vision in all animals; the middle position is a sign of the best disposition.
+- The wise man does not expose himself needlessly to danger, since there are few things for which he cares sufficiently; but he is willing, in great crises, to give even his life - knowing that under certain conditions it is not worthwhile to live.
+- It is unbecoming for young men to utter maxims.
+- The generality of men are naturally apt to be swayed by fear rather than reverence, and to refrain from evil rather because of the punishment that it brings than because of its own foulness.
+- Pleasure in the job puts perfection in the work.
+- The most perfect political community is one in which the middle class is in control, and outnumbers both of the other classes.
+- The beginning of reform is not so much to equalize property as to train the noble sort of natures not to desire more, and to prevent the lower from getting more.
+- We must no more ask whether the soul and body are one than ask whether the wax and the figure impressed on it are one.
+- Without friends no one would choose to live, though he had all other goods.
+- Hence poetry is something more philosophic and of graver import than history, since its statements are rather of the nature of universals, whereas those of history are singulars.
+- But if nothing but soul, or in soul mind, is qualified to count, it is impossible for there to be time unless there is soul, but only that of which time is an attribute, i.e. if change can exist without soul.
+- Of all the varieties of virtues, liberalism is the most beloved.
+- The law is reason, free from passion.
+- We praise a man who feels angry on the right grounds and against the right persons and also in the right manner at the right moment and for the right length of time.
+- Dignity does not consist in possessing honors, but in deserving them.
+- If one way be better than another, that you may be sure is nature's way.
+- Hope is a waking dream.
+- Wishing to be friends is quick work, but friendship is a slow ripening fruit.
+- Good habits formed at youth make all the difference.
+- Man is by nature a political animal.
+- The greatest virtues are those which are most useful to other persons.
+- The poet, being an imitator like a painter or any other artist, must of necessity imitate one of three objects - things as they were or are, things as they are said or thought to be, or things as they ought to be. The vehicle of expression is language - either current terms or, it may be, rare words or metaphors.
+- The worst form of inequality is to try to make unequal things equal.
+- In constructing the plot and working it out with the proper diction, the poet should place the scene, as far as possible, before his eyes. In this way, seeing everything with the utmost vividness, as if he were a spectator of the action, he will discover what is in keeping with it, and be most unlikely to overlook inconsistencies.
+- Thou wilt find rest from vain fancies if thou doest every act in life as though it were thy last.
+- Most people would rather give than get affection.
+- No one would choose a friendless existence on condition of having all the other things in the world.
+- What the statesman is most anxious to produce is a certain moral character in his fellow citizens, namely a disposition to virtue and the performance of virtuous actions.
+- It is clearly better that property should be private, but the use of it common; and the special business of the legislator is to create in men this benevolent disposition.
+- Change in all things is sweet.
+- The soul never thinks without a picture.
+- Law is mind without reason.
+- Long-lived persons have one or two lines which extend through the whole hand; short-lived persons have two lines not extending through the whole hand.
+- A statement is persuasive and credible either because it is directly self-evident or because it appears to be proved from other statements that are so.
+- The aim of the wise is not to secure pleasure, but to avoid pain.
+- Piety requires us to honor truth above our friends.
+- Some animals are cunning and evil-disposed, as the fox; others, as the dog, are fierce, friendly, and fawning. Some are gentle and easily tamed, as the elephant; some are susceptible of shame, and watchful, as the goose. Some are jealous and fond of ornament, as the peacock.
+- Inferiors revolt in order that they may be equal, and equals that they may be superior. Such is the state of mind which creates revolutions.
+- Education is the best provision for old age.
+- Even when laws have been written down, they ought not always to remain unaltered.
+- In a democracy the poor will have more power than the rich, because there are more of them, and the will of the majority is supreme.
+- Courage is the first of human qualities because it is the quality which guarantees the others.
+- A friend to all is a friend to none.
+- A great city is not to be confounded with a populous one.
+- The duty of rhetoric is to deal with such matters as we deliberate upon without arts or systems to guide us, in the hearing of persons who cannot take in at a glance a complicated argument or follow a long chain of reasoning.
+- The state comes into existence for the sake of life and continues to exist for the sake of good life.
+- Whosoever is delighted in solitude is either a wild beast or a god.
+- To run away from trouble is a form of cowardice and, while it is true that the suicide braves death, he does it not for some noble object but to escape some ill.
+- Some kinds of animals burrow in the ground; others do not. Some animals are nocturnal, as the owl and the bat; others use the hours of daylight. There are tame animals and wild animals. Man and the mule are always tame; the leopard and the wolf are invariably wild, and others, as the elephant, are easily tamed.
+- Fear is pain arising from the anticipation of evil.
+- If liberty and equality, as is thought by some, are chiefly to be found in democracy, they will be best attained when all persons alike share in government to the utmost.
+- Men are swayed more by fear than by reverence.
+- Well begun is half done.
+- No one loves the man whom he fears.
+- The true and the approximately true are apprehended by the same faculty; it may also be noted that men have a sufficient natural instinct for what is true, and usually do arrive at the truth. Hence the man who makes a good guess at truth is likely to make a good guess at probabilities.
+- Friendship is essentially a partnership.
+- The educated differ from the uneducated as much as the living from the dead.
+- A sense is what has the power of receiving into itself the sensible forms of things without the matter, in the way in which a piece of wax takes on the impress of a signet-ring without the iron or gold.
+- Men acquire a particular quality by constantly acting in a particular way.
+- He who is unable to live in society, or who has no need because he is sufficient for himself, must be either a beast or a god.
+- Politicians also have no leisure, because they are always aiming at something beyond political life itself, power and glory, or happiness.
+- In all things of nature there is something of the marvelous.
+- Those that know, do. Those that understand, teach.
+- Poetry is finer and more philosophical than history; for poetry expresses the universal, and history only the particular.
+- It is best to rise from life as from a banquet, neither thirsty nor drunken.
+- Plato is dear to me, but dearer still is truth.
+- Bad men are full of repentance.
+- Those who excel in virtue have the best right of all to rebel, but then they are of all men the least inclined to do so.
+- We become just by performing just action, temperate by performing temperate actions, brave by performing brave action.
+- In poverty and other misfortunes of life, true friends are a sure refuge. The young they keep out of mischief; to the old they are a comfort and aid in their weakness, and those in the prime of life they incite to noble deeds.
+- Youth is easily deceived because it is quick to hope.
+- All human actions have one or more of these seven causes: chance, nature, compulsions, habit, reason, passion, desire.
+- For though we love both the truth and our friends, piety requires us to honor the truth first.
+- Homer has taught all other poets the art of telling lies skillfully.
+- All virtue is summed up in dealing justly.
+- Men create gods after their own image, not only with regard to their form but with regard to their mode of life.
+- The young are permanently in a state resembling intoxication.
+- Perfect friendship is the friendship of men who are good, and alike in excellence; for these wish well alike to each other qua good, and they are good in themselves.
+- Happiness depends upon ourselves.
+- The one exclusive sign of thorough knowledge is the power of teaching.
+- Every art and every inquiry, and similarly every action and choice, is thought to aim at some good; and for this reason the good has rightly been declared to be that at which all things aim.
+- It is Homer who has chiefly taught other poets the art of telling lies skillfully.

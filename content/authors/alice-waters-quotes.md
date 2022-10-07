@@ -1,0 +1,96 @@
++++
+author = "Alice Waters"
+title = "Alice Waters Quotes"
+quotes_len = "90"
+description = "the best90 Alice Waters Quotes"
++++
+- I really appreciate the many neighbourhoods of Berkeley. There is still the butcher, the baker and the candlestick maker. And it has the University of California, which is the greatest gift, to my mind, to be close to it. It keeps the place alive.
+- I guess I don't really believe in retirement. I believe in shorter days and maybe in weekends!
+- I came to all the realizations about sustainability and biodiversity because I fell in love with the way food tastes. That was it. And because I was looking for that taste I feel at the doorsteps of the organic, local, sustainable farmers, dairy people and fisherman.
+- I am an optimist of the first order.
+- People have become aware that way that we've been eating is making us sick.
+- I love those tiny little onions in the spring that are so small they're almost like a little chive.
+- I'm unwilling to eat food that has been adulterated.
+- We eat every day, and if we do it in a way that doesn't recognize value, it's contributing to the destruction of our culture and of agriculture. But if it's done with a focus and care, it can be a wonderful thing. It changes the quality of your life.
+- I used to do calligraphy, and I'm afraid that has lapsed, but I've always been interested in book printing.
+- I was a very picky eater.
+- Food isn't like anything else. It's something precious. It's not a commodity.
+- I try not to do anything that's immoral.
+- I don't want food that comes from animals that are caged up and fed antibiotics. I am really suspicious of that kind of production of meat and poultry.
+- When you have good ingredients, cooking doesn't require a lot of instruction because you can never go very wrong.
+- We have to understand that we want to pay the farmers the real price for the food that they produce. It won't ever be cheap to buy real food. But it can be affordable. It's really something that we need to understand. It's the kind of work that it takes to grow food. We don't understand that piece of it.
+- It's around the table and in the preparation of food that we learn about ourselves and about the world.
+- I think America's food culture is embedded in fast-food culture. And the real question that we have is: How are we going to teach slow-food values in a fast-food world? Of course, it's very, very difficult to do, especially when children have grown up eating fast food and the values that go with that.
+- I do feel like food should cost more, because we aren't paying farmers a living wage. It has to cost more.
+- The act of eating is very political. You buy from the right people, you support the right network of farmers and suppliers who care about the land and what they put in the food.
+- I don't think it ever works to tell people what they can't eat. They can do it for so long, and then they fall off. You have to bring them into a new relationship with food.
+- Create a garden; bring children to farms for field trips. I think it's important that parents and teachers get together to do one or two things they can accomplish well - a teaching garden, connecting with farms nearby, weave food into the curriculum.
+- Buy foods from nearby farms and have that food served in the cafeteria.
+- If we want children to learn to tend the land and nourish themselves and have conversations at the table, we need to communicate with them in ways that are positive.
+- This is the power of gathering: it inspires us, delightfully, to be more hopeful, more joyful, more thoughtful: in a word, more alive.
+- I'm focused on the next generation, because I think it's very hard to break the habit of adults who've got salt and sugar addictions and just ways of being in this world. It's very hard even for the most enlightened people at famous universities that are very wealthy to spend the money that it takes to feed the students something delicious.
+- English food writer Elizabeth David, cook and author Richard Olney and the owner of Domaine Tempier Lulu Peyraud have all really inspired the way I think about food.
+- I can't imagine leaving the restaurant. It's hard for me to separate my life from my work; I'm really thinking about what we're doing every day.
+- Usually, cheap food is not nutritious. You're feeding people, but you're not really feeding people something that is good for them.
+- I think you have to plan ahead. When I go to the market on a Saturday, and I'm buying for family and friends, I'm thinking about what I'm going to eat on the weekend but also about what I'm going to make for the following week.
+- I think health is the outcome of finding a balance and some satisfaction at the table.
+- I have a fireplace in my kitchen that I light every night, no matter what.
+- Hard-boiled eggs are wonderful when they're really done right. I bring the water to a boil, and then I put in the eggs. And then I boil them for - well, it depends on the size of the egg - maybe eight minutes.
+- We have to bring children into a new relationship to food that connects them to culture and agriculture.
+- In Berkeley, we built the garden and a kitchen classroom. We've been working on it for 12 years. We've learned a lot from it. If kids grow it and cook it, they eat it.
+- We've been so disconnected agriculturally and culturally from food. We spend more time on dieting than on cooking.
+- The problem with living in a fast-food nation is that we expect food to be cheap.
+- I just hope Americans come to understand that food isn't something to be manipulated by our teeth and shoved down our gullet, that it's our spiritual and physical nourishment and important to our well-being as a nation.
+- I can remember the three restaurant experiences of my childhood. All I wanted to do on my birthday was to go to the Automat in New York... but I don't know if you consider that a real restaurant.
+- We need to have a course in school that teaches about ecology and gastronomy. I could imagine that all children could eat at school for free and that the cafeteria would become part of the school's curriculum.
+- If I weren't involved with food, I'd be working in architecture. Design is that critical to me.
+- I want every child in America to eat a nutritious, delicious, sustainably sourced school lunch for free.
+- Grass-fed cattle are leaner. But it's not true that they are less flavorful.
+- I wanted people to come to the restaurant and feel at home, so I put it in a house.
+- I'm always changing my work, as there are endless ways to think about food.
+- The biggest thing you can do is understand that every time you're going to the grocery store, you're voting with your dollars. Support your farmers' market. Support local food. Really learn to cook.
+- I used to think that I wanted to be a hat maker, but I don't think that would have worked out.
+- When I first went to Paris in 1965, I fell in love with the small, family-owned restaurants that existed everywhere then, as well as the markets and the French obsession with buying fresh food, often twice a day.
+- Whenever I want to know how to cook something, I can't ask one chef - I have to ask six.
+- Everything tastes better with butter. Meat that has fat in it is tender in a certain way, flavorful in a certain way. It's hard to deny the flavor quotient there.
+- I have a love affair with tomatoes and corn. I remember them from my childhood. I only had them in the summer. They were extraordinary.
+- A lot of equipment can get in the way of the connection with food, with touching and feeling.
+- I eat meat, but no meat that isn't pastured is acceptable, and we probably need to eat a whole lot less.
+- I feel that good food should be a right and not a privilege, and it needs to be without pesticides and herbicides. And everybody deserves this food. And that's not elitist.
+- I really like having someone who knows about food and what goes well together make a meal for me.
+- I know once people get connected to real food, they never change back.
+- It's hard to come into a new relationship with food unless you're engaged in an interactive way at an early age; it's hard to change your values.
+- I am disappointed because nobody is talking about food and agriculture. They're talking about the diets of children, but they're talking about Band-Aids. We're not seeing a vision.
+- I think health is the outcome of eating well.
+- Americans don't have deep gastronomic roots. They wanted to get away from the cultures of Europe or wherever they came from. We stirred up that melting pot pretty quickly.
+- The fact that most kids aren't eating at home with their families any more really means they are eating elsewhere. They are eating out there in fast food nation.
+- I really am at a place where I think we need to feed every child at school for free and feed them a real school lunch that's sustainable and nutritious and delicious. It needs to be part of the curriculum of the school in the same way that physical education was part of the curriculum, and all children participated.
+- First, kids should be involved in the production of their own food. They have to get their hands in the dirt, they have to grow things. They also have to become sensually stimulated, and the way to begin is with a bakery.
+- My mother made a lot of things because she thought they'd be healthy for us. There were some very unfortunate experiences with whole wheat bread and bananas. I always tried to get rid of that sandwich and eat one of my friends' lunches.
+- It's so important to that we go into the public schools and we feed all of the kids something that is really good for them.
+- You do need some dispensation for local farmers, because the fast food industry will promote the unsanitary conditions of farming. With vegetables, you have to be careful where they come from; you have to know the farmers and trust them. If you buy from the farmers' market, it's already been investigated.
+- When you don't have much money, cooking can be incredibly reassuring. You feel like you're doing meaningful work.
+- Organize yourself so you aren't struggling to shop at the last minute. When you have real food, it's very easy to cook.
+- I believe there should be breakfast, lunch and afternoon snack, all for free and for every child that goes to school. And all food that is good, clean and fair.
+- Food can be very transformational, and it can be more than just about a dish. That's what happened to me when I first went to France. I fell in love. And if you fall in love, well, then everything is easy.
+- To have a basic ingredient that can be prepared a million different ways is a beautiful thing.
+- A whole set of values comes with fast food: Everything should be fast, cheap and easy; there's always more where that came from; there are no seasons; you shouldn't be paid very much for preparing food. It's uniformity and a lack of connection.
+- I have been talking nonstop about the symbolism of an edible landscape at the White House. I think it says everything about stewardship of the land and about the nourishment of a nation.
+- Basically, the person in the White House should be principled, should have a philosophy about food that relates directly to organic agriculture. I will continue to push for that.
+- My kitchen has a wood-burning oven, a large worktable, and windows all around, including one above the sink. I think whoever is washing the dishes needs to have a lot of beauty around.
+- I feel like old age in America is a very sad thing. I have been many different places around the world where getting older is something you look forward to.
+- I'm an optimist. I'm hopeful.
+- The way we subsidize food makes it cheaper to go to McDonald's and get a hamburger than a salad, and that's insane. It's pure government policy.
+- The decisions you make are a choice of values that reflect your life in every way.
+- Food should be cheap, and labor should be cheap, and everything should be the same no matter where you go; whether it's a McDonald's in Germany or one in California, it should be the same. And this message is destroying cultures around the world. Needless to say, agriculture goes with it.
+- I once had an Early Girl tomato at my friend Jay's house, and I thought that was the best thing I'd ever had. But then I visited friends in Senegal, and I ate sea urchin pulled fresh out of the sea. It tasted like the ocean.
+- We make decisions every day about what we're going to eat. And some people want to buy Nike shoes - two pairs, and other people want to eat Bronx grapes and nourish themselves. I pay a little extra, but this is what I want to do.
+- If I've gone to the market on Saturday, and I go another time on Tuesday, then I'm really prepared. I can cook a little piece of fish; I can wilt some greens with garlic; I can slice tomatoes and put a little olive oil on. It's effortless.
+- If we don't preserve the natural resources, you aren't going to have a sustainable society. This is not something for Chez Panisse and the elite of San Francisco. It's for everyone.
+- My real emphasis is on the farmers who are taking care of the land, the farmers who are really thinking about our nourishment.
+- I think if you buy from people who are taking care of the land, you're supporting the future of this country.
+- You have to take it upon yourself and preserve and can foods that you'll want for the winter.
+- I feel it is an obligation to help people understand the relation of food to agriculture and the relationship of food to culture.
+- In countries around the world, people spend more money on food because they know how precious it is.
+- Food culture is like listening to the Beatles - it's international, it's very positive, it's inventive and creative.
+- We all need to know how to cook. I can buy a chicken and have many meals come from it. Is it affordable? Yes. Cheap? No. I want to pay the farmers the right price for food. They deserve it. They are the most important people in the country besides our teachers.

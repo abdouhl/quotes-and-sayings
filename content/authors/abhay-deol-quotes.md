@@ -1,0 +1,106 @@
++++
+author = "Abhay Deol"
+title = "Abhay Deol Quotes"
+quotes_len = "100"
+description = "the best100 Abhay Deol Quotes"
++++
+- I am a citizen of the planet and I want to do films that appeal to people, not communities.
+- I am trying to be true to the work that I want to do and be allowed to make the choices that I want to make.
+- Being a Deol for me is to be honest; walking with my head held high and never having to bow in front of injustice.
+- I feel my advantage of coming from a film family is - having seen fame up close, having seen the industry so close and how it works, I was not enamored by fame.
+- I would never enter politics, but I will go out and vote.
+- Tamil for me is my cousin Esha. I even told her that I was preparing to play a Tamilian and asked her if she could teach me the language.
+- The kind of stories I like often comes from debutant directors.
+- The reaction to 'Dev D' success wasn't a balanced one from my end. I ran away! I should have stayed around and seen how I could balance things. But I wasn't capable of that.
+- I am not a politician nor an activist but in my small way try and bring change with the kind of films I do.
+- I did get a reputation for being choosy and not very easy to be approached, and none of that is true. It is not that I am not approachable, it is just that I am trying to find myself and establish who I am as an artist.
+- Acting is more creative and liberating than production.
+- I really want to do a film with my uncle and my cousins. I'm sure it will be really interesting to work with them.
+- I was always looking for relatability, because I am not someone cut out for larger than life roles.
+- It was really good working with Paresh Rawal. I was nervous at first because he is such a big star and I love his performances, but the initial nervousness went away once I got to know him. He is a very simple and hardworking man.
+- It's not that I don't want to do different films. The non-mainstream stuff that I did started to get successful... But for an industry which runs essentially on money, they do put you in a box.
+- Love has no nationality for me. I have a preference for dark skin but that's just superficial.
+- I choose my films carefully. I have done movies that are sensitive, which deal with some issue and are a mirror of society.
+- I am not anti-marriage.
+- The thing about action films is that they are high on drama in terms of action sequences, have songs and other things, but content is secondary.
+- I have cheated. But I don't regret it because we were not serious. I wouldn't have ever done it if I were serious about the girl.
+- 'One by Two' is a film about two people who live in the same city and do certain things that affect each other's lives. Yet, they are strangers. It's difficult to put the film in any particular genre or box.
+- As long as it excites me, I am game for it.
+- I'd rather point a finger at myself than others.
+- People don't think of genres anymore. The script is all that matters. And as long as it appeals to my sensibilities as an actor-producer, I'm on.
+- I am most attracted to characters and stories that I can relate to. The traditional formula of 'larger than life' I never found attractive.
+- It is not a happy time when a film doesn't do well... Everything affects you, success affects you and failure also affects you.
+- After 'Socha Na Tha' flopped, nobody wanted to work with me. I became very bitter and angry. So now when the industry and the audience accept me, I feel more empowered.
+- In Indian cinema there are no professional voice trainers.
+- Half your battle is won when the writing is good, and then you as an artist bring your personality into it.
+- With my social media posts on fairness creams, I felt really strongly that I needed to speak up about it because I think we can take baby steps. Colour and caste is engrained in our culture, but I don't think it should be applauded or packaged and sold.
+- As a kid I wanted to run away from home every time I got a scolding for being naughty but I never did. Knowing now what happens to unprotected kids on the streets I'm glad I didn't.
+- When a film is good, the lines between single-screen and multiplex blur.
+- It would be great to read a script, which is an action script uniquely written so that it doesn't cost an arm or a leg because we are now accustomed to seeing action in the superhero form.
+- Maybe I didn't take the advantage and become a star and get all the brands so that I could solidify my space in the world.
+- The kind of content I want to be part of is hardly made.
+- The kind of work I do and the films I believe in, I had to take charge of making that kind of cinema.
+- With my humor, I end up offending everybody!
+- Lot of people liked me in 'Manorama Six feet Under,' 'Oye Lucky Lucky Oye,' 'Dev D' and 'Shanghai' and the only common thing in all these films is that when we were making them we never thought they would work. The ones that did not work were safe films.
+- I don't think there's anything like love at first sight. What happens is actually lust at first sight.
+- The only sense marriage makes is to share property, your children inherit the name and all that... it is all legal reasons to get married and no reason for love.
+- I believe there are two kinds of journalists. One who sells a story by being creative, and one who sells a story by being sensationalist.
+- I like films that are edgy, provocative, non-formula and original.
+- If I look at Dad's earlier work - 'Bandini,' 'Satyakam,' 'Chupke Chupke,' 'Jeevan Mrityu' - and then his later work, I realize that when something works, the industry doesn't want you to do anything else. They just typecast and milk you.
+- When you do films after films, you don't let life happen. At least, in my case, I end up relying too much on emotions, which aren't raw enough. Travel helps me to get a renewed approach towards things.
+- It harms me when people say I am 'non-mainstream' or 'non-commercial' actor. I try to fight off such labels.
+- I don't see myself being perceived as a Bollywood star and I wouldn't want to be that either.
+- We have 5000-year-old history which is now almost a part of our DNA. How do you break that? America, for example, doesn't have that history behind it. It romanticizes rebellion. We look down upon rebellion. It's an insult. To think out-of-the-box is looked down upon here.
+- 'Basra' is high on content, but a good dose of action sequences will make it edgy and pretty dark as well.
+- I have family in America and I lived with them for a while. Every few years, I feel the need to disassociate myself from what I do. It really helps the actor within me.
+- I dislike labels like 'commercial' and 'non commercial.'
+- Los Angeles is much like Mumbai, the film industry rules the city over most other professions, so it feels like home.
+- I agree that at the end of the day, it's a man's world, but when I'm doing a film, I am working with the director, not a man or a woman.
+- I grew a very early distaste for fame and glamour because I saw what the spotlight and attention can do to you as a family, so to speak.
+- The craziest thing I've done for love? Put my life on hold.
+- I like subtlety, blending in as opposed to screaming out 'look at me' with the way I dress.
+- I was inherently slightly more bitter or cynical and that kept me from going to the commercial formulaic crowd. Also, I went to an art college and I did my foundation in art.
+- The Deol family is very close knit and emotional.
+- Beat up 10 guys, win the girl, and yet you are supposed to be a normal human being. I don't mind doing that as a superhero but not as a real person!
+- I don't think that confrontation always leads to a solution.
+- N.Y. is like second home to me. I love that city. I have lived there for a couple of years and it's always a pleasure to go back there.
+- I enjoy films like 'American Beauty' and want to do similar films that reflect our culture.
+- Even as a kid, classmates asked pointed personal questions about my family. I have conditioned myself to handle it with maturity.
+- It is definitely hard when you're going against the tide. Of course, it is tough. But does that mean you can't do it? No, it depends on your strength, stamina and ability to take so much power against you.
+- If I want to do song and dance, I will and I would like to but I don't want to do it in every film. Where is the novelty then? It just takes the fun out of work for me.
+- I wasn't looking to be a star, I just happened to love acting, I was a reluctant actor.
+- As a teenager, I used to dress up like a hippie. My clothes weren't posh.
+- I don't even know if I'd get married. Time will tell.
+- I can be lazy, don't get me wrong. But it's not laziness that's holding me back, it's the system where I don't fit in.
+- I might say 'let's get married' because I am not rigid, I live moment to moment. These are my views and it is person to person, one should not get influenced with what I am saying.
+- I always try to do middle-of-the-road cinema.
+- I grew up in this industry. I've seen fame up close.
+- At my parents house, there are three dogs. I've grown up with these four-legged creatures all my life.
+- We all have to find a cause we believe in and pursue it. Sometimes it may cost you your job, your personal life, your love life, etc.
+- There should be a tacit code or understanding among privileged people not to endorse things that give others an inferiority complex.
+- If I did an item song, it would be something to watch out for.
+- We are always larger than life because we come from this mentality that since we are a very poor nation, we need an escapist cinema to take us out of our miseries. And that's where Bollywood comes from.
+- I was termed 'choosy' because when an actor decides to go against the wind and takes on only non-formula films, he is not left with much choice.
+- I have always been up for risks, but only because I had full confidence and faith in the vision of my directors.
+- I'm more comfortable watching 'Dev D' with my mom than a film that makes a woman an object whose only purpose is to dance provocatively.
+- It's scary to work with family, alongside my brothers and uncle. I can't imagine myself screaming at them even in front of the camera.
+- I read about myself in the papers all the time.
+- Fortunately, I got critic and audience acceptance much earlier than industry acceptance.
+- In real life I don't chant. Nor do I believe in idol worship.
+- I always pick characters where it's not his muscles or dance skills that help him, because not all of us can look like that. I am more like someone who'd beat up ten guys, not with his muscles, but his strategy.
+- I may or may not get married but I will settle down in a live-in.
+- A decade down the line, I don't want to sit back and think that I didn't do anything to stop disasters like the extinction of certain species.
+- I am over that phase where any kind of story would bother me, be it personal or professional. I just laugh it off and forget about it.
+- I always wanted my work to speak for itself but I realized you have to show people a little bit of yourself and interact with them, especially before your film releases.
+- If you perceive someone to be stylish then even if they are shabbily dressed you would consider that as a new style statement.
+- I want to do different roles and not get stuck in a rut and 'Shanghai' will be one film I'm absolutely looking forward to.
+- I realized that I need to protect my films because the director will move on, the producer will move on too, but as an actor I will be considered a flop if things will not work.
+- I think marriage is a cultural thing - it's my opinion that nature doesn't tell someone to get married.
+- Larger-than-life roles have never excited me. I'd rather play someone real who goes through obstacles and becomes a hero.
+- I'm not cut out to play a filmi hero. I don't look like a hero.
+- After being an actor, producing 'One By Two' was a natural progression.
+- I don't think I am fearless. I am just me.
+- When there is stuff being written about your family and people ask you questions which are very personal in nature, it makes you defensive and almost makes you angry.
+- If we are not affected by our environment, then we have somewhere become insensitive. It might be good in a way because you might not be affected by anything and be calm always.
+- I know there is a higher being and I respect that force.
+- My cousins and my uncle have been iconic heroes in the industry and I don't think I'm anywhere close to that, but I'm happy that they like my work. They are my elders and it's natural for me to look up to them.

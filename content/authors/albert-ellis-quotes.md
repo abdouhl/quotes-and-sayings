@@ -1,0 +1,39 @@
++++
+author = "Albert Ellis"
+title = "Albert Ellis Quotes"
+quotes_len = "33"
+description = "the best33 Albert Ellis Quotes"
++++
+- Freud had a gene for inefficiency, and I think I have a gene for efficiency.
+- If I had been a member of the academic establishment, I could have done other experiments.
+- Most people would have given up when faced with all the criticism I've received over the years.
+- The art of love is largely the art of persistence.
+- For that again, is what all manner of religion essentially is: childish dependency.
+- People have motives and thoughts of which they are unaware.
+- By not caring too much about what people think, I'm able to think for myself and propagate ideas which are very often unpopular. And I succeed.
+- I thought foolishly that Freudian psychoanalysis was deeper and more intensive than other, more directive forms of therapy, so I was trained in it and practiced it.
+- We teach people that they upset themselves. We can't change the past, so we change how people are thinking, feeling and behaving today.
+- Self-esteem is the greatest sickness known to man or woman because it's conditional.
+- People could rationally decide that prolonged relationships take up too much time and effort and that they'd much rather do other kinds of things. But most people are afraid of rejection.
+- In the old days we used to get more referrals, because people had insurance that paid for therapy. Now they belong to HMOs, and we can only be affiliated with a few HMOs.
+- People don't just get upset. They contribute to their upsetness.
+- Many psychoanalysts refused to let me speak at their meetings. They were exceptionally vigorous because I had previously been an analyst and they were very angry at my flying the coop.
+- You largely constructed your depression. It wasn't given to you. Therefore, you can deconstruct it.
+- I started to call myself a rational therapist in 1955; later I used the term rational emotive. Now I call myself a rational emotive behavior therapist.
+- Rational beliefs bring us closer to getting good results in the real world.
+- People got insights into what was bothering them, but they hardly did a damn thing to change.
+- I'm very happy. I like my work and the various aspects of it - going around the world, teaching the gospel according to St. Albert.
+- As a result of my philosophy, I wasn't even upset about Hitler. I was willing to go to war to knock him off, but I didn't hate him. I hated what he was doing.
+- Let's suppose somebody abused you sexually. You still had a choice, though not a good one, about what to tell yourself about the abuse.
+- If something is irrational, that means it won't work. It's usually unrealistic.
+- I hope to die in the saddle seat.
+- I wrote several articles criticizing psychoanalysis, but the analysts weren't listening to my objections. So I finally quit after practicing it for six years.
+- I had a great many sex and love cases where people were absolutely devastated when somebody with whom they were compulsively in love didn't love them back. They were killing themselves with anxiety and depression.
+- The best years of your life are the ones in which you decide your problems are your own. You do not blame them on your mother, the ecology, or the president. You realize that you control your own destiny.
+- I think the future of psychotherapy and psychology is in the school system. We need to teach every child how to rarely seriously disturb himself or herself and how to overcome disturbance when it occurs.
+- I think it's unfair, but they have the right as fallible, screwed-up humans to be unfair; that's the human condition.
+- I get people to truly accept themselves unconditionally, whether or not their therapist or anyone loves them.
+- Acceptance is not love. You love a person because he or she has lovable traits, but you accept everybody just because they're alive and human.
+- I had used eclectic therapy and behavior therapy on myself at the age of 19 to get over my fear of public speaking and of approaching young women in public.
+- There's no evidence whatsoever that men are more rational than women. Both sexes seem to be equally irrational.
+- There are three musts that hold us back: I must do well. You must treat me well. And the world must be easy.

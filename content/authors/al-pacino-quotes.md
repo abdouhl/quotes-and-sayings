@@ -1,0 +1,55 @@
++++
+author = "Al Pacino"
+title = "Al Pacino Quotes"
+quotes_len = "49"
+description = "the best49 Al Pacino Quotes"
++++
+- The actor becomes an emotional athlete. The process is painful - my personal life suffers.
+- I do believe, and I will always believe, that Shakespeare on film is really something that should be tried more often because it is an opportunity to take the humanity that Shakespeare writes into characters and express it.
+- It's easy to fool the eye but it's hard to fool the heart.
+- Shakespeare's plays are more violent than 'Scarface.'
+- In America most everybody who's Italian is half Italian. Except me. I'm all Italian. I'm mostly Sicilian, and I have a little bit of Neapolitan in me. You get your full dose with me.
+- I'm so shy now I wear sunglasses everywhere I go.
+- That's where humour lives for me. In the body. The Steve Martin kind of stuff or Jim Carrey, that's what I like. I've always felt that's what I would like to do.
+- Doing Shakespeare once is not fair to the play. I have been in Shakespeare plays when it's not until the last two or three performances when I even understand certain things. In the old days star actors would travel the world doing the same parts over and over again.
+- When I was younger, I would go to auditions to have the opportunity to audition, which would mean another chance to get up there and try out my stuff, or try out what I learned and see how it worked with an audience, because where are you gonna get an audience?
+- I was not prepared for fame. It hit me hard, and I did not have the capacity to cope.
+- When I was a younger actor, I would try to keep it serious all day. But I have found, later on, that the lighter I am about things when I'm going to do a big scene that's dramatic and takes a lot out of you, the better off I am when I come to it.
+- Francis Ford Coppola did this early on. You tape a movie, like a radio show, and you have the narrator read all the stage directions. And then you go back like a few days later and then you listen to the movie. And it sort of plays in your mind like a film, like a first rough cut of a movie.
+- My weaknesses... I wish I could come up with something. I'd probably have the same pause if you asked me what my strengths are. Maybe they're the same thing.
+- There are a lot of roles in Shakespeare, basically. If I feel that the script is a movie, I would be interested in doing any role of Shakespeare's.
+- Most everybody who's Italian is half Italian. Except me. I'm all Italian. I'm mostly Sicilian, and I have a little bit of Neapolitan in me. You get your full dose with me.
+- It surprised me, the feeling I got when I won the Oscar for 'Scent of a Woman.' It was a new feeling. I'd never felt it. I don't see my Oscar much now. But when I first got it, there was a feeling for weeks afterward that I guess is akin to winning a gold medal in the Olympics.
+- My dad was in the army. World War II. He got his college education from the army. After World War II he became an insurance salesman. Really, I didn't know my dad very well. He and my mother split up after the war. I was raised by my maternal grandmother and grandfather, and by my mother.
+- You need some insecurity if you're an actor. It keeps the pot boiling. I haven't yet started to think about retiring. I was shocked when I heard about Paul Newman retiring at age 82. Most actors just fade away like old soldiers.
+- It would be hard to play a character you don't like - for me anyway - or can't find something in them to like.
+- At this point in my career, I don't have to deal with audition rejections. So I get my rejection from other things. My children can make me feel rejected. They can humble you pretty quick.
+- When my mother got home from work, she would take me to the movies. It was her way of getting out, and she would take me with her. I'd go home and act all the parts. It had a tremendous influence on my becoming an actor.
+- Theater for me at one point was a lifestyle, too.
+- Some of the roles that are challenging are more in theater and TV. In movies, there's a tendency to cast actors in roles that have been successful for them. It has to pay for itself.
+- I don't think actors should ever expect to get a role, because the disappointment is too great. You've got to think of things as an opportunity. An audition's an opportunity to have an audience.
+- Explain to me what Italian-American culture is. We've been here 100 years. Isn't Italian-American culture American culture? That's because we're so diverse, in terms of intermarriage.
+- Did you know I started out as a stand-up comic? People don't believe me when I tell them. That's how I saw myself, in comedy.
+- I've never liked the recognition, the questions, the publicity. I have often felt like running away and hiding.
+- I've always been in the theater. I've always gone to it. That's been my way to cope. Early on in my career, I remember running - fleeing - to the theater as a way of coping with all the meshugaas that was going on for me.
+- My grandmother always came to my shows. She was always concerned about the way I dressed - even later on, when I was well known and I supported her.
+- All due respect and trying to be as modest as I can be, I am a dancer. But I don't think I would be on 'Dancing with the Stars,' mainly because I would be too shy.
+- There has been a lot of self-doubt and unwelcome events in my life.
+- I don't need bodyguards. I'm from the South Bronx.
+- You do get very tired sometimes, when you're sitting around for hours in movies. You get depleted.
+- My first language was shy. It's only by having been thrust into the limelight that I have learned to cope with my shyness.
+- Playing a character is an illusion, and I feel that when you know too much about a person, possibly part of that illusion is disrupted.
+- I'm an actor, not a star. Stars are people who live in Hollywood and have heart-shaped swimming pools.
+- I've never cared for guns. In fact, when I did 'Scent of a Woman' I had to learn how to assemble one.
+- The problem with me is, I guess, the way I express myself, you have to be with me 50 years before you can get a sense of what I'm talking about.
+- Vanity is my favourite sin.
+- I don't ever give my opinion. Opinions I have about anything are in my personal life.
+- It's never really that much fun for me to do movies anyway, because you - you know, you have to get up very early in the morning and you have to go in and you spend a lot of time waiting around.
+- Money makes your life easier. If you're lucky to have it, you're lucky.
+- The truth is, you know, we need our anodynes. You know that word, anodynes? We need that in life some times. A good warm bath can be one for you, or a whatever.
+- I used to wear disguises, like hats and false beards, just to walk around and avoid attention.
+- I've often said there's two kinds of actors. There's a more gregarious type and the shy type.
+- The hardest thing about being famous is that people are always nice to you. You're in a conversation and everybody's agreeing with what you're saying - even if you say something totally crazy. You need people who can tell you what you don't want to hear.
+- Jamie Foxx does a good rendition of me. It's a real gift, mimicry of that kind, the tonal thing. It's sort of like having a talent for playing an instrument.
+- I like, for instance, 'Serpico.' I enjoyed playing Serpico because Frank Serpico was there. He existed. He was a real life person and I could - I could embody him. I could, you know, I could work and get to know him and have him help me with the text, the script and become him. It's almost like a painter having a model to become.
+- I remember acting in a school play about the melting pot when I was very little. There was a great big pot onstage. On the other side of the pot was a little girl who had dark hair, and she and I were representing the Italians. And I thought: Is that what an Italian looked like?

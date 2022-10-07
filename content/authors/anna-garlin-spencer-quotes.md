@@ -1,0 +1,14 @@
++++
+author = "Anna Garlin Spencer"
+title = "Anna Garlin Spencer Quotes"
+quotes_len = "8"
+description = "the best8 Anna Garlin Spencer Quotes"
++++
+- The experience of the race shows that we get our most important education not through books but through our work. We are developed by our daily task, or else demoralized by it, as by nothing else.
+- It is an old error of man to forget to put quotation marks where he borrows from a woman's brain!
+- The earth is ready, the time is ripe, for the authoritative expression of the feminine as well as the masculine interpretation of that common social consensus which is slowly writing justice in the State and fraternity in the social order.
+- A successful woman preacher was once asked what special obstacles have you met as a woman in the ministry? Not one, she answered, except the lack of a minister's wife.
+- Of all the wastes of human ignorance perhaps the most extravagant and costly to human growth has been the waste of the distinctive powers of womanhood after the child-bearing age.
+- The essence of democracy is its assurance that every human being should so respect himself and should be so respected in his own personality that he should have opportunity equal to that of every other human being to show what he was meant to become.
+- The failure of women to produce genius of the first rank in most of the supreme forms of human effort has been used to block the way of all women of talent and ambition for intellectual achievement.
+- Can a woman become a genius of the first class? Nobody can know unless women in general shall have equal opportunity with men in education, in vocational choice, and in social welcome of their best intellectual work for a number of generations.

@@ -1,0 +1,67 @@
++++
+author = "Alton Brown"
+title = "Alton Brown Quotes"
+quotes_len = "61"
+description = "the best61 Alton Brown Quotes"
++++
+- Laughing brains are more absorbent.
+- I say grace. I'm a big believer in grace. I happen to believe in a God that made all the food and so I'm pretty grateful for that and I thank him for that. But I'm also thankful for the people that put the food on the table.
+- I found that if I offered to cook for a girl, my odds improved radically over simply asking a girl out. Through my efforts to attract the opposite sex, I found that not only did cooking work, but that it was actually fun.
+- I think a lot of food shows, especially when we started 'Good Eats' back in the late '90s, they were still really about food. 'Good Eats' isn't about food, it's about entertainment. If, however, we can virally infect you with knowledge or interest, then all the better.
+- We're getting dumbed down, taste-wise.
+- I'm an absolute connoisseur of cheeseburgers and like to think that I can detect even mere percentages of shift in fat content in ground meat in a burger and can actually name the temperature to which it was actually cooked to the degree if I'm, you know, really on my game.
+- Very good cooks who are employed as 'chefs' rarely refer to themselves as 'chefs.' They refer to themselves as 'cooks.'
+- I had kicked around the idea for Good Eats when I was directing commercials.
+- I'm a filmmaker who decided to go to culinary school. All I picked up was the fact if I didn't understand what was going on with every single ingredient, I could be qualifying for, like, the lunch food job at my daughter's school.
+- If you really love stuffing, wait until the turkey comes out of the oven, add some of the pan drippings to the stuffing, and bake it in a dish. That's called dressing, and that's not evil - stuffing is, though.
+- The problem is I am both a procrastinator and a power junkie, so I am very frustrating to work with.
+- A lot of food shows need only to tempt. Some food shows only need to inspire, to empower. And there are a lot of shows that do that.
+- Culinary tradition is not always based on fact. Sometimes it's based on history, on habits that come out of a time when kitchens were fueled by charcoal.
+- That's the ultimate goal of most turkey recipes: to create a great skin and stuffing to hide the fact that turkey meat, in its cooked state, is dry and flavorless. Does it have to be that way? No. We just have to focus on what the turkey is and what the turkey needs.
+- My feeling has always been that 'Good Eats' would have never happened had it been left to a committee.
+- I know people that could serve me canned tuna and saltine crackers and have me feel more at home at their table than some people who can cook circles around me. The more you try to impress people, generally the less you do.
+- I think in the end there are only 20 or 30 tenets of basic cooking. It's going at perhaps the same issue from different angles, from different points of view, from different presentation styles, that really makes things sink in and become embedded.
+- My first book is really about heat. That book, for me, was an exploration of heat as ingredient. Why we don't talk about heat as an ingredient, I don't quite understand, because it is the common ingredient to all cooking processes.
+- I only really fake it anymore with sommeliers who are being really snotty to me and I don't want to take their grief and so I try to do something to kind of throw them off or put them on the defensive, even if I don't know what I'm talking about.
+- I spent a college semester in a small town in Italy - and that is where I truly tasted food for the first time.
+- I grill, therefore I am.
+- I can't talk about anything or write about anything if I don't understand it. So a lot of the stuff that I go through and a lot of the time that I spend is understanding.
+- Jeff Smith was the Julia Child of my generation. When his television show, 'The Frugal Gourmet,' made its debut on PBS in the 1980s, it conveyed such genuine enthusiasm for cooking that I was moved for the first time to slap down cold cash for a collection of recipes.
+- My college degree was in theater. But the real reason, if I have any success in that milieu, so to speak, is because I spent a lot of years directing, I spent a lot of years behind the camera.
+- 'Outlaw Cook' was a revelation. Folks like Jeff Smith and Marcella Hazan got me interested in cooking, but John Thorne pushed me into the path that I follow to this day. This is the only cookbook I've ever read that understands how men really eat: over the sink, in the dark, greasy to the elbows.
+- Recipe writers hate to write about heat. They despise it. Because there aren't proper words for communicating what should be done with it.
+- You don't want flame to hit your food. Flame is bad. Flame does nasty things to food. It makes soot and it makes deposits of various chemicals that are not too good for us. The last thing you really want to see licking at your food while it's on a grill is an actual flame.
+- Do not allow watching food to replace making food.
+- Basting is evil. Basting does nothing for the meat. Why? Skin. Skin is designed to keep stuff out of the bird, so basting just lets heat out of the oven. That means the turkey will take longer to cook... so don't touch that door!
+- Well, you know, when you go into a restaurant, one of the scariest things is the wine list, so whenever I'm really feeling intimidated, I'll just pick a wine type, like a Chianti or Brunello or a Burgundy, and I'll pick a year that's missing and ask for that one.
+- The thing that helped me get into the film business was that I went to school in Athens, Georgia and managed to get on, um, working on music videos for a band called R.E.M. and that kind of opened up a lot of doors for me.
+- A pie dough comes together exactly like a biscuit only there is very, very little liquid and no leavening involved. Other than that, the same rules apply. My best advice: handle the dough as little as possible.
+- I love poking fun at myself. I have a rather mean sense of humor.
+- Take ice. Ice is fascinating to me. Ice is the one thing in our world that went from an agricultural product to being manufactured.
+- Enough people have now mentioned Bill Nye the Science Guy to me that I now desperately avoid it all costs.
+- Everything in food is science. The only subjective part is when you eat it.
+- I grill almost all of my fish with the skin on because that gives you real protection at least on one side. It's a nice barrier against super high heat which tends to make a lot of fish to turn really flaky. It's very easy to overcook fish on the grill. But I still brush it with oil before I start.
+- I'm going from doing all of the work to having to delegate the work - which is almost harder for me than doing the work myself. I'm a lousy delegator, but I'm learning.
+- So I quit my job and went to the New England Culinary Institute for the full two years and worked in the restaurant industry after that until finally I thought I had a grasp on what I needed to do what I do.
+- You know most of the food that Americans hold so dear - things like hamburgers and hot dogs - were road food, but even before they were road food, they were peasant food.
+- Last year, I made a refrigerator in my basement. And I needed to because I needed to figure how - you know there is no such thing as 'cold.' There is only less heat.
+- I like television. I still believe that television is the most powerful form of communication on Earth - I just hate what is being done with it.
+- Unless your kid is Pele Jr., they're not going to be able to feed themselves from soccer. If your kid knows how to play soccer, but not make dinner, you have done them a disservice.
+- Seriously. I'm not very bright, and it takes a lot for me to get a concept - to really get a concept. To get it enough that it becomes part of me. But when it happens I get real excited about it.
+- Gluttony is wrong. It's wasteful.
+- Stuffing is evil. Stuffing adds mass, so it slows the cooking. That's evil because the longer the bird cooks, the drier it will be.
+- The worst food you'll ever eat will probably be prepared by a 'cook' who calls himself a 'chef.' Mark my words.
+- The stubby French painter Toulouse-Lautrec supposedly invented chocolate mousse - I find that rather hard to believe, but there you have it.
+- I have nothing but sympathy for the people who are forced to work with me. I'm better now at picking out those that want to play that game with me, and those that don't.
+- Molecular gastronomy is not bad... but without sound, basic culinary technique, it is useless.
+- I looked for a very long time, knowing that it had to happen, but it took me a long time to find someone with the same background and whatnot and I finally found him.
+- I kept thinking, 'Somebody has to make a food show that is actually educational and entertaining at the same time... a show that got down to the 'why things happen.' Plus, I hated my job - I didn't think it was very worthwhile.
+- I love to have battles of the wits with people that can dish fast and dirty - and it leads to problems occasionally, 'cause I can sound mean without attempting to be mean.
+- I'm like a really goofy home ec teacher.
+- A balanced diet may be the best medicine. I was eating too much good eats. But people consider that part of your job, you know? Eat. And I do!
+- For me, it was kind of like going into the military or something. And anybody - any male - who has ever worked in a French kitchen knows what I am talking about when I say that.
+- I am a filmmaker. That is all I've ever been. You know, Martin Scorsese makes films about the mob. And I make movies about food.
+- Although I don't take myself very seriously, I do take my work extraordinarily seriously.
+- A meringue is really nothing but a foam. And what is a foam after all, but a big collection of bubbles? And what's a bubble? It's basically a very flimsy little latticework of proteins draped with water. We add sugar to this structure, which strengthens it. But things can, and do, go wrong.
+- The kitchen's a laboratory, and everything that happens there has to do with science. It's biology, chemistry, physics. Yes, there's history. Yes, there's artistry. Yes, to all of that. But what happened there, what actually happens to the food is all science.
+- My mantra was to educate people - to actually give them the know-how they could use - and to do it in a very subversive kind of way. I would entertain them, and I was going to teach them whether they knew it or not.

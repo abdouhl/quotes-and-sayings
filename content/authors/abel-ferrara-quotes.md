@@ -1,0 +1,42 @@
++++
+author = "Abel Ferrara"
+title = "Abel Ferrara Quotes"
+quotes_len = "36"
+description = "the best36 Abel Ferrara Quotes"
++++
+- I'm a lapsed Buddhist like I'm a lapsed Catholic. I take it to a point.
+- Making money is not gonna change anything about what I am, except I won't answer the door.
+- I'm not a big fan of talking about dying. And then I make a movie where I kill everybody.
+- I don't care if I get $50m to do a film.
+- My existence is about making movies, so I've just got to rock and roll with the punches. You want to make movies on telephones, I'm there.
+- I'm about my characters.
+- I was raised a Catholic and when you're raised a Catholic they don't teach you to think for yourself. You're taught not to think too deeply about things.
+- I come from a world where you get the film done, that's a success.
+- No one can stop me from talking about my movie.
+- As an old-time New Yorker, it's not that I miss the '70s and '80s or whatever. I miss the fact that there was a certain kind of energy that exists when people can live for nothing.
+- My life is proof that I don't need you to do what I do. If there's no one to see it, I'll watch it.
+- Mulberry Street was the beating heart of the Italian-American experience, but you don't find those gangsters now. I live with a bunch of yuppies and models.
+- The secret is not to make a film that causes something like Virginia Tech to happen. The secret is to make a film that stops it happening.
+- It's only Western civilization that, God forbid, you talk about dying, when it's the only thing we know for certain, right? Everyone's going to die, so what's the big problem? 'Oh, God. Don't talk about it. Don't think about it.' I mean, I'm one of them. I'm not a big fan of talking about dying.
+- There's no such thing as a non-final cut director.
+- It's funny, the hardest thing to do is to make something look like it's fast, loose and improvised, and get somebody to laugh.
+- But I'm never gonna get to a point in my life where what it costs to shoot a movie is going to determine what it is. The limits of my imagination is the only thing that's gonna stop me.
+- Where I come from you're not raised to think on your own. It's not that you're pushed to read the Bible. The Bible is read to you.
+- A script is not a piece of literature it's a process.
+- Life is what happens when you're doing other things, right?
+- The last day of your life is still going to be a day.
+- I don't care if I get $50 million to do a film.
+- I don't have a problem with Werner Herzog.
+- I was born in the Bronx, and then my father moved us to the country at an early age.
+- I grew up in the '60s, which was a creative time, so it wasn't that big of a stretch to go from a baseball bat to a guitar to a film camera.
+- I live with a bunch of yuppies and models.
+- Certain actors wanna get paid, they think working in a low-budget movie is being ripped off. But for others it's like, 'Yes, let's do it.'
+- I don't know what DVD commentaries are about. I'd like to strangle the person who came up with that concept.
+- The more you get into any religion, it becomes the same. It really becomes how you treat other people and how you get outside yourself. How you look to help other people, and how you get out of this 'I, me, mine' type of thing.
+- The actors that I love to work with, they're hard on me. They're pushing me.
+- Listen, anybody who has a film festival has the right to show what they want.
+- With 'New Rose Hotel,' I knew that I was getting paid a $100,000 fee to write, produce, and direct, and that's all I was going to get.
+- Most filmmaking is about shaking hands and just starting.
+- That's the thing about making a movie: You never finish editing. They just take it away from you.
+- In the film business, it's basically honor among thieves.
+- As barbaric is we are, it's a miracle we haven't blown ourselves off the face of the earth so far.

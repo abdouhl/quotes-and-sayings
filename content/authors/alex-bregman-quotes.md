@@ -1,0 +1,106 @@
++++
+author = "Alex Bregman"
+title = "Alex Bregman Quotes"
+quotes_len = "100"
+description = "the best100 Alex Bregman Quotes"
++++
+- I can only control what I can control, which is taking care of my business here and working hard every single day, and eventually that time will come.
+- I'm just trying to put together good at-bats and do anything I can to help contribute.
+- When I look at a season, and it's all said and done, and the thing I look for is, first off, did my team win?
+- I want to strike out less than 20 times.
+- I like competing. I like going head to head, the best man wins.
+- It's an honor to be able to represent our country, and I'll go out there and play hard for the U.S.A.
+- I personally know I can be a 1.000 OPS guy every year.
+- When I think about the future and how I can make a difference in the world, I want to be able to use my love of the game of baseball to be a good example and a good person.
+- I'll play wherever they want me to play -anywhere on the field. Do anything to help the team win. Whether that's playing left field or third base or wherever, I don't care.
+- I don't care where I play, and wherever I do play, I'll play hard and give everything I got.
+- I'm not going to win games by talking about it. Just by doing it.
+- If your feet are in Fresno, Calif., that's where your head needs to be. That's where your mind needs to be. You don't need to be thinking about anything else other than the next game you're going to play.
+- I think social media is a great tool if you use it the right way.
+- You're going to make errors.
+- At the end of the day, I know I'm a good person, so I'm not worried about anything bad that could happen on the Internet.
+- I think scoring first is huge in the postseason.
+- The only thing I have control over is working hard and going about my business the right way, and playing the game how I've always played it. Everything else will just take care of itself.
+- A lot of families with kids with autism can't afford speech therapy for their children and can't afford to get them in the best schools for autism. We're trying to help make a difference in those communities.
+- Guys want to go out here and get the job done. Guys want to fight. We're going to fight and grind every single pitch and try and do anything we can to help win games.
+- I think the thing with our team is during the postseason, our best games that we've played during the postseason, we strung at-bats together. It's not necessarily going up there trying to hit a home run, but it's trying to put up a good at-bat for the next guy.
+- One of the reasons I wear No. 2 is because of him. Yeah, he was ultimate team guy. He was a winner. And just a good guy for a kid to look up to. And I always pretended to be Jeter.
+- Win at all cost. That's why I love playing the game.
+- Just trying to do anything I can to help the team win and that's it.
+- When you taste winning the World Series, you want to do that every year.
+- My father loved the game. The people at the Albuquerque Academy I grew up with teaching me the game.
+- I think that a lot of teams aren't as close-knit as we are because a lot of the Spanish speakers don't know English and some of the English guys don't care to try and learn Spanish and relate to Latin players.
+- You can be anybody you want to be as long as you're obsessed.
+- We're a big community, a big family here in Houston.
+- Being able to compete and try and win games is the coolest feeling.
+- I couldn't care less what my numbers say at the end of the year. I just want to win games for the Astros.
+- Mike Trout. Jose Ramírez. Mookie Betts. All these guys walk, and they swing at strikes.
+- There are a lot of things I want to accomplish in this game. Winning is right there at the top.
+- In order to be great in this game, you have to be good for a really long time, and to be good, you have to constantly win.
+- I want to meet Brandon Crawford and just pick his brain and figure out what helps him out on the defensive side of the ball.
+- It was a blast growing up in a house where you have motivating parents, and my mom would always challenge me no matter what it was.
+- It makes everything worth it; every weight that you lifted in the offseason, every swing that you took in the cage. When you feel like you came through for your team, and you see the joy on their faces, there's nothing like it.
+- I went to a really smart school where all the kids go to the Ivy Leagues.
+- The Astros are going to be a dynasty.
+- It keeps you motivated to know that everyone has your back.
+- Sometimes we're going to take marginal pitches on the edges and get called out on strike, but we want to get a pitch that we can drive and a pitch we can do damage on. I think when you do that, you don't necessarily chase as much out of the zone.
+- It's why we play the game... postseason.
+- Everyone who plays this game wants to continue to improve.
+- You grow up dreaming about playing in the World Series since you're a little kid. I remember the days in the back yard with my parents playing whiffle ball, saying, 'Hey, it's Game 7 of the World Series, are you gonna win or are you gonna lose?'
+- This game is a game of failure, and you're going to fail a heck of a lot more than you succeed in it.
+- My dad, since I was growing up, has always taught me that I need to keep my mouth shut and just play baseball.
+- Since I was very little I loved this game.
+- I never went to the school dance.
+- To play meaningful games and try and win a division, a pennant, a World Series, that's what it's all about. That's the thing I'm most proud of.
+- You grow up always thinking you'd be in pressure situations all the time, and that's why I put pressure on myself in practice, so when those situations come in the game I feel I can be successful.
+- I just want to be treated fairly for my performance.
+- My grandfather was the general counsel for the Washington Senators, and my dad grew up on Ted Williams' lap.
+- I want to be the LeBron James of baseball.
+- In the postseason, as many ways as you can get on base as possible is big.
+- I think there's a lot of trust in being selectively aggressive I guess. Looking for your pitch you can drive, but not swinging if it's not there and not worrying about, 'Oh no, I'm down 0-2.' I feel as comfortable as I do at 0-0. I don't know.
+- That's why this game is so great. It's a game of failure.
+- Having pressure is a privilege.
+- I want to be able to drive the ball to all fields.
+- That's what the game is all about. It's winning.
+- When we were playing chess in the house, she would never let me win until I was good enough to beat her. It was always a competition. She was also always there for me. She was a very caring, loving mom, and the sacrifices she made to allow me to get to where I am today, I'll be forever in debt.
+- That's what makes baseball the best. Nothing matters but winning.
+- I grew up a lot by going to college. I was still really immature.
+- Really, I think the biggest thing is just playing your game and doing what you do.
+- Winning is the only thing that drives all of us.
+- I feel like I have so much to improve on.
+- I like that - I like those little nervous jitters.
+- I don't find that much wrong with baseball.
+- You watch all those moments that Jeter had for the Yankees. You can tell by the fans' reaction how much he meant to them and how much he meant to the city, how much he meant to the game of baseball.
+- I feel really good in the box when I get an AB in the first inning. I feel like it just starts the day the right way.
+- That's all I'm really concerned about - contribute and try to win games.
+- If someone's going to throw me in, I'm not gong to try and hit a ground ball to third, you know? I'm going to try and hit it in the air. If someone's going to throw me away, I'm not going to try and hit a ground ball to second, I'm going to drive it to right-center.
+- It's incredible to be able to make an impact and use the platform that we have in the right way.
+- I feel like I'm ready to contribute at the highest level possible.
+- You can't ever get too high or too low.
+- You've got to want to compete with the best of the best and when the pressure's on.
+- My agent called me and said, 'You're going to be on the cover of 'R.B.I. Baseball.'' I was like, 'Are you serious?' It's unbelievable. Dream come true. I was yelling into the phone. I was super excited.
+- I witnessed an MVP firsthand in Jose Altuve. I asked him what he did during the offseason, and he said he trains his core.
+- I would just like to win. Wherever I need to hit in the lineup, whatever works.
+- The Boston Red Sox, they love to compete.
+- If we keep continuously putting up good at-bats, the next guy will come through.
+- I just think it's part of life: try to be a good teammate.
+- It doesn't matter if we get a hit, a walk, hit by pitch; just trying to grind out at-bats.
+- If you get a veteran guy that's getting marginal pitches, you know you're in for a tough night and a battle.
+- I'm super thankful to the Astros fans and all the fans across the country.
+- In college and high school, you're always taught to hit the ball on the ground and on a line.
+- You can't go up there trying to get hits. You can just go up there trying to put together at-bats and square the baseball up.
+- It's always fun to compete against the best.
+- I understand that it's a business, but I feel like good business would be wanting to make a player who performed at a high level on your team happy and want to feel like he wanted to be kept and feel like they wanted him to play here forever.
+- I put my heart and soul into it every single day, to go out there and try and win games for the Astros.
+- If there's somebody pushing you, you're going to be more energized.
+- We all need to realize that there are people out there who may be suffering and we all need to try to do our part to relieve that suffering when we can.
+- This game is very humbling and you have to take it one pitch at a time, one day at a time and compete.
+- You can be on top of the world one day and the next day you can go 0-for-4 with four strikeouts.
+- I want to be a professional athlete who plays for the love of the game, never quits trying to give my best and is a good role model for all of the kids who look up to baseball players.
+- I wanted to be the Number 1 overall pick.
+- I'm really slow.
+- Whether I'm 0-for-10 or 10-for-10, every time I walk to the plate I believe I'm going to hit a missile.
+- I kind of realized that when I take more pitches I put better swings on them.
+- I'm definitely not satisfied and I always want to do better and learn more and get better.
+- Does Tiger Woods tee off at 8 A.M. when he's going to win a Masters? Does Floyd Mayweather fight the first fight of the night? No, he's the main event, right? So the 'Stros need to be playing on prime-time television.
+- It's definitely cool to have fans around the world give their support.

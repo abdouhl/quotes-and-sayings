@@ -1,0 +1,182 @@
++++
+author = "Albert Einstein"
+title = "Albert Einstein Quotes"
+quotes_len = "176"
+description = "the best176 Albert Einstein Quotes"
++++
+- The man of science is a poor philosopher.
+- The only source of knowledge is experience.
+- I used to go away for weeks in a state of confusion.
+- Try not to become a man of success, but rather try to become a man of value.
+- No problem can be solved from the same level of consciousness that created it.
+- One may say the eternal mystery of the world is its comprehensibility.
+- Concern for man and his fate must always form the chief interest of all technical endeavors. Never forget this in the midst of your diagrams and equations.
+- Intellectual growth should commence at birth and cease only at death.
+- The distinction between the past, present and future is only a stubbornly persistent illusion.
+- Once we accept our limits, we go beyond them.
+- Our task must be to free ourselves by widening our circle of compassion to embrace all living creatures and the whole of nature and its beauty.
+- Peace cannot be kept by force; it can only be achieved by understanding.
+- Nothing is more destructive of respect for the government and the law of the land than passing laws which cannot be enforced.
+- I do not believe in the God of theology who rewards good and punishes evil.
+- It is strange to be known so universally and yet to be so lonely.
+- Reality is merely an illusion, albeit a very persistent one.
+- Imagination is more important than knowledge.
+- Force always attracts men of low morality.
+- Morality is of the highest importance - but for us, not for God.
+- The monotony and solitude of a quiet life stimulates the creative mind.
+- It is a miracle that curiosity survives formal education.
+- Logic will get you from A to B. Imagination will take you everywhere.
+- I very rarely think in words at all. A thought comes, and I may try to express it in words afterwards.
+- I am a deeply religious nonbeliever - this is a somewhat new kind of religion.
+- A person who never made a mistake never tried anything new.
+- Strive not to be a success, but rather to be of value.
+- Science without religion is lame, religion without science is blind.
+- All these primary impulses, not easily described in words, are the springs of man's actions.
+- Without deep reflection one knows from daily life that one exists for other people.
+- One strength of the communist system of the East is that it has some of the character of a religion and inspires the emotions of a religion.
+- I want to know all Gods thoughts; all the rest are just details.
+- The attempt to combine wisdom and power has only rarely been successful and then only for a short while.
+- The unleashed power of the atom has changed everything save our modes of thinking and we thus drift toward unparalleled catastrophe.
+- A table, a chair, a bowl of fruit and a violin; what else does a man need to be happy?
+- Whoever undertakes to set himself up as a judge of Truth and Knowledge is shipwrecked by the laughter of the gods.
+- It is my conviction that killing under the cloak of war is nothing but an act of murder.
+- An empty stomach is not a good political adviser.
+- Heroism on command, senseless violence, and all the loathsome nonsense that goes by the name of patriotism - how passionately I hate them!
+- Few people are capable of expressing with equanimity opinions which differ from the prejudices of their social environment. Most people are even incapable of forming such opinions.
+- The only thing that interferes with my learning is my education.
+- As far as I'm concerned, I prefer silent vice to ostentatious virtue.
+- The high destiny of the individual is to serve rather than to rule.
+- Sometimes one pays most for the things one gets for nothing.
+- No amount of experimentation can ever prove me right; a single experiment can prove me wrong.
+- Occurrences in this domain are beyond the reach of exact prediction because of the variety of factors in operation, not because of any lack of order in nature.
+- It stands to the everlasting credit of science that by acting on the human mind it has overcome man's insecurity before himself and before nature.
+- Politics is for the present, but an equation is for eternity.
+- When the solution is simple, God is answering.
+- Knowledge of what is does not open the door directly to what should be.
+- There comes a time when the mind takes a higher plane of knowledge but can never prove how it got there.
+- Science is a wonderful thing if one does not have to earn one's living at it.
+- I cannot imagine a God who rewards and punishes the objects of his creation and is but a reflection of human frailty.
+- The only reason for time is so that everything doesn't happen at once.
+- The only real valuable thing is intuition.
+- Gravitation is not responsible for people falling in love.
+- The whole of science is nothing more than a refinement of everyday thinking.
+- I have just got a new theory of eternity.
+- Nationalism is an infantile disease. It is the measles of mankind.
+- The most incomprehensible thing about the world is that it is comprehensible.
+- It was the experience of mystery - even if mixed with fear - that engendered religion.
+- He who joyfully marches to music in rank and file has already earned my contempt. He has been given a large brain by mistake, since for him the spinal cord would suffice.
+- Only two things are infinite, the universe and human stupidity, and I'm not sure about the former.
+- Never do anything against conscience even if the state demands it.
+- All religions, arts and sciences are branches of the same tree.
+- I am not only a pacifist but a militant pacifist. I am willing to fight for peace. Nothing will end war unless the people themselves refuse to go to war.
+- I shall never believe that God plays dice with the world.
+- Weakness of attitude becomes weakness of character.
+- We cannot solve our problems with the same thinking we used when we created them.
+- The environment is everything that isn't me.
+- The devil has put a penalty on all things we enjoy in life. Either we suffer in health or we suffer in soul or we get fat.
+- The gift of fantasy has meant more to me than my talent for absorbing positive knowledge.
+- Common sense is the collection of prejudices acquired by age eighteen.
+- You cannot simultaneously prevent and prepare for war.
+- Most people say that it is the intellect which makes a great scientist. They are wrong: it is character.
+- It is the supreme art of the teacher to awaken joy in creative expression and knowledge.
+- A man should look for what is, and not for what he thinks should be.
+- Anger dwells only in the bosom of fools.
+- Pure mathematics is, in its way, the poetry of logical ideas.
+- All that is valuable in human society depends upon the opportunity for development accorded the individual.
+- Do not worry about your difficulties in Mathematics. I can assure you mine are still greater.
+- I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.
+- We shall require a substantially new manner of thinking if mankind is to survive.
+- God does not play dice.
+- Everyone should be respected as an individual, but no one idolized.
+- It is only to the individual that a soul is given.
+- Whoever is careless with the truth in small matters cannot be trusted with important matters.
+- Confusion of goals and perfection of means seems, in my opinion, to characterize our age.
+- If you are out to describe the truth, leave elegance to the tailor.
+- I do not believe that civilization will be wiped out in a war fought with the atomic bomb. Perhaps two-thirds of the people of the earth will be killed.
+- Joy in looking and comprehending is nature's most beautiful gift.
+- To the Master's honor all must turn, each in its track, without a sound, forever tracing Newton's ground.
+- It's not that I'm so smart, it's just that I stay with problems longer.
+- Memory is deceptive because it is colored by today's events.
+- The road to perdition has ever been accompanied by lip service to an ideal.
+- Anyone who has never made a mistake has never tried anything new.
+- I am enough of an artist to draw freely upon my imagination.
+- In order to be an immaculate member of a flock of sheep, one must above all be a sheep oneself.
+- Before God we are all equally wise - and equally foolish.
+- Imagination is everything. It is the preview of life's coming attractions.
+- It should be possible to explain the laws of physics to a barmaid.
+- Too many of us look upon Americans as dollar chasers. This is a cruel libel, even if it is reiterated thoughtlessly by the Americans themselves.
+- Look deep into nature, and then you will understand everything better.
+- There is no logical way to the discovery of these elemental laws. There is only the way of intuition, which is helped by a feeling for the order lying behind the appearance.
+- The value of a man should be seen in what he gives and not in what he is able to receive.
+- In matters of truth and justice, there is no difference between large and small problems, for issues concerning the treatment of people are all the same.
+- Put your hand on a hot stove for a minute and it seems like an hour. Sit with a pretty girl for an hour, and it seems like a minute.
+- We still do not know one thousandth of one percent of what nature has revealed to us.
+- As far as the laws of mathematics refer to reality, they are not certain, and as far as they are certain, they do not refer to reality.
+- Education is what remains after one has forgotten what one has learned in school.
+- Information is not knowledge.
+- God may be subtle, but he isn't plain mean.
+- Intellectuals solve problems, geniuses prevent them.
+- I love to travel, but hate to arrive.
+- The grand aim of all science is to cover the greatest number of empirical facts by logical deduction from the smallest number of hypotheses or axioms.
+- If people are good only because they fear punishment, and hope for reward, then we are a sorry lot indeed.
+- You can never solve a problem on the level on which it was created.
+- Any man who can drive safely while kissing a pretty girl is simply not giving the kiss the attention it deserves.
+- Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.
+- My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind.
+- You ask me if I keep a notebook to record my great ideas. I've only ever had one.
+- People love chopping wood. In this activity one immediately sees results.
+- He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed.
+- Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking.
+- I do not believe in immortality of the individual, and I consider ethics to be an exclusively human concern with no superhuman authority behind it.
+- The process of scientific discovery is, in effect, a continual flight from wonder.
+- There are two ways to live: you can live as if nothing is a miracle; you can live as if everything is a miracle.
+- You can't blame gravity for falling in love.
+- If I were not a physicist, I would probably be a musician. I often think in music. I live my daydreams in music. I see my life in terms of music.
+- Only a life lived for others is a life worthwhile.
+- Most of the fundamental ideas of science are essentially simple, and may, as a rule, be expressed in a language comprehensible to everyone.
+- If you can't explain it simply, you don't understand it well enough.
+- The fear of death is the most unjustified of all fears, for there's no risk of accident for someone who's dead.
+- Isn't it strange that I who have written only unpopular books should be such a popular fellow?
+- The world is a dangerous place to live; not because of the people who are evil, but because of the people who don't do anything about it.
+- When you are courting a nice girl an hour seems like a second. When you sit on a red-hot cinder a second seems like an hour. That's relativity.
+- Solitude is painful when one is young, but delightful when one is more mature.
+- Coincidence is God's way of remaining anonymous.
+- The faster you go, the shorter you are.
+- Never lose a holy curiosity.
+- Life is like riding a bicycle. To keep your balance, you must keep moving.
+- The hardest thing to understand in the world is the income tax.
+- A question that sometimes drives me hazy: am I or are the others crazy?
+- I have no special talent. I am only passionately curious.
+- If we knew what it was we were doing, it would not be called research, would it?
+- The important thing is not to stop questioning. Curiosity has its own reason for existing.
+- Great spirits have always encountered violent opposition from mediocre minds.
+- Let every man be respected as an individual and no man idolized.
+- Only one who devotes himself to a cause with his whole strength and soul can be a true master. For this reason mastery demands all of a person.
+- True art is characterized by an irresistible urge in the creative artist.
+- I never think of the future - it comes soon enough.
+- We can't solve problems by using the same kind of thinking we used when we created them.
+- That deep emotional conviction of the presence of a superior reasoning power, which is revealed in the incomprehensible universe, forms my idea of God.
+- True religion is real living; living with all one's soul, with all one's goodness and righteousness.
+- It gives me great pleasure indeed to see the stubbornness of an incorrigible nonconformist warmly acclaimed.
+- I live in that solitude which is painful in youth, but delicious in the years of maturity.
+- The true sign of intelligence is not knowledge but imagination.
+- Few are those who see with their own eyes and feel with their own hearts.
+- Love is a better teacher than duty.
+- Learn from yesterday, live for today, hope for tomorrow. The important thing is not to stop questioning.
+- There could be no fairer destiny for any physical theory than that it should point the way to a more comprehensive theory in which it lives on as a limiting case.
+- Any man who reads too much and uses his own brain too little falls into lazy habits of thinking.
+- I think and think for months and years. Ninety-nine times, the conclusion is false. The hundredth time I am right.
+- We should take care not to make the intellect our goal; it has, of course, powerful muscles, but no personality.
+- The most beautiful thing we can experience is the mysterious. It is the source of all true art and science.
+- I want to go when I want. It is tasteless to prolong life artificially. I have done my share; it is time to go. I will do it elegantly.
+- Mozart's music is so pure and beautiful that I see it as a reflection of the inner beauty of the universe.
+- Human beings must have action; and they will make it if they cannot find it.
+- We cannot despair of humanity, since we ourselves are human beings.
+- Technological progress is like an axe in the hands of a pathological criminal.
+- Everything should be made as simple as possible, but not simpler.
+- To raise new questions, new possibilities, to regard old problems from a new angle, requires creative imagination and marks real advance in science.
+- The release of atomic energy has not created a new problem. It has merely made more urgent the necessity of solving an existing one.
+- Small is the number of people who see with their eyes and think with their minds.
+- I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones.
+- God always takes the simplest way.
+- The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives.

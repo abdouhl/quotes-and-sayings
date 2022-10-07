@@ -1,0 +1,72 @@
++++
+author = "Alice Mcdermott"
+title = "Alice Mcdermott Quotes"
+quotes_len = "66"
+description = "the best66 Alice Mcdermott Quotes"
++++
+- I was the youngest; I had two imperious older brothers - I didn't get to often complete sentences at the dinner table. So writing was a way of saying what nobody asked me to say.
+- My own 'sentimental favorite' is always the novel I haven't yet written - I suppose that's the one I consider my 'masterpiece' as well.
+- I'm a novelist. I'm not a crusader, and I'm not an editorial writer. And I'm not writing fiction to convince anybody of anything.
+- In grammar school I read 'Act One' by Moss Hart, and being a playwright struck me as the most magical and romantic career anyone could have... But I never did write a play.
+- For immigrant generations especially, family is the first structure, or shelter, for a people who are in exile.
+- After a long run of almost thirty years, you get to the point where you say, 'These are my concerns.' It's not so much this is what I set out to claim - it is a kind of refrain.
+- What interests me is whatever it is that allows the heart to continue to yearn for something the intelligence knows is impossible to have: a lost love, a shelter from life's blows, the return of a time past, even a connection to the dead.
+- I'm very conscious of trying to make something epic out of something small and ordinary.
+- My parents were both first-generation Irish Catholics raised in Brooklyn.
+- Right away I think of two books - 'Wuthering Heights' and 'Rebecca' - and of just sinking into them as a young reader. I think they must have appealed not just to my romantic adolescent soul, but I suppose there's also an appealing darkness in both of them.
+- I don't want to write about violence, and I don't want to hang a plot on a murder. I think it's cheap.
+- I'm writing all the time. I tend to work on at least two books simultaneously. I'll spend time with one, and then I'll spend time with the other. Finishing takes whatever time it takes.
+- I believe that the interior life is the same for all of us. And because they're steeped in faith, Irish-American Catholics are a people who have a language for the examined life.
+- I have not won far more awards than I have won.
+- Publishing a short story can sometimes feel like shouting into the dark... your words come out, and then nothing... but I don't think that's why I tend to write novels rather than stories.
+- Any fiction writer who assumes that a character is typical no doubt runs the risk of stumbling into cliche and stereotype.
+- I learned really early on that I had to treat it as if it were a real job. This might be my middle class background - the Irish work ethic, which isn't quite the same as the Protestant work ethic - but still, it's, 'Get a job and show up every day. Be there. And don't complain. Who do you think you are: you're nobody special; go to work.'
+- Our task as fiction writers isn't just to report something that didn't really happen. We have to give what we write a sense of reality. The tool of our tradition is language.
+- Read everything. Write all the time. And if you can do anything else that gives you equal pleasure and allows you to sleep soundly at night, do that instead. The writing life is an odd one, to say the least.
+- Memory is not pure. Memories told are not pure memories; memories told are stories. The storyteller will change them. I've always been interested in that.
+- I think a misconception among many non-religious people is that anyone with a strong faith is, in all ways and at all times, blindly consistent, unwavering, unquestioning.
+- The language of the Catholic Church - the liturgy, the prayer, the gospels - was in many ways my first poetry.
+- I was one of those kids who always wrote.
+- I think it's handy for a dramatist of any sort, if I can call myself that, to make use of weddings and wakes, to make use of those moments and those rituals that cause us to pause and look back or look forward and understand that life has changed.
+- I think 'Charming Billy' ultimately is a novel about faith and what we believe in and, above all, what we choose to believe in.
+- I am trying to cultivate the notion that constantly misplacing one's cell phone is a charming eccentricity... my children aren't buying it.
+- It worries me that undergrads and high school students are forced into books they aren't ready for, like Faulkner's, and then they are afraid of putting their toes in the water again.
+- I'm interested in characters who should know better, who know they should give up, move on, accept life as it is, with all its constraints - life, death, time - but don't.
+- Much of my experience with language was formed in the church, which has an oral tradition. There are lots of repetitions in prayers and song refrains. There's a sense of incantation, that if you call not once and not twice but for a third time, the spirit appears.
+- As a writer, you have to put yourself in service to the character, get behind their eyes by delineating the world where the character develops. You have to listen to the character and see him inside his certain world to know what conclusions he would draw.
+- For me, having characters who are part of a faith then allows me to talk about how that faith either works or fails them without having to attack the institution.
+- I'm a coastal person. I grew up in Long Island and lived in San Diego. I felt landlocked in Pittsburgh. Psychically, it just wasn't the place for me.
+- I'm more interested in character than events. I've observed that about myself as a writer. I find events, even the most dramatic sort, not to be such fertile ground.
+- Character is primary. What happens as far as plot and events is not as intriguing to me as what's happening inside this particular person.
+- I know Irish-American people. I know what their homes look like. I know what they have for dinner. I know how they turn a phrase.
+- Some readers sort of suspect that you have another book that you didn't publish that has even more information in it. I think that readers sort of want to be taught something. They have this idea that there's a takeaway from a novel rather than just the being there, which I think is the great, great pleasure of reading.
+- My children have gone to Catholic school... Part of their whole education is talking about the inner life and looking at your life, even though you're only 15 or 16 - thinking about your mortality, thinking about the value of your life, thinking about your obligations.
+- I wouldn't want to tweet to anyone who would be interested in my tweets.
+- Family dynamics are true over time, across generations and different cultures.
+- I guess I cringe when the discussion leads to, rather than books and sentences and characters and the stuff that writers are supposed to be concerned with, how to have an online presence and how many followers you have on Twitter. That stuff always makes me uncomfortable.
+- I read a little bit of nonfiction and a lot of poetry. I think of poetry as my shot of whiskey when I don't have time to savor a whole bottle of wine.
+- I have a great fondness for the liars in my stories.
+- The thing that fiction can do is look from the inside out rather than from the outside in. Even memoir leaves me somewhat frustrated. I think now we need a poet to uncover what isn't on the surface.
+- In the act of reading, especially reading fiction, where a world is being created, all kinds of matters of belief come into play.
+- I've got to hear the rhythm of the sentences; I want the music of the prose. I want to see ordinary things transformed not by the circumstances in which I see them but by the language with which they're described. That's what I love when I read.
+- I am not a theologian or a historian, and I feel no call to become a defender of the faith, so in my case, the search for what remains valuable focuses on language itself: Catholic prayer, ritual, the naming of things.
+- A tendency to make metaphorical connections is an occupational hazard for those of us who write.
+- No one looks at a baby and says, 'You are going to be a great novelist, and you really need to start writing now.' Something in us says: 'This is what I must do.'
+- Any adjective you put before the noun 'writer' is going to be limiting in some way. Whether it's feminist writer, Jewish writer, Russian writer, or whatever.
+- I've always believed you go to literature to find the shared human experience, not the categorized human experience.
+- I like that original romance of having a pen and a legal pad and going anywhere in the world and being able to write a novel with just those two things.
+- I was born in Brooklyn, but I never lived there.
+- At the beginning of every semester, I ask my graduate students whether there is something I should read that will help me understand their work.
+- I believed in fictional characters as if they were a part of real life. Poetry was important, too. My parents had memorized poems from their days attending school in New York City and loved reciting them. We all enjoyed listening to these poems and to music as well.
+- Being Irish-American myself, Irish-American material is readily at hand to me.
+- I do have friends in Pittsburgh, and I had some wonderful experiences there.
+- I love a well-plotted story. But I'm just not that kind of writer, and it's not necessarily by choice. When I manipulate plot, I feel I lose authenticity.
+- I think place and time for me is often a matter of convenience, something I can use to another end rather than something I'm trying to define because it's somehow fascinating to me in itself. It's more what the place can do for the larger goals I have for the work.
+- Loss is inevitable - you have to be blind or naive to think otherwise.
+- A perfect poem you can't pin down and say, 'This is exactly what it meant to me.' It's not a self-help manual.
+- Those of us who know the transporting wonder of a reading life know that it little matters where we are when we talk about books or meet authors or bemoan the state of publishing because when we read, we are always inside, sheltered in that interior room, that clean, well-lighted, timeless place that is the written word.
+- All my friends had grandparents who had accents. I thought all grandparents were supposed to have accents. My friends were all second-generation, as I was.
+- Most of the characters I write with don't think an awful lot about their faith. They're not always questioning the church or feeling confined by the church or rebelling against the church.
+- I'm not usually drawn to memoir - many run the risk of self-aggrandizement or score-settling.
+- I'm always telling my students, don't - don't worry so much third person, first person. It doesn't make that much difference.
+- You're a human being, and every time a list of prize nominations comes out and your name isn't on it, you do have that thumb-in-the-eye feeling.

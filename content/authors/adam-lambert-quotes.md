@@ -1,0 +1,105 @@
++++
+author = "Adam Lambert"
+title = "Adam Lambert Quotes"
+quotes_len = "99"
+description = "the best99 Adam Lambert Quotes"
++++
+- I have crushes on women all the time. I don't have intimate relationships with them, but I find women beautiful.
+- Yeah, I think speculation keeps things really interesting.
+- I haven't had many relationships.
+- People want to talk about whether I have rock cred, whether I'm selling out, the theatricality, the gay stuff... Chill out! And just enjoy yourself.
+- My mother was always supportive.
+- There are female artists I can look at that I find more in common with than the male artists, because they're blending the pop, dance and theatricality... but currently there aren't a lot of guys who go there.
+- At least I can say that I'm honest.
+- I wanted the focus to be on my ability as a singer and as an entertainer - not on my private life.
+- I think theatricality is just one way of performing. I don't think it's a better way or the way, but it's my way.
+- Wait a minute, I'm a fan of yours; you can't be a fan of mine!
+- There's a certain level of pageantry with 'Idol,' and in order to work the show, you kind of have to feed into it.
+- You can't plan everything - if I did a performance exactly how I rehearsed it, it would be so boring.
+- I listen to crazy, robust rock music where they sing their faces off, and soul music, which can be similar.
+- I like 'Rocky Horror.'
+- When I was in high school I was 250 pounds.
+- I was a big fan of Middle Eastern elements of music and experimental electronic and tribal sounds.
+- I had self-esteem issues into my early 20s.
+- I breeze through Twitter - I look at the mentions, the pictures, the videos.
+- 'Come out' is so funny to me because I've never been in.
+- I was really beating myself up about performances and how I looked and this and that.
+- I nitpick details.
+- I'm proud of my sexuality.
+- I have crushes on women all the time.
+- I am who I am.
+- A lot of my male vocal influences are British - people like David Bowie, Freddie Mercury and Robert Plant.
+- I don't like to look typical.
+- I just talk a lot, that's the problem.
+- Coming up with something new and original is so exciting.
+- All these songs honestly explore the ups and downs of my reality.
+- There's not a blueprint for me to follow.
+- Nowadays in pop, there's not a lot of men that are singing big and loud and high - it's not as common as it once was.
+- I'm not a babysitter.
+- When you dance and move around it creates a different reaction from the audience - they love it.
+- I like to get real pretty.
+- I think Lady Gaga is great and is changing pop music and bringing back a certain rock 'n' roll spirit, swagger to the game.
+- I get why certain actors want to stay in the closet.
+- I don't think it should be a surprise for anyone to hear that I'm gay.
+- I started rejecting the proper way to sing and I started singing.
+- The biggest risk I've ever taken is going on American Idol and trying to be myself. I wasn't going to try too hard to conform, and I knew that it could possibly not work out.
+- Bowie's been a huge influence on me.
+- I think the difficult thing is the transition between TV competition series and going into the actual music industry. There still seems to be a slight disconnect there.
+- There was a lot of me trying to be a 'fixer.' I was that kind of guy. I'd meet someone who had 'so much potential' that needed 'help.' I think that was kind of my curse for a long time.
+- Conforming is not cool.
+- I need to be able to explain myself in context.
+- I'm so happy to be in a committed relationship.
+- There's no regrets for me.
+- Female performers have been doing this for years - pushing the envelope about sexuality - and the minute a man does it, everybody freaks out.
+- I think it's up to the parents to discern what their child is watching on television.
+- I'm trying to be a singer, not a civil rights leader.
+- Those shows I did with Queen were pretty surreal. I was really excited and super-flattered, but intimidated at the same time.
+- My M.O. is just do what you do and don't feel like you have to make apologies for it. I'm sure there will come a point when I have to apologize for something, but not yet.
+- Carving out an identity for yourself is important so I'm trying to do that as well.
+- I try not to get trapped in any one musical or visual style at all.
+- I am gay, and I'm very comfortable with it.
+- For me, one of the important things about keeping vocally healthy is warming up and making sure I'm aware where my voice is at, drinking lots of water and getting plenty of sleep, and just taking care of myself with exercise and eating healthy.
+- Los Angeles can be a really sad city.
+- The way I look at it is everybody should have the right to get married, if they so choose.
+- Pop is a little bit theatrical. That's the whole vibe. That's the point - is that it's great music, great melodies, great hooks. But, on top of it, it's a presentation. There's a showmanship about it. And that's why I wanted to be a pop star.
+- I've only dressed in drag three or four times.
+- I'm trying to convey to my audience that you really can't judge a book by its cover, and there's more to the universe than you can see with your eyes.
+- In middle school, I really didn't have music, but in high school, I remember taking a lot of choir and drama.
+- I wasn't unhappy, but I was a little like: 'Is this it? Really?' I was thirsty.
+- I have nothing to hide.
+- I've sung other people's music all my life.
+- I've always been fond of the glam-rocker title.
+- After my tour I had time to stay at home, be with my boyfriend and hang out with friends and that brought me down to earth and helped me write music from a more relaxed place.
+- I was afraid to express myself for a while.
+- My wish is for gay to become less of a label, and more of just one of many great colors in the collective box of humanity.
+- It's been a transformative period and I really wanted to make music from what I've experienced.
+- I'm proud of my sexuality. I embrace it. It's just another part of me.
+- I didn't feel attractive in high school.
+- I had a lot of fun with my costume designer.
+- I think you kind of have to put yourself out there.
+- I think the British audience might be more open-minded with some of my imagery and weird choices.
+- The kids that are different and out there and expressive and are bold with those choices, those are the people that grow up to be people we all want to hang out with, that become celebrities or become really successful in what they do because they believe in who they are.
+- I definitely have my opinions that I'm very vocal about and I'm not afraid to put them out there.
+- I try to go throughout my daily life just as if nothing has changed, but you don't have much anonymity anymore, which feels really good. People come up, and say hi and they enjoy your work.
+- So pretty much, to sum it up, if you can freak someone out and bring that kind of emotion out of somebody with a song, you're doing something right.
+- I think sometimes we're meant to do something but things aren't lined up correctly.
+- I started to realize I wasn't like every other boy.
+- I knew that it was my only shot to be taken seriously in the recording industry, because it's fast and broad.
+- You know, if it weren't for these fans, I wouldn't have gotten as far as I did.
+- Fame is a very strange animal.
+- I don't feel closeted.
+- I've been known to make out with girls from time to time. Couple drinks involved, you know. It's fun. And who knows? Maybe it'll go further someday. I don't know.
+- I never wore full-on eyeliner in high school, but I wanted to.
+- When I was kid, I remember playing 'Vogue' by Madonna over and over and over again. And ah, you know, something about the beat was really cool, and Madonna, visually, was on TV all the time and I thought she was just so beautiful.
+- I'm very inspired by past music.
+- I want to upset people, I want to make people think, I want to keep people interested.
+- I think, for the majority of my twenties, I was always so concerned with what I didn't have, or what I still wanted.
+- I've been kind of toying around with the bi thing in my head. I wouldn't ever give myself the label 'bisexual', but bi-curious? Yea.
+- My dad is a Deadhead, my mom's a Jewish-American princess from Jersey.
+- Right now, I'm not really thinking about marriage.
+- I love myself and I am a good person.
+- My first album was completed in three months.
+- I'm inspired by history, different periods.
+- I worked at Starbucks when I was 16... It was all right.
+- I would love to do a live show with dancers and fashion and scenic elements - definitely bring my love of the theater to a concert-style performance.
+- I wouldn't ever give myself the label bisexual, but bi-curious, yeah.

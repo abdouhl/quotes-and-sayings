@@ -1,0 +1,44 @@
++++
+author = "Anthony Marra"
+title = "Anthony Marra Quotes"
+quotes_len = "38"
+description = "the best38 Anthony Marra Quotes"
++++
+- At Grozny TV, the line between journalism and government propaganda is traversed as often as a Manhattan crosswalk.
+- The idea that fiction can capture the stories that fall through the cracks of history informed 'A Constellation of Vital Phenomena,' which progresses across the two Chechen Wars of the 1990s and early 2000s.
+- After spending the last few years working on a serious novel set in Chechnya, I was drawn to both the brevity and casualness of Twitter, and wrote a series of tweets titled 'The Erotic Inner Life of Mr. Bates from Downton Abbey.'
+- Wars break things; they break stories.
+- For the years I spent working on it, 'Constellation' was the only novel I knew how to write, so maybe I still abided by the maxim? Regardless, I prefer the maxim: Write what you want to know, rather than what you already know.
+- It's hard to think of another body of work that is more universally beloved - I don't think I've ever met someone who has encountered 'Calvin and Hobbes' without falling for them.
+- No one reaches the Oval Office without a great deal of admiration for the institution - and himself - so it's unsurprising that sitting presidents favor the biographies of former presidents.
+- When I came to the last line of 'Car Crash While Hitchhiking,' I read it as a pitiless statement of indifference: a refusal to warn the family of their impending collision, a refusal to help when miraculously spared, a refusal to act on the empathy hiding behind the story's language.
+- Despite my best efforts, word that an American tourist was in town quickly made its way around Grozny. That I had come to Chechnya not for business or NGO work, but to see the sites and meet the people, was notable enough to be broadcast throughout the republic.
+- I didn't know a single person who had ever been there. I wasn't even sure how to spell Chechnya.
+- I stopped by Politics & Prose to sign a few copies of 'Constellation.' A couple days later, I learned that Barack Obama also stopped by and left with one of them.
+- A novel can grant humanity even to those who act inhumanely, and by making men and women of monsters, it can offer not only a ground-level view of a particular conflict, but a descent into the substratum of human nature capable of the incomprehensible.
+- Calvin and Hobbes are the only two characters from my childhood reading that I return to with any regularity, and they have grown with me, yielding newer and deeper meaning.
+- I read all of the nonfiction that I could find on Chechnya, and all the while, I was searching for a novel that was set there. I couldn't find a single novel written in English that was set in the period of the two most recent Chechen wars.
+- I quickly realized I live the least interesting literary life imaginable. My parents are happily married. There haven't been any major traumas. I'm not sure that the story of my life would be much fun to read.
+- When confronted with the facts of foreign atrocities, the experience is often consigned to the realm of the unimaginable. Fiction makes the unimaginable imaginable.
+- I wanted to be a writer, but at the time, I spent my days working a retail job, my nights sleeping in my childhood bedroom, and while I had written short stories here and there, I didn't know how to write good fiction anymore than I knew how to perform good brain surgery.
+- I joined a writing class at a nearby community center, where I was the youngest participant by about 40 years. Once a week, I'd funnel down a staircase and join the dozen retirees crowded in folding chairs around a table to discuss one another's stories.
+- To make a book convincing, it's less important that the right tree be in the right place than that the characters are emotionally real.
+- Grozny's been largely rebuilt. But at the same time, I think the war is very much being waged inside its survivors.
+- My first real awareness of Chechnya came when I was a college student studying in Russia. I arrived in St. Petersburg about two months after Anna Politkovskaya was assassinated for her reports on Chechnya. I lived with an elderly woman and her grown children in an apartment that was not too far from the neighborhood military cadet school.
+- You look at a surgeon as you would a secular priest, almost, if it's your child, if it's your sister on the operating table. That was an idea that very much has interested me and I've wanted to explore for some time.
+- While looking up news from the North Caucasus on Twitter, I was linked to the sanguinely titled 'Seven Wonders of Chechnya Tour' on the website of Chechnya Travel, the postwar republic's first tourism outfit, founded in 2012.
+- When I visited Chechnya, I was taken aback at first because people would regularly make jokes about kidnapping me.
+- Bill Watterson argued with his medium even as he eclipsed it. He was all too aware that no artistic expression better exemplifies our disposable consumer culture than the daily newspaper comic strip: today's masterpiece is tomorrow's birdcage lining.
+- I took a 19th-century Russian novel class in college and have been smitten with Russian literature ever since. Writers like Tolstoy, Dostoyevsky, Grossman, and Solzhenitsyn tackle the great questions of morality, politics, love, and death.
+- I had assumed I'd pack my bags and head elsewhere after 'Constellation,' but Chechnya is creeping its way into the margins of my second book.
+- Research is not an obstacle, something to be frightened of. It can be one of the real joys of writing.
+- Ever since studying in Russia as a college student, I had been in a long-distance, one-sided love affair with Chechnya's remarkable history, culture and rugged natural beauty.
+- I think after you write something and you're finished with it, there is a sense of loss. That this is a world I can't really re-enter the way that I could when I was working on it. The covers of the book close it to the writer.
+- For the uninitiated, 'Calvin and Hobbes' is a daily comic strip detailing the antics of an unruly six-year-old and his misanthropic stuffed tiger. The boy, whose vocabulary is packed with more 10-dollar words than a GRE flashcard set, is named after John Calvin, the Reformation-era theologian who preached the doctrine of predestination.
+- Usually I spend a long while working alone before letting anyone read what I've written.
+- Chechnya forms the bookends to Tolstoy's career. He began writing his first novel, 'Childhood,' while in Starogladovskaya in Northern Chechnya, and his final novel, 'Hadji Murad,' is set in the Russo-Chechen War of the 19th century.
+- During the 20th century, Chechnya was written about by local poets and novelists, as well as writers from Russia and Central Asia, but very little is available in English translation.
+- There was something about the idea of Russia that I found very intriguing, and I think I had romanticized it a lot.
+- When you're writing in big block paragraphs, you can afford to have a redundant sentence now and then, but the Twitter format requires concision.
+- A novel can enlarge the empathy and imagination of both its author and its reader, and my experience, that sense of enlargement is most intense when I'm transported beyond the narrow limits of my daily life.
+- I'm wondering when you hit the age where people say, 'Oh, OK, he's not so young.'

@@ -1,0 +1,92 @@
++++
+author = "Amala Akkineni"
+title = "Amala Akkineni Quotes"
+quotes_len = "86"
+description = "the best86 Amala Akkineni Quotes"
++++
+- Personally, I have met many widows who've been thrown out of their homes. I had done a fund-raising event to help widows supported by Bala Vikasa group in Warangal.
+- It is nice to go down the memory lane and remember who I am and what my roots are.
+- People love a good thriller that makes them sit on their edge of their seats.
+- I juggle so many hats that it takes something really special to convince me to get back to acting in films or TV serials.
+- There's innocence in a young mind, say 18 or 21, writing a script. But we have to acknowledge that they have to open up to life's experiences to be able to add those layers of depth into the script.
+- I don't think I am as useful as a bat is to the society.
+- Yes, I am a Bengali but I am sorry I can't converse in Bengali.
+- Doing films is not fun or glamorous as it seems.
+- Holi has always been a nightmare for me because of the dangers of synthetic colours. Eco-friendly colours are the best way to celebrate Holi.
+- I was at my wit's end trying to solve the world's problems. I was frustrated that I could do very little. That frustration took me to Vipassana.
+- It is important to sensitise children about animal behaviour as it will help develop a healthy curiosity towards nature.
+- I pick up pieces at Fabindia or The Deccan Story in Hyderabad. The owner of the store, Keerthi Reddy, does lovely customised outfits, including khadi kurtas with a soft lining.
+- I have never looked back on what I have done. Instead I am looking for new things to do.
+- There's no denying that my popularity helped me a lot.
+- Both Naga Chaitanya and Akhil are in the movies. They both insisted on being launched outside the home banner .They were very clear that they didn't want a home launch.My husband and I are very proud of them.
+- Each creature both great and small has evolved after millions of years of evolution serving an integrated and important part in the ecological balance of our Earth. Upset the balance and the consequences are disastrous.
+- I do not make resolutions for New Year, but visualise and plan things.
+- In Mumbai and Chennai there is method in the madness. Despite its large crowds there is a 'live and let live' spirit and a connection with good.
+- During my growing up years, I always connected with men who respected women.
+- Critical thinking and curiosity are the key to creativity.
+- My life is rich in experiences and opportunities and I am living it to the fullest.
+- I have realised the importance of finding the right nutrition for our pets.
+- I speak Tamil and Telugu better than Bengali.
+- Children don't have anywhere to go except cinema halls, malls and restaurants. All three aren't ideal places for kids to grow up in.
+- The animal birth control and anti-rabies programmes, which are under the threat of being altered or discontinued, need to be strengthened in order to address the issue of the stray dog menace.
+- It takes the farmer 10 kgs of vegetation to feed the animal in order to produce 1 kg of meat. In other words a meat eater consumes 10 people's food!
+- I would like to clarify that the only adoption I am involved is through the Blue Cross Animal Welfare Shelter where we provide healthy and friendly homeless animals for adoption.
+- I love saris from Shravan Kumar.
+- It's incredible being a woman. I was, of course, fortunate to have an Irish mother who is an empowered woman. She comes from the western culture where women's rights and empowerment happened much earlier in the 19th century.
+- You have to be innovative and creative to make yourself employable.
+- Writing 'Animal Talk' column in MetroPlus gave me immense satisfaction. I quite enjoyed writing the column.
+- Everyone is born with it but, unfortunately, our society and culture are programmed to kill creativity.
+- The day I set foot in Hyderabad, I saw an animal being hit by a vehicle. The city did not have a shelter for the bleeding animal, and I brought it home. In less than a month, our house was home to all kinds of animals - a buffalo with a broken hip, a blind mongoose, goats, dogs, cats.
+- As a 73 year old global brand, IAMS comes with a very strong legacy of tailored nutrition for pets and I am glad to be a part of the launch of a brand that shares my priorities and the needs of my pets.
+- I work with 15 organisations that deal with issues ranging from environment protection and wildlife conservation to human rights, and women's and children's rights, etc.
+- While growing up we all did our own work' I remember, we had a sign on our bathroom door which said 'Gandhiji cleaned his own bathrooms, so must you.'
+- My mom is Irish. She is a poet and a humanitarian who believed in ensuring that people around her had a better life.
+- Many times people tried to convince me about Ahimsa silk, but when I followed the chain of production it always ended with genetically modified silk moths that could not fly. There was nothing Ahimsa about it.
+- Hyderabad used to be this sweet laid back town, everything was accepted. Coming from Chennai I thought it was a town.
+- With so many public places banning pets people can't socialise their animals, which makes them more hostile and leads to unsocial behaviour.
+- When the Hyderabad Chapter of TFI approached me to be a part of their Leaders in Classroom event, I readily agreed to be a part of it. It was a great classroom experience. I really enjoyed myself. The kids were very expressive and it was heartening to say the least.
+- I never imagined I would wear a silk sari as I practice Ahimsa.
+- I love pushing myself and I think being in a comfort zone perennially can restrict your growth.
+- There's is a fine line between living one's truth and looking good.
+- When you start off as a dancer, you don't become one overnight; you must train for more than a decade.
+- Nelson Mandela, Dada Vaswani, Harsh Mander, Shabana Azmi - I admire their humanitarian work. But sadly even Nelson Mandela could not keep corruption out of his cabinet and within a year, I am told, the victims of apartheid turned into perpetrators of corruption on their own people. Greed has no boundaries of colour or country does it?
+- Filmmaking these days is so technically advanced. When I started off, we had to wait for two to three months to see the rushes. But now you can see every scene on the monitor and you can see your work immediately.
+- Most parents feel traditional professional courses will give their children a stable future.
+- But being a director of a media school in Hyderabad, being actively involved in animal welfare and my personal life keep me busy all day.
+- I can't hang out for roles but if something meaningful comes my way I don't say no.
+- If you are seeking fame without the requisite talent, you might wander.
+- A story has to have several layers to sustain audience interest in each episode.
+- Only a niche section of parents allow their children to take up courses on film and television.
+- I had to take a decision. Do I pursue dance, my passion, or help my mother out? The movies beckoned.
+- I am working for various NGOs and looking after my home.
+- I had been acting from a very young age and also performing with a dance troupe, the Kalakshetra Dance Troupe, from city to city. I needed a break. After marriage I took time off. That break lasted 24 years!
+- I know what it is to be a mother of sons in real life.
+- It helps to have a fit body if you are meditating. Yoga conditions the body so that the mind can meditate.
+- As an actor, you are always looking for something different and challenging... 'High Priestess' gave me that rare opportunity.
+- Not many people know that I am a Bengali actually.
+- There has to be a mutual respect and trust for any marriage to work.
+- We live in a country with a vast majority of people below the poverty line. Our natural resources are limited and getting scarcer.
+- I was always an animal lover. Even back in school and college, an animal in need of help was my responsibility.
+- I don't feel the need to act. But if I really like the role and it doesn't demand much of my time, maybe.
+- Also, it is futile to hold on very tight to your man as this will just kill your love for each other.
+- Like Hyderabad you can't shoot outside in summers. Similarly, Delhi gets scorching in summers.
+- Nutrition is the topmost priority for me with my pets at home as well as for the team at Blue Cross.
+- Nobody realises that speaking Malayalam is a big challenge for me.
+- I tend to gravitate towards very simple, minimalistic styles.
+- My school was one of the most beautiful places a child can grow up in. You are surrounded by nature - cats, dogs, birds and buffaloes everywhere.
+- Birds and animals in the wild migrate every year to safer and nurturing pastures, leaving behind the old environment. After nurturing their young ones, they return to thrive in the old environs. I use that analogy to meditate. You migrate to your inner soul, nurture the strength, light and creativity there, and return.
+- I am half Bengali and half Irish by birth.
+- We all go through phases; in one such phase, I was interested to know about the psychic phenomenon.
+- My father was from East Bengal. Having lost everything to the Partition, he came as a refugee.
+- From Blue Cross we reach out to about 14,000 school kids every year. No matter where I go, be it a police station or a corporate office, I have some youngsters coming up to me to saying, 'madam we heard you in school.' It feels great and that's something I really enjoy doing.
+- Ereena is a commendable mission for both women empowerment and environmentally sustainable Ahimsa silk.
+- What I find most deplorable is cruelty of spirit - racism, casteism, and religious or social prejudice.
+- A whole generation is moving away from highly ritualistic practices into a more thinking, spiritual process. By spiritual, I don't refer to a cult or a guru. In your heart, you continue to feel the presence of people who've been dear to you even after they've left.
+- I have grown up in Chennai, so I speak Tamil fluent.
+- War is such a wasteful activity.
+- I am open to taking up any interesting projects that come my way.
+- Many a time when magazines reported that Nagarjuna was spotted with a lady, I was present at that very event. They could be referring to me, as they might have not recognised me.
+- Once when we were holidaying in Singapur, a fan did not recognise me as I had shaved my head. The fan approached Nagarjuna and asked him ferociously, aren't you married to Amala? Nagarjuna then explained to him that this lady is Amala!
+- I was extremely close to my mother-in-law and after she, and later my father-in-law passed away, I continue to feel their presence.
+- Rukmini Devi was an icon for all the Bharat Natyam students at Kalakshetra. I grew up watching her at dance school and I associate her style with grace and humility - it's never the clothes, it's the persona.
+- The discussion of animal rights in jallikattu has been misunderstood. We know that the tails of the bulls are broken, that chilly powder is rubbed into their eyes and they are forcibly fed country liquor. The animal is overwhelmed and does not know what is happening.

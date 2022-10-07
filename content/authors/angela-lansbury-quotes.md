@@ -1,0 +1,31 @@
++++
+author = "Angela Lansbury"
+title = "Angela Lansbury Quotes"
+quotes_len = "25"
+description = "the best25 Angela Lansbury Quotes"
++++
+- The theater is magical and addictive.
+- We all have levels of performance.
+- I made about 56 movies, I think. Not that many.
+- Believe me, it jabs you. When you're on the side of buses and New York loves you, you love to go out there every night. It's like a race. Curtain opens, out you go, and New York is yours.
+- I don't think about going back to the theater.
+- I've worked with the greatest actors, and they're all gone. This is what's so desperate to me.
+- I started in London, as a kid. My mother knew I had sort of an inbred talent. She was an actress, so I inherited it from her. But I think I got a lot of it from my grandfather, who was a great politician.
+- Mystery is something that appeals to most everybody.
+- I lead a very regimented life. I take excruciating care of myself: I take a lot of vitamins, get enough sleep, don't drink apart from a glass of wine occasionally.
+- I was put under contract. A major studio. I got nominated for an Academy Award. Isn't that ridiculous? I mean, at the age of 18!
+- 'Blithe Spirit' is played almost all over Britain somewhere at all times because it is such a unique and ridiculously funny show. But it's also, in fact, under those layers of humor, a very serious show. It's quite misogynistic.
+- I think of myself as a journeyman actress. I will attempt almost anything that I think that I can bring off. It could be almost anything.
+- The Manchurian Candidate was the most important movie I was in, let's face it.
+- I never regretted what I turned down.
+- Clint Eastwood is an extraordinary director because he knows the value of a buck. He knows where it will show on the screen.
+- Bringing humor and bringing happiness and joy to an audience is a wonderful opportunity in life, believe me.
+- Those of us who were 12 or 13 when the war started were absolutely thrown into the mainstream. We had to grow up instantly and take care of ourselves.
+- A sitcom. I hate that word.
+- Here I am, I still go on, you know, like the tides.
+- Those who have known the quality of my work and the many public statements I have made over the course of my life must know that I am a strong supporter of Women's Rights.
+- I have never directed. But I think I could. I have thought about it. I'm a bit long in the tooth to start.
+- I had the ability, but I didn't have the name. They could have built me, which is what they did with Deborah Kerr, but I don't think I was quite hot enough in the looks department, quite frankly. I was all talent and no looks.
+- There is no excuse whatsoever for men to harass women in an abusive sexual manner. And, I am devastated that anyone should deem me capable of thinking otherwise.
+- Through years and years of playing to various audiences, what I've learned is - and I think quite a few actors will agree with me - we're not always the best judge of that audience's reactions or not. And we discover, to our amazement, at the end of the show, they bring the house down with applause, and we thought, 'No way tonight,' you know.
+- I've never been particularly aware of my age. It's like being on a bicycle - I just put my foot down and keep going.

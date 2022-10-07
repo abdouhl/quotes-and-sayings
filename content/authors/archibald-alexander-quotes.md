@@ -1,0 +1,16 @@
++++
+author = "Archibald Alexander"
+title = "Archibald Alexander Quotes"
+quotes_len = "10"
+description = "the best10 Archibald Alexander Quotes"
++++
+- No one was ever saved because his sins were small; no one was ever rejected on account of the greatness of his sins. Where sin abounded, grace shall much more abound.
+- God is not glorified in any transaction upon earth so much as in the conversion of a sinner.
+- None can less afford to delay than the aged sinner. Now is the time. Now or never. You have, as it were, one foot already in the grave. Your opportunities will soon be over. Strive, then, I entreat you, to enter in at the strait gate.
+- Do not for a moment suppose that you must make yourself better, or prepare your heart for a worthy reception of Christ, but come at once - come as you are.
+- It is commonly said that men are forward to believe whatever is connected with their own interest. This in common cases is true; but it is also true, that when some very great and unexpected good news is brought to us, we find it very difficult to credit it.
+- Men are more accountable for their motives, than for anything else; and primarily, morality consists in the motives, that is in the affections.
+- If you were not a sinful, polluted, helpless, and miserable creature, this Savior would not be suited to you, and you would not be comprehended in his gracious invitations to the children of men.
+- But however long you may have continued in rebellion, and how ever black and long the catalog of your sins, yet if you will now turn to God by a sincere repentance, and believe in the Lord Jesus Christ, you shall not be cast out.
+- Nature never makes any blunders, when she makes a fool she means it.
+- It will never do to plead sin as an excuse for sin, or to attempt to justify sinful acts by pleading that we have an evil heart. This instead of being a valid apology, is the very ground of our condemnation.

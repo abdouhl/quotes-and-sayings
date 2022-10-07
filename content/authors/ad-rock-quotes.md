@@ -1,0 +1,106 @@
++++
+author = "Ad-Rock"
+title = "Ad-Rock Quotes"
+quotes_len = "100"
+description = "the best100 Ad-Rock Quotes"
++++
+- In New York, you can't really like anything. You know? Pizza's all right. I mean, I've been having pizza since back in the day, so it's whatever.
+- I like Mike D. We kept trying to get him to go solo. He wouldn't do it.
+- Trump is kind of fascinating. I wish he was only seen in black-and-white 'cause he's like a character from the 1890s.
+- You picture yourself as being 22 always, and so it's very bizarre when you're not.
+- I guess I'm the guy from the Beastie Boys. I'm one of the guys from the Beastie Boys. I guess that's what I'll always identify myself as.
+- We never thought we were musicians. We just thought we were in a band.
+- The Madonna tour thing was definitely funny that - you know, children were crying watching us... and it was interesting seeing how angry their parents were.
+- Adam Yauch started the band. It's not like a thing where we could continue without him.
+- Everybody wants to be a rapper - even country musicians.
+- We could be as rich as the Rolling Stones if we sold as many records.
+- I've only done karaoke twice in my life.
+- The Beatles are great for everybody - they write the songs that made the whole world sing.
+- We got very lucky. We were successful, but if we weren't, I don't know what I would have done.
+- I'm not saying that kids today have everything, but with the Internet, it's like, you have it there, so use it! I know a bunch of kids who are into cassette tapes now. Cassette tapes suck! Why not use your iPod?
+- I lost my mom when I was young.
+- I would love to be in an action movie. I've always wanted to play the hacker guy - like, the Jewy hacker guy who just gets yelled at.
+- If I could sing, that would be cool. But I can't. I mean, I physically can, but I'm awful. It's weird to be really bad at singing.
+- 'Grand Royal' started because we were on the Lollapalooza tour, and we wanted to send this message to people that the mosh pit is corny. Stop doing that. MTV has ruined it, and it's dangerous, and girls are getting hurt.
+- The two biggest influences of the '70s were Don Cornelius and Bruce Lee.
+- Here's a thing that's going to drive me absolutely crazy: the trucks! They can put people on the moon, but they can't make a quiet truck!
+- Sexism is deeply rooted in our history and society that waking up and stepping outside of it is like I'm watching 'Night of the Living Dead Part Two' all day, every day.
+- You know how there's all these rappers like Mike D and King T and Ice T and Cool C or something like that? Well, on Mayberry, on 'Andy Griffith,' they had Aunt B.
+- I own a car: a minivan. But don't tell anyone, 'cause they're gonna ask to borrow it.
+- I've fallen to make people laugh. Often.
+- When I was in a couple of movies in the '80s, I was winging it.
+- Hardcore bands were coming out with names like Urban Waste and The Mob, you know, a lot of kind of tough names. So Beastie Boys was the stupidest name we could come up with. And unfortunately, it stuck.
+- 'Paul's Boutique' was a bust, right? That was a bummer. We didn't pause on it for a long time - we didn't go through therapy - but it was weird. And because it was a bust, we didn't go on tour.
+- A lot of people are trying to get me to go solo. It's just a thing I have to deal with a lot. Record labels are always trying to get me to go solo.
+- I don't want to have a real job. No one wants to have a job.
+- I'll be, like, the oldest rapper alive.
+- To me, a New Yorker is someone that has general disdain toward landlords, mass-transit authorities, electric companies, sports-team managers, NYU and its students, and anything new.
+- I don't really have long days very often.
+- You have to consume Fig Newtons with either milk or an alternative milk product. It's like a conspiracy with the dairy industry. They're in cahoots.
+- I don't even know what is popular.
+- I watch NY1 every morning and have Pat Kiernan curate my news stories.
+- The tapes we were making would jump around with different styles, just quick parts of different songs. Hip-hop to jazz to funk to whatever else. And in a way, 'Check Your Head' ended up being like one of those pause-tapes.
+- That's what real punk is about - doing it yourself and building a community where people share ideas and share creativity.
+- New York taught me everything.
+- Stuff used to get me really crazy, touring stuff. I used to hide. I hid from everybody. Back in '87, when things were so hectic, I'd run away. There was so much pressure.
+- Take what you're good at and give to the cause that you care most about.
+- Being a straight white guy in his, like, early twenties - there's some sort of thing about it. A sort of privilege, a sort of anger or something. You just say some really stupid things.
+- Chasing after the past is not going to lead you to the future you want.
+- I don't use coconut enough - in food, on my body.
+- I got no business going to a club. I'm a terrible dancer. I got a bad back.
+- It takes a lot of guts to get on stage.
+- I know that when I get down or feel alone or depressed, I make music, and it makes me happy.
+- I feel like I have a big forehead.
+- I do like burgers, I do eat chicken - and I'm not proud of it, but I pick my nose. We all do.
+- Champagne Jerry records are definitely, in one way, on the very far end of the weird spectrum of rap music, then, in another way, very far on the weird punk spectrum.
+- Our talent and skill as rappers is clearly the first thing you notice. I don't know what we were thinking. We just really love rap and wanted to be rappers. Is that weird?
+- 'Alternative facts' is really one of the better things that's come out in a long time. 'Alternative facts?' It's brilliant! Really? Alternative facts? There are two different realities?
+- I'd like to be in an action movie.
+- I love being in the Beastie Boys.
+- We were from downtown, so we were rapping in Danceteria, in these white downtown clubs, really. Nobody downtown was rapping. Nobody we knew was rapping. So we were like, 'We should do it.' We weren't making fun of it; we loved it, and we wanted to be part of it.
+- A lot of Jewish kids do identify with us.
+- I want to open a restaurant.
+- I know Noah Baumbach from a long time ago. We were hanging out one night, and he asked if I wanted to be in his movie. If somebody whose stuff you really like says, 'Hey, you want to do it with me?,' you got to do it. I would like to say that I get these offers all the time, but I don't.
+- I head a Salt-n-Pepa song one time, where they named every rapper in New York. And they didn't name us!
+- As a band, we always took a really long time to make records, so unfortunately, we got into that habit of, like, 'We'll work on it tomorrow.'
+- I was not thinking about getting into acting in any way.
+- I don't know why we sold a lot of records or why so many people came to see us. Like 'Sabotage' - would you put that song on, like, 'I'm gonna listen to that right now?' It's a weird choice.
+- Boys, for the most part, are not very observant - or all that together smart, for that matter.
+- If I had to say something, it would be 'Lighten up. Be cool.' There's just so many buffoons out there.
+- I hated Led Zeppelin at school.
+- Of course, if you're gonna make a rap song, you're gonna want to sound like Melle Mel.
+- I reject Donald Trump's mission of America.
+- Since high school, I was in this band. And you know, it's one thing when you're in a band in high school, but then to have it last for so long - that's who I am and what I did forever.
+- Mike is the craziest person. He's scattered; he's all over the place. When you hold him down and tell him, 'This is what you're doing,' he's fantastic. But you have to hold him down. Like, when he had to write his verse for 'Hello Nasty,' we had to take his phone away to get him to do it.
+- There's songs you listen to at really heavy times, and you associate those songs with being depressed. 'English Rose' by The Jam, I can't listen to - it's just too heavy for me. 'Julia' by The Beatles, too. That popped up the other day, and I had to skip to the next song. They're both really awesome, moving songs, but I can't listen to them.
+- Nobody wants to see the old person at the club.
+- I don't really get a lot of stuff sent to me, but I do get things given to me in person. One of my favorites was from a kid in the mid-'90s. He gave us all a bunch of pants he made.
+- It's been fun to just play bass in a band and play live but be in the background.
+- I support women-run business.
+- I grew up - my dad, every time I was with my dad, he was always - not always, but he wrote. He's a writer. So he was always in his office writing. He made a plan and, like, a point of, 'This is my work. I'm going to do this every day for these amount of hours.' So I think that's where I got, like, a work sort of ethic.
+- I do dream. I mean, I must every night, right? But I only remember a couple a year.
+- Some of the stuff that I say on 'License to Ill,' I say some real dumb stuff.
+- I have no idea about the state of rap. I don't pay attention. I just listen to old music that I have.
+- My specialties include macaroni and cheese and ordering Chinese-food delivery.
+- I trust anybody's memory more than I trust mine.
+- I like Kanye West... he makes good music.
+- We've gotta stand up against hate. If you're able to give money, give to Black Lives Matter. If you're able to protest, protest. If you're able to volunteer, volunteer.
+- Me and my two best friends went to see the Ramones in 1979, and two weeks later, I was like, 'We're starting a band. That's it.'
+- I make a little music every day just because it's fun.
+- Listening to the radio makes you hate every song.
+- I would say think about the thing that makes you happiest, and do that. If it's drawing or dancing or listening to music or bowling, whatever it is that makes you happy, I would focus on that, and you'll definitely gain some confidence.
+- Our music is weird. It's not pop. I don't know why so many people buy our records.
+- Unfortunately, like, homework and school wasn't the thing that I was obsessing over. It was, you know, music and making music and how to like - and drum machines. And we met Rick Rubin, and Rick Rubin had a drum machine. So I would just cut school and go to his house - his dorm room.
+- If any fantastic filmmakers want to offer me roles, I'll consider it!
+- Rap is the only super-current music. If you're into reggae or dancehall, and you don't know Bob Marley, then you don't really know what you're listening to. But if you're listening to rap, and you're 15, you're like, 'Grandmaster Flash? Who's that? Public Enemy? Yeah, my dad told me about them once.' And that's just how it is.
+- Part of me feels it's better we're not in the Rock and Roll Hall of Fame.
+- All generations think the present moment is the greatest but also have this fascination with before their time. I do the same thing. I see old British movies. I'm like, 'Man, I would love to be in London at that time.' But then I wouldn't be able to watch 'The Walking Dead,' I wouldn't have cable, and my pizza options would be limited.
+- I wonder what it would have been like if I could actually sing.
+- When I was a little kid, I wanted to be an actor.
+- We did make fools of ourselves, but people were into it.
+- You think about when you're with your friend, and you hang out with your friend. And then you go do whatever you're doing, your life. You know, and then you see your friend again. But for us, we were friends that, we would be together, and then we would go to work, which was us still again, so we were always together.
+- 'Licensed to Ill' was like a cold, and we took so much vitamin C that we'd never get that cold again.
+- I can literally walk around at our own shows, and nobody recognizes me.
+- What I work hardest at is just trying to not let things get me crazy.
+- You'd think that my acting in 'Lost Angels' would have been the reason why I gave up on it. But yeah, I'm just not that good at it. Auditioning is super weird, and I'm bad at it.
+- 'The Squid and the Whale' was a really good movie.

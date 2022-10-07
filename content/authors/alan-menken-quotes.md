@@ -1,0 +1,81 @@
++++
+author = "Alan Menken"
+title = "Alan Menken Quotes"
+quotes_len = "75"
+description = "the best75 Alan Menken Quotes"
++++
+- I can't get into the underlying psyche of someone like Robin Williams, but he was at that level of fame where he was somewhat self-protective.
+- For a brief period, I had a gentleman's farm in Pennsylvania, but even then, I kept a place in New York.
+- Most things that I write are in very specific forms. A score will have a shape and profile, and then the more emotional and intimate moments will come.
+- Of my Disney material, 'Tangled' is my most pop-oriented.
+- Whether it's animated, whether it's live-action, whether it's Broadway, whether it's television, a musical is a musical is a musical. So, pretty much, you approach the songs in pretty much the same way.
+- My first success was 'Little Shop of Horrors,' and I had been working for years on jingles.
+- I have a team who I respect immensely, so if they have opinions, I'm interested in hearing them.
+- Movies, there are moments when you're writing a song or demoing, a moment in the recording studio. Musicals much more just eat up your life for a certain period of time.
+- Collaboration is all about rewriting and rewriting and rewriting and helping each other to constantly improve a piece. And, it's also about spurring each other on to doing really great, hard work - it's easier to do it in a collaboration than on your own.
+- I'm not intimidated by embracing a familiar form and what's familiar about it and making it my own. It is, I think, one of my gifts.
+- I've said, for a long time, my favorite part of my career is when I'm creating a new thing where I'm pulling from a new place.
+- I have lots of personal feelings of my own, but at this stage in my life and career, I'm very much driven by assignment.
+- Most successful musicals need to attach themselves to something bigger than themselves, a concept that will make people feel immediately connected to it.
+- A villain number is a very valuable thing to have, but if you look at most musicals, one way or another there's an antagonist number.
+- I have an awards cabinet in my studio where I keep my eight Oscars, my 11 Grammys, my seven Golden Globes, and my Tony Award.
+- Movies, you can insulate yourself more from audience, to a degree, and just look at box office. In theater, the audience is a very dynamic part of your process, and you feel much more exposed.
+- I was always a composer since I was a kid, but the BMI Workshop is where the networking really all stems from. So many writers and influences and ways of communicating all sprang out of the time I was a member of that workshop.
+- I was always proud of the score to 'Newsies.' The movie is good, but it was under-budgeted.
+- Part of the job is knowing how to use this medium in the most effective way for the story you're telling, so for me, to pick a genre I want to do is a little harder. I would say it's more about thinking, 'What genre will work for what kind of story?' And then, when all of that comes, I embrace it and run with it.
+- For a while now, I try to ignore the hoopla, because if you buy into that, you have to buy into the criticism. All you can do is put your work out there and move on; you just never know what will come.
+- The job, when you write film underscore, is to be ignored. That comes with the gig, no question about it.
+- I'm an architect. Before you start pouring the concrete, you build a foundation that is solid so that when you take the scaffolding down, it holds - forever. So that when junior high schools are doing 'Hunchback,' a 12-year-old as Frollo still works on some level.
+- Every time I play 'Part of Your World,' a whole part of my life comes back to me. It's just inescapable - it was an innocent time, and a sense of discovery that we were all involved with.
+- If you're writing for yourself as an artist, you are always pulling on your own experiences.
+- I have the ability to clear the decks and focus on what's happening in the moment. And I get to spend my life doing what I love to do.
+- Songs should have an infectious melody and rhythm.
+- When I write the music for any of my songs, I write as a composer-lyricist in my head.
+- My favorite thing is a brand-new project from scratch because you really never know how they're going to come to life. Going back for the third and fourth time to old ones is very gratifying, but it's not my favorite use of my creativity.
+- What I look for in a partner is a skill, a voice of their own so I have a strength to go up against. They definitely have to be able to get out of their own way. I can't take somebody being precious about their work.
+- Collaboration is being open to each other's ideas and benefiting from each other's perspectives in an open way.
+- I love 'The Gospel Truth,' the song that opened up 'Hercules.' I thought that song was a lot of fun, and I really enjoyed producing that and writing that.
+- The Disney tradition - number one, it's a great American classic tradition - and it's something where you don't want to go over certain lines. You want to poke fun, but you don't want to poke fun in a way that's hurtful.
+- I'm not interested in being the producer of somebody else's song.
+- Often my best work comes from somebody trying to stretch me in a direction that I wouldn't normally want to go in. It's not something I fight at all.
+- There's such a rich trove of unheard Howard Ashman lyrics that we're so blessed to draw from.
+- It's writing songs within the structure of telling a story, so it becomes a platform for diverse songwriting, for a writing process that's broader than just figuring out a song. You're also dealing with always pushing the story forward, with casting the voices, with the orchestration, with the arrangements.
+- A lot of what I've done has a rock edge, even going back to 'Little Shop of Horrors.'
+- I'm a very style-driven composer, and I like to give every project its own unique stamp.
+- Whatever I gain from writing lyrics, I feel I lose a little bit for the musical aspect by having that lyrical burden on me. But when I'm liberated from worrying about the words, frankly, I feel I'm a better composer.
+- There was a jingle house called Lucas/McFaul in New York, and they called me 'the demo king.' I almost never had the big final - in jingles, you have the big final, and then you sing on it, and you make a good deal of money.
+- The reality is that people need to be coaxed toward a musical. They need to understand why it's a musical.
+- I'm very proud of 'Will the Sun Ever Shine Again.' That was a song written very close to the 9/11 event.
+- As a kid, I loved classical music. Composers like Beethoven were like rock stars to me. Then there were the real rock stars: The Rolling Stones, The Beatles, and Bob Dylan.
+- When 'Newsies' first came out, it just crash-landed with a thud; it won a Razzie for worst song of the year, and I felt such embarrassment. Fast-forward, and it's a hit on Broadway, and I win a Tony for the score!
+- 'Snow White' was really hip for its time. Walt Disney was basically using Sigmund Romberg and operetta in the telling of the story, and through animation - that was revolutionary.
+- When I first started working at Disney animation, I can't tell you how many people said to me, 'Oh, man, take a powder.' Nobody takes animated musicals seriously. I swear.
+- Howard Ashman was an amazing lyricist and an amazing artist.
+- When I was younger, I'd get very invested in things. It's a hard lesson to learn, but you have to know that if you want to find gold, you've got to love the process of digging.
+- I see my songs and shows almost like a mosaic - part of a bigger picture.
+- I've been very fortunate as a composer to be involved with projects that have really propelled my scores forward. I'm very proud of it.
+- Truth be told, of course, what I enjoy most is reinventing myself and doing new projects where I work in new genres, or I get to find what the voice of a particular musical is.
+- There's plenty of examples of films where they're greenlit to move forward, and they want to get X actor. And they don't get X actor, so they go with Y, and it doesn't turn out to be as good of a movie as it should have been.
+- I always wanted to have a villain song for Hades in 'Hercules,' but I couldn't figure out how we would have Hades sing.
+- Music is a gestalt. Songs are a life force and they have specific vocabulary to them. You hear a few notes, and they take you into a world of association.
+- The things I tend to do best are the things that are the most overtly emotional, whether it's sentimental or whether it's celebratory or whether it's conflicted.
+- When Peter Schneider first approached me about adapting 'Sister Act' for the stage, it wasn't a slam dunk to say yes.
+- Composing easy? I find it easy if - big if - the idea is right, if I have the right collaborator, and if my collaborator is in the room. I like my collaborator to be in the room.
+- In animation, the directors are part of a huge team of animators who all have opinions, too. It's a much more democratic process. Also, the animation executives oversee things more.
+- Music can be witty, but it's not funny unless it's conceptually funny.
+- Most of my collaborations, certainly post - Howard Ashman but even with Howard, are music first.
+- I work in a dramatic context, meaning we write with a lot of character specifics, a lot of story specifics. There's a lot of architecture in our songs.
+- I think the thing that strikes you when you come back to 'The Little Mermaid' after all of these years is the simplicity and innocence. That's in the look of it, and that's in the sound of it.
+- A lot of the projects I've been involved with have been my babies, and I'm not going to give my baby to anyone else.
+- Any musical form that has been around long enough to have cultural resonance beyond just being a cutting edge kind of communication - but, especially, when it begins to reflect on a time and reflect on a culture - is effective in a musical.
+- The act of writing a song involves a degree of letting go of yourself, and that's very much being a child.
+- Songs should have an infectious melody and rhythm and, I think, should elicit an emotion of happiness or of celebration or of sadness or of sorrow or of love or laughter, whatever.
+- I'll always work with my collaborator in the room so I have a reaction on a note-by-note basis. I know in my gut when something works for me, and I'll fight for it, but I'm a very easy re-writer.
+- TV is a medium where I've been an outsider for the most part.
+- Live-action films are very much a director's medium, and that director is going to be a very strong voice, a stronger individual voice than you'd have in animation.
+- What brought me to Disney was the new regime, which is now the old regime - came over with Michael Eisner, Frank Wells, Jeffrey Katzenberg - and all these people really wanted to reinvigorate the animated musical, so they came to Howard Ashman and me. That was my entry into Disney.
+- You're creating a score that has to have an emotional and story logic to it. You want a dramatic arc. You want all the songs to push story forward. That's the same whether it's for stage or film or television or whatever.
+- My favorite experience, in general, probably was the 'Little Shop' experience, which probably was terrifying, frustrating, and exhilarating and amazing, but because it was the first, that was the one where I watched the show just launch itself for the first time and thought, 'Oh my God, I'm going to have a career.'
+- I've always juggled a lot of projects because at least half the projects you do get shelved. So you have to do a lot of things in order for things to move forward.
+- I always felt great about what I wrote for 'Newsies,' but 'Newsies' was a total flop.
+- I always wanted to be a composer, and I sort of went in to NYU as pre-med because I just thought, 'Well... who actually becomes a composer?'

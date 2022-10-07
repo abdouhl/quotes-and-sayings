@@ -1,0 +1,63 @@
++++
+author = "Aj Tracey"
+title = "Aj Tracey Quotes"
+quotes_len = "57"
+description = "the best57 Aj Tracey Quotes"
++++
+- I have to give credit to my mum for my music taste. She's white and Welsh but she listens to dancehall, reggae, Reggaeton.'
+- At the end of the day, the only way that I was able to thrive was by people giving me a chance, not being close-minded.
+- I'm half-white and half-black. No-one will ever say I'm white, but all the road men think because I'm mixed race that I can't be bad because I'm light skin. It's crazy.
+- People love to be U.K. music advocates but they don't wanna give other types of music a chance so it can be as popular as this one sound.
+- People need to realize that because black people have been established in the U.S. for a lot longer than in the U.K., the culture's a lot more embedded. We will get there with how comfortable they are with rap in the mainstream, but we're way behind them.
+- Yes, I'm having World Cup withdrawals; but no, this is sneaky of me to say, but I actually care about Tottenham more than I care about the England team.
+- If I had a label, everything would have been easier. But it wouldn't have been the same album, from the cover art to the songs on it.
+- As long as everyone around me is comfortable and we have a roof over our heads and we're eating, then it's fine and I can go off and do whatever I want.
+- I'm doing super quality control. I'll have five tunes that I think are all good - before I would've put out all five tunes but now I'm just putting out that one out of the five that I think is the banger.
+- Once upon a time Americans didn't want to listen to Canadian rap and now Drake's the biggest rapper in the world.
+- Some things you never really fully understand unless you are actually black and you experience how it feels when someone treats you differently based on your skin colour.
+- I feel like the type of music I'm making and who I am, people expect me to do well, but not be in the main spotlight.
+- Good on all the youths that are trying to do something different and do something positive.
+- I did the Labour thing because I wanted my community to be better off. I'm pretty sure people are aware of the kind of money I make. I'm not telling people to vote Labour to benefit me.
+- I'm not afraid to use my platform. I don't want to preach to people; I just want to put my opinions across about things I feel strongly about.
+- When it comes to politics, unless it's an issue that's really close to home and you feel strongly about, I just don't think you should really talk about it.
+- People ask me, how was university; I say it was boring and it wasn't for me. But if you wanna go, that's cool. I'm not out to lead people astray, but everyone has their vices.
+- The first thing I ever wanted to be was a lawyer, because I love arguing. But I'm very lazy. I'm intelligent, but I'm very lazy, so it seemed like a bit too much.
+- I wasn't super emo when I was younger but I'm very neurotic, my mood swings really heavily so when I'm upset I go away from everyone.
+- I never really do anything show-off-y, I keep it humble.
+- Parklife is one of the festivals I most look forward to. The crowds are wild; I love seeing that energy, those sweaty moshpits.
+- Honestly, I always think it's cool when artists name their first album after themselves. It's confident it just means like this is me, this is my project, here you go.
+- I've never been in love, ever. I feel like I would know if I'd been in love.
+- I used to send out emails to producers to collaborate and they'd give me nothing, not even a response. As soon as I started popping off, out they came!
+- I never felt like I was in the grime scene. I was the outsider. So when I veered away from it, I didn't feel like I was leaving the circle - I felt like I was never in it.
+- My dad used to be a rapper, he had a rap group. They did proper old school, boom-bap music. He had a high top and everything.
+- Everyone around me does music, so I just kind of knew. It wasn't some magical moment. There were loads of other things I wanted to do. I wanted to be a lawyer, for example, because I just love arguing, but it wasn't on the cards.
+- I thought, if a man has a girl's name and he's still scaring people, then maybe I should try doing it so I can be that guy.
+- But my mum told me it's not good to be jealous, just work hard and keep your head down. Wait your turn.
+- At school, when everyone would sell sweets and chocolate, I'd always take it that step further. I'd hustle as hard as I could to get the new Air Forces, to go and chill with the posh kids and the white girls who were around my area.
+- A lot of elders don't really like me in music because they just think I'm a little cheeky prick and I'm arrogant. I'm definitely cheeky, I'm definitely a prick and I'm definitely arrogant.
+- But everyone asks me who my dad is and I will never reveal it. It's too much ammunition for the internet.
+- Everyone asks me about why I care about anime and football so much, but that's because anything dark that happened in my life, those two things would make me feel better. I just used to sit in front of the TV and watch football and breathe a sigh of relief. You know what I mean? It's another world. An escape.
+- I don't want to go too deep, but football and 'Dragon Ball Z' were the two things that, when I was going through a hard time when I was younger, kind of gave me an escape.
+- I know as quickly as people come up you can go down and I'm just trying to enjoy it and experience things that I never got to have, that's all it is.
+- I have a personal relationship with Dizzee Rascal - I know him, he's cool - so this is no disrespect to him or any other British rappers who tried to make it in America, like Wiley and Tinie Tempah, but the type of music they were making to be accepted over there - it doesn't translate.
+- I like to draw from experiences in my past, but that alone is quite hard and complicated, because I don't want to say anything incriminating or too offensive, but I want to give people an insight into my life and how it was.
+- But for me it's loads of pressure. Like, my mum is a strong independent woman, but obviously she relies on me a little bit. My little brother has his own job but he relies on me.
+- When I put my first project out ages ago, I didn't want to show anyone my emotions. Now I think it's better for people to understand how I am as a person and let them relate.
+- I like wearing the things from Japan, because they usually get a different collection than we do.
+- It's a bit cheeky as a rapper to make a singing album.
+- As a kid, I loved Air Force Ones - but they were so expensive. I always had to save up for ages to get them. Now I can call the Nike guy and be like 'can you send me ten pairs?' and they'll be here the same day.
+- I'm a very vengeful person - if someone didn't wanna get on board with me and I'm doing it well I'm gonna rub it in their face.
+- When I was in secondary school, I cared about nothing but music.
+- I don't love collabs just for the sake of collaborating. It has to be purposeful and it needs to sonically make sense.
+- I want to showcase my talent, I'm not just a grime MC, I'm an artist.
+- Big labels can buy you radio play, they can buy you social media likes and YouTube views. I don't have any of that, but I'm still getting a Top 3 album and Top 20 singles.
+- A lot of my fans want easily digestible music, which I'm not really prepared to give anyone, ever. That's just trash. That's boring.
+- You can't dwell on disappointment. You've got to take the positives and keep looking ahead.
+- I love Ladbroke Grove, but everyone knows where I live.
+- For me, being independent is about being able to express myself exactly how I want to, instead of maximising profits.
+- Even if it's a song I know isn't gonna do that well, I'm dropping it as a piece of art, so I always want sick visuals to go with it.
+- I play 'Fortnite', I play 'FIFA', I'm trying to get into 'NBA' a little bit.
+- But just because I hate the Conservatives doesn't mean I'm gonna tell people to vote for the party I want. Inform yourself on what the parties stand for and make your own decision.
+- I'm the least animated person I know. Even on stage, I just walk across it.
+- American artists, Americans in general, don't take the U.K. rap scene too seriously, yeah, but thing is though, they wasn't taking Canadian artists that seriously either. And now we have Bieber, The Weeknd, Tory Lanez, Drake - massive, massive Canadian artists.
+- In America, they don't need to look outside their country for anything, so they definitely don't need to look elsewhere for rappers with weird accents that they have to get accustomed to, which is like homework to them.

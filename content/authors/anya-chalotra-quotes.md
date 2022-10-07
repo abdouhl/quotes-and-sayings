@@ -1,0 +1,23 @@
++++
+author = "Anya Chalotra"
+title = "Anya Chalotra Quotes"
+quotes_len = "17"
+description = "the best17 Anya Chalotra Quotes"
++++
+- For me, it's about honest interactions with people, always being honest with myself. That's my biggest power.
+- I didn't know anything about 'The Witcher' novels or the games, before I auditioned.
+- I haven't read all of The Witcher novels. And that's only because I am very thorough. I read every detail and often have to go back to the page before and read it again, and I ask questions as I go along, since I am that character.
+- I've never watched 'Game Of Thrones', but I obviously know how huge it is and how the fans responded to it, and I only hope for similar success with 'The Witcher' because wow - that would be amazing.
+- Eight months with a cast and crew is a long time.
+- I'm in control of my social media, I can shut it off when I want to and when it gets to in my head, and I can interact with the fans when I want to, too.
+- Obviously, being an actor I am very self-critical and I will always want to serve the fans, but I've always tried to focus on the positive, and more importantly, on the story.
+- It's so hard to put your journey apart from the story line, when you've lived through it yourself or know what's a spoiler and what's not, especially when I wasn't a fan of 'The Witcher' before I started filming.
+- I can only do my job and do the best I can as an actor.
+- A fantasy is a world where anyone fits in.
+- For everyone else who aren't fantasy fans or who don't know anything about 'The Witcher', this is something that we can experience together because it's drawn from the novels, but there is so much within the novels that we have developed.
+- I care about fans more than they think.
+- I went from a very structured life in Oxford going to school every day to suddenly a week later I was living in Budapest for eight months. It's a big change so I feel I've changed so much from that experience as a person.
+- I feel stronger and I feel like I've gained so much knowledge and new perspectives because I've met so many different people.
+- I wasn't a huge fan of the fantasy genre. I love 'Harry Potter'.
+- And whatever job I am doing at the time, I try to remain focused on that role.
+- And living in Budapest for eight months was incredible.

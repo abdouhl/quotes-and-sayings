@@ -1,0 +1,45 @@
++++
+author = "Alison Mosshart"
+title = "Alison Mosshart Quotes"
+quotes_len = "39"
+description = "the best39 Alison Mosshart Quotes"
++++
+- I get along great with my family. My parents are really proud of me and my brother, who's a chef here in New York. I don't see my parents often, but they're very supportive, especially as I get older.
+- I can't talk on the radio at all. When the red light comes on, my hands go up in the air: I think they're trying to get to my face, to shut me up. I don't talk on stage for the same reason.
+- Over the years, my art box has gotten bigger and bigger.
+- It's fun and super exciting to see how other people work, how other people write music, and how other people put things together. To me, it's an endless learning process, and I love doing it because everybody works so completely differently.
+- People can be quite cynical. 'The Kills are too cool.' There's been an on-and-off relationship with the music press that loves us and then hates us then loves us again. I don't think any kind of press is reliable.
+- I hate sunshine so much. I can only cope with it when it's bitterly, bitterly cold.
+- I don't own a pair of sweatpants.
+- Every time I do a project, it always comes with a level of discomfort and not knowing how to do it.
+- I have so many ideas while I'm driving.
+- In the studio, you can always stop, rewind and do it again, but on stage, you can never do that - it's a different energy. It separates good bands from bad bands, being able to play, perform and really capture an audience. I think that's the hardest part.
+- Touring can be repetitive at times.
+- I've spent my whole life in airports. I don't come home but every two and a half months, which is pretty crazy.
+- I love being on stage more than anything, and I think that's what comes across. I think the most honest representation of any music is to play it right there in front of people. It's a moment - it's all one of a kind, every little part of it. There's no repeat.
+- When you're recording in the midst of touring, you get a different sense about you. Things are more rocking, darker, heavier and louder. You're thinking about the audience that you're seeing every night.
+- I'm not saying I'll never go solo - never is a long time - but I've always been onstage with someone else. That way, you're in it together, and you can feel, together, when the songs are right.
+- I love Tokyo, I've been several times. The first trip was just weird; it was a weird time. It was in the '90s, and it was different then.
+- I'm inspired by being in a different town every day - all the people I meet, all the things I see. There's no way of compartmentalizing everything in my head; whatever I'm taking in is coming out in some way. I think I love painting so much because, for me, it's so fast. There's not too much thought in these paintings.
+- I had a bunch of paintings around at my house, and someone said to me, 'Why don't you just put them on Instagram? Why don't you show people these?' And I didn't want to - it was just something else I would have to do. But eventually, I was like, 'What's the harm?' And the response was so insane!
+- All of my art is suitcase-sized. I always paint in mediums that dry pretty quickly because I've got to throw them in my suitcase and go. And I have so much because of that, because it's what I've always done to pass the time, and I like it.
+- Lollapalooza, that was one of my worst shows. We just played at, like, 3 in the afternoon; it was like the hottest, most miserable thing. My shoes were melting. I just thought I was going to die. It was the most horrible experience. I lasted, what, four songs? In front of quite a lot of people. That was one of my least favorites.
+- You want to put out a record that you feel is exactly as you want it. Nobody wants to tour for two years on a record they don't like.
+- Everybody wants you to do this thing that you've always been doing forever. That's what they want: they want Martin Scorsese to make the same film two hundred times rather than trying to be something different.
+- When I was really young, my mum used to make my clothes - I hated that. I liked the way boys dressed - I still do. I wanted to wear what they wore.
+- If I'm at a party, and there are lots of people running around, you'll most likely find me on the floor, painting... I want to be at the party, but I want to do something. I'm just not very idle at all.
+- If I acted like I did onstage in normal life, everyone would probably hate me.
+- When you do music, your friends are writers, actors, painters. It's all under the same roof. So anything creative is interesting to me.
+- I think we choose gear by the way that it looks. We choose lots of things by the way that it looks. I don't like bands that look like roadies. I don't like when I can't tell who's the guitar tech and who's the guitar player.
+- You have a physical human reaction to something that another human being made. When you remove the human from it, and you chop it up, make it all perfect, you have a different reaction. Something is not there. You can feel it when it's there.
+- I used to go to a lot of Pam Hogg shows. The thing about London Fashion Week is that, generally, we're on tour and traveling around, so it's very rare that I actually catch it. I like to go to Burberry because I know a few girls who work there. I kind of follow friends.
+- I actually got into music because of art and because of skateboarding: All those graphics and punk bands and fanzines - they were glued together in my brain.
+- Being on the road, I think, is the most organised part of my life. You know where you have to be every day; you know what your job is every day. I crave that tiny bit of stability, which anyone else would think is the most unstable way of living, ever.
+- Every day, it's a different country, different time zone. If you asked me where home was, I've never felt like I've had that. My idea of comfort is to leave a place. Two weeks is sort of my max.
+- The crazy colors tend to wash out so quick. Basically, it ensures that you never wash your hair, so it starts to do some cool stuff.
+- Painting is almost like a sport. It's like this action thing. When I do it, I'm really not thinking. The paintings are like a diary that I might not want to read again.
+- I just sang at first - I didn't ever play guitar before The Kills.
+- Record covers still inspire me in terms of clothes, some bands just look sharp. But I still wear stuff I owned when I was 16.
+- I love touring. I can't wait. Everything is just normal when you're finally on tour. I think, for me, it's my happiest thing; I love moving around, and I have friends and family all over the place. It's kind of my time. It's almost like home. It's when I get to see everybody.
+- I write music visually.
+- I do always want to be creating something; I can't help it. I don't know why that is, but I'm certainly not gonna knock it now, at the age of 36. It seems to be working.

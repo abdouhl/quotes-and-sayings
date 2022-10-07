@@ -1,0 +1,86 @@
++++
+author = "Anderson Silva"
+title = "Anderson Silva Quotes"
+quotes_len = "80"
+description = "the best80 Anderson Silva Quotes"
++++
+- People that want to talk can talk. Even a parrot talks. People are always going to have their thoughts on what they're going to say.
+- Unfortunately, the reporters ask the same questions over and over again. When reporters keep asking the same questions, they've got to recognize I may hear these questions 20 to 30 times in a matter of days. It gets to the point where I think, 'Read the other interviews!'
+- I go inside the Octagon for fight. I don't joke, because it's danger.
+- I would train with a gay man. As long as he respected me, it's all right. I don't think much of it. The fact that a guy is gay doesn't mean he's going to accost you. He can be gay, have a relationship, live among guys who aren't gay. He can do whatever he wants with his private life.
+- I'm a big fan, and I like the idea of fighting Roy Jones Jr.
+- I come to fight because I love to fight. It's my life.
+- I respect Conor McGregor a lot because this man changed everything in the UFC.
+- Even when I was winning my fights, once it's over, it's over. It's in the past, and you've got to look forward.
+- I trained together with Jacare for a long time.
+- I think I've been through all the phases of the sport. I won, I lost, I got injured. Now I get to do what I love, with my truth, without worrying about what people will say or things like that.
+- My losses and my victories are in the past. I think of the future. After a fight is over, it's in the past. I always have to go back to the gym and train to improve in all areas, winning or losing. I think I can always do better next time.
+- This is the UFC. UFC has the best fighters in the world. That's it.
+- Being a black belt from the Nogueira brothers, I have the obligation to always defend myself well on the ground.
+- I feel better training in Brazil.
+- It's not my character to up and challenge anyone.
+- Definitely I feel my kids played a big role in why I was so successful in fighting.
+- I proved for a long time how much I've given of my heart and of my time to the UFC.
+- I love the sport. I love fighting. Fighting is my life.
+- Sonnen doesn't know martial arts. He's a wrestler; he doesn't know how to respect people. Some say he's promoting the fight, but he disrespected my country, my family and fans.
+- The fact is that everything I've done, no one else could do. I don't want to be cocky or arrogant or think I'm the best, but what I've tried to do all those years was to show I was different from the others. And that's not my opinion, but everyone's.
+- Basically, sometimes a reporter will ask a question, and I feel the answers only matter when the questions are relevant.
+- The fight's the fight.
+- A lot of people thought I was gay.
+- From the moment that a fight ends, that fight is in the past, win or lose.
+- Roy Jones and Muhammad Ali are the inspiration for my style of fighting.
+- Having kids and a relationship at such an early age definitely built up my hunger and perseverance to succeed.
+- Nowadays, it's so silly to not express your feelings, as long as you respect peoples' spaces and respect their limits. You have to live your life in peace, and no one has anything to do with that.
+- In my opinion, B. J. Penn is No. 1.
+- I win for long time. I'm champion for long time - for years.
+- I would love to fight my clone.
+- I love to fight. I love the preparation. I love to learn new things, always overcoming myself.
+- McGregor is a great fighter, and he is doing his job very well. He is very intelligent; he knows exactly what he is doing.
+- I was really disappointed with the lack of respect from the UFC towards Brazilian athletes.
+- Roy Jones is different. I like the style and the movement.
+- Life is about how much you can take and keep fighting, how much you can suffer and keep moving forward.
+- Not only in the Octagon, but also in life, sometimes I have to take two steps back to take one step forward.
+- Where I grew up, most people were policemen. So naturally, I also wanted to be a policeman.
+- I take good care of my things. I put everything in a bag. I use soap. I put on a cream after training. People think it's capricious. To each his own. Doesn't mean you're more man or less man, more gay or less gay.
+- The only problem with Pride was guys would try to slip through the ropes to escape. But other than that, I love Pride rules.
+- I no fight for the money because I work hard for UFC for long time. I have money for my family. But I fight because I love it.
+- Georges St-Pierre is a good fighter who is proving his place in MMA with every fight.
+- Maybe one day when I'm retired, I can turn around and tell you, 'Hey, I was really good at that. Maybe I was the best.'
+- I love being in the gym and everything involved in it.
+- He's one of the best fighters in the UFC. I never thought I'd face Nick Diaz. I've watched all his fights.
+- There's no such thing as holding back. I want to finish as soon as possible. The only time I did it was because he was a friend of mine. It was against Thales Leites. We went until the last round because he's a friend of mine, and I respect him.
+- I respect all the fighters. I respect Jon Jones. I respect Chris Weidman, but I'm here for working.
+- My teaching is my legacy.
+- I respect Conor McGregor's style.
+- I love my job. I go to fight because this is me.
+- You can't give up on your dreams.
+- I'm not scared of Jon Jones or Chris Weidman or whoever. I'm here to fight. That's it. It's simple.
+- I respect all the fighters. I respect Georges St-Pierre because Georges has a great story in the UFC. I respect all the fighters in here because this is the biggest sport in the world.
+- God bless Neymar because this boy has changed the lives of kids in Brazil. A lot of children watch him, believe they can be the next Neymar. Sometimes, you have a great opportunity to change and impact the lives of kids.
+- When I started training martial arts, I learned about respect.
+- Sometimes people think I'm gay. A lot of people have asked me if I'm gay. I answer, 'Look, not to my knowledge. But I'm still young, it could be that in the future, I'll find out that I'm gay.'
+- I respect my fans.
+- I'm always training to fight the best fighters in the world, and if the UFC wants me to fight Georges St-Pierre, then I will fight him.
+- I don't feel that I have to prove anything to anyone as far as what I've done in fighting.
+- Past waters don't move anything. They only create mosquitoes.
+- The thing I always demand is respect. I respect everybody and have a history in the sport, and I believe people need to respect me.
+- I like to play soccer and paintball. I love paintball.
+- His boxing style is one that I would like to test myself against. I've always been a fan of his, and I've always wanted to test myself against Roy Jones.
+- I don't have a problem putting on or cutting weight. I would adapt my training if I'm training for a Light Heavyweight fight by using different techniques and by wearing a weight vest to get used to the extra fighting weight.
+- I will be a complete man, a complete athlete, with a fight with Roy Jones Jr.
+- I always have to be me.
+- I'm an athlete who took the sport to another level. I don't get or ever got the respect from people.
+- Fighting, for me, is like skydiving without the parachute.
+- The moment when I broke my leg, when I realized my leg was broken, I thought my career was over.
+- What motivates me is to be able to do what I love to do, which is to fight.
+- I don't think there is rivalry between the teams in Brazil. We each do our jobs, and we each have our part in MMA.
+- I'm a natural born fighter, so this is what I do, and it's normal. It's natural. It's what I've always done as a martial artist, and as a martial artist, it's what I always wanted to do - test myself and always fighting. It's what I'm meant to do.
+- Brazil's got everything to be a great country for Brazilians and for immigrants.
+- I enjoy fighting, but my family says, 'Stop, no.'
+- I think everyone deserves their place in this sport, and Bisping has been around, and he's fought hard and deserves to be the champion.
+- In my camp, we have Minotoro Noguiera and Lyoto Machida.
+- I give my heart for this sport. I give my leg for this sport. I give my time for my family for this sport.
+- For a long time, I have waited for the opportunity to fight Mr. Roy Jones. This is my personal goal and dream.
+- There are many great fighters in the UFC; some of my favorites are Rodrigo Nogueira, Lyoto Machida, and B. J. Penn, but aside from these guys, the UFC has many great fighters in every division.
+- I'm over this thing of being champion, having the title.
+- Nick Diaz is a guy who walks forward, has great boxing skills.

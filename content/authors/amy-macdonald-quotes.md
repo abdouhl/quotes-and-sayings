@@ -1,0 +1,72 @@
++++
+author = "Amy Macdonald"
+title = "Amy Macdonald Quotes"
+quotes_len = "66"
+description = "the best66 Amy Macdonald Quotes"
++++
+- I just go out and sing my songs. I don't put on elaborate stage shows with ridiculous fancy dress.
+- When I wrote the first album I had never played live before, and I'd never been on tour. So that was really just me and my guitar.
+- A lot of people in the music business are a bit doom and gloom, People say it's probably easier to write sad songs than it is to write happy ones, so that's maybe why. I just wanted to be a bit positive about things rather than always being negative.
+- My aim is always catchy songs, or songs with meaning and I want to write music people can relate to, about things anyone could go through, just real, honest music... songs that mean something, songs that are inspired by true life events.
+- We watch a load of films on the tour bus. We all watched Michael Jackson's 'This Is It', which was really amazing and it is a shame we will never get to see him perform live again.
+- I'm confident when I perform but going into a horrible, boring studio and playing the same thing over and over again is really different to being on stage!
+- I'm inspired by everything that goes on around me; my friends; my family; my own feelings; or even things that are happening in the world.
+- I loved Jake Gyllenhaal. He's the most beautiful thing ever.
+- If you are anxious, if you doubt yourself, if you stress over everything, it ultimately means you really care about what you do.
+- If I'm out shopping, in Topshop or wherever, I'm never spotted. In fact, I'm usually asked if I have a student card. No-one seems to notice me, they're oblivious to who I am even in Scotland, and I'm very happy to be able to blend in with the crowd.
+- I arrived in London and I was terrified. I never wanted to be a celebrity - one minute I was in school and the next I was in London talking to people at a record company. If anything, I didn't feel in any way worthy.
+- My dad documented my whole life on video and there are so many recordings of my sister and I dancing and singing along to Michael Jackson's music.
+- If I've done a gig and at the end there are people waiting for autographs, they always seem nervous, but they probably don't realise that I'm more nervous than them. I get very embarrassed.
+- I remember my mum playing 'Dancing In The Dark' and I thought it was cool.
+- I've played in practically every city in Scotland, and loads of towns as well. I just feel very grateful that I'm able to do that.
+- I could tell when I first started having sessions with stylists that my size was an issue. No one outright told me to lose weight but I knew it was a problem. I started to lose weight when I began touring.
+- Since I was 18 I was in the record industry doing my own thing, and I had to be that strong person.
+- With my first three albums I did everything on my own. It was what I was used to and where I felt comfortable. I would write the lyrics and music and hide the songs from everyone until I felt confident enough for anyone to hear them.
+- I write simple songs, and people like that. They're mature enough to appeal to people who aren't teenage girls. Most of my fans are older, and it's nice to think the songs can appeal to middle-aged men and women.
+- We have this obsession with celebrity, where people can go on shows and makes millions of pounds from being completely talentless - Jade Goody, all that type of people - and it really gets to me. I'm not interested, I'm a musician. It's not about being famous and being a celeb.
+- It's hard for me to always explain my songs, and people always expect a meaning and to know what it's about. Sometimes when I write these songs I'm feeling a particular emotion, so to then come back and explain what I was feeling or put it into words is quite difficult.
+- I've seen other people getting into trouble for glamorising breaking the law.
+- To me, the term 'best of' is quite embarrassing, I think of Madonna and Bruce Springsteen and all these amazing artists. I don't really see myself in that kind of gang, unfortunately.
+- I support Rangers and every time an Old Firm match comes up people will talk about it and look forward to it.
+- My sister and I both used to wear matching clothes and now my mum, sister and I have the same bag which we all use even when together. Which probably doesn't look that cool.
+- It's one of these baffling things about the world we live in that there is still homelessness, and it's good that there are charities like Social Bite that go all out to help and make a difference.
+- I was asked if I'd audition for a part in a Broadway musical because the director just loved me.
+- One of the problems trying to play an instrument outside in the cold is your fingers give up on you and you can't wear gloves, even fingerless.
+- I'm always being told I've got an old head on young shoulders, which is probably due to the way my mum and dad brought me up.
+- I wouldn't have wasted a lot of time pursuing music. I was very lucky that my first demos got accepted.
+- I think I must be one of the only people who hasn't done the whole let's-crack-America thing.
+- I didn't have many celebrity crushes, it was mainly Rangers players! I had a thing for Giovanni Van Bronckhorst. Looking back, I really don't know why! Great player though!
+- I have been offered so many parts in movies and I just think it's so outrageous as I've never really done acting or things like that.
+- I don't have the songwriter's obligatory sob story. My sister and I both had a very happy, normal childhood and we've turned into sensible adults.
+- You just have to have a song that you're desperate to play along to, and for me it was 'Turn' by the Scottish band Travis. I went to see them headline the Scottish T in the Park Festival, so after that festival, I went home and taught myself all of the Travis back catalog with an old guitar and a little chord book.
+- I've always been able to lead quite a normal life. It is a little crazy that I can travel all over Europe and play these massive shows but still come home to a relatively quiet life.
+- No, I'm never confident with what I do, particularly playing and singing!
+- But I absolutely love New York. Every time I go there, I still get excited. When you come over the bridge and you're coming towards Manhattan, I still get goose bumps every time.
+- If you put lots of auto-tune on your voice on the album, people are going to be disappointed when they come to see you live. The imperfections make it better, more natural.
+- My band and I sometimes can't believe where we are in the world and what we're doing. But I'm very privileged to be in this position.
+- I prefer playing with a band. It's good to do both, but for me it's quite exciting when I hear my songs completely transformed with the band behind me. You can really get into it more, and so can the audience.
+- I have always been a fan of the Guillemots. Fyfe Dangerfield, the lead singer, has recently produced a debut solo album called 'Fly Yellow Moon'; he has the most amazing voice ever.
+- I'd never jump on a bandwagon; sometimes people do that and it's not what I wanted to do.
+- I've been on loads of promotional trips in so many other countries, and most of the time, you just want to go home.
+- When I was 11 I went to New York with my mum, dad and sister. I felt like I was on a movie set the whole time and loved being over there on Independence Day.
+- I have always said that it is completely about the music, and I have never been interested in anything else. I think I've been able to maintain that. I'm a totally normal person, I don't get followed or have photographers waiting outside my door. So yes I have a very ordinary life.
+- On my first album some of the songs were written when I was 14 or 15 so your life experience means you change, but my style is similar.
+- I think it's important to be in control of my own destiny; to a lot of people I'm just a product, so I feel it's up to me to take a keen interest in what's going on around me. After all, it's my life.
+- There are some amazing women's football teams out there and it is good that they are being recognised. I was always terrible at football, so I am a little bit envious of their amazing skills.
+- Singing Flower of Scotland was the only thing that made me nervous.I don't get nervous doing my own shows.
+- As a very patriotic and passionate Scot, singing the anthem at a big football match means the world to me and I'm so lucky and so honoured that I get asked to do this.
+- I wanted music to be a career. To base everything on fame to me seemed a dangerous thing - I wanted my foundations to be about improving as a performer and writer. No one could push me into going down that route of being a celebrity singer.
+- I love 'Top Gear'. It's my favorite show.
+- I've always bought CDs and even when I was young and at primary school I had a massive collection of CDs. I just like the excitement of opening it, reading the book, learning all the words and things like that. Hopefully I'll always be like that.
+- I love going out and touring, and maybe people understand that it's not about making a quick buck. Maybe that translates.
+- My boyfriend has always been a collector of art. He once rang up Paul Kenton and asked him to paint a New York skyline for me. He did, and it is the first painting that has ever been painted just for me.
+- I had planned on taking things easy for a while in 2014 but things started to crop up and I ended up having quite a busy year, with events including the opening ceremony of the Commonwealth Games with Rod Stewart.
+- I've always been a fan of Bruce Springsteen.
+- I hate getting my photograph taken; just because I'm a musician doesn't mean I should have to sell my soul and have pictures of myself on stage with a red face and sweaty armpits plastered over 'Heat!' every week. I'm not a model.
+- I come from Glasgow and being from Glasgow everyone knows about Celtic and Rangers. It is a big part of most people's lives.
+- My favourite football memory is the opening match of France '98, and unfortunately Scotland had drawn Brazil.
+- I have a lot of fans in places like Germany, Switzerland and Austria, and I spend a lot of time there.
+- I've never been told to do anything. I've never been hurried along by anybody - the kind of so-called 'pressure' of record labels doesn't really exist in my case.
+- Hearing the statistic that one in four children in Scotland suffer from poverty just made me think that if there is even a tiny thing I could do that would help then it was totally worthwhile.
+- I'm someone that maybe people who don't know a lot about me actually know more of my songs than they think they do.
+- I'm quite well-rehearsed in having mental days; being awake at the crack of dawn and still having to be awake late at night.

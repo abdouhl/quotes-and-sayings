@@ -1,0 +1,19 @@
++++
+author = "Akio Toyoda"
+title = "Akio Toyoda Quotes"
+quotes_len = "13"
+description = "the best13 Akio Toyoda Quotes"
++++
+- People look at me and think I am an expert in the automobile industry, and I'm not.
+- For much of Toyota's history, we have ensured the quality and reliability of our vehicles by placing a device called an andon cord on every production line - and empowering any team member to halt production if there's an assembly problem. Only when the problem is resolved does the line begin to move again.
+- It is in Toyota's DNA that mistakes made once will not be repeated.
+- After I joined Toyota, there was a period when I drove more than 200 cars in one year - different types, other companies' cars. I want to be able to tell what distinguishes one car from the next.
+- Everyone says Toyota is the best company in the world, but the customer doesn't care about the world. They care if we are the best in town, or not. That's what I want to be.
+- The hundreds of thousands of men and women at Toyota operations worldwide - including the 172,000 team members and dealers in North America - are among the best in the auto industry.
+- I ride many different cars. Let's say I would drive 200 different vehicles in a year, so it's rather difficult to say which car or what car I ride. I love cars.
+- I am at the top of Toyota and drive cars myself. I was also born with this name.
+- Trouble results when the speed of growth exceeds the speed of nurturing human resources. To use the analogy of growth rings in a tree, when unusually rapid growth caused the rings to grow abnormally thick, the tree trunk weakens and is easily broken.
+- When consumers purchase a Toyota, they are not simply purchasing a car, truck or van. They are placing their trust in our company.
+- I myself, as well as Toyota, am not perfect. I, more than anyone, wish for our customers' cars to be safe.
+- With respect to sticking accelerator pedals, we failed to connect the dots between problems in Europe and problems in the United States because the European situation related primarily to right-hand-drive vehicles. Toyota will increase its outreach to government agencies charged with protecting the safety of motorists and passengers.
+- I respect my father as a father, but I also respect him as an honorable chairman.

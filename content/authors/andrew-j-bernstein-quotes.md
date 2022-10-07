@@ -1,0 +1,34 @@
++++
+author = "Andrew J. Bernstein"
+title = "Andrew J. Bernstein Quotes"
+quotes_len = "28"
+description = "the best28 Andrew J. Bernstein Quotes"
++++
+- The more you worry, the more you throw off the delicate balance of hormones required for health.
+- To believe that your husband, wife, parents, kids, boss, job, bank account, or body is even partly responsible for your emotions, to think that there are bullets 'out there' that you have to contend with, that there are stressful life events to overcome, is to miss something vital.
+- It's time we learned the truth about stress. It's time we identified the thoughts that actually create our stress and learned to dismantle them one by one.
+- Stress is never a given. There are people who get divorced amicably. There are people who pack up and move with no emotional toll. There is no stressor 'out there' in the world. We experience stress - or we don't - depending on what we believe.
+- Negative thoughts stick around because we believe them, not because we want them or choose them.
+- People often say that stress is a motivator. What we're referring to when we say this is really better described as stimulation and engagement.
+- Stress is a byproduct of subconscious beliefs you have about the world. You can't choose not to believe something. You believe it because you think it's true. To eliminate stress, you must learn to challenge these beliefs so that you see them differently.
+- Find the beliefs that are strangling your feelings, challenge them for your sake as well as theirs, and see how it feels to love someone without a thought about the future, simply for who they are today.
+- The reason humans experience so much more stress than other species isn't just because we think more, but also because we think differently.
+- We need to distinguish between stress and stimulation. Having deadlines, setting goals, and pushing yourself to perform at capacity are stimulating. Stress is when you're anxious, upset, or frustrated, which dramatically reduce your ability to perform.
+- You can't tell yourself that your stress is produced in your head and feel better. You still need to learn how to create a change.
+- What's taking place during stress is actually much simpler than a transaction between stressful life events and you. There aren't two parties involved in stress. There is only one - your own mind.
+- We all enjoy pushing ourselves to accomplish our objectives. But we don't need stress to get there.
+- Stress is the negative whirlwind of emotions that gets imposed on top of our stimulation and engagement.
+- During the financial crisis, I worked with hundreds of executives who struggled as a result of their thoughts about job security. When their beliefs changed, so did their emotional experience - and they were then able to focus on the task at hand more effectively.
+- Look closer at the stress in your own life and you can identify that negative emotions are always built on counterfactual statements.
+- If you're successful and stressed out, you're succeeding in spite of your stress, not because of it.
+- Stress is not the spice of life any more than arsenic is. And without it, you won't feel bored.
+- When a friend is sick, I see the situation for what it is, not what it isn't, and I offer to help as much as she wants, not as much as I want.
+- The less you think counterfactually, the less you experience stress. Stress, in this light, isn't a bad thing. It's simply a warning system telling you that your mind has lost touch with what's real.
+- People around the world now complain about stressors everyday, and the word shows up throughout professional and lay literature. But in reality there is no such thing as a stressor. Why not? Because nothing has the inherent power to provoke stress.
+- The number of stressors has multiplied exponentially: traffic, money, success, work/life balance, the economy, the environment, parenting, family conflict, relationships, disease. As the nature of human life has become far more complicated, our ancient stress response hasn't been able to keep up.
+- Some people are so used to experiencing stress that they don't remember what life was like without it.
+- Worrisome thoughts and their resulting feelings are a form of self strangulation. They not only strangle your emotions. They affect your physical life as well, and your ability to focus and get things done.
+- Remember that stress doesn't come from what's going on in your life. It comes from your thoughts about what's going on in your life.
+- The elusive truth is that there is nothing stress-producing in the physical world. Things simply are. Molecules move. Light and sound appear.
+- The truth is that stress doesn't come from your boss, your kids, your spouse, traffic jams, health challenges, or other circumstances. It comes from your thoughts about these circumstances.
+- You might think that shifting your thoughts is as easy as setting your mind to it. But stressful thoughts aren't held in place through choice or will power. They're held in place through perceived truth value.

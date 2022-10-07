@@ -1,0 +1,78 @@
++++
+author = "Alison Gopnik"
+title = "Alison Gopnik Quotes"
+quotes_len = "72"
+description = "the best72 Alison Gopnik Quotes"
++++
+- Young children seem to be learning who to share this toy with and figure out how it works, while adolescents seem to be exploring some very deep and profound questions: 'How should this society work? How should relationships among people work?' The exploration is: 'Who am I, what am I doing?'
+- Knowing what to expect from a teacher is a really good thing, of course: It lets you get the right answers more quickly than you would otherwise.
+- Like most parents, I think, my children have been the source of some of my most intense joys and despairs, my deepest moral dilemmas and greatest moral achievements.
+- From an evolutionary perspective children are, literally, designed to learn. Childhood is a special period of protected immaturity. It gives the young breathing time to master the things they will need to know in order to survive as adults.
+- What we want in students is creativity and a willingness to fail. I always say to students, 'If you've never at some point stayed up all night talking to your new boyfriend about the meaning of life instead of preparing for the test, then you're not really an intellectual.'
+- Becoming an adult means leaving the world of your parents and starting to make your way toward the future that you will share with your peers.
+- On the Web we all become small-town visitors lost in the big city.
+- As adults, when we attend to something in the world we are vividly conscious of that particular thing, and we shut out the surrounding world. The classic metaphor is that attention is like a spotlight, illuminating one part of the world and leaving the rest in darkness.
+- The youngest children have a great capacity for empathy and altruism. There's a recent study that shows even 14-month-olds will climb across a bunch of cushions and go across a room to give you a pen if you drop one.
+- I'm the oldest of six children and I had my own first baby when I was 23. So I've always been interested in babies, and I had lots of opportunities to watch them.
+- Imaginary friends are one of the weirder forms of pretend play in childhood. But the research shows that imaginary friends actually help children understand the other people around them and imagine all the many ways that people could be.
+- Being a developmental psychologist didn't make me any better at dealing with my own children, no. I muddled through, and, believe me, fretted and worried with the best of them.
+- One of the most distinctive evolutionary features of human beings is our unusually long, protected childhood.
+- One of the things I say is from an evolutionary point of view: probably the ideal rich environment for a baby includes more mud, livestock, and relatives than most of us could tolerate nowadays.
+- I think universities are trying to figure out how we could use what we know about learning to change our education system, but it is sort of funny that they don't necessarily seem to be consulting the people who are sitting right there on campus.
+- When nobody read, dyslexia wasn't a problem. When most people had to hunt, a minor genetic variation in your ability to focus attention was hardly a problem, and may even have been an advantage. When most people have to make it through high school, the same variation can become a genuinely life-altering disease.
+- I wanted to answer big questions about humanity, about how it is that we understand about the world, how we can know as much as we do, why human nature is the way that it is. And it always seemed to me that you find answers to those questions by looking at children.
+- Samuel Johnson called it the vanity of human wishes, and Buddhists talk about the endless cycle of desire. Social psychologists say we get trapped on a hedonic treadmill. What they all mean is that we wish, plan and work for things that we think will make us happy, but when we finally get them, we aren't nearly as happy as we thought we'd be.
+- What teenagers want most of all are social rewards, especially the respect of their peers.
+- The science can tell you that the thousands of pseudo-scientific parenting books out there - not to mention the 'Baby Einstein' DVDs and the flash cards and the brain-boosting toys - won't do a thing to make your baby smarter. That's largely because babies are already as smart as they can be; smarter than we are in some ways.
+- Successful creative adults seem to combine the wide-ranging exploration and openness we see in children with the focus and discipline we see in adults.
+- Babies and young children are like the research and development division of the human species, and we grown-ups are production and marketing.
+- Each new generation of children grows up in the new environment its parents have created, and each generation of brains becomes wired in a different way. The human mind can change radically in just a few generations.
+- One of the best ways of understanding human nature is to study children. After all, if we want understand who we are, we should find out how we got to be that way.
+- For better or worse, we live in possible worlds as much as actual ones. We are cursed by that characteristically human guilt and regret about what might have been in the past. But that may be the cost for our ability to hope and plan for what might be in the future.
+- Culture is our nature, and the ability to learn and change is our most important and fundamental instinct.
+- We say that children are bad at paying attention, but we really mean that they're bad at not paying attention - they easily get distracted by anything interesting.
+- We fear death so profoundly, not because it means the end of our body, but because it means the end of our consciousness - better to be a spirit in Heaven than a zombie on Earth.
+- Animals are certainly more sophisticated than we used to think. And we shouldn't lump together animals as a group. Crows and chimps and dogs are all highly intelligent in very different ways.
+- Adults often assume that most learning is the result of teaching and that exploratory, spontaneous learning is unusual. But actually, spontaneous learning is more fundamental.
+- Developmental scientists like me explore the basic science of learning by designing controlled experiments.
+- We have lots of evidence that putting investments in early childhood education, even evidence from very hard-nosed economists, is one of the very best investments that the society can possibly make. And yet we still don't have public support for things like preschools.
+- What makes knowledge automatic is what gets you to Carnegie Hall - practice, practice, practice.
+- In most places and times in human history, babies have had not just one person but lots of people around who were really paying attention to them around, dedicated to them, cared to them, were related to them. I think the big shift in our culture is the isolation in which many children are growing up.
+- What, of course, we want in a university is for people to learn the skills they're going to need outside the classroom. So, having a system that had more emphasis on inquiry and exploration but also on learning and practising specific skills would fit much better with how we know people learn.
+- The best scientific way to discover if one factor influences another is to do a controlled experiment.
+- Something like reading depends a lot on just having people around you who talk to you and read you books, more than sitting down and, say, doing a reading drill when you're 3 or 4 years old.
+- The radio was an improvement on the telegraph but it didn't have the same exponential, transformative effect.
+- Children have a very good idea of how to distinguish between fantasies and realities. It's just they are equally interested in exploring both.
+- Asking questions is what brains were born to do, at least when we were young children. For young children, quite literally, seeking explanations is as deeply rooted a drive as seeking food or water.
+- We know what makes babies smart and happy and thrive. It's having human beings who are dedicated to caring for them - human beings who are well supported, not stressed out and not poor.
+- Our babies are like penguins; penguin babies can't exist unless more than one person is taking care of them. They just can't keep going.
+- Scientists and philosophers tend to treat knowledge, imagination and love as if they were all very separate parts of human nature. But when it comes to children, all three are deeply entwined. Children learn the truth by imagining all the ways the world could be, and testing those possibilities.
+- Scientists learn about the world in three ways: They analyze statistical patterns in the data, they do experiments, and they learn from the data and ideas of other scientists. The recent studies show that children also learn in these ways.
+- I've had three of my own children and spent my professional life thinking about children. And yet I still find my relation to my children deeply puzzling.
+- Childhood is a fundamental part of all human lives, parents or not, since that's how we all start out. And yet babies and young children are so mysterious and puzzling and even paradoxical.
+- Overall, female scientists have fewer resources than male scientists, just as poor people have less access to health care. But if you compare male and female scientists with identical resources, you find that the women are just as likely to be successful.
+- Historically, absolute IQ scores have risen substantially as we've changed our environment so that more people go to school longer.
+- Siblings are the guarantors that the private childhood world - so unlike the adult world that scientists are only just beginning to understand it - is a fully shared and objective one.
+- The ancient media of speech and song and theater were radically reshaped by writing, though they were never entirely supplanted, a comfort perhaps to those of us who still thrill to the smell of a library.
+- A theory not only explains the world we see, it lets us imagine other worlds, and, even more significantly, lets us act to create those worlds. Developing everyday theories, like scientific theories, has allowed human beings to change the world.
+- Many philosophers say it's impossible to explain our conscious experience in scientific, biological terms at all. But that's not exactly true. Scientists have explained why we have certain experiences and not others. It's just that they haven't explained the special features of consciousness that philosophers care about.
+- Teaching is a very effective way to get children to learn something specific - this tube squeaks, say, or a squish then a press then a pull causes the music to play. But it also makes children less likely to discover unexpected information and to draw unexpected conclusions.
+- One of the things I say is, 'You want to know what it's like to be a baby? It's like being in love for the first time in Paris after four double espressos.' And boy, you are alive and conscious.
+- Ours is an age of pedagogy. Anxious parents instruct their children more and more, at younger and younger ages, until they're reading books to babies in the womb.
+- The brain knows the real secret of seduction, more effective than even music and martinis. Just keep whispering, 'Gee, you are really special' to that sack of water and protein that is a body, and you can get it to do practically anything.
+- The thing that is most important is having people who are involved and engaged with the kids and also are not stressed and can be involved with them. And that's actually not boring and banal. That actually takes a lot of work to make that happen, and it's not something that our society does very well at all.
+- Putting together philosophy and children would have been difficult for most of history. But very fortunately for me, when I started graduate school there was a real scientific revolution taking place in developmental psychology.
+- We learn differently as children than as adults. For grown-ups, learning a new skill is painful, attention-demanding, and slow. Children learn unconsciously and effortlessly.
+- I'm afraid the parenting advice to come out of developmental psychology is very boring: pay attention to your kids and love them.
+- Even the very youngest children already are perfectly able to discriminate between the imaginary and the real, whether in books or movies or in their own pretend play. Children with the most elaborate and beloved imaginary friends will gently remind overenthusiastic adults that these companions are, after all, just pretend.
+- Texts and e-mails travel no faster than phone calls and telegrams, and their content isn't necessarily richer or poorer.
+- If you just, pretty much, take a random 15-month-old, just sit and watch them for 10 minutes and count out how many experiments, how much thinking you see going on, and it will put the most brilliant scientist to shame.
+- The real excitement is collaborating with computer scientists and neuroscientists and starting to understand in detail how children learn so much so quickly.
+- Imagine if baseball were taught the way science is taught in most inner-city schools. Schoolchildren would get lectures about the history of the World Series. High school students would occasionally reproduce famous plays of the past. Nobody would get in the game themselves until graduate school.
+- If parents are the fixed stars in the child's universe, the vaguely understood, distant but constant celestial spheres, siblings are the dazzling, sometimes scorching comets whizzing nearby.
+- The brain is highly structured, but it is also extremely flexible. It's not a blank slate, but it isn't written in stone, either.
+- If you just casually look at a baby, it doesn't look like there's very much going on there, but they know more and learn more than we would ever have thought. Every single minute is incredibly full of thought and novelty. It's easy as adults to take for granted everything it took to arrive at the state where we are.
+- Because we imagine, we can have invention and technology. It's actually play, not necessity, that is the mother of invention.
+- What happens when children reach puberty earlier and adulthood later? The answer is: a good deal of teenage weirdness.
+- If you wanted to design a robot that could learn as well as it possibly could, you might end up with something that looked a lot like a 3-year-old.
+- We do nothing for children between the ages of zero and five. And we seem to be quite happy to have children growing up in not just poverty, which wouldn't be so bad, but isolation, lack of people around them, lack of support, lack of ability to go out and play in the dirt.

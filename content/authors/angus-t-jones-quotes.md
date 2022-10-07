@@ -1,0 +1,17 @@
++++
+author = "Angus T. Jones"
+title = "Angus T. Jones Quotes"
+quotes_len = "11"
+description = "the best11 Angus T. Jones Quotes"
++++
+- Even though it's my job to be an actor, I have given my life to God.
+- What I would say to a person who is firm in their faith and wants to go into an acting career: It is such a difficult thing to do without compromising your beliefs.
+- Everything is a learning experience.
+- Without qualification, I am grateful to and have the highest regard and respect for all of the wonderful people on 'Two and Half Men' with whom I have worked and over the past ten years who have become an extension of my family.
+- I am doing a lot of work for my church, taking an evangelism class, doing a lot of reading - mostly the Bible and things that coordinate with the Bible and go with the evangelism class.
+- I don't really know if I want to do acting as a career. I really don't know what I want to do yet.
+- Jake from 'Two and a Half Men' means nothing. He is a non-existent character.
+- Committing yourself to some kind of job that isn't committed to God is going to bring so much trouble into your life. It's not good and not something I would suggest that someone seek.
+- I'm on 'Two and a Half Men,' and I don't want to be on it. Please stop watching it, and filling your head with filth.
+- I really started to get into reading the Bible and I started to look for a church to go to. Every Sunday I was going to like three or four churches, I was just looking for the right church.
+- Do some research on the effects of television and your brain, and I promise you you'll have a decision to make when it comes to television, especially with what you watch.

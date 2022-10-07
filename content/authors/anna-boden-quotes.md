@@ -1,0 +1,60 @@
++++
+author = "Anna Boden"
+title = "Anna Boden Quotes"
+quotes_len = "54"
+description = "the best54 Anna Boden Quotes"
++++
+- I think that the world of making movies and how movies get made has certainly changed and evolved over the years. So we're just trying to keep up with it and keep telling our stories in whatever way we can, by hook or by crook.
+- We love telling stories about characters who you root for, even though they sometimes make it really hard for you to root for them and the choices they make.
+- I grew up reading about all those film-makers who were part of a group, like the new wave. It's a little stranger when it's you.
+- What gets us excited about any movie is the social relevance and the character themes and the character journeys and like the adventure story.
+- We don't think there are simple answers about that why someone is the way they are.
+- When we approach characters, we don't have their full story in mind right off the bat. Through the writing process we raise questions about them, and we start to learn a bit more about them.
+- We weren't big 'Notebook' fans or anything.
+- The truth is we were never considered for 'Guardians of the Galaxy.' It was misprinted. I think there was another directing team that had been considered.
+- There's always the challenge of trying to do a road trip picture with a big group of cast and crew, because it's just not efficient to go to every single place in the order that they would go.
+- We met Ben Mendelsohn, who had acted with Ryan Gosling in 'A Place Beyond the Pines,' and that's the first place where we'd seen him. And we're embarrassed to say that we didn't know that he was a famous Australian actor at the time that we saw it.
+- When we look to cast somebody who hasn't had any acting experience before, it's really essential we find somebody who at some level can just be themselves and who shares a lot in common with the character.
+- It seems crazy moving from making little movies to making like literally movies with Marvel, which are like the biggest movies that they make.
+- I don't think I knew that much about camera placement and working with actors when we did 'Half Nelson.'
+- No, we are not tyrants on set, and we are kind of come at it very much as collaborators and not just with each other but everybody and particularly the actors.
+- I've talked to a lot of directors who direct solo like most directors. And they're always like, 'Oh, man I wish I had somebody I could direct with because it's a lot of work.'
+- The list of movies that 'Captain Marvel' is a love letter to is very expansive and strange.
+- You get told a lot in school to tell what you know, write what you know. But what excites me about filmmaking, about being a storyteller, is being able to learn about other people, putting myself in somebody else's shoes, whether that be someone from the Dominican Republic or someone from Cuba or inner-city Brooklyn.
+- I think the most valuable thing that we've done at festivals is meet other filmmakers.
+- I'm one of the most superstitious people I know. There are these two battling parts of me, one is very rational and intellectual, and the other part of me, at my core, I believe in magic in a certain way, and serendipity.
+- The first time Brie Larson was really on our radar as somebody who we wanted to work with was 'Short Term 12.'
+- Emotionally, I don't feel like a trailblazer at all.
+- I guess there are women who write from a very woman-centered place, but I don't consider myself to be one of them.
+- It's nice to have worked with someone for so long that you're always on the same page.
+- It would be great to be able to make a living by making films.
+- I think I was 10 when I saw my first R-rated movie, 'Stand by Me,' in the theater.
+- We knew a little bit about Carol Danvers, but we certainly hadn't read all the comics and didn't know all her history.
+- We can always connect with all of our characters on a human level, but a lot of them took a lot of observation and exploration and talking with people. And we absolutely embrace our actors' perspectives on all that.
+- It would be great to continue shooting on film. Amongst other things, the mystery of not knowing exactly how it's going to look until we see it later and having your DP and being able to trust in him that he's the holder of how this is going to look is a beautiful mystery of filmmaking I'm loathe to look up.
+- We have nothing against working with actors.
+- My parents were basketball people.
+- People, whether they be male or female, are equally a mystery to me.
+- Whenever we've approached a story, it's always started with the character, and the idea of some character struggling with some part of himself. That's what gets us in.
+- One of the great things about Marvel is that they allow you to take pieces of the character and storylines from the comics and doing your own thing with that.
+- I'm a very superstitious person. I come from a long line of superstitious people, so it's not going anywhere. For instance, we have this thing on our movies where if one of the key personnel gets a haircut in the middle of the movie, it's bad luck. I swear by that.
+- We like to create an atmosphere where people can try whatever they want and experiment. But ultimately people tend to fall on the script and there isn't a ton of improvisation. There certainly are some improvised moments and we encourage that. If it's better than what we wrote it'll be in the movie and if not, it's out.
+- I think that what is exciting to us about 'Robocop' was this idea of a character who's finding himself and finding his past and even though it's a dark movie it's also extremely emotional in that way.
+- I took a class my freshman year in high school called Intro To Film, and I was introduced to Robert Altman's films, and I wrote my first paper on a filmmaker and it was Altman's 'M*A*S*H,' and Nashville and I think 'Short Cuts' or 'The Player,' I don't remember.
+- With our movies, you start off getting to know the characters in the way that you meet someone in real life, and then slowly, over time, you get little clues as to who they are. By the end there are still some mysteries, but hopefully you're starting to understand them more.
+- The Gambler' is one of the movies that inspired us. We love that movie.
+- It's nice to work with the same people. You don't have to be polite. You know each other's likes and dislikes, and you don't have to micromanage and look at what they're doing every moment.
+- It always worries you when you give somebody the bug to pursue a dream that's really difficult to achieve.
+- I don't have an inflated sense of what a movie can do. But you can at least try not to put something out there that you don't believe in.
+- I mean, I totally believe in magic and superstition.
+- I speak Spanish, not perfectly; it's definitely my second language.
+- I mean, television has really changed a lot, and changed the way movie people think about working in the storytelling business.
+- I think always whenever we're casting a movie, it's about sitting down with somebody and feeling in them some kind of the element of who our character is.
+- There are studios out there and we have met them who take the movie away from the filmmaker and don't want them to have input. But that's not with Marvel.
+- With 'Half Nelson' we had a little bit more leeway to let the political be more present, because he was a social-studies teacher and this was what he was teaching the kids, so we'd have those direct-to-camera addresses.
+- I feel like directorial teams aren't quite as uncommon in documentary.
+- We want to push our characters to do things that make us question whether we ought to be their friend or even follow them.
+- With 'Half Nelson,' we went to Sundance and then we just bam, bam, bam, festival, festival, festival, festival and then we released in August.
+- As directors, we get very stuck on the stories we want to tell.
+- Especially as an independent director, when you're writing something on spec and you're trying to get it sold, you create this entire world in your head and you feel like you know every minutiae of how everything should be.
+- You want the character to keep being able to grow through the process of writing, through the process of filming, and editing, you want to discover things about that character.

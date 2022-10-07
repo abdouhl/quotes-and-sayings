@@ -1,0 +1,96 @@
++++
+author = "Adama Traore"
+title = "Adama Traore Quotes"
+quotes_len = "90"
+description = "the best90 Adama Traore Quotes"
++++
+- People tell me I'm the first in dribbling. But it's important that, after dribbling, I cross or pass or score. If I don't, then dribbling is pointless.
+- I played my first game of football when I was 3 1/2 years old.
+- I was born in Spain, I know the culture there, and lived most of my life there, but I have Malian origins too. For me it's a beautiful thing that I can have both. I can be in both countries, speak the language, blend in in two cultures.
+- The most important thing for me was talking to players like Xavi, Andres Iniesta and Javier Mascherano - they would tell me about the life away from football. All I wanted to do was play football but they explained how important everything is away, how you prepare and live your life.
+- I almost missed the chance to join Barcelona because I was on holiday in Mali visiting my parents' family for the first time. We spent all summer there and every day Barcelona were calling my mother's phone and getting no reply because she had left it in Barcelona.
+- It was difficult at Villa because they'd struggled for two years and I'd come mainly from Barcelona B in the second division in Spain. I needed time to adapt but Tim Sherwood and Remi Garde had to win games; they didn't have time to think about little things about my game. It was a bad moment, it was such a hard, sad experience.
+- I joined Aston Villa to improve myself in the Premier League. It started well but then I got injured and Villa ended up having five managers that season.
+- I didn't leave Barca well. I left because I wasn't given an opportunity. If I had been given one, maybe I could say what I lacked.
+- I am working every day.
+- Whatever the situation, I am always confident in myself and work hard.
+- Yeah definitely, I have to be brave. There are some bad tackles that we don't like. But it's not my job to look at that, it's the referee's job, he has to see what is going on. All I try to do is keep going.
+- Everyone knows what a good player Ruben Neves is and I have no doubt he could play for massive clubs like Manchester United, Barcelona or Real Madrid one day.
+- My training? I don't do weights. It's hard to believe, but I don't do weights.
+- There were gangs in the school I went to. They fought each other constantly.
+- I don't have to be stressed about it. When people watch videos of teams, they might see a certain player and think, 'If we kick him a little bit, maybe he'll get angry, maybe he'll get a booking.
+- When I came to Aston Villa, they had struggled for two years before then.
+- Barcelona is the best education possible. Training with Messi is something I will never forget - he was always the last off the pitch and working incredibly hard in the gym. If he is the best player in the world and works so hard, who are we? You can have all the crazy talent but you need to work.
+- With the ball I can run 37kmh but I've never been timed without it because my job is to play football. I'm not an athlete.
+- I am quite self-critical, I try to keep focused on what I need to do better, and in the final third of the pitch I know I can do miles better.
+- We have to play the game, you can't go on to the pitch thinking the game is already lost.
+- It is nice to be known on 'Fifa 19' as the fastest player in the world.
+- It's genetic. I exercise, but I gain mass very quickly.
+- I don't have resentment towards Barca, only good memories, but if Real Madrid called me I would think about that offer in the same way I would if it was a Barca one.
+- I want to do a lot of things in my career and keep building on my talent, learn more about the tactics both with the ball and without it in the final third.
+- You never know if there is anyone faster than me, but I know my speed and most of the time I use it for good, but I don't know if there is anyone faster.
+- We know about Portuguese football, we know the Portuguese culture.
+- I'm a happy guy, whatever happens, but I'm happier when we win.
+- About Mali, they came to my house. We spoke and after that, the guy posed for a picture giving me a Mali shirt. With Spain I didn't go because I was injured. When the time comes, you will see which team I decide.
+- Ronaldinho changed everything for me.
+- No matter the competition, Premier League or Europa League or cup, I want to win. This is the truth.
+- I learned a lot from Ronaldinho and Messi.
+- I work with a nutritionist, I have my personal trainer and another person who is like my physio.
+- That has to help if you know the mentality of your opponent, and how he wants to play.
+- Of course I would like to return to Spanish football, but I promised myself I would be a success in England.
+- Maybe there is no player who is faster than me in the world.
+- Darren Campbell, the British Olympic sprinter, was my sprint coach at Middlesbrough - yet the best advice he gave me was to slow down. That might sound strange but he said: 'You have too much speed - you don't always need to run at 100 per cent.' I was used to running flat out every time, but he told me, 'You know how quick you are, slow down.'
+- Any situation in the game when you have the ball you can see there are good opportunities.
+- When I left Middlesbrough I went back there and bought a lot of shirts from the club shop and signed them for the fans. They were very good to me and I wanted to say thank you.
+- I did learn a lot of things in different positions, wing-back, winger and striker as well so I am happy to go and learn different positions which I like and I trust the process of Nuno Espirito Santo.
+- Offers from Madrid or Barca will come when they come, but my mentality is to continue growing as a player.
+- Nuno works with each player individually. He has worked with me tactically, on where I have to move and when I have to move.
+- Messi could maybe get away with not trying 100% because he's the best player in the world. But he's the first at training. He's very professional. He was very good to watch and learn from.
+- I'm going to return to Barca.
+- If I do not have the option of Barca and I have to go to Real Madrid, I do not close any doors.
+- If I can adapt to different tactics I think I will be a better player.
+- We wanted to be footballers, not part of some gang.
+- I don't think that there is anyone quicker than me in the Premier League.
+- Even if it's an unofficial game, if I am on the pitch, I don't want to lose any game.
+- People are thinking I am running so fast on the pitch, but I think it's slow.
+- I know the way I play is with speed and ability.
+- What I have learnt from my time at Barcelona is the invisible work that goes on off the pitch. It's about the fine details.
+- I like to improve myself every day and whatever my performance, I will always believe I can do better.
+- It's about working hard, resting when you need to, leading a healthy life, and having a support structure around you. These factors help you improve.
+- I usually sprint for 20 to 30 metres - occasionally 50 to 60 metres maximum. But no footballer ever sprints a complete 100 metres during a game.
+- I have been playing in different positions and I keep growing.
+- One moment that changed my mentality was the first time I went to Mali when I was six. Soon after that trip, Barcelona signed me, but when I was there I saw children like me, six years old, who didn't have shoes, while I had the opportunity to fulfil my dream. It shocked me. I was six and I didn't understand.
+- My heroes were Ronaldinho and Ronaldo, and now it is Messi.
+- Few people will say maybe I had a tough time with different teams like Aston Villa and Middlesbrough but in each situation, I tried to take the good things.
+- I think the time I spent at Aston Villa was difficult. It was a difficult time and a difficult moment for the team.
+- I've always been quick, ever since I was little.
+- Sometimes things might not go as you want them to, but you have to stay focused and fully concentrated.
+- My life in Middlesbrough is good.
+- Players like Messi and Xavi are always hungry. Whatever the game or the competition - even if it is table-tennis - they want to win. We used to play two-touch football games after training and they would always be desperate to win. It taught you about life as well as football.
+- If the opponent makes a foul close to their own goal, it's a chance for us. I take it like this.
+- I believe if you keep pushing and keep believing, you get your rewards.
+- I spoke to Mali and they understand; I've never lived there and I never said I was going there, my intention was always to play with Spain.
+- Whatever excuses I can make to you about playing so many games, there is no point - the point is we have many games.
+- Every player has a dream to play at Barcelona for a long time, but you have different roles for the team.
+- Clearly Bolt would beat me over 100 metres on the track. But on grass, over 30 metres with a ball at my feet? I'm winning that race every time!
+- I didn't leave Barcelona in the best way but I took the decision to leave and I don't regret it. There were a few problems with the club - some misunderstandings - and so I decided to leave because I wanted to develop as a player.
+- I have trained with expert sprinters many times and they all agree running with the ball and running without the ball requires two completely different techniques.
+- If I am the same Adama as yesterday, then it is one day I have lost.
+- I am grateful to Guardiola for showing his interest and I hope in the future I can learn from him.
+- We will accept any help we can as we attempt to keep moving forward to become a better team.
+- Whether it's 90 minutes, or a half, 10 minutes or whatever, I want to show what I can do.
+- Aston Villa and Middlesbrough, they showed me what is English football. It's tough, it's difficult and they showed me how life is like in professional football.
+- Most of the time I don't go down when they kick me. I try to stay up, so the referee knows that if I go down it's because they kick me badly.
+- When you know someone has belief in you and likes the way you play, it is great to work together.
+- I get asked a lot about players like Lionel Messi and Neymar and people seem to have the idea that they don't do any work because they have a God-given talent. That is just not true, they work all the time, they are totally dedicated and that's why they are where they are.
+- Talent is not enough - it's about using it in the right way.
+- When there is a difficult moment, you need to stay strong because it's difficult when you don't play.
+- My dream was to be a football player.
+- If the opposition puts two or three players on me, it means that some of our other players are free. If I can play like that, then it is better for the team.
+- The happiest I can be is when we win games.
+- All Spanish players want to play for the national team.
+- Wherever you come from, even if it's a rough neighbourhood, there are always good people who know what they want to do.
+- You know if you give 100 per cent every day that you're going to be happy with yourself. When you lose you've got to pick yourselves up and go again.
+- I know my game is about trying to get past players and I know that if a bad tackle is coming my way, I have to jump or push my body out in front, but this is football. If they try to foul and target me, then I'm doing something good.
+- My greatest strength is my speed and power. This is what stands out more but I'll get better, I have many attributes.
+- There was a misunderstanding with Barca. Something happened that I didn't like, but I prefer to keep it for myself.

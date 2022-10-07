@@ -1,0 +1,14 @@
++++
+author = "Alan Wilson"
+title = "Alan Wilson Quotes"
+quotes_len = "8"
+description = "the best8 Alan Wilson Quotes"
++++
+- Whenever regulation increases, personal freedom decreases.
+- The bottom line is that we cannot sit idle as unparalleled rules and regulations significantly restrict our rights and ability to care for our families.
+- I'm not against the government. I'm against this ever-expanding government that doesn't know its limits. And that's how I see the role of the attorney general, as someone in an office that can protect you and defend the Constitution and defend state sovereignty and our individual liberty.
+- There is not a racist bone in my dad's body. He doesn't even laugh at distasteful jokes.
+- My brothers and I were raised by our parents to respect everyone regardless of background or race.
+- Being silent and doing nothing is never the right answer. What happens in one state can happen in another.
+- It does no good to be a conservative if you can't sell a conservative message in a general election.
+- Since the announcement that Boeing was going to open a plant in Charleston, South Carolina, Boeing has actually created 2,000 new jobs in Washington state. So it's hard to say you are retaliating against the union when you create 2,000 members to their role.

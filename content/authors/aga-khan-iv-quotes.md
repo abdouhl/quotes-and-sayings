@@ -1,0 +1,13 @@
++++
+author = "Aga Khan Iv"
+title = "Aga Khan Iv Quotes"
+quotes_len = "7"
+description = "the best7 Aga Khan Iv Quotes"
++++
+- There is nothing wrong with being well off as long as money has a social and ethical value and is not the object of one's own greed.
+- The search for justice and security, the struggle for equality of opportunity, the quest for tolerance and harmony, the pursuit of human dignity - these are moral imperatives which we must work towards and think about on a daily basis.
+- If you try to put social and cultural development ahead of economic development, it doesn't work. You have to do it all together.
+- My duties are wider than those of the Pope. The Pope is only concerned with the spiritual welfare of his flock.
+- A secure pluralistic society requires communities that are educated and confident both in the identity and depth of their own traditions and in those of their neighbours.
+- You cannot take one set of issues from one country and apply it to another. They are all different, in terms of history, and the religious compositions of the populations involved.
+- Pluralism is no longer simply an asset or a prerequisite for progress and development; it is vital to our existence.

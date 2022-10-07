@@ -1,0 +1,106 @@
++++
+author = "Anubhav Sinha"
+title = "Anubhav Sinha Quotes"
+quotes_len = "100"
+description = "the best100 Anubhav Sinha Quotes"
++++
+- Generally, drama films are made with stars - I broke the rule unknowingly.
+- I aspired to make 'Tum Bin II' better than my first film, if not as good as 'Tum Bin.'
+- When you watch a film like 'Warning,' you would realize that it can't be made with stars.
+- It is not easy to deliver a good film and take the expectation of the audience one level higher every time.
+- I think I was always this person. If you see my early work, my first TV show called 'Shikast' and a lot of 'Sea Hawks.' I think I was dealing with a misplaced definition of success.
+- Just because 'Mulk' addresses some uncomfortable truths, trolls are having a field day. They say that the film has been funded by Dawood because that's the easiest way to malign it. But I am not affected by such nonsense.
+- I know that I don't have a problem with women knowing more or learning more or performing better or making more money.
+- Physical violence was never an option for men or women in my family.
+- When I hear of nationalism in my country today from the youngsters, I want to sit them down and tell them that flags and songs are not nationalism. Stopping at the traffic signal, opening the door for a lady, doing something for your country is nationalism.
+- I truly believe that women are extremely talented people and with the right opportunities, they perform as well and maybe better than men.
+- I have a beautiful sofa, which is my writing corner, on which I sit every day and look outside the window.
+- I am afraid of things which scare me. I am afraid of heights and too much love.
+- After 'Ra.One,' 'Cash,' 'Tum Bin 2' did not work, I almost lost my confidence as a director.
+- I have a list of things I want to say through my films and I have started doing that.
+- When my second film 'Dus' released, I was still getting compliments for 'Tum Bin' because it was a hit on satellite channels.
+- I am a shy man. I can't call a stranger and talk.
+- A movie moment in a theatre would never be comparable to the same movie moment elsewhere no matter how cheap the big TV becomes.
+- The first thing that bothers me after any celebrity death happens is that my phone starts buzzing for a bite.
+- I have been a fearless man. I have been a ridiculous man. I finished my engineering and got a job. And then one day, I just quit it. I didn't know what I would do, but I didn't want to be an engineer anymore.
+- No, I never felt cornered because I was not a big director's son or a star's son.
+- After 'Sea Hawks,' television became very strange for me, I could not relate to the stories that were being shown on TV.
+- 'Mulk' is a story of a Muslim family whose one member turns out to be a terrorist. How that family gets cornered and persecuted after that in our society is what it is all about. I have tried to deal with some of the burning issues of our times.
+- I am, what you call, an audacious man. I could walk into the room of Warren Buffet, and he may not give me the money. But I am positive that we would have a good meeting.
+- 'Article 15' prohibits any kind of discrimination on the basis of caste, creed, or religion. My film is about the discrimination we practice on various levels.
+- I am happy to be called a 'commie' as long as I am one, so I should know if I am or not. I don't know what I am.
+- My father would get up with his plate after dinner and keep it where it was supposed to be kept. He wouldn't leave the plate for my mom to pick up.
+- I grew up in a family of strong independent women.
+- 'Thappad' is dedicated to my mother. I've assumed her first-name as my middle-name for this film and I'm billed 'Anubhav Susheela Sinha' in the credits of this film.
+- I didn't plan to make 'Mulk' or 'Article 15.' Nor did I anticipate that 'Mulk' would be seen as a new beginning in my career. It's just that these were stories that had to be told.
+- Any piece of art has the potential to emotionally touch you and nudge you.
+- It is not a coincidence that we have managed to send rockets into space, but our literacy rate continues to be below the world average. It is because governments don't want an educated electorate. Because if we get educated, we will start asking the right questions. And they don't want the right questions being asked.
+- Around 2013-14, I started ranting on Twitter about the communal dysfunction that society was getting into. And I would have fights with trolls.
+- In daily life, there are times when people are happy to talk about problems, but when the society is troubled by something, there is never a larger platform for discussion. Bollywood is religion in our country and that is the best place where you can place those questions on the table.
+- A lot of problems in the society exist because we don't talk about it.
+- Even when I make pizza, I make it from the scratch and prepare the dough.
+- I'll keep venting my anger through my films.
+- I make films about stories that I get interested in.
+- See, governments are overrated. They come and go in 5 or 10 years; it is we who have the power. But we are like Hanuman in 'Ramayan,' who needed to be reminded of his power.
+- I am a secular man who believes in inclusion, so balance comes across organically.
+- By the time we woke up on Sundays, my dad would have left home to get mutton. It was a kind of stew with thick gravy that my mother used to make in a pressure cooker. Even after the mutton was over, the cooker would still have some masala left. I used to polish it off with some rice.
+- I don't even know whether I am a savarna or not, I am a Kayasth, so I am not Brahmin or Kshatriya or Vaishya or Shudra.
+- You choose the film, and then the film chooses everyone else; a film decides everything on its own.
+- When I started my career in television, there was a certain type of stories that were told. Who would have thought that one day I would get a chance to make a film on a story that is based on nothing, just a slap - a habit or practice that has been normalized for so long that if the woman gets upset over it, society says she is 'over-reacting.'
+- I had never seen an ocean before I came to Mumbai, something that now we take for granted. But the first time I stood in front of the ocean, it affected me for a week. I had never seen something as enormous. It consumed me completely.
+- Till 'Mulk' and 'Article 15,' I used to deny that there is a change. Now I feel there is certainly a change, what kind of change, I don't know. Now I get attracted to different things - story or a performance. Earlier I used to get attracted to grand visuals, size of the film and how big the starcast was. Now I am not attracted to these things.
+- I will continue to make films to express my thoughts that come from my observations, from the society we live in.
+- As a filmmaker I have changed, yes. I seem to have crossed a line and that journey, trajectory change is more apparent. I'd say, what changed dramatically in me as a filmmaker is the fact that now, it is about why am I making the film, what is this supposed to mean to people. Earlier, it was more about entertaining or engaging them.
+- Since my adolescence, divisive politics has bothered me.
+- What we need to do is open our eyes, smell the coffee and just understand what the society has become. Today, I can discuss many things with my 15-year-old son which I could not talk about with my father.
+- I come from Varanasi. Abuses, profanities and threats don't bother me. I am 6-foot-tall guy and I can take care of myself.
+- Hindus and Muslims used to be like two neighbors, who had some issues but who also loved each other.
+- I have made my mistakes and learnt from those.
+- I have always gone with the story which I liked at that point of time and when I retire my filmography will be interesting.
+- Nepotism is an overrated debate. It exists everywhere and I have been telling this from the day one.
+- I was always fearless.
+- At 17, I went to an engineering college, the entire reading was about fluid mechanics and steam engines and what not, so I drifted from arts, literature and even cinema, because in Aligarh there were a limited number of theatres.
+- No movie can change society, but there are things that can be achieved by a film. For example, we are sitting in a room that has a lizard in it but we don't mention it because it is not bothering us. But if I stand up and say there is a lizard in the room, then we will try to deal with it - in whatever way.
+- 'Article 15' actually is not about the Dalits. It is about us privileged people. What is it that we have done, what is it that we have been doing and what is it that we should be doing?
+- Cinema halls must be preserved by us and by the government. That business is in trouble today with monumental maintenance costs of idle machines and empty seats. When the crisis of the pandemic gets over and it is safe for all of us to go back to that experience we must, in hordes.
+- In 2001 when 'Tum Bin' released we got 90 to 100 screens. India had around 1000 screens at that time.
+- After the #MeToo movement, I told my team to hire as many women as possible. So there are always a lot of women in my team. I talk to them and they read the script and come up with their own suggestions.
+- In Mumbai, you get good international food but there are few restaurants that serve good Indian cuisine.
+- People call me left of centre, they don't even know why left is called left and why right is called right. They have no clue. These are just you know jargons - created and marketed.
+- I come from a small town, so there we have this habit of talking to rickshawallahs while you are making a trip. So when I moved to Bombay, people found it strange that I do that.
+- Banaras is a mystical city. It is not easy to know that city well.
+- 'Mulk' is a film that needed to be made. We can no longer sweep the isolation of the Indian Muslim under the carpet.
+- After becoming an engineer, I worked for a year in Faridabad. I was so bored. I used to live in a one-room apartment, and every night I would come back to a frog in my bathroom.
+- I get scared of such love where people come out of the theatre and say, 'This is the best work of Anubav Sinha till date.' I feel the pressure and wonder what will I do next.
+- In 1981, when I passed out of Class 12, you could either become a doctor or an engineer. If you did not take up Science in Class 12, you were not considered a good student. The Arts were a no-no.
+- I don't think I have tried to give any message through 'Mulk.' But I have put certain things on the table which are usually discussed in the living rooms, not in our cinema.
+- I grew up at Kabir Choura in Varanasi in the 1970s. It was an era when communal riots used to happen every now and then at different places.
+- The people I met for the first time in the period when I was making films like 'Tum Bin,' 'Ra.One,' 'Dus,' 'Cash' would often remark that I was very unlike the person who had made those films. This is not the best thing for a film-maker to hear because your film should reflect your personality, thinking, philosophy and character.
+- When you make the biggest film in the history of Bollywood, 'Ra.One,' and get so much flak, it drains you... haunts you for years.
+- The most dangerous evils of society are the ones we don't speak of.
+- Governments don't like harmony.
+- It is so obvious for the under-privileged to challenge the privileged, saying, 'How can you have something over me?' as opposed to the privileged person saying, 'How can we have something over the rest?' I find the latter more exciting.
+- I have to mention that Taapsee and Ayushmann are my favorite actors - or stars, whatever you call them. I love them. Our thought processes are in sync with one another.
+- I feel 'Tum Bin' is a franchise where fresh actors are appreciated.
+- In my profession, people are never scared to be nice. They are in fact apprehensive about being critical.
+- Bob Dylan's 'Blowin' In the Wind' was written into the script of 'Article 15.' It was the only song I wanted in my film. It encapsulates the spirit of exploration and salvation that my hero Ayushmann Khurrana goes through. I love the song's lyrics, especially 'How many roads must a man walk down before you call him a man? '
+- Social distancing on a film set is an oxymoron. It can't happen, it won't happen. We can keep lying to ourselves though.
+- Cinema halls aren't just about movie watching. It's like watching a live match in a stadium with the crowd where you collectively share moments of joy and sorrow.
+- I am from a very vague caste. I don't belong to any of the four. I am kayastha. They are well read, largely clerks so they get treated respectfully.
+- Western audiences are way more forgiving for the image of a star.
+- I keep saying that I am made of two cities and all my friends. You learn different things from different people.
+- I grew up in Varanasi where there would be a communal riot every other week. Then I moved to Aligarh, where the Muslims made me feel completely at home. They never made me feel different, so when did this business of 'them' and 'us' start?
+- I derive a lot of joy from cooking. Had cooking been a mandatory task, I probably would have felt differently about it.
+- I'm a workaholic and there is no other engagement in my life.
+- I am now one of those people for whom the trolling never ends.
+- Although everything has a political connotation today, 'Mulk' is a social film, to be honest. It is not about any political leader, party or ideology.
+- 'Dus' was different from 'Tum Bin,' and 'Ra.One' from 'Dus,' but the difference didn't pop out as much as 'Mulk.' That was because it was an issue-based film and crossed the line as being a serious, hard-hitting movie.
+- As a filmmaker, if your personality is not reflected in your movies, then what are you doing, why are you making films?
+- In Delhi, I got a chance to assist someone on a documentary film. Then I moved to Mumbai. This was before the satellite TV. One had to assist a director for years before being able to direct a movie.
+- I grew up in Banaras on Kabir and other Hindi poets and then I got introduced to Faiz, Hasrat Mohani, Allama Iqbal and Majaaz. They took me to another facet of literature and drama.
+- 'Article 15' is an investigative drama where the audience too is an accused party.
+- We live in a world where corporates are trying to prove that water is a commodity. The economics of this world is inclined towards creating a divide between rich and poor, and religion is the most convenient tool.
+- It may not be the best marketing thing to do but I don't like talking about my film until I have finished it.
+- I keep finding good stories so I don't see a reason not to work.
+- There's a big difference between chauvinism and chivalry.
+- After 'Mulk,' I figured it's your voice that people are connecting with. So then my voice became of prime importance to me for my films.

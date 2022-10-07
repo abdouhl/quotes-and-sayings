@@ -1,0 +1,74 @@
++++
+author = "Alyssa Edwards"
+title = "Alyssa Edwards Quotes"
+quotes_len = "68"
+description = "the best68 Alyssa Edwards Quotes"
++++
+- My brothers and sisters started having children at a very early age, and I was just there all alone at one point, like, 'What do I do?' And I thought the only thing I can do is create mine, make my family, and I did that.
+- I have so much to be thankful for.
+- I was waiting for the world to change. I'm no longer waiting; I'm part of that movement. I think our role as performers and entertainers is so much bigger.
+- I used to focus so much on winning. I used to be such a perfectionist.
+- Don't be anything you're not. Be yourself. And people will either celebrate that or say, 'It's not for me.'
+- If I put on a T-shirt that says 'YAAAS,' I want to mean it.
+- A good dancer is not necessarily defined by great technique, skill, or ability to pick up choreography but by confidence. When you feel the music, it penetrates to your soul. Everybody's a dancer. The greatest dancer is someone who is willing to dance, not afraid.
+- I hope to continue to support, to inspire, to motivate, to encourage... in the hopes that maybe the world can get a little bit more giggle.
+- I've changed as a person because of the art of drag.
+- I remember going on stage for the very first time as a solo act, I was probably, like, nine or 10 years old. And being backstage, I started having anxiety... I was literally getting sick.
+- Every performer will have a bad night. It's just inevitable.
+- As much as I love to travel and be on stage and perform, I knew at a very young age that I wanted to be a choreographer and a director.
+- I think that drag, being mainstream, it's such a wonderful thing because even my sister, years ago, they thought it was so taboo and didn't understand it, or maybe they thought, 'Justin, do you want to be a woman?' and I'm like, 'No, Alyssa's my character.'
+- I always had to fight for the chance to get people to hear me.
+- Positivity attracts positivity.
+- I was a hyper little kid.
+- The greatest gift I've ever received is being a teacher.
+- It took a lot of years of me on my own, coaching myself, to look in the mirror and love the reflection.
+- I think what happened is I learned my strengths, but more importantly, I learned to embrace my weaknesses.
+- My father was very strict.
+- People know I like to laugh and have a good time. Even when I'm sassy, it's still kind of stupid-silly.
+- Violet Chachki - I'm a huge fan of her work.
+- I'm just authentically, unapologetically myself. In and out of drag, in and out of the gig, in and out of the studio. My friends know. Miss Thing Over There wakes up 8 A.M. and she's on. The sun, the rain, the snow, whatever's going on outside, I'm ready.
+- I think I'm just always myself, and I think that's what's most important to me. Just be genuine. Be authentic. Be who you are and who you were meant to be. And celebrate that. Celebrate all of that.
+- You can't say the word 'queen' without a little bit of 'drama' in front of it, right? It comes with the territory. Throwing shade and all that is part of the gig, but it should all kind of be in fun at the end of the day. When you start turning down that dark road where there's no light? Sometimes you put the car in park.
+- When you combine a Texas woman in a competition setting with her child, she gets very serious.
+- It's overwhelming that so many people love what you do and appreciate and get it. It's very rewarding.
+- I think it's inevitable to evolve if we allow ourselves.
+- I can't tell you at DragCon how many families that waited in line to see me. Some of them waited up to five hours, and they had their family there. That's the beauty of this. I remember being that little gay boy in Mesquite that was so afraid of the world, like, 'Am I living right? Am I living wrong?'
+- Growing up as a little, introverted boy, dance was the only way I could communicate. For me, it's the greatest language - no words. Sharing people's stories through the art of movement is magical.
+- Hiking in drag is hilarious!
+- I'm a very real person that has overcome a lot, so I think I'm relatable.
+- 'Drag Race' is a movement. I'll be forever grateful that I left my legacy.
+- Huge fan of Lady Gaga - huge, mega, superfan.
+- I think that people are looking beyond the wig. I think they are saying, This isn't just a costume; there's a person behind this. If this costume, this character, this person has this kind courage? Why don't we share that?
+- I remember when I started performing, I thought, 'Why is this something that we do after hours, underground?' I was waiting on the world to change and the idea of this art to become mainstream, and I think that's what 'RuPaul's Drag Race' has really accomplished in such an eloquent way.
+- I sometimes feel like it's my world and everyone is just visiting.
+- I remember going to the first ever DragCon, and I know this sounds crazy, but I've never experienced a ComicCon or anything like that of this nature. So it was a full carnival of extravaganza. I was a little bit more prepared the second year because I was excited to see everything.
+- You don't want people to think, 'Oh, she was a person who was bitter because she didn't win.' You can't always win at everything.
+- During the day, I'm a business owner. I'm a teacher and a mentor.
+- I am a business owner. I'm a teacher. I think Justin's actually kind of plain, kind of nerdy. But when I morph into Alyssa, I'm like this... Well, this creature, everything that Justin couldn't be.
+- I think when someone is so passionate about what they do, sometimes emotions come to the top, and you just get to that boiling point where you have to let it out.
+- Drag was like 'Alice in Wonderland,' where she fell into the hole and her world changed. I fell into a gay bar, and my entire world changed.
+- I am my own biggest fan.
+- It's like you're waiting on the world to change, but I'm actually living it, because I wonder: If there was a DragCon when I was a child or even a search engine or 'RuPaul's Drag Race,' maybe my father would have been different. Maybe our relationship now wouldn't be different.
+- If people don't ask you for their opinion, you don't have to share it, but if you are asked, be honest.
+- I'm kind of living a Bruce Wayne life and then morphing into Batman, but I'm glad now Batman comes out during the day. That's kind of like how drag was: we were called upon at night to make people smile and laugh and clap.
+- I'm gonna be the best version of me. If there's something I don't know, I'm not afraid to ask.
+- This whole idea of editing, not one time I can tell you, not one time has a producer ever asked me to say something I did not want to say. I will also say this about 'Drag Race' producers: I will stand by the show and the people there because they have changed so many people's lives for the better, and I'm one of them.
+- Go out, live your best life, encourage and share your laugh, and make other people laugh.
+- This movement that RuPaul has created and World of Wonder and Logo has allowed to be aired, it's so much than just gay men carrying on in high heels and wigs and fake fingernails. It's truly a story of courageous souls. And I'm grateful that I'm a part of this.
+- You decide how to show up, and you'd better come correct: the way you look, what you say, how you act and react. No excuses! Get in front of the mirror and own what you see. You may have to drag your fabulousness out of hiding, but it's there.
+- My kids stand out at competitions. They're products of me. And you can't come to Beyond Belief and have a flamboyant teacher like me and be basic.
+- I don't get cute, I get drop-dead gorgeous.
+- I had to find the courage to share not only myself but my art with the world. I faced fear, and I went for it. I wasn't a failure, and I'm very proud of myself.
+- I always wanted to teach dance. I didn't know I'd have a TV career.
+- When I take good care of myself, it lifts my spirits, boosts my confidence, and makes me feel strong. When someone tries to throw me shade, it bounces right off. I look those haters straight in the eye, keep my chin up and shoulders back. Because I know I'm a fierce queen - and they know it, too.
+- There's beauty in everyone's mug and body-ody-ody, but taking care of those things requires a lot of work, energy, and effort.
+- Nobody gets a free pass in life, and that's awesomely true for a drag queen or anyone else in the LGBT community. But I like to say, 'Don't be bitter, get better.'
+- You don't have to win 'Drag Race' to really win. And I am living proof of that, thank you Mary J. Blige!
+- When you fight for something, you fight the good fight. You go for it, you never stop. You get knocked down, and you get right back up. That's what we need to be teaching these kids. For that matter, even some adults.
+- I knew I wanted to be the Steven Spielberg of dance.
+- I've always been the rock of my family.
+- I have such respect for RuPaul.
+- Sometimes I wake up, and I'm like, 'Don't dream it. Be it. You're really living the dream. You are everything you've ever desired or set out to be. You're doing it.'
+- I started doing drag because I needed a creative outlet for myself.
+- I thought doing drag in the beginning was fun: playing dress up.
+- It is the greatest reward for me to share my story, my art, and my work. And people receiving that and being thankful and grateful, it once again resonates deep within because it reminds me that I am so much bigger than being a drag performer.

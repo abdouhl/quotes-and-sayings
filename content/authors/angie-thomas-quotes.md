@@ -1,0 +1,53 @@
++++
+author = "Angie Thomas"
+title = "Angie Thomas Quotes"
+quotes_len = "47"
+description = "the best47 Angie Thomas Quotes"
++++
+- Trayvon Martin was 17, Mike Brown was young, Tamir Rice was 12. And so young people are affected by it, possibly the most affected, because they're seeing themselves.
+- Basketball requires discipline. So does writing. Basketball requires practice. So does writing. Basketball requires resilience. So does writing.
+- When I was in the YA age range myself, I didn't feel like there were a lot of books for me.
+- Literature plays a huge role in examining difficult real-life issues.
+- I've always been a huge Tupac fan, and I often listen to him for inspiration or when I'm stuck.
+- When I was a kid, if you asked me what I wanted to be when I grew up, the answer was easy - the next Lisa Leslie.
+- I'm not sure I could ever write for adults. That's not to throw shade or anything, but I feel like teenagers are much more open-minded and willing to listen sometimes.
+- We're seeing young people find their own voices and find their activism.
+- From my anger, frustration, and hurt, I wrote the short story that would later become 'The Hate U Give.'
+- Representation makes a difference.
+- Literature births activists.
+- I wanted to have a book that showed there's no one way to sound black. I wanted to tell teens that the way you speak is okay; you're good the way you are.
+- A lot of people involved in the Black Lives Matter movement are actually sticking up for those other lives. They are turning out for their Muslim brothers and sisters who are now being targeted.
+- At 7, I was shooting 3s with so much ease that the guys at the neighborhood park were impressed. Michael Jordan was one of the best humans to walk the earth in my eyes, third only to Jesus and my mother.
+- My maternal grandmother was a star on her high school basketball team in small-town Mississippi.
+- In the YA community, we are fighting for you and alongside you. When you make your voice heard, we're gonna be even louder on your behalf. That's definitely what I would like for teenagers to know. We've got you. We got you. I promise we do.
+- The Hogwarts houses are really gangs. They have their own colours, their own hideouts, and they are always riding for each other, like gangs.
+- I want you to realize your voice matters.
+- I look at books as being a form of activism. Sometimes they'll show us a side of the world that we might not have known about.
+- Michael Brown - when he lost his life, there was more focus on what he had done sometimes than what was done to him.
+- The way you speak should not determine your intelligence. I should be able to say 'lit,' and you still know I'm intelligent. I should be able to say 'turn up,' and that doesn't take away from my intelligence. I wanted to break down that stereotype a little bit.
+- I often say that I want to write like Tupac rapped. I could listen to his album, and within a few minutes, I could go from thinking deeply to laughing to crying to partying.
+- I really do hope 'The Hate U Give' provides mirrors for readers who don't often get them in books. I've had so many young black girls tell me just how thrilled they are to see someone who looks like them on the cover. I hope that they see themselves in the pages as well.
+- Writing is a form of activism.
+- I think that the more of us who take the time to understand how someone else is feeling, the more likely we are to resist alongside them.
+- You just have to find your activism, and don't let anyone tell you what that should look like. If you're doing the work, and you're getting someone to think, you're on the right path.
+- So often, blackness is seen in a negative light.
+- Art is activism.
+- At the time when I was in college, Oscar Grant had just lost his life in Oakland, Calif. He was an unarmed young black male who had a record. And at the time when his death was making headlines, more people were talking about what he had done in his past than the fact that he unjustly lost his life.
+- I wrote 'The Hate U Give' as a short story while I was in college at a mostly white school in conservative Mississippi.
+- YA does a fantastic job of being socially aware and, at the same time, entertaining.
+- Bent Literary Agency had a Q&A on Twitter, and I took a chance and asked if the Black Lives Matter movement was an appropriate topic for a YA novel. Brooks Sherman, who is now my agent, responded that he didn't think any topics were inappropriate for YA. I remember being so terrified even just sending the tweet.
+- I knew there were calls for diversity in children's lit, but you always wonder as a person of color, how diverse is too diverse?
+- I wish when I was 15 that I realized my voice was important and that even my thoughts and my opinions had value. Had I known, I probably would've spoken up more. I probably would've found my activism sooner and become a writer sooner.
+- The transition from unknown to known-in-publishing has been empowering but also challenging. It's an honor to know that people actually want to know what I think about certain issues, but I also have to be careful about what I say or, rather, how I say it. The Internet is forever, y'all.
+- I think the more we see more officers holding each other accountable, the more we will see people trust cops in this country.
+- We see organizations that target young black men to give them direction in life, but so often, black girls are missed. I wanted to represent them.
+- For me, hip-hop was a mirror when young-adult books were not. I could see myself in a Nas song more than I could see myself in a book.
+- Especially for young POC, when we enter majority-white spaces, we feel the need to assimilate, to blend in, to prove ourselves. I don't think we discuss it enough.
+- A lot of people are quick to say that saying 'black lives matter' makes you anti-cop. All lives should indeed matter, but we have a systemic problem in this country in which black lives do not matter enough.
+- I wanted to write a book like a rapper would write it - I didn't want to hold back. Rappers catch a lot of slack; I'm not going to be cursing up a storm, but when I look at Nas... his first album is one of my favorites. I want to tell stories like that.
+- Initially, I wanted to write middle grade. YA scared me: there's a lot of responsibility in being a YA author. It's so important to give that age range the right books that reflect their world and show them themselves.
+- As a black woman, I feel like I have a unique experience that we don't often see in media portrayals of the South.
+- Of course, my mom is my biggest and loudest cheerleader, and my family and friends are happy for me, but I'm still just Angie, not Angie-the-author-with-this-hyped-up-book. I appreciate that.
+- When I was in college, I lived in a mostly black, poor neighborhood. That's where I grew up, but I attended a mostly white upper-class school in conservative Mississippi. I was often very aware of how I presented myself.
+- I think, as a writer, sometimes you do worry, 'Am I just writing, or am I putting the burden of African-Americans on my shoulder and carrying it?' But if we just write the stories that we're supposed to write, that's when we have the biggest impact.
+- When you say, 'Southern,' or you speak about a southern accent, there's always that drawl, and usually from white people. That's what people associate with the South. But we're all different. The black southern accent is different.

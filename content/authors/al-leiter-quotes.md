@@ -1,0 +1,18 @@
++++
+author = "Al Leiter"
+title = "Al Leiter Quotes"
+quotes_len = "12"
+description = "the best12 Al Leiter Quotes"
++++
+- It's a very big mental game, all day leading up to warm-ups. You're not sure if your curveball will break, or will you be able to throw it over the plate? It's all negative thoughts going into the game.
+- You put deadlines on people you really don't want, because that's how you feel about them.
+- Announcers don't do enough of the cat-and-mouse strategy and all the work that goes into it. You watch a broadcast and guys get the pitches wrong.
+- I think the World Cup is going to be bigger than what a lot of people are anticipating. At this stage in my career, when there is an opportunity, albeit a small one, of being on the team, what a great way to possibly end my career.
+- The pitcher setting up the batter. It's chess, and you play with it.
+- But I'm still not 100% convinced that Roger Clemens took steroids. I'm not.
+- Pitches are like pages of a book; they're so important. The chess game; how I set you up early, and how I'll do it differently later.
+- For seven years, I was in this fishbowl with this intensity, with all the stuff that went on with the Mets.
+- I did not want to leave the Mets and I did not want to leave New York.
+- I like starting. It's pretty cool.
+- I love the game very much, but when you were a certain type of player for a few years, being a front-end starter, that's the way I still think I can pitch. But the body tells you no.
+- I look at this as a second life. Every game feels like an event. Every pitch matters. I need that. It elevates your aggressiveness.

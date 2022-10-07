@@ -1,0 +1,50 @@
++++
+author = "Anthony Kiedis"
+title = "Anthony Kiedis Quotes"
+quotes_len = "44"
+description = "the best44 Anthony Kiedis Quotes"
++++
+- Also, we're all actually different blood types and we have one represented by each guy in the band.
+- I don't even know what words to use to talk about the music industry anymore. But the business has changed a lot - the methods of releasing music.
+- Personally, I am stuck with one foot in the past and one foot in the present.
+- I think art is inherently nonviolent and it actually occupies your mind with creation rather than destruction.
+- I know my dad is a big Internet freak, and he's been known to be a Wikileaker.
+- If you want to get along with somebody, let them be right, and it will last longer.
+- And I have a few friends that I think would go to bat for me no matter what. Flea is definitely one of them. Guy Oseary is one of them.
+- I know whatever my father did, in his own way, he still loved me.
+- Sometimes life's so much cooler when you just don't know any better and all the painful lessons have not hammered your head open yet.
+- We'll have these people hang out with us while we're doing our touring, and talk to them and let them speak their piece to the world.
+- I think there is always going to be inspired music and there are always going to be inspired listeners and there is always going to be an inspired method of getting it from A to B.
+- It seems like the chaos of this world is accelerating, but so is the beauty in the consciousness of more and more people.
+- You know I love pot, and I love beer, but I am totally sober, just because it completely stopped working for me.
+- Now I can look back and say I actually like the upbringing I had and my father was very attentive and a great educator.
+- I have a few friends that I think would go to bat for me no matter what. Flea is definitely one of them. Guy Oseary is one of them.
+- Well, I get excited about music.
+- I find it hard to meet the right woman as people assume I'm a certain type of person - which I'm not.
+- But then when he left, I realized that it was harder to write songs and feel spiritually connected to art and music as a band. When he came back I felt it again, instantaneously.
+- You know, I like to climb trees and ride bikes and play.
+- We did that with people like Chris Rock, Woody Harrelson, and the environmentalist Julia Butterfly Hill.
+- My days are whatever I want them to be.
+- I was a little self-centered gutter punk in the early 1980s and all I wanted to do was diss everybody.
+- The fact my relationship with my son is so good makes me forgiving of my father and also appreciative.
+- I have to laugh at myself.
+- I discovered surfing, which I absolutely fell in love with. That feels good and kind of keeps your body aligned, so does the salt water.
+- I never really thought in terms of the concept of being a rock star - being around people like that just seemed like normal day-in-the-life stuff to me. Those were just the surroundings I grew up in.
+- What I've realized over the years is that I have some pretty good friends.
+- I'm not a true vegan.
+- As a father now, I wouldn't do what my dad did, because it left me feeling emotionally unstable as a kid. But he didn't do the things he did out of selfishness or malice.
+- The road is not a problem.
+- I think people that have fear that, 'Oh if I have a kid I won't be able to do this and I won't be able to do that.' It's kind of the opposite. It really gives you energy. It makes people better.
+- What doesn't kill you only makes your book longer.
+- I inherited my father's insatiable desire to meet all the beautiful girls in the world.
+- Four years into the life of my son, I realize I'm so in love with him and he's so in love with me that if I don't find that lifelong partner out there, it's okay.
+- We've just learned how to balance ourselves a little better so that we're happier way more of the time than not, and, you know, being happy is a radical and desirable act if you ask me.
+- I didn't really get to Led Zeppelin until I was in my 20s.
+- I like the idea of defying the convention of what it is to be in your 40s, or 50s, or 60s.
+- I would have to say the person with whom I am most in love is definitely my son, Everly Bear. Although I'm his dad, I'm also his friend.
+- When I was younger, I used to hate Germany. I hated the country, the people, the language, the culture, everything! But over the years I've grown to really appreciate the German people.
+- I think I'm still figuring out how to be a little less selfish.
+- My father rebelled ferociously against his conservative upbringing where his father physically abused him.
+- I'm probably not long-term-relationship material for now.
+- In terms of having high hopes that the level of consciousness will get higher and higher, yeah.
+- I've acclimated to the music-while-exercising thing.

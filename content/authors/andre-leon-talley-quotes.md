@@ -1,0 +1,69 @@
++++
+author = "Andre Leon Talley"
+title = "Andre Leon Talley Quotes"
+quotes_len = "63"
+description = "the best63 Andre Leon Talley Quotes"
++++
+- Wearing clothes should be a personal narrative of emotion. I always respond to fashion in an emotional way.
+- Mrs. Obama has a hug - a sincere and friendly embrace - that has become familiar to countless supporters from coast to coast. And when she talks to you, she focuses all her calm attention on your face.
+- The little black dress expresses a moment of freedom and individuality every time.
+- Stella McCartney, not only is she a designer, she is a mother of four, and she lives for practicality. She understands what a woman needs to wear to work and what a woman needs to wear when it's time to go out and put on the Ritz!
+- 'Drekitude' is the lowest point in the lowest ebb. It could be your look. It could be your shoes. It could be that you're standing wrong. 'Drek' is a total, total, total hot mess.
+- People love fashion exhibits because they can fantasize. They can respond to a dress even if they can never wear a dress like that.
+- Uggs are comfort shoes, and it's important to have a shoe that gives you a sense of comfort. I have about 15 pair of Uggs - the same shoe, the same color. And I also have the bedroom slippers.
+- I like the idea of being warm and secure. That's what home should be. That you have a sense of warmth, security, love, and you love the things around you and surround yourself with beauty.
+- There is room in today's world for men to wear dresses.
+- I know what it is like to be brought up with unconditional love. In my life that came from my grandmother.
+- I don't tear down. I prefer to build up.
+- Snooki and Honey Boo Boo. These are big celebrities in the U.S. You want to throw up.
+- It's incorrect to assume you can be a fashion editor because you blog, if you don't have experience to look at fashion in a professional way.
+- I have always admired stylishly confident women who dress with great authority. This lifelong love of elegance began with the humble wardrobe of my late grandmother Mrs. Bennie Frances Davis.
+- You can never have too many black pumps. Never!
+- First Ladies have always been held like specimens under a media microscope.
+- At an early age I discovered the beauty in pictures in 'Vogue' magazine and Ebony magazine, and I would read 'The New York Times.' I had to make my own world within my world because I was an only child.
+- When I have interns, I always say, 'Handwritten thank-you notes can make a difference.' People remember that - not an e-mail, a handwritten note in an envelope.
+- Look at 'American Idol,' which I don't look at. Those winners haven't become household names except for Jennifer Hudson, and she was a reject. You can't aim to be a household name. You just have to be successful.
+- I do believe there's a heaven. I do believe that God has given me the resilience and the survival skills to withstand the chiffon trenches.
+- Reality TV, although I'm a part of it, I think reality TV is a terrible thing.
+- I suppose the most daring thing I've ever done is try to water ski. And that was not successful.
+- What's that show? 'TMZ'? They stand there and say, 'I've got this on this person.' The focus on celebrities can be detrimental because people could be thinking of other things, but it's a part of the culture and it's what sells.
+- Waiting in line for something mundane is very boring. Waiting for my doctor to see me and waiting for my dentist to see me, yes, that is boring.
+- I love sitting through long things. I mean, 'Gone With the Wind' I will sit through; I love sitting somewhere for four hours, for anything. I love being on a train. I love sitting down for four hours. I think it's the most wonderful thing to be able to sit somewhere and concentrate on something for more than two hours.
+- I went to Brown to be a French professor, and I didn't know what I was doing except that I loved French. When I got to Paris and I could speak French, I know how much it helped me to establish relationships with Karl Lagerfeld, with the late Yves St. Laurent. French, it just helps you if you're in fashion. The French people started style.
+- The zenith of elegance in any woman's wardrobe is the little black dress, the power of which suggests dash and refinement.
+- The happiest moments of my childhood were spent on my grandmother's front porch in Durham, N.C., or at her sister's farmhouse in Orange County, where chickens paraded outside the kitchen's screen door and hams were cured in the smokehouse.
+- When I was a young boy, growing up in Durham, North Carolina, the women in my family were truly passionate about their clothes; nothing was more beautiful to me than women dressing with the utmost, meticulous attention to accessories, shoes, handbags, hats, coats, dresses and gloves to attend Sunday church services.
+- It's always great to have things from France at a wedding. It's symbolic of style, of culture, of taste.
+- On 9/11, that morning, I was in a Christian Dior Couture appointment at the Hotel Pierre.
+- I love Russian culture. I don't know the young Russia, I'm not at all familiar with young Russia, but the old school Russia is good enough for me for the moment.
+- I'm not going to go to the local theater to spend $12... when I can get a screening copy of a film. I don't get screeners myself, but I can borrow from my friends or go to their house to watch.
+- One my favorite things is to go to the provinces of Russia and see the 18th century wood churches with the onion dome architecture. These humble wonders of incredible imagination of architects that were obviously not living in places like Paris or London, but they've created these amazing churches.
+- The late Estee Lauder says you can never wear white shoes after Labor Day. But of course, in today's world, that does not exist.
+- I love people - it is not the fashion, it is the people in fashion I love.
+- In the heyday of the Oscars, there were electric sparks flying. When Cher went in her fabulous Bob Mackie dress and her Mohawk, and Bjoerk with her swan dress. Then we thought it was bad taste; now I think it should have been the best dress because she stood out.
+- Beauty is health. Health is beauty.
+- I'd like to be remembered as someone who made a difference in the lives of young people - that I nurtured someone and taught them to pursue their dreams and their careers, to leave a legacy.
+- I only take risks in couture, but I don't take risks in athleticism.
+- I'm usually at home and in bed by 10 o'clock. I do not want to be out at anybody's New Year's Eve party.
+- You cannot live your life in the elitist world of fashion and not step out or you're disconnected. You have to realize that fashion is not the endgame.
+- There are no more Elizabeth Taylors. You could be fascinated by her, she lived so many lives, she lived far, she loved the jewels; she had gaudy taste but she had extraordinary talent.
+- I just need green. I need to wake up and see grass and squirrels. I don't want to see skyscrapers.
+- I personally go to the airport looking like a homeless person, because I think people will leave me alone. But I dress myself with my luggage - all my luggage matches.
+- People need to be edited; life needs to be edited. I need to be edited.
+- I will sit in the car on the way to a meeting and just smile. I really mean that. It helps you get through life. If you have nothing to say, smile. Look up at the sky and smile. Just be grateful.
+- I only watch MSNBC for the news.
+- I think people look great in black. I love that what stands out is the person, especially. Black just conveys a kind of drama, even if it can be quiet drama. It does lend to the wearer a sense of confidence.
+- Uggs can be as chic as heels for women.
+- I always feel comfortable, basically in any situation except perhaps airports.
+- I think it's important that models be healthy.
+- I watch Rachel Maddow, Keith Olbermann, and Chris Matthews. That's what I watch every night. By the time I've watched them, I don't have time to watch reality TV shows.
+- Why spend money on movies when you can spend it on gas? Or dry cleaning? Or groceries?
+- When my best friends doubt their little black dresses, they call me on the telephone seeking reassurance.
+- In my day you didn't speak until spoken to.
+- Money isn't everything, but it is when you start thinking about putting money away for your retirement days.
+- Like Hillary Clinton before her, Mrs. Obama has always been a working woman. She is a lawyer turned hospital administrator turned political right hand. It is a unique resume.
+- The most luxurious item is a beautiful bed and beautiful, simple sheets.
+- When I do entertain, in the summer, which is rare, I receive my guests on the front porch, set up wicker trays found at Pottery Barn, and serve iced beverages. Anytime I do welcome friends, it's always a tray of canapes or Planters peanuts, jellied candy from Paris, and a good bottle of Sancerre.
+- If you're going to be a model, what's going to get you the job on a go-see and makes you stand out, it might not be your lipstick or your portfolio or what you're wearing, it might come from your core being.
+- Valentino made my day suit for the wedding of Paloma Picasso in Paris.
+- Fashion illustrator Antonio Lopez was a major part of my early career.

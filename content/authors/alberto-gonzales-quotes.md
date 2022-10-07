@@ -1,0 +1,32 @@
++++
+author = "Alberto Gonzales"
+title = "Alberto Gonzales Quotes"
+quotes_len = "26"
+description = "the best26 Alberto Gonzales Quotes"
++++
+- There are, for example, exemptions in FOIA in which the government can withhold certain kinds of information, and the courts have recognized that there is certain documentation that do deserve protection, that certain privileges do apply and do deserve protection.
+- But the Congress has made the determination that certain kinds of information can be protected even though the American people may want to have access to information.
+- I guess I would use my son's word: cool. It was cool to work in the White House.
+- Jim, I'm not aware of any formal requests from the Senate Judiciary Committee for these kinds of documents.
+- The Department of Justice is a member of the Committee on Foreign Investment in the United States.
+- Our hearts and prayers go out to the people in London and in Egypt. We're very concerned about it. We are providing our expertise to aid in the investigation in London.
+- I feel very confident that that information should be sufficient for the members of the Senate to make an informed decision about John Roberts' qualifications.
+- This is a very highly charged investigation. People are very interested in this, and we've got a prosecutor, a very well respected prosecutor who's been looking at this issue, this investigation for a long time.
+- In order to win the war on terrorism, we have to win the war of information. Information is so very, very valuable. This is an important tool in gathering up information.
+- Michael Chertoff and the Department of Homeland Security, they have the primary responsibility of ensuring that our ports are secure.
+- I have fully cooperated with the investigation and before the grand jury, and I'm quite confident at the end of the day that we'll know what facts are in this particular case.
+- Ever since we've had electronic communications, and particularly during a time of war, presidents have authorized the electronic surveillance of the enemy.
+- We're talking about the lawyers for the United States of America. And I think it's very, very important that the lawyers be comfortable being very candid and open about their views on very sensitive issues affecting the United States.
+- I'll leave it to others to try to determine whether or not that was unfair or not. I'm not the nominee.
+- I will be the first to admit I am not perfect and I make mistakes.
+- I'm, you know, having begun my public service in state government. I very much respect the authority of states to make the decisions to provide for its citizen - the safety and welfare of its citizens.
+- You do the best you can, looking at precedent, in trying to anticipate where the Supreme Court is going to draw the balance between the protection of civil liberties and protecting the national security, and in some cases, we guessed wrong.
+- In this job, you're going to make decisions. You'll say things that some people are going to love them, some people are going to hate them. It's just part of the job.
+- We respect the role of the Senate. We respect the authority of the Senate to look at the qualifications of Judge Roberts, and at the end of the day I'm optimistic that if given a fair hearing and a fair opportunity, that he will be confirmed.
+- I respect very much the role of the media in our society; I think they can be very, very helpful. They serve as a very useful check, sort of a watchdog over the actions of the government, and I respect that.
+- Well, there is an attorney-client privilege here that needs to be respected, and it's a privilege that has been found to be worthy of protection by our courts.
+- I really enjoyed my time in state government. I thought we made a difference. I liked being a part of that effort. I had a different experience in Washington.
+- I want to be clear. No company is too big to be prosecuted. We have zero tolerance for corporate fraud, but we also recognize the importance of avoiding collateral consequences whenever possible.
+- At the end of the day, you realize that this is important stuff, but it isn't as important as how my kids feel about me. That's how I'm going to measure my success - not how I did as counsel to the president or as attorney general. How did I do as a dad?
+- Well, first of all, let me say that - let me remind your viewers that I am recused from this investigation, and what I said this weekend is not anything new.
+- I think what we ought to be focusing on is that we are on path for the release of 75,000 pages of documents in connection with John Roberts' work in the White House, as in the counselor's office and as his time working as an assistant in the office of the attorney general.

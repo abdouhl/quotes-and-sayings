@@ -1,0 +1,14 @@
++++
+author = "Adam Clayton Powell, Jr."
+title = "Adam Clayton Powell, Jr. Quotes"
+quotes_len = "8"
+description = "the best8 Adam Clayton Powell, Jr. Quotes"
++++
+- During past years, like frightened children, we were afraid to eat the strong meat of human rights and instead sucked the milk of civil rights from the breasts of white liberals, black Uncle Toms, and Aunt Jemimas.
+- I believe that Christianity in the United States has been dragging its feet, and I don't think there's any other force in America that has been more detrimental to the solution of our racial problems than Christianity.
+- I'm advocating that American citizens interested in democracy should stay out of chain stores.
+- The black masses must demand and refuse to accept nothing less than that proportionate percentage of the political spoils such as jobs, elective offices and appointments... They must reject the shameful racial tokenism that characterizes the political life of America today.
+- Tremendous changes are taking place in our country, eradicating the concept of second-class citizenship.
+- I am proud to be a member of the Congress of the United States.
+- Only legislative, judicial, and executive action can completely guarantee the victory of the free world.
+- Where Negroes provide 20 percent of the vote, they should have 20 per cent of the jobs.

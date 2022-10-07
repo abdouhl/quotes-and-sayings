@@ -1,0 +1,38 @@
++++
+author = "Aj Michalka"
+title = "Aj Michalka Quotes"
+quotes_len = "32"
+description = "the best32 Aj Michalka Quotes"
++++
+- I don't think I have any celeb crushes!
+- I'm sure there are little Aly and AJ fan babies out there that were made in our concerts. No, I'm kidding!
+- You kind of need to weed through who is wanting to be a true friend.
+- 'The Distance' is the most visceral for me because I was in a long-distance relationship for two years, and that wears on you for sure, whether you're in the industry or not, traveling and trying to get to that other person.
+- It's amazing what happens when you're confident as an artist. The writing completely changes, and you're no longer depressed about your sound or what it's going to be or if people are going to like it.
+- My dream is to work with people like Meryl Streep, Michael Fassbender, Christian Bale and Cate Blanchett. To me, those are true storytellers - genuine people who have stories to tell and make incredible films.
+- We hope to win over new listeners who would normally never listen to an Aly & AJ record. That's our greatest expectation we've set for ourselves.
+- There's people I respect, and I guess that can be a crush. I think someone like Eddie Redmayne, he's incredibly talented, and he's realistic to say, like, oh yeah, that can be a crush because he's not, like, fifty years old.
+- I'm sure it's 10 times easier to handle the criticism and the paparazzi and all of that stuff with somebody by your side that you can share some of that with.
+- We got lucky because we both happened to land TV shows. It was easy to ride that wave as long as possible because making music takes up so much time.
+- For me, I just want to continue telling stories - whether it's musically or theatrically, this is what I love to do. So, I want to create more.
+- Most of the time, you're writing for radio, you're writing for a label, you're writing to stick a hit, and you end up coming out with something that isn't necessarily genuine.
+- I barely listen to the radio, to be honest. I don't want anything infiltrating my ears that I don't want to possibly put out in my song.
+- Surrounding yourself with a great team that is really discerning and not pushing or rushing into a certain direction that doesn't seem like a progressive flow is really important.
+- We love U2, adore their music, just blown away by who they are as artists. They just seem like really good people.
+- People think it's lame to be young, but it's not. And you only get to be young for so long.
+- I want make more records with my sister. I want to go on the road. I want to tour around the world. I want to continue to make great films and work with incredible directors that I respect and look up to.
+- I wouldn't trade the childhood we had because, A, It was normal to me, even though, in hindsight, it's not normal. It felt normal, and I think we maintained a pretty normal healthy attitude towards what we did. And B, I just wouldn't trade it, the experience that we had and the growth we've had.
+- I don't really have control over my path - only the Lord does - but I do have control over my decisions.
+- Aly and I went through just a long period of time where we just didn't feel creative musically. And, you know, we went through the whole writer's block thing, and we went through having two pretty successful records and figuring out how we want to transition as adults.
+- So many people grew up in the church, and you can have an awesome upbringing, but I made a personal conviction; I made a personal decision when I was very young. I enjoy going to church without my parents. On Sunday mornings, I want to go. Bible studies on Wednesdays... I have a relationship - not just through my parents.
+- It seems effortless and fun, and obviously it's hard work, but we love road life.
+- If God is first, and you kind of center everything else around Him being the main focal point, you really can make decisions that will not only mold you, but God will see exactly how you're making your decisions and then will bless you for it.
+- Elle Fanning is the sweetest, most adorable thing ever. Although maybe I can't say she's adorable, because she's way taller than me.
+- I feel like so much of what we give on stage is a musical gift to our fans, but we also wanna bring more depth to our shows if we can and do something empowering.
+- I think we felt like we'd done so much as young kids that we didn't know how to top ourselves. We were like, 'Is this where it ends? Is this as good as it gets? Maybe we're done. Throw in the towel.'
+- I feel bonded to 'Take Me.' I'm proud of it. It's empowering, and at the end of the day, it's a pretty solid pop hit.
+- In the age of social media and dating apps, so many people are able to hide behind their Instagram page or their Raya page or Facebook. And it's like, 'Let's set something up! I want to meet face-to-face.' And 'Take Me' was about, 'Are you going to take me out? Do I have to be the first person to make the move?'
+- I think you have to be guarded but not closed off.
+- A couple of fans followed my sister and I all the way to the airport from a live show that we did in Canada. Our driver had to pull over and fake a turn to lose them, but they actually showed up in the airport just before we went through customs.
+- We had experienced so much as kids, and I kind of feel like we learned a lot about the industry that put a little bit of a bad taste in our mouth, whether it was a couple of people we worked with or whether it was just trying to find the right inspiration or what have you.
+- Status doesn't matter; fame doesn't matter. You have to be really, really grounded in who you are and feel good as a person inside.

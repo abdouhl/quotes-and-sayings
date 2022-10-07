@@ -1,0 +1,54 @@
++++
+author = "Adam Pally"
+title = "Adam Pally Quotes"
+quotes_len = "48"
+description = "the best48 Adam Pally Quotes"
++++
+- I think where it's going is toward what the music industry is like, where channels will be considered more like labels that carry the type of TV show that you like, and then you'll consume them however you can. For example, I don't really watch Showtime, but I bought 'Homeland,' and I've been watching every episode on my iPad.
+- If you're a suburban kid, and you're 30 minutes from New York City, that's the luckiest thing in the world.
+- The Russo brothers are the best people ever, and they cast me in 'Happy Endings.' I did text Joe Russo to say, 'I don't think my character dies, so if you need a local news cameraman to show up in 'Captain America 2'... I know it doesn't make sense, but just hear me out on this!' He was really cool about it and turned me down right away.
+- I think I was probably, at one point, a very needy friend, and as you grow up and you have your own life and get married or not and have kids or not, and life goes, and it grows, and you grow with it, and - I think I'm a better friend now.
+- I'd say 80 percent of my auditions go very horribly.
+- I really want to be good at what I do.
+- 'Portlandia' - love it. I can consume three episodes of it without even realizing I'm watching TV.
+- Growing up in Livingston, New Jersey, was terrific.
+- My parents' convictions, when it came to discipline, were not very strong. For my bar mitzvah, I gave out a mix tape of '90s grunge - if you got it now, you would think it was the 'Singles' soundtrack.
+- What I love about sketch is that the writing of it is idea-based. It's not story-based. It's like, 'This is a behavior, and we're going to write, in a small sample, the funniest way to heighten this behavior.' Sitcoms or movies are about story.
+- I think it's important that we remind everybody that America was never great in itself. It's been great in its aspirations.
+- Nothing surprises me on 'Happy Endings,' because the show - I think one of the awesome things about the show is that it's so open to doing anything. We could do a genre episode. We have the green light to do whatever we want. Mostly because no one's watching.
+- I think the least stereotypical gay character on television is probably Matt LeBlanc on 'Episodes.' He just plays it so straight-faced. They never talk about the fact that he's such a huge gay person.
+- 'Friends' started because Rachel left her husband at the altar. This likability factor is just so stupid to me. It's the same thing as 'wish-fulfillment,' which is a big word you hear in a lot of Hollywood rooms. It basically means that people want to see other people living a life they can't lead, and I don't buy that. I think that's not true.
+- I guess I'd like to do a straight-up drama someday down the line. But I just want to keep working.
+- I'm obviously not a guy who focuses on weight too much. But for certain jobs, you have to gain or lose weight.
+- My life goal is to find a nice balance between working for money and working for fulfillment.
+- It's so hard to work that I feel so lucky any time I get to work.
+- I love Obama. He's my favorite president of all time.
+- I got to see Jack White. I love his new album. There's a song on the album called 'I Think I Should Go to Sleep' that my son loves. We play it on a loop around the house, and he just bounces around.
+- I would say, as I'm into my 30s, I have become a better friend because I don't need as much from my friends, and so when you don't need as much, you can be better at giving.
+- I don't really know how to build a career or what to do. But I have the instinct to keep doing different things so people can see different things.
+- I don't know if you can catch my vibe, but I'm a pretty laid-back guy.
+- 'Entourage' was a show that existed around wish-fulfillment. People watched it because they wanted to believe they could go on private jets and be hanging out in Hollywood, but as a show, comedically, it was not funny. Not a funny show. It's funny, ironically, because of how terrible it is.
+- Well, I have been in physical altercations, but they weren't really fights because I am too scared and Jewish. So anytime that it gets to a point where there is gonna be a fight, I immediately apologize.
+- I would really love to do an action movie. An action comedy would be right in my wheel house. But those are really hard to come by.
+- People, when they come up to me, are like, 'Did we go to high school together? Or did I make out with you at sleepaway camp?' And oftentimes, yes, that is the answer, because I went to a giant high school and made out with everybody.
+- I have one. I may get another during the off-season, I might get my son's name but I'm not sure yet. The one I have is my Hebrew name, which I share with my grandfather, and it's not the best tattoo.
+- I loved my time on 'The Mindy Project' so much. It was only supposed to be half a year. It was really only supposed to be one episode, and then it became three episodes, and then it became half a year, and then it became a year and a half, and then it became two years.
+- My wife is an amazing mother - like, top five of all time.
+- I love Billy Joel. I cry sometimes when I hear 'The Stranger.' 'You May Be Right' may be one of the greatest songs ever written.
+- My parents were actors. And so I was born in New York City, and when I was 7, they quit acting and went back to medical school at the University Of Chicago.
+- Cole Archer's Chillout Mix. That's my son's mix. He's ten weeks old, and this is what he listens to: 'Valerie' by Amy Winehouse, 'Everyday People' by Arrested Development, The Beatles' 'Rocky Raccoon,' and Bruce Springsteen's 'Atlantic City.'
+- I would never put my kids in front of the camera.
+- My wife and I ran through 'Justified' in, like, a day. And that is such a funny, amazing show.
+- I am what they call a chubby-skinny guy. I appear to be normal and have the look of an in-shape man, but if we were to go to a pool party I would go with my shirt on.
+- Anytime I audition for something, it's always a question of whether or not the people I'm auditioning for understand I'm an improviser and I like to do that, and if they like that or if they just want someone who's going to do what's written.
+- I try to do different things as much as I can. I feel like every actor, there's a limited number of tricks and go-tos. The real good stuff you can't get to unless it's something you haven't done before. So I try to make sure each thing is slightly different. Unless it's for the money. Then I don't care.
+- I've bombed on stage millions and millions of times. And that's part of it. You go up with a half-baked idea, and you bomb, and so what? Nothing bad happens if you bomb.
+- Eventually I got the call for 'Iron Man,' and I read sides that had nothing to do with what I did in the movie, and I performed it once while no one was in the room - it was videotaped, and I'm sure Shane Black was watching it from his helicopter or something. And then I got a call the next day that I was going down to shoot it.
+- Well, you can't improvise story, which is a fact. If you could, the budget would be insane.
+- I play guitar, and I'm a decent basketball player - people like to play on my team.
+- My heroes were Gene Wilder, Steve Martin, and Martin Short.
+- 'The Mindy Project' was an amazing experience. I appreciated the way they treated me from day one, and the send-off was perfect, I thought.
+- I would like to work with challenging material. A challenge is good. If it's good material; it's a challenge.
+- I've not gotten so much stuff because I improvise in an audition, but I always feel like, if that's the case, the reason is because it wouldn't have worked out anyway with us working together.
+- I'm not a super nervous guy in general. I don't live a ton of my life in my head.
+- It takes a lot of time to write and put up a sketch show, but that's part of who I am. I don't think that ever goes away, that sensibility - especially coming from the Upright Citizens Brigade. That's just who I am.

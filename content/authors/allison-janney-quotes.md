@@ -1,0 +1,73 @@
++++
+author = "Allison Janney"
+title = "Allison Janney Quotes"
+quotes_len = "67"
+description = "the best67 Allison Janney Quotes"
++++
+- Everyone couldn't be happier and more terrified.
+- I say I'm 5 feet 12 inches. I'm definitely 6 feet. In my heels, I'm 6 feet 3 inches.
+- I know what it feels like to love and care about things, but I've never had that instinct to have kids.
+- I can access emotions very easily.
+- The real trick to auditioning is just letting go of trying to please them. Make it your own. That took me a long time to learn.
+- I've always been a figure skater and ballet dancer. I love physical comedy, and any chance that I get to do that... that is so me.
+- I'm actually a pretty shy person in real life with new people.
+- I was playing 40-year-old women when I was 20. I didn't get considered for ingenue roles.
+- Someone said I wasn't attractive enough. People say those things, but they make you stronger. Then you can win an Emmy and think, ha, ha, ha.
+- Birthdays are getting harder as I get older.
+- I can tell when men are threatened by my height.
+- I've never been with a group of people for that long. I mean, even my family I don't think I know as intimately as the people I worked with on 'West Wing.'
+- It's a great way to start the day, hearing you've been nominated for an Emmy. It's just thrilling.
+- I really am at peace with not being a mom.
+- I'm a big girl, but I have a delicate constitution emotionally. If I've been humiliated in some audition, I just cry all the way home and think, 'Oh my God, I suck.'
+- It is a very difficult job, being the servant of two masters.
+- I definitely paid my dues, and I'm grateful for everything and for my good friends.
+- I did Alan Ball's 'Five Women Wearing the Same Dress,' and then he put me in 'American Beauty.' Everything started to happen from all the years I put into the theater in New York City, and working, and having great parents who supported me through that.
+- I'd like to make really important movies, like American Beauty. I was really proud to be a part of that movie.
+- The only guilty pleasure I have is pasta.
+- Growing up, everybody told me I was good. I was playing ping-pong with my father, and he'd say, 'That's a good shot,' but I'd mess up the next one, and I'd yell, 'Don't tell me that! I'll mess up! Just don't say anything!' You know, if someone says, 'You can't do that,' then I'm going to be, 'Yeah, you watch me.'
+- I want to feel sexy and pretty and young as long as I can.
+- I spent a lot of time in the trenches in New York doing a lot of off-off-off Broadway theater.
+- Being a figure skater myself and knowing what it took for my parents to get up at five in the morning to drive me to the rink before school and then drive me to practice after school - it's a huge commitment for any family.
+- I can sit down at the piano and make you think I know how to play the piano because I know, like, the beginnings of four songs.
+- I'm so hard on myself and a really harsh critic of my work.
+- I feel better when I'm working. I tend to not know who I am when I'm not working. That worries me a little bit... I've been fortunate to be so busy, but I haven't developed any other skills.
+- I'm one of those actors who fall into the camp of never wanting to look at themselves on camera ever, thank you very much. I do not and will not, because I am my worst critic.
+- I was a late bloomer in a lot of areas in life.
+- Before I even wanted to be an actor, I wanted to be a figure skater.
+- I go on a hunt for things that make sense to me and that I can actively play as an actress.
+- At times, maybe I'm too competitive for my own good.
+- I have the power of my height. Growing up, it was a total drawback. There was nothing good about it at all.
+- The loss of my brother was a huge moment, a life-changer for me.
+- I felt like my career started late, and I think it was because of my height - and maybe some of my confidence issues.
+- 'Talullah' is a movie I'm really proud of. Sian Heder is the director/writer, and I think she's extraordinarily talented. I think it was a beautiful story.
+- One out of forty American men wears women's clothing. We've had more than forty presidents. One of these guys has been dancing around the Oval Office in a prom dress.
+- Most Republicans call the show 'The Left Wing.'
+- I know there are a lot of tall, beautiful actresses like Uma Thurman and Nicole Kidman who are my height, but they're still half the size of me!
+- I'm afraid of flying.
+- Great drama is all about conflict, and what's a better conflict than Republican-Democrat?
+- If I could stomach the awful part of being a veterinarian, which involves sticking your hand up animals' behinds, I would be a vet.
+- I never know how I'll feel on any given day, but I've got to look around me and take what I got and find some inspiration, some anger.
+- Politics scared the crap out of me because I didn't grow up in a family where we talked about anything, really, except, 'Pass the peas, and do this.'... We didn't really have political discussions at the dinner table. I didn't learn how to watch or listen to politics.
+- My dream is to have a creativity barn, in my back yard, which is full of musical instruments and every kind of paint and oils and paper, and you can just go in and make something.
+- I don't like to lose.
+- The first job where I actually made money was on 'Guiding Light,' the soap opera. And I played a maid. My name was Ginger, and I had a Brooklyn accent - a really bad one, if I remember correctly.
+- I'd love to do a James Bond-y kind of villain!
+- The fact that 'Mom' is not joke, joke, joke - and is investing in these characters and their lives, things that really happen to people - I think it's resonating, and that's why people are tuning into it and not just dismissing it as a multi-cam sitcom.
+- I'm a sponge. I sometimes don't want to go out of my house because it's like, 'Who's going to make me cry today?'
+- People are usually so disappointed with book-to-movie translations.
+- An agent said he didn't know what to do with me, I wouldn't be able to play any parts but lesbians and aliens.
+- I love arts and crafts.
+- It's a beautiful feeling to be out on the ice, breathing in the cold air and hearing the blades hit the ice. It's kind of romantic.
+- The way you talk to yourself sometimes is terrible! I hear myself, and I go, 'I can't believe you're talking to my friend Allison like that!' It's really terrible, the things we say to ourselves.
+- I love the wilder, more outlandish characters that are hard to make believable. Those are the ones I want to play.
+- As a teenager, I played men in my first two plays.
+- I'm an actor. I can make anyone believe anything. I don't have to know what the hell I'm talking about.
+- I like people trying to do two things at once.
+- I am lucky enough to have Aaron Sorkin write what I have to say.
+- I was a hard fit at a young age. I didn't make sense as an ingenue or a leading love-interest lady.
+- In my career, I am so so happy and grateful for everything I've gotten to do. And yet, I wish I had started off earlier so I could, I don't know... I certainly have not not gotten work because of my age, but I'm just gonna pray and hope that the roles will still keep coming as I get older.
+- I never think of a project as just being comedy or just being drama - even with 'Masters of Sex.' I like being sort of messy, like life is.
+- My height does help me. I can hide a multitude of sins in my height.
+- Every character I do has a bit of my mum in her. She's like the doyenne of Dayton, Ohio.
+- I grew up with brothers. I love men. Of course it's hard to be a woman in a man's world.
+- I hate auditioning so much.

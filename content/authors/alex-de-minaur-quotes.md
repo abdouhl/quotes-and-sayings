@@ -1,0 +1,32 @@
++++
+author = "Alex De Minaur"
+title = "Alex De Minaur Quotes"
+quotes_len = "26"
+description = "the best26 Alex De Minaur Quotes"
++++
+- I still go have an acai bowl in the morning. I do the same things a 19-year-old kid would do.
+- Everyone is their own person. I just worry about myself and surround myself with good people who keep me grounded and focused on what matters.
+- You have to learn every single day, and try not to make the same mistakes. That's my mentality.
+- Slowly from just touching the ball I got to making the ball and eventually hitting a decent defensive shot. Because I don't have a lot of weapons I have to use my speed.
+- There has obviously been a lot more attention on me but it's not going to change what I do or who I am. It's the same old me, playing the same old sport. I've just got to keep it casual and that's what I plan to do.
+- You sort of start to slowly earn more respect from the players. You have to get used to being there and know that you belong. Mentally, that's one of the hardest parts.
+- It's funny, each time you come back to a tournament you start to feel more and more welcome. It gets familiar. That was one of the biggest things that's helped me.
+- I'm just going to get out there and on court, give it my all and that's what I want to do every day. That's what I want to be known for, and that's what I want other players to know about me, that I'm never going to give up.
+- We are constantly traveling from one place to another, dealing with hotels, time zones, jet lag and all those things.
+- Obviously, playing in front of your home crowds really does a lot for your level.
+- You want the players in the locker room to know you as that kid that fights 'til the end, has that never-say-die attitude.
+- At 15 I was very clumsy, big feet and my footwork wasn't great. I was definitely not quick.
+- You have to try and take care of your service games and not get into those awkward sudden-death deuces that can only get you into trouble.
+- You can't look in the future and can't dwell on the past. It's all about the present and what you do each day.
+- I love Australia. I love coming here, I love playing here and I love the support. It's my passion to hopefully one day be able to represent the green and gold. That's the ultimate goal.
+- It's something to be proud of... I'm a proud New South Welshman.
+- I am a strong believer in looking at the positives of everything and setting up your image for the long-term.
+- Growing up not being the biggest guy around, you learn different ways of playing tennis. I've learned to adapt.
+- At the end of the day, it is a very long year. The tennis season is pretty much ten months of the year.
+- My long-term goal is to get as high as possible in the rankings, and to improve my game each day. If I am able to do that, my ranking should get better and better.
+- It's all about mentally staying in the moment and not losing concentration and trying to back up every day.
+- I'm very fortunate to be in the position that I am, to be able to play the sport that I love every single day. I'm never taking that for granted.
+- Tennis is a tough sport - a long year, a lot of matches, a lot of travelling. It's not easy so being mentally tough is a big attribute. It doesn't come easy, you have to work on it.
+- Every time I step out on court, I leave 150 per cent out there. That's the bare minimum.
+- And, honestly, tennis is such a tough sport as it is, it's only you on court, so you've got to deal with a lot of different pressures and expectations and when things aren't going well.
+- It would be incredibly special playing at Wimbledon.

@@ -1,0 +1,22 @@
++++
+author = "Aaron Ehasz"
+title = "Aaron Ehasz Quotes"
+quotes_len = "16"
+description = "the best16 Aaron Ehasz Quotes"
++++
+- Look, part of it is that those credits have a list of names of people who work so hard on the show. They do amazing visionary work on 'Dragon Prince'. And Netflix lets you skip those credits so easily. We wanted to give people a reason to enjoy the credits.
+- We learned that there was a super intelligent, passionate audience that wanted material that was nuanced and detailed and authentic.
+- The animators working with these 3D models, they're artists, right? They're great at what they do. They're artful in how they move characters about.
+- Fantasy stories have almost always been very white and European-focused, and we wanted to tell a story that would feel both more modern and more global. We wanted to attract a diverse audience.
+- It is a labor of love, but there is a lot of labor, especially when you're trying to build a big, epic world with lots of details and a kind of physics of magic that makes some sense and actually has some rules to it.
+- People can do bad things for good reasons, or for what they think are good reasons.
+- Our experience on 'Avatar' heavily influenced how we approached 'The Dragon Prince' and how we built our team.
+- We have a writing process that's very much you try to create the character in a complicated way and then you let the story lead you to discovering who the character is in a natural way.
+- Wonderstorm is a new company and 'The Dragon Prince' is our first kind of big, exciting story that we're trying to bring to an audience.
+- Yeah, so when 'Avatar' came out, the social media world and the idea of fan communities were very new. There were forums and you could obviously go to conventions and talk to people, but it wasn't as clear or easy.
+- We have a wonderful head of social media and community, Danika Harrod, who has a knowledge of community that's really authentic, and she just loves connecting with people and she's very empathetic to what fans might want.
+- On 'Avatar', I learned that it's worth taking some risks and doing some weird little things with characters or having an off-joke here and there, even if it's only for 5 percent of the audience.
+- I'm not a moral relativist, I do think at the end of the day there's right and wrong, there's good intentions, and then there's bad paths that you can go on even if you have good intentions and we believe that.
+- One of the great things about now vs. 10 or 12 years ago is we can see how the audience responds and the audience has an opportunity to be a community that engages each other and engages us and we're excited for that conversation.
+- The characters don't all have to be likable, and they don't all have to be hateable. As long as it's interesting and you connect to them and they resonate with you and you want to find out what happens and it feels authentic, then we have something.
+- On 'The Dragon Prince', we wanted to push that even more to leverage the strengths of a CG and 3D pipeline. We wanted details on the character designs, in the costumes and sets, that you really can't get in traditional 2D animation.

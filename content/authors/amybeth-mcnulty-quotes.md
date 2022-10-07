@@ -1,0 +1,35 @@
++++
+author = "Amybeth Mcnulty"
+title = "Amybeth Mcnulty Quotes"
+quotes_len = "29"
+description = "the best29 Amybeth Mcnulty Quotes"
++++
+- I've never been to school.
+- I'm very lucky I haven't gone through a lot of bullying, and I'm also home schooled.
+- It's just so lovely to be at home and in my own bed surrounded by people I'm so close to. I really appreciate the time I have at home. The support from all my family has just been so overwhelming.
+- Sadly, I'm not a natural redhead. But, I prefer my red hair to my blonde hair.
+- I started off doing stuff in theatre in Letterkenny from quite a young age. It was just a hobby, something I enjoyed. Some kids like tennis or guitar. I just enjoyed musical theatre so my parents got me into classes.
+- My great grandmother, Martha, was hired at 11 years old to be a worker to people.
+- I'm really excited to see what the future hold for me in terms of work. It's going to be hard, but it's going to be good hard work, and I'm really excited for the challenge that awaits me.
+- I really like red hair. I think if you have brown hair, you want blond hair; if you have blond hair, you want blue hair. We always want what we don't have. It takes a while to admit, Hey, it's just part of me.
+- I've grown not only as an actor but as a young woman. I find myself to be more confident and being more open about self-love. I'm still learning how to take up space and speak out when needed, but that's a new thing for me and I'm loving it.
+- Canadians are so different and so lovely.
+- I'm very political and I'm not ashamed of it, and I think having the platform I have, I want to take advantage of that.
+- I think it's dependent on where life takes me. For sure, I absolutely adore acting. It has been my passion from a very young age. But at the same time I am very intrigued by the camera, and also very intrigued by props.
+- Social media is a scary world but I've also found it to be such a gift being able to connect with so many different humans in different countries.
+- My mom gave me 'Anne of Green Gables' as a present so that was my first introduction to Anne, little did I know.
+- Of course, I have my ways of getting into trouble. We all have times when we think, Oh my God, can the world please swallow me up and take me away from this?
+- I began acting when I was very young, maybe 5 or so? Just by going to acting classes and that sort of thing.
+- We created out own little world when we were kids and that's what's so special about Donegal. You can create whatever you imagine here. There's so much nature to let your imagination take flight.
+- When I'm 18 I don't get any more school time on set, so you only have a limited time to do it. You learn every day, and so I don't think of it as a chore.
+- I did get recognised a few times in Letterkenny which is still very strange to me.
+- I'd been lucky to do radio drama and RTE things. Having the opportunity to work with Netflix was wild to me but I'm still just a wee girl from Donegal.
+- Humans can be cruel - kids and adults alike. That doesn't mean they have to be forced to a specific stereotype.
+- There are so many people out there struggling with racism, or their sexuality or where they're brought up or how wealthy their family was ans these issues are not hidden, they were in the late 19 century and they're still important today.
+- I had done quite a bit of stage when I was younger, local stuff, musicals. Then I started professionally, I suppose, when I was 11, in London, in the West End, which was already huge for me.
+- I live in the middle of nowhere. I'm a country bumpkin in Ireland, in Donegal, and to go from that to Toronto, huge city, massive buildings just stretching so tall.
+- I didn't start auditioning until my 10th birthday when I auditioned for 'Matilda' The Musical in London! It was actually the first time I realized that it was a career I could pursue.
+- I love coming home, sleeping in my own bed, seeing my own family and friends again. It feels like a big comfort for me.
+- In the end I'm just doing my job, I'm working hard, I'm putting my best foot forward and the criticism is not going to change anything I've done or will do in the future.
+- I have such a wonderful support system, I really do.
+- I think that a lot of people will agree that Donegal is the countryside, it's trees and fields, but especially when you're a kid you can make so much out of that.

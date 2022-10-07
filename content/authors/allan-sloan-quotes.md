@@ -1,0 +1,19 @@
++++
+author = "Allan Sloan"
+title = "Allan Sloan Quotes"
+quotes_len = "13"
+description = "the best13 Allan Sloan Quotes"
++++
+- Don't commit to being a columnist unless you're willing to do it right. Report your behind off, so you have something original and useful to say. Say it in a way that will interest someone other than you, your family and your sources.
+- Report, report, report. Dig, dig, dig. Think, think, think. Don't stop being a reporter because you've become a columnist.
+- I wanted to be a columnist so badly that I took a huge pay cut to leave Forbes, which wouldn't give me a column, and join Newsday, which wanted my column for its Sunday business section.
+- I grew up in an environment of jokes and sarcasm and puns. I talk that way, so I write that way.
+- Teamwork is better than isolation, especially for a columnist.
+- It's easy to write a good column if you've got good information. It's hard if you have to depend on style alone. I suppose there are people who can get away with styling on a regular basis. I'm not one of them. You're probably not, either.
+- When I started writing a business column 15 years ago, I knew I'd found the perfect job for myself. As a columnist I could pick my own topic, do my own analysis, say what I wanted to say and attribute it to myself. Best of all, I could write in my own voice.
+- If the government decides to put your life under a microscope, do you think it won't find something? I suspect there's not an adult in the country who would walk away totally unscathed if every aspect of his or her life were investigated the way Stewart's ImClone trading was.
+- The column's worked out great for me. I've gotten a ton of ego satisfaction, had a lot of fun, won a batch of prizes and occasionally done some public good.
+- The lesson that any thinking person draws from the Stewart saga is that when the government asks questions, run for your lawyer and don't say a word. Had Stewart kept her mouth shut, she'd be OK.
+- Go for the gold: better one great column and some undistinguished ones than constant mediocrity.
+- People are treating the Stewart case as seriously as Enron when it's really over trivia.
+- I've spent my career trying to help people without connections understand what's going on so that they have a chance of getting a fair shake from the connected and the powerful.

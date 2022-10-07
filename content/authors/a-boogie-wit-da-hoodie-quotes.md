@@ -1,0 +1,67 @@
++++
+author = "A Boogie Wit Da Hoodie"
+title = "A Boogie Wit Da Hoodie Quotes"
+quotes_len = "61"
+description = "the best61 A Boogie Wit Da Hoodie Quotes"
++++
+- My first mixtape especially - that came from a heartbreak.
+- I started off throwing out 'Artist.' I made that my first mixtape. Then, I threw out 'TBA,' which means 'To Be Announced.'
+- Its crazy: my name is Artist, and I dead can't even paint.
+- I want to be the next legend.
+- You can't say I don't sound like a N.Y. rapper - it's because I don't wanna sound like nobody else.
+- My mom is proud of me. My pops proud of me. Everybody keeps motivating me.
+- I wasn't really comfortable going to college.
+- I was inspired to shoot 'Look Back at It' in a high school because I'm like a voice of the youth. When the youth sees me in a classroom, I want them to be inspired to accomplish their dreams. I was just like them in a classroom at one point. It all starts in a classroom.
+- Everything I do is me. I don't like taking ideas from people unless they're the G.O.A.T.
+- If you listen to me, it's real stories. It's catchy and something you can relate to.
+- 2017 was crazy when I made the 'Freshman' cover 'cause I looked up to it, and I really wanted to be in it. It was motivation for me after that: I kept on going, and I grinded.
+- I want people to really recognize that this is what I am naturally good at: I'm really good at making music and describing your feelings vicariously through my experiences, through my past and my future. I want people to relate to me in multiple ways and be versatile in my music.
+- Hip-hop originated from the Bronx specifically; that means everything. I'm down the block from where hip-hop was born and raised, so I'm glad I am here and I'm able to represent New York the way I am.
+- Perfecting your craft is one of the main keys in being successful.
+- I found my sound through exploring. I was in the studio yelling, going low, trying things, and that's how I found that I have a lot of sounds.
+- I was trying to make my name just Artist in the beginning, but it was weird at first, because I wasn't an R&B singer or nothing. Not an R&B singer. I didn't do no melodic songs, none of that yet.
+- I don't wanna learn about more science and math. That's not why I'm going to college.
+- A lot of people don't know that: that Artist is my name.
+- Not everyone's really got the heart to talk about what's going on with their love in their music.
+- Having a daughter made my music, I guess, more meaningful. It made me see more of life when I had my daughter.
+- Me and Thugger could make nine songs in a day and then choose which songs we like the most and think is gonna do something. With other people, it's like, we pick one song, and we hope it's the one.
+- Growing up in Highbridge was real. Me and all my friends, we never really went to any other places in the Bronx but Highbridge. We always just stayed in Highbridge. It was like territory, to be honest, because Highbridge is like a town.
+- 'Remember the Time' and 'You Rock My World' from Michael Jackson were two of my favorite songs ever. My mom used to bump them all the time.
+- Before I was even famous, I was famous on Facebook.
+- When I was 13, before I got in high school, I was writing mad raps. I didn't really know if it was good or not, so for a year, I just held them. When I got in high school, I started spittin' bars.
+- Highbridge - everybody rap in Highbridge; everyone grew up rappin' or playing basketball.
+- I'm not really worried about the flashy stuff. I don't got chains and cars. I spend what I need to spend. It doesn't faze me.
+- I just wanna be relevant.
+- I never knew Artist was going to get this big. When I was making it, I put my all into it. But you never know what's going to happen with something you make.
+- Why do you think my name is Artist? I'm an artist.
+- I had to realize that you can't try to get money, support yourself, and grind doing whatchu need to do at the same time. The music is the grind. You really gotta grind. You gotta find your way around. You can't be stuck tryna get there.
+- I was raised hearing music everywhere I went.
+- One day, walking through the Bronx streets, I just realized that people were stopping me, taking pictures, and noticing me from across the street. I can't even use public transportation anymore, so I kind of stopped going places and started going straight to the studio, going home, and telling people I can't go anywhere anymore.
+- 'A' comes from Artist. And 'Boogie' from the Bronx. 'The Hoodie' part came from just having a hoodie on a lot.
+- Partnering up with the Monster Energy Outbreak Tour marks a milestone moment in my career.
+- I was always writing, since I was, like, 12.
+- Getting people to like my music was challenging at first. It's hard to get people to like your music. There isn't a simple formula that automatically makes people like you.
+- Most of the time, I'm making music. There'll be moments of my life where I feel like I gotta to take a break and come back to the music. It's hard to explain, but you need to get a break from it and then come back to it. It's like you gotta lose something to appreciate it.
+- New York sounds like something that I could really listen to. It's like a vibe; it's a hit song. It's a song that you could listen to in five years and still like.
+- I'm not the type of person who makes a lot of songs in a day just to see which one is the best.
+- I always looked up to people who did more than just rap or focus on music. I'm inspired by the people who put their different talents to use and turned it into something bigger.
+- Me and Tory Lanez got good chemistry together. We could make a song so easy, but we always like to figure out what we're really doing. We can make a good song, but it gotta make sense.
+- Even though I can't dance, that's, like, the one thing I wished I could do growing up. I used act like I was MJ, doing the moonwalk, tip toes, leg kick, all that.
+- This is the most fun thing in the world to me, making music. Sitting down, I can make songs and not leave the booth, ever, and I love it.
+- You always gonna feel me. That's my main thing. When I'm speaking in my music, you gotta feel me.
+- I pick and choose what I want to put on what. Instead of just dropping a single, I like putting projects together.
+- I used to record songs, like, play the beat from one phone and have another phone recording me and just rap. Moving from that to a studio was like, 'Damn, I never knew I could sound like this.' It was just magic.
+- Everybody was always telling me to rap and freestyle. I used to go to the park and spit on the mic. If I go to the park, they always gonna give me the mic.
+- I'm not really rocking with mixtapes no more. EPs and albums - that's it.
+- No matter where I'm at in life, whether I'm in the music industry, rich, poor, everybody need love in their life. Gangsta or not, everybody need love in their life. You can't act too hard about that.
+- I can't even lie: Sometimes, I be antisocial.
+- I look at goals, like, what do I want to do and where do I want to see myself. What position to I want to be in going forward.
+- Every time I step on stage an' see all of the lights or hear fans singing the words to my songs ,it's a surreal moment for me.
+- I overloaded myself with work. I give myself work to do so I don't give myself time to chill and have free time to chill with the family as much.
+- Some of my songs are turnt up, but that's just 'cause I have to make 'em like that so the clubs can play them.
+- Being self-made means putting yourself in position to help others put themselves in position to be successful.
+- I got so many people that have my number. It's crazy. I just don't feel like texting anybody back after I get, like, 30 text messages in three hours. I just be chilling.
+- People's hustle in the Bronx is real.
+- The album 'Hoodie SZN' is about the result of where I come from: it gave me this black heart. And the black heart represents depression.
+- If it wasn't for the Internet, I don't know where I'd be.
+- Everybody should start listening to love songs.

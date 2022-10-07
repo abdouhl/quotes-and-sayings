@@ -1,0 +1,13 @@
++++
+author = "Alice Smith"
+title = "Alice Smith Quotes"
+quotes_len = "7"
+description = "the best7 Alice Smith Quotes"
++++
+- I started to like my voice - the sound of it. So then I started to listen to it as something separate. To me, it sounded good that way as well.
+- I like to focus on making the music sound simple and true, and very lush and full. I think music should take you to somewhere else where you have the space to contemplate or exercise your imagination. All the while you should be feeling real good, like when you have a delicious and decadent meal, macaroni and cheese or foie gras.
+- I loved it. I just thought I wanted to stay in college forever. I came to New York all by myself; I didn't have any friends there. But it was fine. I felt comfortable. I started thinking, 'Maybe graduate school?' I was really cool with people who were smart, who knew stuff. It's very romantic and stimulating.
+- I realized that I didn't want to do anything else. Plus, I realized I was good, and, most importantly, I actually loved to sing on stage.
+- I've come to realize how much it really was a part of my upbringing, the Georgia part. We were away from town. It was just dirt and trees and spouses. And a lot of kids - my cousins, who were all like brothers and sisters to me - just a lot of kids at one time.
+- When I was in school, I really thought about soul a lot. I was listening a lot to Bjork and to the Commodores. I really wanted to know how they felt. And especially with Bjork, the music there told me wow, that's really her soul there.
+- I came to singing organically.

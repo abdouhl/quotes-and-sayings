@@ -1,0 +1,52 @@
++++
+author = "Anya Taylor-Joy"
+title = "Anya Taylor-Joy Quotes"
+quotes_len = "46"
+description = "the best46 Anya Taylor-Joy Quotes"
++++
+- I'm a surprisingly good rapper.
+- I've been very lucky with the roles that I've played in that they were wonderful roles for women. They're incredible, flawed characters that I really gravitate toward. I just never want anybody to be able to put me in a box.
+- I know it sounds really precious and pretentious, but I can't actually remember deciding to want to be an actor. I just knew that I had too many feelings and I had to kind of get them out in some way.
+- I can't do something that I would not throw myself under a bus for.
+- I've been quite lucky in that the roles that I've been able to play are all kind of outsiders.
+- I need specifically love, affection, people to touch me all the time. Because otherwise, I don't really - I don't cope very well. On 'Morgan,' everything is shot from the other side of the glass, so I was alone in a soundproof room watching everybody but being completely separate from whatever was going on.
+- I'm a hugger and a lover and a dancer!
+- To me, it always comes down to character and script and then director. If a character belongs to me, it's mine. We belong to each other, and I feel a fierce need to tell that story, and it just so happens that a lot of these characters have been residing in pretty dark worlds.
+- I did buy an electric guitar while shooting 'Split.'
+- I never fit in as a kid. I always felt that there was something different about me.
+- I don't know what kind of career I want to forge for myself. But I want it to be one where I love the work that I've done. And I like to think that I have good instincts.
+- I think, probably, the place that I feel I most belong is a movie set.
+- I just want to see what life's going to throw my way. So far, it's been very unexpected. I'm kinda on a roller coaster and want to enjoy that.
+- Modeling had never entered my consciousness. I was always like, 'I'm going to act.' But I thought, 'If this can help me with that, great.'
+- Even the strongest bonds, flesh and blood, they can just evaporate in a second given the right conditions.
+- I think I just really understand what it is to feel like you don't fit in, within your society, within your world, within your family, within whatever. I've always felt like an odd duck so I really understood that.
+- I got scouted for modeling on the street. I'm such a tomboy - still am. I just never thought about modeling before, but I thought, 'Ooh, interesting, similar world, perhaps it's a way into something.' Then, I was on my third photo shoot ever, and Adam Leech from 'Downtown Abbey' saw me reading poetry and asked me to recite some.
+- It doesn't matter where it is in the world or who I'm making the movie with; that's the closest thing that I've got to a sense of placement.
+- I love the theater, I'd love to work in theater at some point, but I grew up with movies being something that I just clung to.
+- I got scouted when I was 16, almost 17, and it was something that had never entered my thoughts. I never thought I could be a model. I was such a tomboy growing up, and I've never really been into makeup or anything like that, so it was really surprising, but I definitely saw it as an in for acting.
+- I don't really feel like I belong anywhere, which makes me belong everywhere.
+- It was very difficult to leave Argentina when I was kid, so I only spoke Spanish for the first six years of my life.
+- I love films. It's really funny, actually. Like, I see a lot of smaller movies. But a lot of these big, epic films that everyone's like, 'You have to see,' I haven't watched yet.
+- Movies were my first love.
+- It is kind of bizarre, but at the same time, I feel like anyone that gets into movies didn't fit into the real world, and so we made our own world.
+- I love what I do so much, and I have a very acute understanding of how I work as a person, so if I'm afraid, I shut down and can't do anything. If I'm overwhelmed, I shut down and can't do anything.
+- I just want to work with wonderful people.
+- I have always believed in magic. I used to run into the woods as a little kid looking for witches. But I'm not superstitious, because I m not afraid of it. I see it as something really beautiful, and I wouldn't want to live in a world without magic.
+- I have an active imagination.
+- I think we have a very Disneyfied, sterilized version of what an evil witch is nowadays.
+- 'The Witch' is feminist.
+- I don't actually watch that much TV, but I was obsessed with 'Dawson's Creek' growing up. And 'Freaks and Geeks.' And '8 Simple Rules for Dating My Teenage Daughter.'
+- Acting is really a give-and-take; it's a dance.
+- Once I set my mind towards something, it's going to happen. By hook or by crook.
+- I think, probably, the place that I feel I most belong is a movie set. It doesn't matter where it is in the world or who I'm making the movie with; that's the closest thing that I've got to a sense of placement. So I guess acting was a way of finding a home, if that makes sense.
+- I got scouted for modeling, and it was really scary - I was walking my dog wearing heels for the first time ever because I had a party to go to the day after, and I wanted to practice, and this black car kind of started following me, so I, being dramatic, picked up the dog and started to run.
+- My first school play was 'Perkin and the Pastry Cook' that my primary school put on, and I played a boy, and it was so much fun, and I'd love to play a boy again. I think that would be great.
+- I don't lie very well!
+- I can't just say yes to a movie. I have to be really passionate about it.
+- I'd love to work with the Coen brothers. And Steven Spielberg. 'E.T.' was big for me.
+- My goal is to make a movie that no one would sort of expect me to make.
+- I find it very difficult to compare any two projects because they're all such different beasts.
+- I swear like a sailor.
+- I refused to learn English for two years when we moved to London, hoping to send my family back home. It was tough, but at the same time, it has given me a sense of displacement that actually really suits the life that I'm living now.
+- I'd go into the woods to look for the witches, the mythical beings.
+- I've been quite lucky in that the roles that I've been able to play are all kind of outsiders. And, you know, I belong to so many places and belong to none of them at the same time, so there's this sense of displacement - I very much understand what it is to not fit in or belong somewhere.

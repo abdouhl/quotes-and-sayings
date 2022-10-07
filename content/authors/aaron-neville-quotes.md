@@ -1,0 +1,105 @@
++++
+author = "Aaron Neville"
+title = "Aaron Neville Quotes"
+quotes_len = "99"
+description = "the best99 Aaron Neville Quotes"
++++
+- If you had told me I'd be making 62 tomorrow, I'd say you were lying.
+- I feel it was just a few years ago I was running around in short pants.
+- When I'm singing, I connect the dots with notes.
+- Man, I was scared. I didn't know what to think. All of a sudden, I got a record climbing the charts, and I'm out in the streets. You know, workin' on the docks. And the first week, it sold something like 40,000 in New Orleans.
+- Until I went to rehab, I didn't understand what it did.
+- That's one thing you hear in my voice today. I could yodel from one octave to another octave. It always fascinated me.
+- Singing is a prayer to me.
+- Every morning I wake up and thank God.
+- I always feel I'm blessed, you know. I thank God for letting me use his voice. That's how I see it.
+- I started listening to gospel when I was a little boy and my grandmother used to rock me on her lap.
+- I'll be singing with The Blind Boys of Alabama, which is a great joy to me. I've done some work with them before, and they truly are amazing.
+- I was very surprised when I heard that I had been chosen to receive the James Cardinal Gibbons Award.
+- My dad and my mom were big Nat King Cole fans, so they had everything he did.
+- I don't want to be on the road all my life.
+- God is waiting for us, to forgive us all, and what is broken, he'll fix.
+- The extras are a nice bonus feature, but the main incentive is the musical experience.
+- When I'm singing, it's a mixture of my innocence in the projects, my mom and dad. It's all the good and the bad, the laughs and the frowns that I went through and seen other people go through. Then you be trying to write it. Whatever's coming out, you try and make it all cool.
+- When I was growing in the Callope project, we had an oval parkway. Pavement ran around this whole thing. We'd skate or ride bicycles. There were benches and trees out there. It was paradise to us. They finished building it the same year I was born.
+- I used to always sing my way into the movies and the basketball games or whatever. I'd sing for whoever's on the door, and they'd let me in. I used to think I was Nat King Cole back in the day, you know. So I'd sing something like, 'Mona Lisa, Mona Lisa, men have named you,' and they'd let me in.
+- Age and numbers are a concept made up by man.
+- Beyonce is cool, and she can really sing.
+- I sing around the house, in the shower.
+- It's one of the greatest festivals in the world. New Orleans Jazz and Heritage Fest is the best all-around... It's an honor to be closing it.
+- It's a 360-degree sound experience. Like you're in the middle of the band. A lot of people have the technology to play the format, so why not put it out there. It sounds great.
+- My mother turned me onto St. Jude back in the days when I was wild and crazy. She took me to the shrine on Rampart Street.
+- Working with the brothers can put pressure on my voice, so I choose to do my own solo thing so I can save my voice. I couldn't do both now. The Neville Brothers is a funk band; they play loud, and I have a strong voice.
+- Doo-wop is the true music to me, man. Doo-wop was what nurtured me and grew me into who I am, and I guess even when I was in school, the teacher probably thought I had ADD or something every day, because I'd be beating on the desks, singing like the Flamingos or the Spaniels or Clyde McPhatter or somebody.
+- I really like listening to music in my car.
+- I am very honored and excited to have 'Devotion' released as the first DVD Audio disc... surround sound is amazing... The music comes alive and is so vibrant - it's unlike anything you've ever heard before!
+- It's up to God to do the judging. You haven't walked in my boots, so how are you going to judge me?
+- I know the fact that I was born means I have to die, so my only aim is to reach out and help someone along the way.
+- So now I have a collection of poetry by Aaron Neville and I give it to people I want to share it with. I'd like to publish it someday.
+- You try to do what you can to bring harmony wherever you go.
+- Be honest, be nice, be a flower not a weed.
+- You've just got to sing, do some kind of singing every day. Early mornings and cold weather can mess with that. I drink special teas with cayenne pepper, but I think you're psyching yourself out, really.
+- When I get down to Louisiana, I get to have a taste of some of that great food.
+- I was raised Catholic, but my father's people were Methodist, so we went to both churches.
+- I even done a doo-wop version of the Mickey Mouse march.
+- Being at the Apollo, I was always starstruck.
+- When I record something, I'll take a drive and just listen.
+- The first time I recorded without Allen Toussaint, I wanted to do doo-wop. Everything I've done since then has got some kind of doo-wop essence in it.
+- New Orleans will always be in my heart. New Orleans raised me - it's in my blood.
+- I remember going up and doing 'Bridge Over Troubled Water' with Paul Simon, Santana playing up there with us.
+- In New Orleans, music is part of the culture. You're raised with it, from the cradle to the grave, and all in-between.
+- We lived together as kids, and now we're taking care of each other as men.
+- Growing up my mother played Sarah Vaughan and Nat Cole in the house regularly.
+- My brother Art was a doo-wopper. He had a group that sat out on a park bench in New Orleans and sang harmonies at night, and they'd go around and win all the talent shows and get all the girls, you know.
+- My brothers and I would sit out on the park bench and harmonize.
+- I didn't just get to 75 years by tiptoeing. I had to work hard sometimes.
+- Ain't no place like New Orleans. It's one of kind.
+- My drummer, bass player, and guitar player sing backgrounds. They play and sing. I can sing all the harmonies, but I can't do it alone.
+- You never know how much time you got.
+- The gospel music and doo-wop is what has informed me personally.
+- I just sing. You have to use it.
+- 'Yellow Moon' was a poem. My wife at the time, Joel - she's dead now - it was our 25th anniversary. She had the chance to go on a cruise with her sister. And I'm home with the kids and looking up, and I saw the big moon, and I just started writing.
+- People are living a lot longer these days and not preparing for it. I'm in the gym and, you know, using my voice.
+- I think St. Jude helped me achieve some miracles in my life - that's why I wear the medallion in my left ear and never take it out.
+- I think things happened the way they did for a reason.
+- We used to play football on the levee, with no shirts on in the summer - August in New Orleans - and my skin would turn red. They'd call me Redskin, Red Apache, then it turned around to Apache Red.
+- The music of the Clovers and Spaniels and the rest was like candy to me. I couldn't get enough; my teachers probably thought I had attention deficit disorder.
+- Singing is my entire life. I nearly lost that. I am so blessed to be able to do this. It's the only thing I've ever wanted to do.
+- When I was living in the projects, I had a mop stick for my horse. I wanted to be Gene Autry or Roy Rogers, so I would ride my mop through the projects.
+- I grew up singing Ray Charles and Jimmy Reed.
+- I dig Steve Harvey: he's the suit man. I be checking him out.
+- If we were poor, we didn't know it 'cause I guess you don't miss what you never had. So, you know, we made do with whatever. We used to make our own toys, and we used to play with spinning tops and marbles. A pocket full of marbles, and you were rich - you didn't worry about no money.
+- I never really got paid for 'Tell It Like Is,' but I look back at it and say God knew what he was doing; he probably figured that if I had got money back in them days, I wouldn't be here now. That's okay. I'm here. And I'm still singing the song.
+- I balance with prayer and music. I sing every day.
+- A lot of my solo albums were produced by different people who had their idea of what songs I should do, and they had me doing a lot of ballads.
+- Every day, some act of kindness comes my way, even if it's just someone opening the door. It happens every day if you keep an eye out for it. Keeping an eye out, that's the key.
+- I've had problems with my throat over the years, playing with loud bands for years, and I've had bruised vocal chords and nodules.
+- I buried Joel on our 48th anniversary. I had been with her since I was 16.
+- When you were a kid, a day was a long time and a year was a long time.
+- Me and my partners had been stealing cars for a while.
+- I might see something on TV and get inspired to write about it. I can't sit down and plan to write. It has to come to me in my head like someone telling me the words.
+- I've done all different kinds of genres - doo-wop, pop, funk, gospel, country, jazz, you name it.
+- I'm waiting for them to come up with a 'Star Trek' thing so they can beam me from my house to the gigs and back.
+- Through the years, I found we had Native American blood in us. My great-grandmother came from the island of Martinique, and they hooked up with the Native Americans of Louisiana.
+- I've been into every doo-wop there is. I think I went to the university of doo-wop-ology.
+- I write poetry on my iPhone. I've got about 100 poems on there.
+- I eat a lot of fish to stay healthy.
+- When I first went out on the road with Larry Williams, there was also, like, The Coasters, The Drifters, and The Flamingos.
+- Don Was is a friend of mine; we've done projects together over the years.
+- I always loved Sam Cooke, because he seemed very versatile. He sang gospel, soul, blues, pop music.
+- So I went in front of the judge, and I had my St. Jude prayer book in my pocket and my St. Jude medal. And I'm standing there and that judge said I was found guilty, so he sentenced me to what the law prescribed: one to 14 years.
+- I think the Creator renews me.
+- I just sing what I feel in my heart. I ain't trying to prove nothing, and I don't think I ever did.
+- Sometimes in the middle of the night, I wake up with a song in my head, and I have to finish it so I can fall back asleep.
+- I worked with the Neville Brothers for 40-some years on the highway, and up and down since I can remember - funk from New Orleans.
+- Without faith, I don't think I'd be here.
+- I know that God is good, and he saved me from hell and damnation.
+- I never left doo wop.
+- My favorite prayer is Footprints in the Sand. You know that prayer? I know the times that he carried me, you know? I kind of wore him out.
+- I always tell people I want to see the world through His eyes, and I want people to see Him in me.
+- I'm here now because of my faith. That's what got me singing and what has kept me singing. That is what I have: what has kept me doing right and has provided me with the chances and the attitude and the skills to do this.
+- But I knew if I ran I'd never be able to sing, so I had to take my punishment.
+- When I sang, I couldn't help making those little curves. People would say, 'Why don't you sing straight?' But I have always had to put something in.
+- There are so many songs in my heart and in my brain. I wake up at 2 in the morning, and I have to get up and sing them. There are so many of them, it's ridiculous.
+- I owe it all to Jesus.
+- My friends and I were wild and we liked to joy-ride.

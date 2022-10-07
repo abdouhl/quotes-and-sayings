@@ -1,0 +1,80 @@
++++
+author = "Alex Scott"
+title = "Alex Scott Quotes"
+quotes_len = "74"
+description = "the best74 Alex Scott Quotes"
++++
+- When I finished playing, I didn't think I would be able to replace the buzz you feel at kick-off, but when the light on top of the camera turns red, and you're about to go live to the nation, it is a very similar feeling.
+- I was an attacking full-back but was told by Hope Powell to just sit back when we played U.S.A. in the 2007 World Cup. It's hard to rein yourself in, but the team comes first.
+- I love travelling to the games and doing them pitchside with Gabby Logan.
+- I want people - boys and girls - to be sat at home watching me alongside the likes of Rio Ferdinand or Frank Lampard, thinking that it's normal, that we all know what we're talking about, and that they're not judging me at home just because I'm a female.
+- My attitude as a footballer was to always be prepared - make sure you're the fittest and know who you're up against. And that's exactly how I treat the media side.
+- I like the way Frank Lampard articulates, like the fact Jamie Carragher really does his homework and the way Rio Ferdinand has been able to show his personality while giving those insights.
+- I know what I do, I know I can play football, and I know I can talk about it.
+- I don't like to make comparisons between former managers because they all bring a unique style.
+- I was in charge of the music in every team I played for, and that is a huge responsibility, believe me!
+- We don't really compare ourselves to the men's game or what they do. For us, it's about trying to get more people involved in the women's games.
+- The enjoyment of playing football gave me a positive pathway, but I could have taken a very different path.
+- I was never motivated by money. I wanted to be an FA Cup finalist. I wanted to walk up the steps at Wembley. I wanted to win the league. I still only ever want to win trophies.
+- I remember when I first got into the England side, going to meet ups where you were just doing a job, you were almost looking to go back to your clubs as soon as you arrived. That changed. The Lionesses got the feel of a club; it was a place you wanted to be, a set-up you couldn't wait to join.
+- Football made me want to train and stay disciplined. It kept me away from things like drugs. Young people are faced with the temptation to stray all the time.
+- I've been in football since I was eight. Of course I know what I'm talking about.
+- I see I'm changing the game and opening doors for others, from my beginning from the east end of London. It's not a sob story; it made me the person I am today. It's seeing kids from any area or background you're from. There's a chance; you can make it.
+- I was fortunate enough to play in a number of finals, and I can still remember waking with butterflies in my stomach. It is at moments like those you realise why you fell in love with football in the first place.
+- My hardest lesson has been my most fruitful, too: that when people don't believe in me, I can prove them wrong.
+- I'm just happy I get paid to train every day and play football. I can't ask more than that.
+- While I was playing football in the U.S., I learnt to play the guitar, and I'm picking it up again now.
+- I've always been a strong presence on social media. That's how I've connected with my fans, and in doing that, I'm allowing them to win.
+- Sure, I do feel I am an ambassador for women's football. But that hasn't changed. It's been like that since I started at eight years old. I'm still me.
+- Every player has their own story, but I always thought of playing on my estate with dreams of what I might be able to achieve.
+- Women are the same. We watch football; we play football. Why wouldn't we be out there giving our opinions on the sport ,too?
+- My dad left home when I was super young, so it was my mum bringing me and my brother up.
+- As a pundit, I have to tell the truth. I think players will respect that. Well, I hope they do.
+- In the 2007 World Cup, Kelly Smith went to another level, scoring twice against Japan and dragging the team forward with an infectious enthusiasm. She changed the dynamic, and we all followed her lead.
+- Not everyone agrees. If you disagree with me, I want you to tell me, and I'm going to come back and tell you why it's my opinion.
+- I never want anyone to think I've been given a helping hand. I've always worked for everything, whether it be on the football field or away from it.
+- When I was in the GB Women's football team at the 2012 Olympics, it was obvious who was in the first XI and who was making up the numbers. Kelly Smith was going to be first-choice striker no matter what, and the other forwards in the squad mentally checked out as a result.
+- I knew that, to be the best right-back in the world, I had to improve my fitness so I could run up and down constantly for 90 minutes.
+- I've realised that there is no magic trick to television; it just comes down to hard work and being prepared for every appearance and trying to get your point across as clearly as possible.
+- If my dog Ella, named after the Rihanna song 'Umbrella', could be with me at all times, that would make me happy.
+- When I was younger, my food and fitness were less controlled - I just loved football.
+- I may not have played men's football, but I've been at World Cups as a player. I know the emotions. I've been in quarter finals, a semi-final. I'd been substituted and sat on the bench watching us lose a penalty shoot-out. I know what happens, what you need when the pressure's on.
+- Football is for everyone, no matter what background you're from, what age, what level you play at. This is what it's all about: coming out today, having a good time, and getting involved.
+- Being away with a national side at a tournament can be hard - you train, go back to your hotel, and often, you sit in your room, watching TV or speaking to people at home. If there's no communal area, it can feel like being in prison, staring at the same four walls all the time.
+- When I started, when I was eight, I never thought I would make a career out of being a woman footballer.
+- When things don't happen in my life, I believe that I've been pushed into another path for a reason, and there's a bigger picture.
+- I'm that girl - I've never been camping; I don't even go to festivals because I hate the cold and the rain. If it starts to rain, I'm the first one on the training field to go in and get a hat!
+- The U.S.A. have a 'football arrogance,' which means winning is in their DNA - nothing else is good enough.
+- To walk out at Wembley in an England shirt is a big deal for a girl who remembers playing in her local football cage down the park in Poplar with the boys.
+- You have to listen to the anthems, allow the emotion to come, but then need to snap back into the match and your specific task.
+- I don't want to be regarded as a female pundit. I'm a pundit.
+- Most of my football education was under Hope Powell, and were some of her training sessions boring? Yes. But were they necessary? Yes. We fully understood what we needed to do as a defensive unit.
+- Some people don't like change. Some embrace it. But the way it's going - not just in football, but in society generally - it's more diverse. People want freshness.
+- I love music - in my playing days, I was always the team DJ.
+- My first thought for the off season is to go somewhere hot and on the beach.
+- I've adopted that mentality: every day I do weights and core in the gym in the morning and train on the field in the afternoon. And I'm strict with my diet - I include protein in every meal and snack.
+- The knockout games of a major tournament are when you see players' true characters.
+- Even when I play in World Cups, I don't look at things like that. It's something that I want to be doing, so why would I put extra pressure on myself? I'm just going to go out there and enjoy it.
+- No matter what happens to our game, money won't be a motivation for me.
+- My body shape has transformed as sports science research has developed. It used to be thought that footballers needed to be big and do lots of weights and little cardio.
+- For me, football is football. I'm a fan; I'm passionate. I feel lucky to be in the position that I am.
+- During the 2012 Olympics, I decided to put on some cheesy pop because I knew Ellen White liked it. The first song was 'Reach for the Stars' by S Club 7, and before I knew it, everyone was singing it - suddenly it was our song.
+- If a player wants to be the best, then they also need to give themselves a talking-to. You need to look inwards.
+- When I played for Boston Breakers in my early twenties, I really stepped up my training, which meant running drills until you're sick.
+- You'll be someone's favourite, and someone else is going to hate you, aren't they? I know that I can't please everyone, but what I can do is be myself and be true to my values.
+- My mum never once tried to push me into something different, even though there was no way of making a living out of women's football. She supported me because she saw I was happy and that it gave me a focus to not be hanging around on the street.
+- I played in three World Cups, and I would say that it was the last one that I enjoyed the most.
+- When I was going off to training and matches at Arsenal, my mum wouldn't be on the side cheering me on: she'd be working so I'd have football boots. I saw that you had to work hard if you wanted to do anything in life.
+- It's no secret that I love dancing and music.
+- Although more teams are going full-time professional and there's more money involved, our main incentive is simply to play for the love of the game.
+- I didn't want to come to the end of my career and think, 'What next?'
+- We need to give our goalkeepers the same level of training that we've given to our outfield players.
+- I have played in matches where individuals have frozen and gone into their shells: they don't want the ball, they don't communicate, and they don't do their jobs. Fear turns them to stone.
+- All I know is two wrongs do not make a right. And nobody's perfect; ain't nobody right all the time.
+- Being a footballer was about analysing performance, never being satisfied, seeing what lessons you can learn and who you can learn from.
+- Putting the need of your team above personal self-interest is a difficult thing to do.
+- I don't get wrapped up in the politics of going down to win a penalty or getting an opponent sent off.
+- I loved getting messages from people saying they were watching during the World Cup with their son or daughter, and they could see they could be involved, too. That was so powerful.
+- The first one is your first World Cup, so you go into it with a lot of pressure, trying to take it all in, but you are just so focused.
+- There's always a responsibility as a pundit, whether you're male or female: the way you present yourself, making sure you've got your facts right.
+- I watch a lot of live music, and I love the theatre, especially musicals.

@@ -1,0 +1,85 @@
++++
+author = "Antonio Banderas"
+title = "Antonio Banderas Quotes"
+quotes_len = "79"
+description = "the best79 Antonio Banderas Quotes"
++++
+- It was an honor and privilege to arrive to this country 16 years ago with almost no money in my pocket. A lot has happened since then.
+- When you work in a different language you are not so attached to the words.
+- I often feel very guilty because of the time that I spend outside of my home and the little time that sometimes I have for my kids.
+- Making movies is difficult and you get disorientated sometimes - even when you're working with fantastic talent.
+- I have a fantastic studio in my home, and it's my biggest toy. I have about a half a million dollars worth of musical equipment in my house.
+- I suppose that I am ambitious.
+- I wouldn't want my daughters to date a guy like me. I was dangerous around women in my twenties. I'm terrified that they might end up with someone like me.
+- Picasso is a character that has pursued me for a long time and I always rejected. He deserves a lot of respect because I am from Malaga, and I was born four blocks from where he was born.
+- Characters don't belong to anyone, not even the person who plays them.
+- I mean, the Constitution of this country was written 200 years ago. The house I was living in in Madrid is 350 years old! America is still a project, and you guys are working on it and bringing new things to it every day. That is beautiful to watch.
+- I'm a complete hypochondriac. If my heart starts beating a little faster than normal, I think I'm having an attack.
+- When you go to the movie theater and the opening of this movie and you see the kids just cracking up with a character you are giving your voice to, you get goose bumps. It's so beautiful.
+- I get caught up in my bubble of reading, writing, or music.
+- I think we are realising that governments can't govern us any more.
+- You see a woman, 22 years old, going out with a guy over 60 - and it's kind of natural. But if it happens in the opposite direction everyone says, 'What is going on there?'
+- I love my country. And I would have to renounce my Spanish citizenship to become a U.S. Citizen.
+- I always feel that art in general and acting in particular should make the audience a little uncomfortable, to slap them and wake them up.
+- I like going everywhere. And I love starting new things.
+- I completely take on the risk, the poker game, which being an artist means, and I'm going to try to make a film which honestly reflects what I have in my head.
+- We're living in hard times.
+- This may sound a little harsh, but I don't care about my career. Really, I don't like actors who are always planning what they're going to do next or always worrying about doing something that will go against the image they've created. To me, that's almost like an attack of narcissism.
+- I think I'm a romantic person, yeah.
+- I like flesh. I do! Something to hold.
+- I did my first movie, 'The Mambo Kings,' in America without speaking the language. I learned the lines phonetically. I had an interpreter actually just to understand directions from my director.
+- When you're feeling very comfortable with an actor, you are doing nothing.
+- We are now integrated into American society and I don't like the word fashionable, because fashionable means that it's going to pass. It's not like that anymore.
+- If you call a cat, he may not come. Which doesn't happen with dogs. They're different types of animals. Cats are very sexy I think too in the way they move.
+- The recycling in my house was imposed by my kids.
+- I love the diversity of America. I love the plain, normal sense of humor Americans have. It is not wicked, like in some countries. And I also love how new America is.
+- I don't believe in any kind of fundamentalism.
+- If bad things are going to be said about me, I have to bear that. If I don't understand that it's part of being in show business, then I'd better go work in a bank.
+- I do yoga every morning, then I run for half an hour and take a sauna.
+- I'm not such a big star. I am just a little planet. In Spain, people don't put so much attention on the star system. But here in America, I can feel it. Mostly, people are very, very nice. But there are also a bunch of fanatics behind the stars.
+- I divide my time badly.
+- I used to be scared of women. When I was very young they terrified me, but discovering the female universe was incredible and still is to this day, as you never stop learning about them.
+- I've always been an optimistic guy, to tell you the truth.
+- I think the problems with being older come when your body cannot do what your mind wants. Then, Houston, we have a problem.
+- Hollywood is a very strong machine that needs, and in... especially with female actors, fresh flesh. It's that cruel. But that's the way it is.
+- I don't like to over-intellectualize scenes that are working. I tend to think when you do that you may lose it.
+- Expectation is the mother of all frustration.
+- I don't think there is a guy that played more gay characters than I have done in my life.
+- There are some movies that I would like to forget, for the rest of my life - really! But even those movies that I'd like to forget teach me things.
+- I've never liked watching real-life couples play couples onscreen or onstage. It takes me out of the story.
+- Up until the time I was 31 years old, in Spain, I still didn't know how I was going to pay the rent.
+- When I do a political movie, I do a political movie.
+- I couldn't be with someone who is depressed all the time.
+- Melanie is more of a disciplinarian with the little girl than me, probably because it's my first baby. She gets everything easy from Papa. I am more weak. She takes advantage of me.
+- I've done many different movies in many different contexts.
+- I remember in 'Law of Desire,' where I played a homosexual, that people were more upset that I kissed a man on the mouth than I killed a man. It's interesting to see how people can pardon you for murdering a man, but they can't pardon you for kissing one.
+- The only time you actually are a spectator of your own work is the day you read the script.
+- Films should be for everybody.
+- Cats are very independent animals. They're very sexy, if you want. Dogs are different. They're familiar. They're obedient. You call a cat, you go, 'Cat, come here.' He doesn't come to you unless you have something in your hand that he thinks might be food. They're very free animals, and I like that.
+- I wake up every morning, look in the mirror and ask, 'Am I a sex symbol?' Then I go back to bed again. It's stupid to think that way.
+- I think Shrek makes an effect in older people. And there are many things in the movie that you saw that are not for kids. Kids would not understand certain things.
+- People are not patient anymore.
+- I am lucky, that is all. Lucky because there are a lot of people - producers, directors, people who buy tickets - who put confidence in me.
+- Sometimes I have wrinkles, in the morning. It depends on what kind of night that I had. I accept myself and the way that I am growing older. I have eye bags and some people have proposed to me to take them out but I said no.
+- Always when you go to a new country and they teach you bad words, you just say them without knowing the value and people look at you because you didn't know that value of them.
+- I have to recognize that I am agnostic.
+- You have to work with people you really love.
+- In my personal life, I am very contemplative.
+- I long to get back into theater.
+- I cry a lot, you know. Which is very difficult for a man to recognise, but I do. I cry in movies, you know, just watching movies.
+- Cinema has opened a world of possibilities up for me.
+- Everything changes as you get older - your mind, your body, the way you view the world.
+- Whatever happens in my life from now on, I know the day I finally die - the final act of my script - people will always make references to the work I've done with Almodovar.
+- A couple of years after I arrived in Hollywood, everything that was Latino was fashionable, and years after, my thought is that we're not fashionable anymore. We're here to stay.
+- I'm still a promising actor. It's better to be climbing even if you have a lot of falls than to be descending. Maybe that's kept me young. I haven't gotten to any peak yet.
+- The man who doesn't want anything is invincible.
+- One thing I have clear is that I don't want to work for money anymore.
+- I've never worried about what audiences would accept or had a game plan regarding the career. I never had an idea of how I should look to my fans or anybody else.
+- There are some movies that I would like to forget, for the rest of my life. But even those movies teach me things.
+- Listen, I think movies serve many different purposes, from those movies that are frivolous and just an entertainment, to movies that just go to exploring the complexities of the human soul. Everything is valid if it's done with honesty and dignity, and I actually do both of those types of movies in my career.
+- I drink a bucket of white tea in the morning. I read about this tea of the Emperor of China, which is supposedly the tea of eternal youth. It's called Silver Needle. It's unbelievably expensive, but I get it on the Web.
+- There's something happening in the world that didn't happen before. We are acting like one big brain.
+- As an actor, when you encounter a psychopathic personality, you naturally want to make him 'bigger than life,' as the Americans say.
+- I think that comedy is one of the more serious things that you can do in our day, especially in the world that we're living in.
+- It's a character that I always found really likable. I'm fond of Zorro because he was a popular figure who worked for the people.
+- I try to teach my kids to be open.

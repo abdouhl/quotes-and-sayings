@@ -1,0 +1,107 @@
++++
+author = "Aeschylus"
+title = "Aeschylus Quotes"
+quotes_len = "101"
+description = "the best101 Aeschylus Quotes"
++++
+- Mourn for me rather as living than as dead.
+- Self-will in the man who does not reckon wisely is by itself the weakest of all things.
+- It is an easy thing for one whose foot is on the outside of calamity to give advice and to rebuke the sufferer.
+- I say you must not win an unjust case by oaths.
+- It is easy when we are in prosperity to give advice to the afflicted.
+- Justice turns the scale, bringing to some learning through suffering.
+- It is a profitable thing, if one is wise, to seem foolish.
+- From a small seed a mighty trunk may grow.
+- God lends a helping hand to the man who tries hard.
+- God always strives together with those who strive.
+- I have learned to hate all traitors, and there is no disease that I spit on more than treachery.
+- Excessive fear is always powerless.
+- There is no pain so great as the memory of joy in present grief.
+- Don't you know this, that words are doctors to a diseased temperment?
+- It is always in season for old men to learn.
+- Everyone's quick to blame the alien.
+- The one knowing what is profitable, and not the man knowing many things, is wise.
+- And one who is just of his own free will shall not lack for happiness; and he will never come to utter ruin.
+- What atonement is there for blood spilt upon the earth?
+- Be bold and boast, just like the cock beside the hen.
+- Of prosperity mortals can never have enough.
+- When a match has equal partners then I fear not.
+- But time growing old teaches all things.
+- In the lack of judgment great harm arises, but one vote cast can set right a house.
+- To mourn and bewail your ill-fortune, when you will gain a tear from those who listen, this is worth the trouble.
+- Destiny waits alike for the free man as well as for him enslaved by another's might.
+- Time brings all things to pass.
+- Neither a life of anarchy nor one beneath a despot should you praise; to all that lies in the middle a god has given excellence.
+- Bronze in the mirror of the form, wine of the mind.
+- He who goes unenvied shall not be admired.
+- Of all the gods only death does not desire gifts.
+- Death is easier than a wretched life; and better never to have born than to live and fare badly.
+- My friends, whoever has had experience of evils knows how whenever a flood of ills comes upon mortals, a man fears everything; but whenever a divine force cheers on our voyage, then we believe that the same fate will always blow fair.
+- Search well and be wise, nor believe that self-willed pride will ever be better than good counsel.
+- In every tyrant's heart there springs in the end this poison, that he cannot trust a friend.
+- To be free from evil thoughts is God's best gift.
+- The words of truth are simple.
+- Wisdom comes alone through suffering.
+- There are times when fear is good. It must keep its watchful place at the heart's controls.
+- Only when a man's life comes to its end in prosperity dare we pronounce him happy.
+- It is not the oath that makes us believe the man, but the man the oath.
+- Memory is the mother of all wisdom.
+- Time as he grows old teaches all things.
+- If you pour oil and vinegar into the same vessel, you would call them not friends but opponents.
+- For the poison of hatred seated near the heart doubles the burden for the one who suffers the disease; he is burdened with his own sorrow, and groans on seeing another's happiness.
+- Death is softer by far than tyranny.
+- For there is no defense for a man who, in the excess of his wealth, has kicked the great altar of Justice out of sight.
+- Too few rejoice at a friend's good fortune.
+- For hostile word let hostile word be paid.
+- Know not to revere human things too much.
+- Unions in wedlock are perverted by the victory of shameless passion that masters the female among men and beasts.
+- His resolve is not to seem the bravest, but to be.
+- I willingly speak to those who know, but for those who do not know I forget.
+- If a man suffers ill, let it be without shame; for this is the only profit when we are dead. You will never say a good word about deeds that are evil and disgraceful.
+- When strength is yoked with justice, where is a mightier pair than they?
+- It is best for the wise man not to seem wise.
+- It is in the character of very few men to honor without envy a friend who has prospered.
+- For a murderous blow let murderous blow atone.
+- We shall perish by guile just as we slew.
+- What is there more kindly than the feeling between host and guest?
+- The evils of mortals are manifold; nowhere is trouble of the same wing seen.
+- Whoever is new to power is always harsh.
+- It is a light thing for whoever keeps his foot outside trouble to advise and counsel him that suffers.
+- And though all streams flow from a single course to cleanse the blood from polluted hand, they hasten on their course in vain.
+- For somehow this disease inheres in tyranny, never to trust one's friends.
+- You have been trapped in the inescapable net of ruin by your own want of sense.
+- God's most lordly gift to man is decency of mind.
+- It is good even for old men to learn wisdom.
+- God loves to help him who strives to help himself.
+- The wisest of the wise may err.
+- Married love between man and woman is bigger than oaths guarded by right of nature.
+- For know that no one is free, except Zeus.
+- I know how men in exile feed on dreams.
+- The anvil of justice is planted firm, and fate who makes the sword does the forging in advance.
+- There is no sickness worse for me than words that to be kind must lie.
+- Words are the physicians of a mind diseased.
+- Ah, lives of men! When prosperous they glitter - Like a fair picture; when misfortune comes - A wet sponge at one blow has blurred the painting.
+- We must pronounce him fortunate who has ended his life in fair prosperity.
+- Who, except the gods, can live time through forever without any pain?
+- What exists outside is a man's concern; let no woman give advice; and do no mischief within doors.
+- I would rather be ignorant than knowledgeable of evils.
+- Whenever a man makes haste, God too hastens with him.
+- Happiness is a choice that requires effort at times.
+- For this is the mark of a wise and upright man, not to rail against the gods in misfortune.
+- There is no disgrace in an enemy suffering ill at an enemy's hand, when you hate mutually.
+- Alas for the affairs of men! When they are fortunate you might compare them to a shadow; and if they are unfortunate, a wet sponge with one dash wipes the picture away.
+- What good is it to live a life that brings pains?
+- When a man's willing and eager the god's join in.
+- I, schooled in misery, know many purifying rites, and I know where speech is proper and where silence.
+- Who apart from the gods is without pain for his whole lifetime's length?
+- The man who does ill must suffer ill.
+- It is an ill thing to be the first to bring news of ill.
+- For children preserve the fame of a man after his death.
+- Obedience is the mother of success and is wedded to safety.
+- The man whose authority is recent is always stern.
+- A god implants in mortal guilt whenever he wants utterly to confound a house.
+- By polluting clear water with slime you will never find good drinking water.
+- For the impious act begets more after it, like to the parent stock.
+- By Time and Age full many things are taught.
+- Since long I've held silence a remedy for harm.
+- He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God.

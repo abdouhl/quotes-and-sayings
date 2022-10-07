@@ -1,0 +1,124 @@
++++
+author = "A. P. J. Abdul Kalam"
+title = "A. P. J. Abdul Kalam Quotes"
+quotes_len = "118"
+description = "the best118 A. P. J. Abdul Kalam Quotes"
++++
+- Science is global. Einstein's equation, E=mc2, has to reach everywhere. Science is a beautiful gift to humanity, we should not distort it. Science does not differentiate between multiple races.
+- Today, India consumes about 682 watts per capita, far lesser than developed nations. As India develops, it will definitely require a lot more energy.
+- One of the very important characteristics of a student is to question. Let the students ask questions.
+- In a democracy, the well-being, individuality and happiness of every citizen is important for the overall prosperity, peace and happiness of the nation.
+- I was in high school when Pandit Jawaharlal Nehru unfurled India's flag in New Delhi.
+- The bird is powered by its own life and by its motivation.
+- Teaching is a very noble profession that shapes the character, caliber, and future of an individual. If the people remember me as a good teacher, that will be the biggest honour for me.
+- Great teachers emanate out of knowledge, passion and compassion.
+- For success of any mission, it is necessary to have creative leadership. Creative leadership is vital for government, non-governmental organisations as well as for industries.
+- When we tackle obstacles, we find hidden reserves of courage and resilience we did not know we had. And it is only when we are faced with failure do we realise that these resources were always there within us. We only need to find them and move on with our lives.
+- I love the sea.
+- Widespread use of antibiotics promotes the spread of antibiotic resistance. Smart use of antibiotics is the key to controlling its spread.
+- Great dreams of great dreamers are always transcended.
+- Rameswaram has, since antiquity, been an important pilgrimage destination.
+- Nations consist of people. And with their effort, a nation can accomplish all it could ever want.
+- While children are struggling to be unique, the world around them is trying all means to make them look like everybody else.
+- There is not enough funding for basic sciences in India. We have to invest in a big way, and I am pushing that idea.
+- Be more dedicated to making solid achievements than in running after swift but synthetic happiness.
+- Never stop fighting until you arrive at your destined place - that is, the unique you. Have an aim in life, continuously acquire knowledge, work hard, and have perseverance to realise the great life.
+- The world has today 546 nuclear plants generating electricity. Their experience is being continuously researched, and feedback should be provided to all. Nuclear scientists have to interact with the people of the nation, and academic institutions continuously update nuclear power generation technology and safety.
+- Science has revealed that the human body is made up of millions and millions of atoms... For example, I am made up of 5.8x10 27 atoms.
+- The Bay of Bengal is hit frequently by cyclones. The months of November and May, in particular, are dangerous in this regard.
+- Today, India is a nuclear weapons state.
+- There has to be a global mission of human progress.
+- If a country is to be corruption free and become a nation of beautiful minds, I strongly feel there are three key societal members who can make a difference. They are the father, the mother and the teacher.
+- God, our Creator, has stored within our minds and personalities, great potential strength and ability. Prayer helps us tap and develop these powers.
+- Medical costs are of concern, both in developing and developed countries.
+- How accurately can the law fix the crime? There has to be a mechanism for very fast action. The law is like this: catch them and punish them.
+- When a nation is surrounded by weaponized nations, she has to equip herself.
+- Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?
+- Climbing to the top demands strength, whether it is to the top of Mount Everest or to the top of your career.
+- My hair grows and grows; you cannot stop it - that fellow grows, it grows wild.
+- For me, there are two types of people: the young and the experienced.
+- India has to be transformed into a developed nation, a prosperous nation and a healthy nation, with a value system.
+- My message, especially to young people is to have courage to think differently, courage to invent, to travel the unexplored path, courage to discover the impossible and to conquer the problems and succeed. These are great qualities that they must work towards. This is my message to the young people.
+- I'm not an expert on the arms race.
+- God is everywhere.
+- No sanction can stand against ignited minds.
+- Educationists should build the capacities of the spirit of inquiry, creativity, entrepreneurial and moral leadership among students and become their role model.
+- You have to dream before your dreams can come true.
+- Writing is my love. If you love something, you find a lot of time. I write for two hours a day, usually starting at midnight; at times, I start at 11.
+- I have met 18 million youth, and each wants to be unique.
+- Real education enhances the dignity of a human being and increases his or her self-respect. If only the real sense of education could be realized by each individual and carried forward in every field of human activity, the world will be so much a better place to live in.
+- Measuring nuclear yield depends on multiple parameters - the location and number of instruments, the geology of the area, the location of the seismic station in relation to the test site.
+- Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work.
+- Where do the evils like corruption arise from? It comes from the never-ending greed. The fight for corruption-free ethical society will have to be fought against this greed and replace it with 'what can I give' spirit.
+- All wars signify the failure of conflict resolution mechanisms, and they need post-war rebuilding of faith, trust and confidence.
+- The government, whether state or central, is elected. That means we have a responsibility to elect the right kind of leaders.
+- When you look at the light bulb above you, you remember Thomas Alva Edison. When the telephone bell rings, you remember Alexander Graham Bell. Marie Curie was the first woman to win the Nobel Prize. When you see the blue sky, you think of Sir C.V. Raman.
+- For me, there is no such thing as a negative experience.
+- In India we only read about death, sickness, terrorism, crime.
+- As a child of God, I am greater than anything that can happen to me.
+- Do we not realize that self respect comes with self reliance?
+- You see, God helps only people who work hard. That principle is very clear.
+- When I took over as president, I studied the Constitution, and the more I studied it, the more I realised that it does not prevent the president of India from giving the nation a vision. So when I went and presented this vision in Parliament and in legislative assemblies; everyone welcomed it, irrespective of party affiliations.
+- All the scientists and technologists should work in appropriate region, specifically the rural technologies, to transform Indian rural sector.
+- English is necessary as at present original works of science are in English. I believe that in two decades times original works of science will start coming out in our languages. Then we can move over like the Japanese.
+- Tell me, why is the media here so negative? Why are we in India so embarrassed to recognise our own strengths, our achievements? We are such a great nation. We have so many amazing success stories but we refuse to acknowledge them. Why?
+- We must think and act like a nation of a billion people and not like that of a million people. Dream, dream, dream!
+- Where there is righteousness in the heart, there is beauty in the character. When there is beauty in the character, there is harmony in the home. When there is harmony in the home, there is order in the nation. When there is order in the nation, there is peace in the world.
+- The wealth of information now available at the click of a finger amazes me.
+- One lesson that every nation can learn from China is to focus more on creating village-level enterprises, quality health services and educational facilities.
+- Let us sacrifice our today so that our children can have a better tomorrow.
+- Almost half of the population of the world lives in rural regions and mostly in a state of poverty. Such inequalities in human development have been one of the primary reasons for unrest and, in some parts of the world, even violence.
+- What is politics? Political system is equal to development politics plus political politics.
+- Man needs his difficulties because they are necessary to enjoy success.
+- We will be remembered only if we give to our younger generation a prosperous and safe India, resulting out of economic prosperity coupled with civilizational heritage.
+- Life is a difficult game. You can win it only by retaining your birthright to be a person.
+- Over the years, I had nurtured the hope to be able to fly; to handle a machine as it rose higher and higher in the stratosphere was my dearest dream.
+- Those who cannot work with their hearts achieve but a hollow, half-hearted success that breeds bitterness all around.
+- If four things are followed - having a great aim, acquiring knowledge, hard work, and perseverance - then anything can be achieved.
+- Small aim is a crime; have great aim.
+- War is never a lasting solution for any problem.
+- The President's post should not be politicised. Once a president is elected, he is above politics.
+- We have not invaded anyone. We have not conquered anyone. We have not grabbed their land, their culture, their history and tried to enforce our way of life on them.
+- We should remember that there are nations which meet more than 30 to 60% of their power requirements through the nuclear power system.
+- India can live without nuclear weapons. That's our dream, and it should be the dream of the U.S. also.
+- One of the more difficult tasks for me as president was to decide on the issue of confirming capital punishment awarded by courts... to my surprise... almost all cases which were pending had a social and economic bias.
+- Smart habitation is an integrated area of villages and a city working in harmony and where the rural and urban divide has reduced to thin line.
+- The purpose of education is to make good human beings with skill and expertise... Enlightened human beings can be created by teachers.
+- Every nation has to follow a certain policy: Commercial, trade, various other types of policies.
+- I was willing to accept what I couldn't change.
+- It's when children are 15, 16 or 17 that they decide whether they want to be a doctor, an engineer, a politician or go to the Mars or moon. That is the time they start having a dream, and that's the time you can work on them. You can help them shape their dreams.
+- We should not give up and we should not allow the problem to defeat us.
+- I firmly believe that unless one has tasted the bitter pill of failure, one cannot aspire enough for success.
+- Economy forced me to become a vegetarian, but I finally starting liking it.
+- My 2020 Vision for India is to transform it into a developed nation. That cannot be abstract; it is a lifeline.
+- It means, people who are in high and responsible positions, if they go against righteousness, righteousness itself will get transformed into a destroyer.
+- No religion has mandated killing others as a requirement for its sustenance or promotion.
+- A teacher should have a creative mind.
+- Excellence is a continuous process and not an accident.
+- Poetry comes from the highest happiness or the deepest sorrow.
+- We must get rid of fossil fuels by developing injection systems for automobiles, which can run on bio-fuel.
+- India should walk on her own shadow - we must have our own development model.
+- India's trade deficit is because of excess of import over exports.
+- If you want to shine like a sun, first burn like a sun.
+- For 2,500 years, India has never invaded anybody.
+- Where there is righteousness in the heart, there is harmony in the house; when there is harmony in the house, there is order in the nation; when there is order in the nation, there is peace in the world.
+- Building capacity dissolves differences. It irons out inequalities.
+- There are a number of women who have brought about immense change in society.
+- Let me define a leader. He must have vision and passion and not be afraid of any problem. Instead, he should know how to defeat it. Most importantly, he must work with integrity.
+- Unless India stands up to the world, no one will respect us. In this world, fear has no place. Only strength respects strength.
+- To succeed in your mission, you must have single-minded devotion to your goal.
+- The youth need to be enabled to become job generators from job seekers.
+- Small aim is a crime.
+- An economically peaceful and prosperous Sri Lanka is the dream of youth of the nation. My message for the youth is to collectively work for an inclusively developed Sri Lanka.
+- Regarding marriage, it - somehow, it didn't happen. One fellow in such a big family not getting married is not an issue.
+- New markets could be created by rural potentials, which could lead to rise in the employment.
+- Creativity is the key to success in the future, and primary education is where teachers can bring creativity in children at that level.
+- My view is that at a younger age your optimism is more and you have more imagination etc. You have less bias.
+- Science is a beautiful gift to humanity; we should not distort it.
+- Developing nations want to become developed nations.
+- Ultimately, education in its real sense is the pursuit of truth. It is an endless journey through knowledge and enlightenment.
+- If we are not free, no one will respect us.
+- To become 'unique,' the challenge is to fight the hardest battle which anyone can imagine until you reach your destination.
+- When grand plans for scientific and defence technologies are made, do the people in power think about the sacrifices the people in the laboratories and fields have to make?
+- Wherever I go, as long as I get a hot vegetable dish, I am okay. If I am in Gujarat, I have Gujarati food. If it's Shillong, it's northeastern.
+- I was a disadvantaged child from a non-educated family, yet I had the advantage of being in the company of great teachers.

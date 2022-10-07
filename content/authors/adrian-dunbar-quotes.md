@@ -1,0 +1,106 @@
++++
+author = "Adrian Dunbar"
+title = "Adrian Dunbar Quotes"
+quotes_len = "100"
+description = "the best100 Adrian Dunbar Quotes"
++++
+- I am an Irish person. I'm an Irishman, but I'm also an Ulsterman.
+- It would help a lot of directors if they tried a little bit of acting, so they can understand what the process is about. It certainly wouldn't do them any harm.
+- I'd actually love to do comedy. It would be great to go to work to get a laugh.
+- Belfast is great.
+- I try and speak out on things that affect where I live in London, and at home in Enniskillen. For instance, I am very keen we get our bypass - the town is completely clogged with traffic and it's one of the most beautiful inland towns in Ireland.
+- When I was at drama school some of the teachers, who were very wise, said to me, 'You're going to be a great actor in your 50s. Now, you're not malleable enough. You're doing one thing well but you need to loosen up a bit.' That happens to actors. You learn more about it and hopefully you get better at it as you get older.
+- My mother never once asked me to stay at home, because she knew acting was something I really wanted to do. She was great.
+- I think it would be difficult to explore some aspects of Ted's past, because 'Line of Duty' investigates fictitious police forces - you never know, and you should never know, who it is we might be investigating.
+- But it needs to be understood that alcoholism is a disease not a lifestyle choice.
+- I've been lucky enough to do a tiny bit of Shakespeare onstage over the years.
+- 'The Decay Of Lying' is a very interesting treatise. It was actually penned as a dialogue between two characters, Cyril and Vyvyan, both of who were named after Wilde's sons. Wilde goes on to extrapolate art as a science and as a social pleasure, to its most logical and illogical extremes, and it ends up being very funny, indeed.
+- I've been sweating away for 30 years - then I became Hastings.
+- When something like 'Line of Duty' happens, your profile is such that you're asked to do different things. I'm careful not to spread myself too thinly or it just goes mad.
+- Integrated education should be the norm - I'm passionate about that.
+- When you are younger and more radical, the police seem like the enemy.
+- Sometimes when working on TV, especially when doing procedural cop work, you can refer to your notes. Your notes, of course, do contain, naturally, all the information you need.
+- I was in bands many years ago, so that's where it started. I played in bands, sang backing vocals and all the rest of it.
+- I would like to work with my mate Gary Oldman again. I think Gary would be an interesting person to bring into 'Line Of Duty.'
+- I love going back to Northern Ireland.
+- There was a period in my life when alcohol was a good friend. Then there came a point when I realized that it was definitely not a good friend. I haven't had a drink now for many years.
+- One of the things that's wonderful about having a festival in a small town like Enniskillen is that we don't have lots of purpose-built venues so we have to be creative about where we place events.
+- The problem is that in Ireland everybody thinks you have to have a 'take' on something. But if you have a 'take' on something then that's a spoof.
+- Shakespeare was very political, but he was also a fabulous entertainer. That's where his genius comes in as a playwright.
+- I'm not sure about doing 10 takes of running up a flight of stairs, whether I'm really up to that... but I'll definitely have a go!
+- We need ongoing indigenous products, like 'Blood,' to sell on the international market.
+- The variety of my career is amazing and amazingly satisfying.
+- The first time I stepped on stage in the local theatre I knew what I needed to do - I knew I had found the right place to be.
+- I would hope that the Government would still support those small, struggling independent theatre companies and also maybe look to the built architecture of the theaters because we can't let them get into disrepair. They are part of the fabric of the country.
+- We don't know what is going to happen with Brexit, it's not going to be good for the North anyway whatever happens. It's not going to be good for Ireland whatever happens. And the problem is we don't know what is going to happen so we can't really prepare so everything is speculation.
+- But the older I get, the more I like my father and understand him. I was the first-born and he was very proud of me but he never was able to tell me that.
+- Portadown was the most marginalized of all the Nationalist communities in the North. Suddenly we were living in a town where, if you were Catholic, you literally couldn't walk up the street without getting into some kind of conflict.
+- In Shakespeare, the moral balances are very fine.
+- The 'Mother of God' stuff comes from my dad who used to use that all the time. He would say, 'Mother of God' all the time. He used to just say 'Mother' and we know what he meant.
+- There are so many police series that we all end up playing a cop of one hue or another eventually.
+- We pay millions of pounds to separate Catholic and Protestant children, and even more millions on attempting to bring them together as adults. You can't make someone fear another person if they shared a desk for seven years.
+- I'm writing all the time, I never stopped writing.
+- I love music and hopefully I'll be able to do something with it - I just have to find time to get into the studio and record a few songs.
+- I've always been fascinated by Oscar Wilde.
+- I do like the dark, gritty psychological thrillers, but sometimes we need a little respite from that.
+- You hope that some day a part will come along and you can do your stuff and people will go, 'oh that's good.' I just got very lucky.
+- Beckett was the most thorough of playwrights. He tells you what to do and if you've any humility at all, you'll take his advice.
+- I try to get out to The Skelligs, and people will know The Skelligs from 'Star Wars' and so forth, but they really are the most incredible monastic settlement on this island off the south coast, the Kerry coast.
+- You've got the armor and everything on, and you think, 'This is going to be great.' Then they give you a sword, and you think, 'Ah, it's not too bad.' And after 10 minutes you're thinking, 'Please, I can't be doing this all day.' I mean, I really don't know how people sustained themselves in real battles.
+- I've been singing all of my life, one way or another.
+- I was really proud of the response to the first series of 'Blood.' Right from the get-go I knew it was a really good yarn and that it would have a chance if we got it right.
+- 'Line of Duty' does seem to be a bit old school as in people are happy to watch it, talk about it, wait for the next episode, and get back on it.
+- I have been doing stuff for a long time now and you would be in people's consciousness. But when you get something like a gift to play Ted Hastings, and some fabulous writing to get behind and a great crew, it suddenly allows people to go - 'I always knew he was good.'
+- I am absolutely an Ulsterman and I am reminded of that everywhere I go. I can't shake that in Dublin and I can't shake that in London - they are wary of us in both capitals.
+- You don't want to be acting your way towards something. The sense of believability has to be great, so bringing it as close to yourself as you can always helps.
+- I think 'Blood' is honest about the dysfunction of family life and Jim will have to get to the bottom of secrets being kept from him.
+- The Frank Matcham theaters in the West End in particular are incredible pieces of architecture.
+- It's 'Line of Duty' - you can't second-guess anything!
+- When you're young and a teenager, there's an air of excitement about living with a time when you have to grasp life as much as you can because it may be taken from you.
+- Belfast has many advantages for the filmmakers, one of which is the existence of an airport right in the middle of the city.
+- There were two drama societies in Enniskillen when I was growing up, St. Michaels and the Enniskillen Amateur Dramatic Society, and I had the pleasure of working with them both.
+- It's much better as an actor if you can bring as much of yourself as possible to a character.
+- It was a fabulous time, doing 'Hear My Song.'
+- There's no doubt that New York held its temptations for any writer - it still does.
+- Comedy is essentially about watching a bunch of people who you really love lose their dignity.
+- I have to learn sometimes 25 pages at a time. The takes can last 20 minutes - we do big, long takes. You always hope that you get a couple of days in between so you can learn the next one because you can't keep everything in your head at the one time.
+- Yes, I did have a band for two or three years. They were called Adie and the Jonahs.
+- There are Behan experts in international universities, but we seem to have forgotten him here in Ireland. He was an extraordinarily gifted writer. His poetry alone is outstanding.
+- Having lived in London since the 1980s, I would have come across, or my friends across, cops who were in the Metropolitan Police who had been in the RUC.
+- Any mother watching her son achieve his dreams shares that success at some level.
+- I am on a mural in Belfast with 'Floating up the Lagan in a bubble' on it. You know you have made it when you have got a mural.
+- I have never been in an ongoing series before and after series two I realized the writer has absolute control of your life.
+- You have the most amazing Irish actors. Cillian on 'Peaky Blinders.' And the most amazing actress.
+- I don't know anyone else I could have hooked up with who could have handled me. I've got my woman and she's a very good one.
+- I think the scripts for 'Line of Duty' and 'Blood' are both asking the audience to get involved in speculating as to what is going to happen next, or what should be happening next.
+- We lived in this ghetto during the worst excesses of the Seventies. When the tartan gangs came to wreck our estate, we had to defend it. We were barricaded in with diggers and earth-movers. It wasn't a case of joining the Republican cause, or the IRA - we were fighting for our very existence.
+- Ted Hastings is the guy you would hope would be part of the police. He's got his problems, but is relentless in the pursuit of the truth.
+- You really can't pigeon hole yourself into one particular artistic area any more; the days of one vocation in the arts have long gone.
+- Because of 'Line Of Duty's proper adherence to police procedure, by definition we end up doing some very long interrogation scenes which are difficult to learn, and require lots of concentration to sustain them across shooting.
+- Actors are like race horses. They like to run - they don't like to be hanging about.
+- You don't want to alienate your audiences, so you have to be careful but yet you have to be true enough to what you believe.
+- We're in a golden age for television. TV 25 years ago was slow, plodding , boring. The production values were not great. Today it's so much better. People get really invested it.
+- We were always reminded by our teachers that careers take off at different times. They held up Arthur Lowe as a great example of an actor who works for years and then suddenly he gets a part and everybody knows him.
+- I trained to be a theatre actor, I love the live gig, the transference between an audience and a performer.
+- I think sometimes we do miss what a fabulous playwright Brian Friel is.
+- I used to feel sorry for some of the guys who were in 'EastEnders,' who had done something terrible to somebody, and people were shouting at them in the street. I'd think: 'God, I'd hate it if that happened to me.'
+- When they see you on the street, I was at the bottom of Highgate West Hill the other day and the police came down the hill with blue lights and screeched to a halt and went, 'Oi, 'Line Of Duty!'
+- The arts don't care what your background is. They belong to everyone.
+- A lot of the time in Ireland we put people into boxes and that's it.
+- I do like things that are a bit reckless, so long as the people around me are professionals. Stuntmen will see you through anything.
+- I think if we had an All-Ireland economy and the North was in the U.K. and in the E.U. that would be very good for the North.
+- People believe that forensics these days is the answer to everything and because we believe so ardently that forensics can lead us to the criminal we're also a bit nonplussed when someone gets in there and manipulates forensics to their advantage.
+- People often say Beckett is difficult or bleak, but engaging with it is the most life-affirming, uplifting thing. It's his use of language. The music of the words works on your subconscious. You end up deeply moved but don't know why. That's where the magic lies.
+- I'm over the moon to play an iconic character like Ted Hastings and for my career to be defined by this role - that's a place very few actors get to.
+- Anything's possible in 'Line of Duty.'
+- I'd love to do something funny. Our work often deals with tough subjects. You do your research and it can be quite dark. So after all these years of drama, I'd like to go to work someday with the sole intention of making people laugh.
+- The list of unlikely sex symbols is pretty long if you look online.
+- There was a big thing in the Behan family of achieving and wanting to be something special. There was a big drive in the family, even though it was poor and working class, to do something important, to contribute something to Irish culture. He certainly achieved that in a spectacular way.
+- I know a lot of actors who have said to me, 'who'd have thought you could put a two-shot on screen for twenty minutes and people would be absolutely locked in, how does that work?' Well it does work, when the story is great and you've got these fabulous twists and turns - so those are my favorite bits!
+- It seems to me that after the second world war, Beckett finally realized he had something to write about.
+- My father was a foreman on building sites and he was really good at getting a day's work out of fellas. And he did it without being a tyrant. He was a good guy.
+- Of course, that is true of a lot of people, whether they drink or not - celebrities or actors have an image they've created, and an image people like of them.
+- Myth is sometimes more important than history.
+- You show me a family, I'll show you dysfunction.
+- Kurt Vonnegut talks about how we know there is another family out there and when we find it we get this almost instinctive sense of belonging. And that is how I felt in Enniskillen in 1977 when I realized there were these people of all ages, whatever their religion, from different backgrounds, who were bound together by a love of plays and acting.
+- People sometimes forget that alcohol is a chemical. It can change how you think. It was making me into a glass-half-empty person.

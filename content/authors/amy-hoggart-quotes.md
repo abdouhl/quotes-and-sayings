@@ -1,0 +1,16 @@
++++
+author = "Amy Hoggart"
+title = "Amy Hoggart Quotes"
+quotes_len = "10"
+description = "the best10 Amy Hoggart Quotes"
++++
+- I'm more influenced by characters than standups. I love strong, comic women because it's so hard, and I have so much respect for anyone who can do it. I'm a big fan of Tina Fey and Amy Poehler and people like that.
+- I do love live performing, but I'm not a stand-up naturally, and I don't like the lifestyle of working just in the evenings at clubs and stuff - not a natural gig-er.
+- I've never been heckled. I think because I look too small and vulnerable. Sometimes I look out into the audience and see pity in their eyes, so I guess those people may be the ones who would shout something out if they didn't feel so sorry for me.
+- I normally feel relief that I didn't die onstage or forget all my lines. Then I start remembering that I have to do it again sometime, and it'll probably not go as well.
+- By and large, I think that comics work seriously hard. Many have other jobs as well, plus you never really switch off, so you're always working.
+- I was trying to be a clinical psychologist for years. But I kept getting stuck in comedy.
+- The thing with cancer is that it's usually the chemo rather than the disease itself that makes the patient feel so ill, particularly at the start.
+- My father, Simon Hoggart, was diagnosed with pancreatic cancer in June 2010. By this point, it had spread to his spleen and metastasised in his lungs and so was pronounced terminal.
+- Dad's cancer experience included periods of relatively good health as well as bouts of hospitalisation as he coursed his way through a variety of different chemotherapy treatments.
+- If you like quick put-downs and aggressive interactions with the audience, you will probably not enjoy the rambles of an unusual character act making jokes about cats for an hour.

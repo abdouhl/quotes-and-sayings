@@ -1,0 +1,19 @@
++++
+author = "Angus King"
+title = "Angus King Quotes"
+quotes_len = "13"
+description = "the best13 Angus King Quotes"
++++
+- If it's necessary to join a caucus and get a committee assignment, I'll do it.
+- One of my life principles is that if something isn't working, doing something harder isn't necessarily going to produce the same result.
+- Somebody said, 'You may be a committee chair.' I don't think so. I don't think anybody would want me that much.
+- I had no intention of getting back into politics. I was teaching at Bowdoin and happily retired from politics.
+- I think that people have to reward those individuals who are prepared to work across the political aisle. I don't see any other way; if you don't talk to people with whom you disagree, you're never going to solve problems.
+- My view of the filibuster is either you've got to lower vote edge or make people really filibuster if they feel that seriously about a piece of legislation.
+- I worked in the Senate in the 1970s. I worked for the Labor, Public Welfare Committee, and we had Ted Kennedy and my old boss, Bill Hathaway, and Walter Mondale.
+- My desire is to be as independent as I can be, as long as I can be, subject to being effective.
+- I'm old enough to remember Richard Nixon. They called it the imperial presidency when he was refusing to spend money that Congress had appropriated.
+- I have a Twitter account; I have a fantastic Facebook page.
+- How can you work with someone if you went into their state to campaign against them?
+- It's hard running as an independent. I wouldn't have won the Senate election if I hadn't been governor. I had credibility. The hard part is getting voters to the point where they think it's thinkable and not a waste of time.
+- I've come to realize that an unencumbered U.S. senator is a profound threat to the whole system. It's somebody that they can't put in a box and say, 'Oh, well, we know how this guy is going to vote.'

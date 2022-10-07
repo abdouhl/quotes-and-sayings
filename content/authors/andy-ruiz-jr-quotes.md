@@ -1,0 +1,106 @@
++++
+author = "Andy Ruiz Jr."
+title = "Andy Ruiz Jr. Quotes"
+quotes_len = "100"
+description = "the best100 Andy Ruiz Jr. Quotes"
++++
+- I've been in many street fights. I fought street fights for my friends to protect them.
+- I'm willing to die in the ring.
+- I had been through a big roller-coaster through my whole career.
+- Everyone who thinks I'm not Mexican simply because I was born in the United States is wrong.
+- I never look past an opponent that I have.
+- My whole life people underrated me.
+- I'm just a little-big kid with a dream.
+- Tyson Fury, he wants to be relevant. He wants to be in the scene. I like the guy too. I'm a big fan of him. I like how he is. I like his energy.
+- At the end of the day it's our business to promote the fight however possible.
+- Don't underestimate this little fat boy.
+- For me, I'm an American and I'm a Mexican. I live here. And it hurts me the way a lot of people talk about Mexicans when I know we're all about hard work and dedication.
+- I've got that Mexican blood in me.
+- When I got knocked down, I got back up.
+- Boxing gave me the discipline and took me away from the streets and away from the corners. It changed my life, you know. Boxing dragging me away from all the bad potential I had.
+- A lot of people can relate to me.
+- One of those chubby kids that would do something athletic and everybody would look at me and say, 'What the heck? Did that kid just do that?' That's the kind of chubby kid I was.
+- Everybody is looking for that chiseled guy. Just because they have a lot of muscles, they think he's the strongest guy out there, this and that. Lucky for me, the skills pay the bills.
+- I was this big, heavy kid - nobody was at my weight at that age, so I had to fight 12-year-olds, 13-year-olds when I was seven years old. And what do you know, I was beating them.
+- It's hard to criticise a fighter when you're not in the ring doing what we do.
+- I'd love to fight Wilder. They say everyone is scared of him, I'm not scared of nobody.
+- Styles make fights.
+- I was a bad kid. I was a bad and good kid in and out of the boxing gym.
+- My goal is to become the first Mexican heavyweight champion of the world.
+- Training at altitude took two weeks to get used to.
+- I've been an underdog my whole life with the shape that I have and the way that I look. But once I get in the ring it's a whole different ball game.
+- In China, they treated me really well, they like me a lot. The first few times they laughed when I took my shirt off, but when they saw me throw my punches and saw my opponent on the floor, they came over to my side and clapped.
+- I have been dreaming about the heavyweight title it seems since I was born.
+- I'm not trying to be with six-pack abs and big muscles and all that. None of that, you know.
+- Dreams are dreams and reality is reality. We have to make the dreams happen.
+- Mayweather is Mayweather. He's always good. He stays in shape, takes care of himself.
+- I need to remain humble, stay disciplined and keep training. That's how I will continue to be a champion.
+- We all have good days and bad days.
+- Whaddya know? I'm the first Mexican heavyweight champion of the world.
+- It irritates me when Trump says what he does.
+- If it wasn't for my dad, I wouldn't be here.
+- I have two friends, who have died from this boxing game, and it scares me, but I feel I was made for this.
+- Boxing saved my life. There were a lot of gangs and I was hanging around with the wrong people.
+- I represented Mexico trying to go to the Olympics.
+- I love The Rock.
+- All fighters put their lives on the line.
+- With my Mom and Dad, we always had everything that we needed, but not everything that we wanted. I am going to get my parents what they want, especially my Mom.
+- I'm scared of things that I can't see that can hurt me, you know.
+- I wanna be a legend, I wanna be in the world books of records.
+- The hard-working Mexican tries to get up here looking for opportunities because America's one of the greatest countries in the world.
+- Unfortunately, when you're learning on the job, things can go wrong.
+- Mom, I love you. I love you, and our lives are gonna change. We don't have to struggle no more.
+- As long as you pray and believe in your dreams, anything is possible.
+- You pick your destiny or maybe destiny picks you. But it picked me to box, definitely.
+- My dad's been giving me Snickers since I was six years old. Since I first turned amateur, my dad's been giving it to me.
+- A lot of stuff, all the fast food, the cheap food, the dollar menu - I had to cut all that off.
+- I feel unfinished business with the WBO title because that was my first loss when I went to New Zealand with Joseph Parker.
+- Just because I bought some jewelry and things I've always wished for and always wanted, it doesn't mean I'm not focused. It doesn't mean that I'm not hungry anymore.
+- My dreams have come true.
+- My mom and dad are from Mexicali, and I feel more Mexican than others who were born in Mexico because I fought for my race and for Mexico.
+- My dad would always give me a Snickers before a fight. It gives me energy. It gives me everything I need to get the win.
+- When I was a boy, my parents would buy me a new toy and I would destroy it. Oh man, I would destroy it. I don't know why I would do such a thing. I was a little rough when I was a little kid.
+- Don't even bring Drake around me!
+- I'd love to be at 250, 255, but just be fit and be solid.
+- I try to prove everybody wrong and those who underestimate me, that's why I train hard.
+- I'm not scared of Joseph Parker or any other fighter.
+- I just have to do what I have to do, and just let my hands go and focus.
+- I want to show that it doesn't matter what people say about you or how you don't fit.
+- At my first amateur fight, I was seven years old. My dad took me to go fight San Diego.
+- I don't want to just have 15 minutes of fame. I want it to last.
+- I love all the Imperial Valley, man.
+- When I fought Joseph Parker it was for the WBO world title and they robbed my fight.
+- A lot of people saying that I'm not training, that I'm not taking it serious. Come on, I got all these belts. There's a lot of responsibilities to this.
+- Being from a small farmers' town, going back and forth to Mexico, hours waiting in the line to cross back home and training for hours, that's why I represent Mexicali because it means a lot to me.
+- I was fighting men at age 10.
+- People need to understand that I came this far being chubby and all that. Imagine how far I could go actually being in good shape and looking good.
+- It's a natural blessing. Thanks to God. He gave me this ability of being chubby but still being fast and being able to hit hard.
+- A lot of fighters underestimate me. And what do you know? They end up being on the canvas.
+- Everyone has a plan until they get hit.
+- I'm confident in all my fights. You have to be. You have to put any negative thoughts aside.
+- Anthony Joshua, I'm pretty sure he's underestimating me, man.
+- A lot of people say I'm not Mexican because I don't speak a lot of Spanish or am there a lot, but the United States is where it's at. Mexico's in my blood, in my DNA. It's in my kids' DNA.
+- People who say I'm not focused, they're crazy.
+- A lot of people have underestimated me and I have been a problem for them inside the ring.
+- You can train so hard and eat bad stuff and you're training for no reason.
+- I respect Muhammad Ali... he was the greatest, he was the best.
+- I was six years old when I first went into a gym.
+- If I win, it sends out a powerful message about the strength of Mexican people.
+- People that I fight, they can tell you that I'm different and I'm hard to get to.
+- I'm going to accomplish my dreams.
+- I've been bullied a few times in school.
+- A lot of people underestimated me, and I'm used to that.
+- In my pro and amateur fights I've always mentioned Mexico.
+- People tell me that I've also changed their lives making history.
+- My dad put me in boxing because I was this hyperactive kid always breaking stuff.
+- I still respect Anthony Joshua and I'm a big fan of what he did in boxing.
+- The physique will show in the punches.
+- Me becoming the first Mexican heavyweight champion of the world, it's a blessing.
+- That's what we're gonna do, baby, bring the titles back to Mexico.
+- If I wanted to fight for the title, I would fight at around 240.
+- It doesn't matter how you look. As long as you train hard, you focus and you're hungry, and that drive is in you to follow your dreams, everything is possible.
+- It took a long time, and a lot of years, for me to get comfortable with myself, like the way I am now.
+- Each Mexican has his own dream, and I've come to believe as long as we focus, you can accomplish anything you want.
+- First I tried karate but I didn't like it because it was boring. There was no action like you see in the movies.
+- Ever since I won the world title I've been getting so much love from my people, from a lot of different people. But I know the hunger remains there because I don't want to let my people down or my kids down.
+- I'm ready for Anthony Joshua. Hopefully he's overlooking me, thinking I'll be a piece of cake. It's a whole different ballgame when they're in the ring with me. Once they see the speed and accuracy I have, I know I will shock him a lot.

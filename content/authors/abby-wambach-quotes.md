@@ -1,0 +1,97 @@
++++
+author = "Abby Wambach"
+title = "Abby Wambach Quotes"
+quotes_len = "91"
+description = "the best91 Abby Wambach Quotes"
++++
+- I've always had a dream of owning a restaurant.
+- This might sound masochistic or narcissistic, I don't know, but when I'm not playing the game, the validations I feel about life are always through the hardships. I relate more to sadness, in a lot of ways, when I'm not playing.
+- A few goals is the way soccer is meant to be played.
+- The truth is, I've been on a team my whole life. I'm the youngest of 7, so I've been training to be an athlete my whole life.
+- As soon as I started to realize that I could make a living playing professional soccer, I went to that place where I could torture myself because I knew it would make me better for the championship game.
+- At the most elite level, your nutrition becomes a lifestyle: it's not something you have to do when you're preparing for Olympic games or World Cup games - you just do it. You're more inclined to eat healthier because it's better for your muscles.
+- My sole focus is to help bring a World Cup back to the U.S.
+- I've always been motivated more by negative comments than by positive ones. I know what I do well. Tell me what I don't do well.
+- The growth of women's soccer and women's sports all around the world has been slow.
+- I always think that struggle can bring out the best in people - or the worst.
+- Winning, you can overlook so many things.
+- It feels a little bit odd to me that you have some guys that have never lived in the United States that play for the United States because they were able to secure a passport. To me, that just feels like they weren't able to make it for their country and earn a living, so they're coming here.
+- I have never once dribbled the whole field and scored a goal by myself.
+- I am not a politician by nature, but I will say I think there need to be more women in FIFA, and I would be open to having those conversations when the time is right.
+- Soccer players generally burn through all of their carbohydrate stores by halftime, so how are you going to replace those? That's what we do at halftime.
+- As an athlete, you are literally programmed to endure a specific amount of pain.
+- 2014 was physically a tough year because I injured my knee, and you know how that goes with your emotions and the mentality.
+- When you're a pro athlete, life is very narcissistic - everything relates back to you and how you play. When you are getting out of pro sports, you suddenly have to get a little more mindful of what's going on around you and how you affect the rest of the world.
+- I'm a pretty decent cook. I like to grill. I have a smoker that I love. I love me some steak. And I'll make a huge salad with a ton of vegetables.
+- I always wanted to be more validated as a human being, as a person, than I was as a player. I think that was a really hard balance for me.
+- I'm going to do anything I can do - whether that's being part of FIFA or creating some sort of movement that can actually impart real equality across all lines - in every country, every city, every sector all over the world, that's what I'm going to do.
+- International friendlies, they mean something, but what you want is to play on the biggest stage, play under the lights.
+- If I can help a kid feel more comfortable in their skin because they're struggling with maybe the things I struggled with in high school, that's great.
+- I am going to change the world, and I'm talking to everybody in the possible world that I can get to that can help me to do that.
+- The most important thing is to get better at your craft, and concussions and head impacts are a setback.
+- I know that I was put on this planet to be an athlete.
+- When I look in the mirror, I don't see a person who's made the kind of impact that Mia Hamm made on the game. She's still my idol, the greatest player and the greatest teammate. She achieved so much in so many different ways. What she did for women's soccer can't be measured.
+- People don't think an athlete nowadays can have a team-first mentality and I do.
+- The minute you step off that podium is the minute you start preparing for the next world championship. That's kind of how I work. You celebrate for a brief moment, then you move on.
+- I'm honestly not the kind of person who wants to step up to a podium, test the microphone and be like, 'Hey, I'm homosexual and this is who I am, hear me roar.' That's not who I am.
+- Any good attacker will always beat a defender who's face-marking you.
+- If you break an individual record, it's because of the greatness that comes before you.
+- I think making the referee aware of a situation, there is nothing wrong with that.
+- I don't care how many championships you've won or how many records you've broken - if you've had a hand in pushing forward not only a game but women in sport's movement, then I think that's pretty darn good.
+- Whenever you get to win, you feel the satisfaction of all of your hard work, all the sacrifices, all the blood, sweat and tears. It feels right and makes you realise that you are really doing the right thing.
+- I want my legacy to be about the soccer, and if I can help people be happier in life in any capacity, awesome.
+- When you can score three goals without the most prolific scorer in the world, you know you have a lot of depth, and it gives you confidence.
+- I really enjoy helping people out, and I enjoy time spent with kids.
+- One thing I love to do when I'm working out is take my watch off, take my heart strap off, and just run - not for time, not for exertion, but just to get the blood flowing.
+- I have a unique ability to predict the flight of the ball, and my teammates have a unique ability to find me.
+- I think there's so much emphasis on body image and results and outcome, but really what you should be after is to be healthy and to feel good about yourself.
+- Nobody is offered a World Cup.
+- Sometimes when you fail, it allows you the opportunity to grow more motivation and get more intense about your training.
+- From a pretty early age, my mother realized that I was a little bit more gifted and talented than my own age group. So, she moved me over to play with the boys' travel soccer team when I was about 11 years old.
+- During events like the World Cup and the Olympics, I tend to get really wrapped up in my own experience to stay focused, but it's like a bubble. I don't see much outside my own perspective.
+- I'm not sure if I'm going to get into coaching. I'm sure I'll stay in soccer somehow.
+- I'm not in the business of politics.
+- As professional soccer players, we take our bodies to the extreme. We're the people at the gym that look like we're breaking the machines. Pushing our bodies to the limits is what makes us so strong and capable and Olympians. It's not an easy thing to consistently do over and over again to your body.
+- Having different people come together and be on a team and win a world championship is literally, I think, the definition of being American.
+- To win a championship, you have to have a little bit of luck on your side.
+- I want to reduce my risks as much as possible and hopefully be able to go to the World Cup fit, ready and healthy.
+- I hope we can get to a point where women players are being paid properly all around the world so the only thing they have to worry about is playing football and playing football alone.
+- People don't understand that the feel of the surface is so important for a footballer. The ball travels on the surface; our feet move on the surface - all of that goes into how the game is actually played.
+- We need to have women in more powerful positions that are making decisions, so when that 10-year-old girl is looking up and wondering, 'What can I do and what do I want to be when I get older?' She has the opportunity to do and be whatever she wants.
+- I'm pretty goofy. I laugh at my own jokes.
+- I think, as you grow older, you have figure out the best way to utilize not only your body but your skill.
+- I think I take on a little more responsibility when push comes to shove. I'm not scared to fail.
+- The most important thing is that sometimes you have to go through hard times to get to the good stuff.
+- My eldest sister Beth is a doctor who studied at Harvard and Columbia and played basketball for Harvard. She set the athletic and academic standard for the rest of us to follow.
+- Considering retirement is like skirting with the reality of what's to come, and I think that's why so many athletes decide to do more introspection at that point.
+- Sometimes there has to be a goat on some level, and I'm totally fine with that being me.
+- I can't speak for other people, but for me, I feel like gone are the days that you need to come out of a closet. I never felt like I was in a closet. I never did. I always felt comfortable with who I am and the decisions I made.
+- I think that in order to get better as an athlete and to see whatever kind of results you're after, you have to make goals. Whether you write them down or tell someone about them, it's important to set goals for yourself in order to achieve any kind of success.
+- I haven't won a World Cup. There's things that haven't been finished, and I'm not afraid to fall flat on my face trying.
+- My teammates have put me in all different kinds of positions to score goals, and I can't say it enough, and I really through and through believe it in my heart that I'm only as good as my teammates allow me to be.
+- You can't cry when things get a little bit hard. You've just got to push through and know that there's a reason and end to the means.
+- I'm not spending every second thinking about the World Cup, but it's always in my mind when I make choices and decisions.
+- I don't know if I found soccer or if soccer found me. Especially because when I was younger, I was doing it, in a lot of ways, because I wanted the attention of my mom and dad.
+- I would love to be a mum if I'm blessed to have children. My wife and I have those plans.
+- When I was in college, I learned to really take care of my body and figured out what works best for me and what doesn't work for me when it comes to my nutrition. That helped so much on the field because soccer is such a fitness-oriented game.
+- I know that I'll end up being a role model for many, many people out there for all kinds of reasons.
+- I'll be honest. After I got married, I definitely had a shift in emotional devotion.
+- My parents, they're the kind of people that didn't want me to get a big head, so they just kept challenging me and challenging me.
+- I would say Hope Solo is competitive.
+- For any athlete growing up, the Olympics is the one thing you watch with your family, and it's the one thing you dream about. Seeing your country's flag go up as you get a gold medal is the best thing you can achieve.
+- I would trade all the individual awards I've won for a World Cup.
+- You know me, I'm not that kind of person that cares to unveil all of my personal things to the world because frankly, in terms of my soccer, it doesn't matter.
+- There are standards of the game that FIFA governs and promises to uphold.
+- It's a heavy burden to look up at the mountain and want to start the climb.
+- I'm fiercely patriotic, and the flag and the anthem is something that I really, really respect.
+- Your heart can only take you so far - sometimes the physical body tells you otherwise.
+- I want to do what I can to give the next generation of athletes added advantages in the game.
+- When you're younger and traveling and visiting new countries and cities, that stuff is exciting; it's flashy, it's shiny, but I always had this separation between who I was as a person and who I was as a player.
+- Any little touch a defender can make on me when I'm in the air literally moves me. On the ground, I can use my muscle, but in the air, it's harder to fight that off.
+- My nephew has type 1 diabetes, and it's my goal and hope that in his lifetime there will be a cure for diabetes. There's no place better to give the money to than the Juvenile Diabetes Association.
+- It's always really challenging trying to go from player to player/coach. You have a kind of friendship basis of relationship with all of your teammates, and now you go to this power position where you have to make decisions that might hurt people's feelings.
+- Sometimes if you have a coach or team-mates for too long, you get caught in certain routines. I think it's good to shake up things a little bit.
+- My go-to karaoke? 'Alone' by Celine Dion.
+- When I was really young, the women's national team wasn't on a grand media stage, so my role models were male basketball and male American football players.
+- Forever, it was just soccer - passion, life, love. Then I got married, and I had to transfer some of my energy. I want to be my best for my country, but I also made a really big promise and choice to be the best in my marriage. That has not always been the easiest thing to manage.
+- As a competitor, I want to continue to keep turning the chapters and keep challenging myself.

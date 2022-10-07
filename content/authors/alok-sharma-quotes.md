@@ -1,0 +1,49 @@
++++
+author = "Alok Sharma"
+title = "Alok Sharma Quotes"
+quotes_len = "43"
+description = "the best43 Alok Sharma Quotes"
++++
+- Eliminating global poverty will need the talent and potential of all, not just half the population.
+- Our reputation as a nation of animal lovers means we can make a strong case for dogs as pets rather than as food.
+- The four home nations that make up our United Kingdom are bound together by historic links. We have, and always will be, better together.
+- Britain is committed to peace and security, and a leading supporter of the international rules-based system.
+- India and the U.K. share a dynamic future on the world stage.
+- Coronavirus has challenged daily life in Britain in a way not seen for generations.
+- One of my earliest political memories was watching the then-Labour Home Secretary Merlyn Rees on television during the Winter of Discontent telling the nation that the lights were, literally, about to go out.
+- The U.K. is open for investment, but not for exploitation.
+- The world is rapidly changing - and with it, we face new global challenges.
+- People in this country, Britons, have a special relationship with dogs. And like the millions of dog owners across our great nation, my wife and daughters and I regard our dog as a treasured member of our family.
+- The U.K. is leading the way to build sustainable economies.
+- If you aspired and wanted to get on in life, as so many immigrants families did, Margaret Thatcher was your champion, your role model, your heroine.
+- While satellite operators can dodge large pieces of debris and armour satellites to withstand the impact of smaller fragments, with the need for a growing number of satellites in orbit we must be able to monitor the space highways and to gradually clear it of obstructions.
+- We want to help countries ultimately to become self-sustaining. That has to come through economic development.
+- Some of our best and unexpected discoveries have been born out of crises - from the Second World War, for example, came Alan Turing's decoding machine, widely considered as the precursor to modern day computers and artificial intelligence.
+- The U.K.'s relationship with China is strong, growing and delivering benefits for both our countries. As permanent members of the U.N. Security Council, we are working together to tackle global issues of the 21st century.
+- Educating girls prevents child marriage and early pregnancy and helps women get jobs, which boosts household incomes and economic growth. It gives girls a voice and helps them to shape their own futures.
+- Too often, researchers on the cusp of a new discovery are held back by needless red tape and paperwork, meaning their innovative work cannot be capitalised on.
+- The global economy is facing unprecedented challenges with the outbreak of Covid-19. Businesses large and small across our country are also responding to these challenges.
+- From the radio and the world wide web, to the steam engine and penicillin, for generations the U.K. has been a world-leader in science and research.
+- As we build back better from Covid-19, we must not waste the golden opportunity to take back control.
+- Before I entered politics, I worked for more than 15 years in corporate finance in the City, where I saw for myself the value of foreign investment. Simply put, it is a catalyst for prosperity.
+- Investment in businesses creates sustainable jobs.
+- Diseases are a threat to us all. And so is climate change.
+- Investment in infrastructure enables children to go to school. Investment in vital public services like health and education gives young people the opportunity to shape their own futures and reach their potential.
+- The U.K. wants and needs closer trading partnerships with African nations - and Africa needs much more capital.
+- For 47 years, the U.K. has been forced to follow rules set by Brussels bureaucrats, many of whom have never set a foot on British soil.
+- Achieving net zero carbon emissions by 2050, identifying treatments to diseases like cancer, and harnessing the power of robotics and artificial intelligence to support everyday tasks are all within our grasp. The first country that gives birth to these discoveries will change life as we know it.
+- Every one of us has a small but critical part to play in the battle against coronavirus. From washing our hands to wearing a face covering on public transport and in shops, every time we take one of these actions, we push the virus further into retreat.
+- My Dad always maintained that although Mrs. Thatcher did not look like us, she absolutely thought like us. He referred to her as the first British Asian Prime Minister. Because she shared our core values and beliefs.
+- Our commitment to our extensive security cooperation with vital international partners, like India, remains steadfast.
+- By protecting our internal market, the Union and its people will be stronger than ever before.
+- Ebola is a horrific disease.
+- Infrastructure is the backbone of economic growth. It improves access to basic services such as clean water and electricity, creates jobs and boosts business.
+- In my immigrant family we revered Margaret Thatcher. She was aspiration personified. She understood what it took to smash the glass ceiling. She shared our values and she empathised with our experiences. She really was the first British Asian Prime Minister.
+- I am delighted that India will be my first official visit since taking up my appointment as a Foreign Office Minister.
+- We must remember that coronavirus is a new disease, which presents new challenges.
+- In spite of the tireless efforts of our scientist, it is possible that we may never find a successful coronavirus vaccine.
+- Giving every girl in the world the chance of a healthy, educated, and economically independent life is essential if we are to end poverty around the world.
+- My two daughters have grown up with the same freedoms and opportunities as their male cousins; we must aspire for that to be every girl's reality.
+- U.K. aid is responding to our changing world and tackling the great challenges of our time. It is transforming lives in the poorest countries and making the world healthier, safer and more prosperous for everyone.
+- The U.K. and India have a broad and exciting partnership that includes trade and investment, climate and energy, education, health and culture, reinforced by the large, vibrant Indian diaspora in Britain.
+- The U.K. and India are vital strategic partners and we are striving further to strengthen our cooperation in facing global threats and challenges.

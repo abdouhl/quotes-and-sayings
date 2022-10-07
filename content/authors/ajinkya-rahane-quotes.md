@@ -1,0 +1,57 @@
++++
+author = "Ajinkya Rahane"
+title = "Ajinkya Rahane Quotes"
+quotes_len = "51"
+description = "the best51 Ajinkya Rahane Quotes"
++++
+- If the team management asks me to bat at a certain position, I am always ready for that.
+- We invest in real estate, equity shares, etc. My father takes care of it and my wife helps too.
+- I try not to get affected by criticism as it is unwanted and I can't control it.
+- Personally, I take every match seriously and give off my best... My aim is to win and there's no time to relax.
+- Outside cricket, I idolise Roger Federer and in the gentleman's game, I look up to Sachin Tendulkar and Rahul Dravid. Not only were they great players, but the way they conducted themselves off the field evoked respect.
+- I don't try and copy anyone in T20 cricket. My cricketing shots are inside out, behind the bowler, and other shots I have developed.
+- If I am playing 18 ball, I aim to see how I can get my strike rate to 150-160. After 6-14 overs, you need to break down, that if you play half balls, then how much runs you need to get on the board.
+- You want to give your best and be the best batsman for the team. So, whenever I go in to bat, I always believe in giving the best. I take it as a challenge every time.
+- Sometimes the shots you play in T20s don't look good and you feel that you got out on a bad looking shot.
+- I was practising with wet rubber balls just to get my reaction right, my hand-eye co-ordination right. Because sometimes wickets are softer, two-paced wickets, it helps to practise with a tennis ball.
+- Shifting from Tests to T20s is all about mental adjustment. I think adjusting to different conditions, in different situations is something I learnt by speaking to Rahul Dravid, Sachin Tendulkar and MS Dhoni.
+- I think if you are sure of your shots, you should back them.
+- It's important to train even if you're not batting. You just have to do that routine every time.
+- Just to go out there and do well. Get as many runs as possible at the top of the order and get the team off to a good start.
+- I got my black belt First Dan at the age of 12 and I was the youngest in my training centre. I practised karate till a few years ago and it has helped enhance my flexibility, stamina and mental toughness.
+- As long as I value what I have and respect my cricket, I know I am on the right path.
+- You are always happy when you make a hundred.
+- At No 3 you have to take a bit more time to find your feet, but at No 5 you take much less time to get adjusted because you have already observed your openers, the No 3 and No 4 batsmen and you get a fair idea of how the wicket is playing.
+- I always believed in getting better and better in each and every format and give my best. As a batsman, it is important to keep learning every time and stay hungry for your runs. I don't get satisfied.
+- As a child you dream of playing for your country, but when it really happens you do not know how to react.
+- You have to think for your team-mates and give them positive response. Whatever happens as a captain you have to take the responsibility. Backing my team-mates and supporting them was the biggest learning.
+- I always look to giving my best whenever I get my opportunity, whether it's in the opening position or in the middle order.
+- I have always worked hard and there's nothing that can compare to captaining India.
+- As a professional cricketer we are used to prepare for any format. For me switching between formats is a mental thing. I always think technique is only that important and mental preparations are more important.
+- I don't know what decisions they are going to take but if you take this Covid-19 situation aside, you want your family to be there with you to support you whenever you are on the tour.
+- Whenever an opportunity comes to play ODI and T20I cricket, I will work hard and make it count.
+- My physical preparation for a series starts at least 10, 15 days before it begins, but mentally around a month before I start visualising things as to which bowling attack I will be facing, the conditions I will encounter and other things.
+- I'm always looking at cars on the street or online.
+- As an individual, you take Covid-19 situation aside, you would want your family to travel with you, but because of this situation, safety is important, safety of your wife, family and daughter, obviously safety of your teammates is really important.
+- I was the ball boy during the Mumbai Test of the home series against South Africa in 2000. I was playing Under-14 cricket.
+- Once you play County cricket, you get strong in the mind and get used to different methods... If it's swinging or seaming in overcast conditions, it's all about how positive you are mentally and if your body movement is in the right direction... You can then always bat better.
+- Personally, everyone dreams to be part of World Cup squad. Mine was also the same.
+- It's always important to respect your opponent.
+- For me, the most comforting thing is that the team management thinks I am comfortable in any position I am assigned. They trust me so much and if they give me responsibility of batting in a particular position I also respond positively to it.
+- Last year when I was playing for Hamphsire, Delhi Capitals asked me if I was interested in playing for them. I took my time and I thought it's an opportunity for me to learn something new. To take my game forward, to take my T20 game forward.
+- It always helps a team when the opener is able to bat till the 20th over. I am learning to do so.
+- When I am batting on the crease, I am the boss.
+- Some of the apps I use are Google Maps, Amazon, Zomato and Facetime. I also use media player so that I can watch my batting videos and some movies.
+- I think it is more important to adjust mentally than technically. What happens at No 3 is that you have to be very careful with your shot selection than at No 5.
+- County cricket has helped every player who has been part of it.
+- I have been a fan of True Religion since I saw Sachin Tendulkar wearing them.
+- Consistency is the key to becoming a good cricketer.
+- Obviously, I'm enjoying my County stint. This is the first time I am playing County cricket and it's a different experience. It's an opportunity of a lifetime and everyone should play it.
+- Rahul Dravid is my role model. I always used to watch him on the television. Now I get to interact with him up-close.
+- I was part of an Under-15 squad training at the National Cricket Academy in Bangalore.
+- For a batsman, the bat is your main weapon and you need to respect it. The more you respect it, the better it helps with your cricket.
+- Yes, process and preparations are the most important for me as a player. If preparations are not great, that tends to affect performance. When preparations are perfect you are not searching for results but only counting on performance.
+- I think as a leader, as a captain, it's important to back your instincts, whatever you feel. Yes, it is important to take advice from your colleagues, but in the end what your instincts tell you, you should back that.
+- I am really excited to play for Delhi Capitals. I got an opportunity.
+- Being vice captain of India is a really proud moment.
+- When I played 2 months in county cricket, I learnt a lot.

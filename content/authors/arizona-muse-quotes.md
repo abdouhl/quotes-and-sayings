@@ -1,0 +1,23 @@
++++
+author = "Arizona Muse"
+title = "Arizona Muse Quotes"
+quotes_len = "17"
+description = "the best17 Arizona Muse Quotes"
++++
+- I like simple makeup, but a bit dirty-looking around the eyes - I love a smoky look.
+- Modeling is really silent acting.
+- I don't know why my smile has become a signature pose. I think it's a nice change. I think people want to see happiness, so a smile is what can bring that. I didn't make it my trademark on purpose.
+- I'd like to work for as long as possible and form connections with the labels I work for.
+- Karl Lagerfeld and Tom Ford are both geniuses.
+- I like running and swimming, and exercise four or five times a week, but not for long - about 30 minutes. I just exercise by myself and find that as I get older it becomes easier. In school I remember not enjoying running at all.
+- My mother's English, and she always was fascinated by the desert.
+- I highly recommend getting your career established first and then having children.
+- I remember my mom saying that after you have a baby you get really thin. So you gain all that weight and then you just lose it and keep losing it.
+- From when I was about seven, I thought I wanted to be an architect. I've always loved spaces and dwellings in general.
+- I'm quite competitive. Not with other models but with myself. I have to win.
+- I don't have to do a lot to my eyebrows. My mom always told me not to pluck them, which is great advice.
+- I'm lucky with my skin - it doesn't require a lot of attention, so I keep things simple. And I drink a lot of water.
+- I don't eat wheat and am into alternative medicines and treatment.
+- I'm a big advocate of breastfeeding.
+- My son is really good at being on trips with me. He understands what's going on. He grew up with me modeling, so it's quite normal for him to be on a shoot and in pictures because he sees me doing it.
+- There are plenty of models who have children.

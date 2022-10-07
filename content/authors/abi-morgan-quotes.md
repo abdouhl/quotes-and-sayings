@@ -1,0 +1,104 @@
++++
+author = "Abi Morgan"
+title = "Abi Morgan Quotes"
+quotes_len = "98"
+description = "the best98 Abi Morgan Quotes"
++++
+- Eddie Marsan is just my favourite actor of all time. I love everything he's been in, so it's a dream come true to work with him.
+- I can understand a family that's imploding. I have experience of that in my own life.
+- Having worked on 'The Hour,' I now feel like I spend my whole time interrogating history.
+- I love the intimacy of TV. I love the fact that you don't necessarily have the pressure of an audience or anyone around watching it - just you and it.
+- To be honest, if I was going to have any kind of fantasy, be it left-wing or otherwise, it wouldn't involve Margaret Thatcher.
+- I know what it's like to be brought up by actors and writers.
+- I think that, as a writer, while it's your job to construct stories, you have to navigate your way through them with your heart.
+- I think theater is very much my natural home. But the truth is that the older I've got, and the more I've written film and television, I find it incredibly hard to write theater.
+- I never know if I'm the builder or architect. The role shifts all the time. But what I have come to conclude is that the script is the muse.
+- If you're dealing with a powerful leader, you're inevitably going to have a dialogue with her political past. It was always my intention to interrogate Thatcher's political life.
+- I was never cool as a kid.
+- Really, feminism is just about equality, and that's all. It's just saying equal rights.
+- I write an actual script rather quickly - a draft will take me two weeks - but I write a lot of drafts. My big thing is I don't re-read. When I write, I never re-read back. I'll send it, because if I re-read back, it will cripple me.
+- I didn't take into account the critical tsunami that comes with having work going out. I've gone from being a complete narcissist, someone who googles my own name, to someone who has to work separately from that to avoid creative paralysis.
+- Yes, I've heard of the 'Mad Men' comparisons, but I like to think 'The Hour' has its own distinctive voice. Although it is set in 1956, I have tried to give it a contemporary edge, and its themes of love, passion, romance, fury, professional jealousy, and personal failure are universal, I think.
+- I understand this fear of the word 'feminism,' and I understand the fear of saying it because it becomes as divisive as 'sexism' has become. But I know a lot of male feminists.
+- 'Tender' is my most strongly autobiographical play.
+- I wrote a play for Miu Miu called 'The Moment Is the Present, That's Why It's Called a Gift.' Instead of doing a catwalk show, all the actors wore the clothes and performed a 20-minute play.
+- I definitely people-watch. I often see photos of myself with my children: I'm always in the background with my mouth wide open, looking somewhere else.
+- Journalism and the news has become not only a means to debate but also to judge and deconstruct celebrity, the news story, and the emotional lives of political people.
+- I get the 'Guardian' delivered every day and read it very quickly. I like it for both the TV and theatre reviews and because it's very accessible. At the weekend, I get the 'Observer' because I love the food supplement, Observer Food Monthly, and the style section. And I can't resist the News of the World.
+- Writing comedy is a superpower.
+- I literally grew up in drama. I used to watch drama - the catharsis of the play - then see drama at home.
+- I'm a woman, and I'm interested in writing stories from a female perspective.
+- Of course I am aware that there is a level of sexism in any large institution, but I find, in television and film, most of the producers are women.
+- Now I would say I'm absolutely a feminist writer.
+- If the world is in complete flux for me and life is falling apart, if I just manage to get myself in front of a computer or at my desk, it calms.
+- When people say to me, 'You're so prolific!' it's, like, no, I'm just hopeless with money.
+- I had a huge interior world as a kid: I'd sit on endless wet holidays in Cornwall playing with paper dolls.
+- I think film and television - particularly film - you are very isolated as a writer. If you're lucky, you have a good relationship with the director. Then you do make that development and come on set and be part of something. But ultimately, your work is kind of done by the time you come on set.
+- I love the South Bank: every era of architecture is there, and you can stop, look, and listen.
+- If you want to fit in, you try to mirror whatever anyone wants from you.
+- Stage is the place of the playwright: you're guided by great actors and directors, but it's the playwright's word on the page that counts.
+- The joy for me as a writer is that, despite the fact I spend most of my life on my own in a room eating too much chocolate and drinking too much tea, eventually they let me out into the world.
+- Life experiences inherently change you as a writer. My sense of fury calmed down when I had children and found a loving partner.
+- Usually when I write a movie, I'm lucky if I get one good actress.
+- I work from about 8:30 A.M. until 7 P.M., five days a week, when I'm not sneaking off to buy another bar of chocolate.
+- I am the most tense, annoying person in the world.
+- I'm the world's worst at reading reviews and then pretending I've read the book.
+- I never get writer's block, but I do have days where I crawl under the duvet.
+- I'm so straight and boring, really. I have two kids and a very nice partner.
+- One of the things I think I can do in my lifetime is stop to remind myself that - and keep affirming that - women can sell movies.
+- There are so many actresses I want to write for. I see them, and I think, 'Why is she not playing that lead? What's happened to that actress?' I think all I can do is to write parts for women, to say, 'Keep going, keep acting, because there are parts for you. There will be those plays.'
+- I think social media has reinvigorated people's enthusiasm to be active and to engage.
+- You can't control how an audience responds to something. It's up to them.
+- All work is a process of failure. Every single thing I write, I look at it and go, 'Do better. That's not good enough. Do better.' And so, that keeps me up at night.
+- I think I'm always running away from somewhere, and to me, theatre's always felt like a good place to run away to.
+- Plays are the marathon of scriptwriting. You fix on a point somewhere in the middle distance, and you start running, and you don't stop until you get to the end. The theory is that you have something you cannot not say: this is the engine that propels you through to the last page.
+- I was a pretty heartbroken 13-year-old. That was the year my grandmother died and my parents split up.
+- I'm quite interested in doing a film about fashion. As someone with no fashion taste whatsoever, I think it would be good for me.
+- I got dumped off 'The Iron Lady' a month before they started shooting, and then they brought two new writers on. Then I was brought back on again. I'm just a bit of a rubber ball. I just bounce back.
+- My parents' divorce was very difficult. Divorce is essentially incredibly painful, but it's also an essential part of life.
+- I'm a writer of fiction. I try to write about my time, but it's dangerous if I'm seen as an investigative writer. I manipulate and change and control.
+- The older I get, the more I have to think long and hard about what I need to say and why.
+- I don't look back. I don't look forward. I am totally now.
+- I'd love to know what the future looks like.
+- Having a daughter has reawakened my sense of feminism. I want to protect her.
+- London does two things for me: it makes me feel connected, and it also makes me feel very isolated and quite lonely at times, and that's someone with two children in their family.
+- The thing I love about London is that it is filled with migrants, including myself.
+- What's great about the way 'Shame''s been received is that I kept on thinking there's no way this film will be received well since I've had such a good time.
+- Writing a film is like giving birth to a baby and then giving it up for adoption.
+- 'Splendour' broke through to new territory for me. It exposed my commitment to writing for women: my desire to recognise that they can be as aggressive, violent, mercurial, and complex as men.
+- I try to stay focused on the work and recognize that I've been very lucky. Maybe it's 'cause I grew up with actors, but I've seen that recognition comes and goes, so all there really is is your family and friends. You have to maintain those constants in your life. Maintain what's beyond your work.
+- There is an invisible aspect of being a writer; none of it is about you. It's about your work, and that's what it should be.
+- When you see in this country and every other part of the world the huge pay disparity - in Hollywood, in every profession in the U.K., globally - and you see what is happening to women in every country socially and culturally, you can't not be a feminist.
+- I hope my pieces have an authenticity to them, but my job is to filter the world and tell a story, not to define and recreate exactly what's going on.
+- I need to be in charge, and that comes from when I was growing up and money was always an issue. I didn't want to feel the fear of poverty again, and I suppose, in that way, I qualify as Thatcher Youth.
+- I am always running away from something.
+- Cornelia Parker has inspired a lot of my theatre work. Her art is about points of impact: it's poetic but with a strong literal story.
+- 'The Iron Lady' is not a biopic. Phyllida Lloyd and Meryl Streep coined it 'King Lear for girls.'
+- I spent most of the Seventies living in Newcastle-upon-Tyne and most of the Eighties living in Stoke-on-Trent.
+- I used to listen to 'Woman's Hour' every morning, but I've discovered that I can't have words on when I'm working.
+- Even if you've been a coward all your life, death is a heroic act.
+- I talk to myself all the time - it's something my children have observed in the car.
+- I'm a cheap date.
+- My greatest love is my children, and they have inspired me to fight and stand up for the right things.
+- Chaos is my natural habitat. I write about chaotic situations and about people finding their way through the chaos, the hope that you can find your way.
+- The world can make you very angry.
+- I like bowling with my kids at Shoreditch House.
+- I think casting is everything. You get a great cast and - certainly, as happens in 'The Hour' - so many of those performances on the page were transformed by those actors who took those parts and made it into something completely different.
+- The notion of having your muse was not something that was built for women originally. That's not to say women don't have muses. I get muses in terms of actors or writers who inspire me, so I understand the concept.
+- I always felt a bit of a nerd, but my family gets me and my oddities. My kids and partner are way cooler than I am, but they let me in the room with them.
+- I used to believe in God as a child. God, for me, was linked with hope.
+- I think there is a difference between connecting with a character and supporting and believing their policies.
+- It's quite good when you fall flat on your bum on a creative level. Critics can hate what I do, or I've got something completely wrong, and it's good because that ego thing gets zapped for a while.
+- Of all the mediums, theatre is the one where you really need to have something to say - because it's just you, the words, and the space.
+- I can go to the BBC and say, 'OK, my next drama is for women, and it is diverse women.' I take that to America, however, and I have another set of conversations.
+- Plays are painful. But the very act of writing is a basic freedom denied some women. Some would call it a privilege. So what's a little pain?
+- Feminism isn't just for women. It's for men.
+- I don't really read that many magazines; I'm more of a browser. I get 'Vanity Fair' quite often if I'm on a train.
+- As a writer, you're not even at the party when you work in film. At best, you're the one laying out the canapes.
+- I think, in some ways, there's a point as a television writer that 'executive producer' is the natural credit you get, and it can be a vanity title, or you can make of it what you want.
+- My mother came to see me in a play when I was a student, and afterwards, I asked her what she thought. She said, 'Honest opinion? No.'
+- I still always think the greatest moment for me, as a writer, is when I press that button and send the first draft of the script.
+- Good writing is often about trying to investigate something you feel is missing and trying to put it back.
+- Most good work is a combination of parts you love and parts you could do better. My constant mantra is, 'Next time, next time, next time.'
+- I always say writing a play is like toothache: I find it incredibly painful, and it's only once the play's out that the pain is gone.
+- I always deeply admire people who can stay still in a room and wait for people to come to them.

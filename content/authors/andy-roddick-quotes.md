@@ -1,0 +1,61 @@
++++
+author = "Andy Roddick"
+title = "Andy Roddick Quotes"
+quotes_len = "55"
+description = "the best55 Andy Roddick Quotes"
++++
+- I used to hear a lot that all I could do was hit a serve, I couldn't volley, I can't hit a backhand, I don't return well, and then people would turn round and tell me I'm underachieving.
+- I like grass, I enjoy it and it suits my game.
+- I think I have a lot of room for improvement. My serve is okay, but I need to work on a lot of things: return, transition game, backhand.
+- Stay in college, kids. Otherwise, you may become an umpire.
+- It's not so much that I don't like traveling, it's just that I love being home. I love being able to spend time with my friends.
+- I'll never lose my roots. I think I'm too close to my family for that. I still make my trip back to Nebraska every year, and I still love going back to Texas where I grew up, as well. I've just kind of had to mature a little bit more and get used to a little bit different style of life.
+- Stay in school kids or you'll end up being an umpire.
+- Tennis is a full-time job and not just the two hours that people see when we're on the court.
+- I've always, for whatever my faults have been, felt like I've never done anything halfway.
+- I don't care when people use the term 'one-Slam wonder' with me.
+- I don't think about tennis 24/7. I enjoy time on the lake at my Florida home and just being lazy on the sofa.
+- I want everyone to look back and think that I was awesome.
+- I got to play in a crowd, play in Wimbledon finals, be the guy on a Davis Cup team for a while. Those are opportunities not a lot of people get. As much as I was disappointed and frustrated at times, I'm not sure that I ever felt sorry for myself or begrudged anybody any of their success.
+- I don't really rate press conferences. It's not as though I leave the room fist-pumping my way down the corridor after a good one.
+- At one point in your life, you'll have the thing you want or the reasons why you don't.
+- I think I've always had a decent perspective on wins and losses on the tennis court.
+- I'm the most successful bad player ever.
+- Well, immediately we announced yesterday or the day before we're building, with my foundation, a youth tennis and learning center in Austin. I'd like to be hands on with that and not see it periodically.
+- Do you have to be like a second-grade dropout to be an umpire? Did you go to school until you were 8 years old? I think you quit school before you were 10. Stay in school kids or you'll end up being an umpire.
+- I enjoy hitting tennis balls. I haven't lost any of the innocent parts of tennis. I just do it in front of less people.
+- Most players who play tennis love the game. But I think you also have to respect it. You want to do everything you can in your power to do your best. And for me, I know I get insane guilt if I go home at the end of the day and don't feel I've done everything I can. If I know I could have done something better, I have this uneasy feeling.
+- My entire career, I've been a worker.
+- I had a very detailed retirement plan, and I feel like I've met every aspect of it: a lot of golf, a lot of carbs, a lot of fried food, and some booze, occasionally - I've been completely committed... The results have shown.
+- You can get the true essence of New Yorkers by just hanging out in Central Park.
+- One little secret of the guys who have won one slam, is that we don't want other guys to win one because its like a bit of a special fraternity.
+- I got to play in a crowd, play in Wimbledon finals, be the guy on a Davis Cup team for a while. Those are opportunities not a lot of people get.
+- I've got more out of tennis than I could ever give back.
+- My aggression out there is my weapon. I think it's more letting them know that I'm not going to let them get away with something, and I'm not just going to kind of poke it back and be content to stay in rallies.
+- I think if I believe in something strongly enough, I'm pretty outspoken about it.
+- When I was 18, 19, I was presented as the 'aw shucks' Nebraska kid who's coming up with a big serve, and then I flipped out a couple of times, and then I was ueber-brat, when I feel like there's parts of both, but I don't think I am either one, if that makes sense.
+- You ask me a question, I'm going to give you an honest answer.
+- I'm not going to go run and hide because I'm catching some heat. I'm not going to stay at home and pout.
+- You know, I still love the innocent parts of the game. I love hitting tennis balls. I love seeing the young guys do well. I'll still have a lot of friends to watch. I'll miss the relationships probably the most. As time passes, I'll probably miss the tennis more.
+- I used to go to the U.S. Open on my birthdays and sit in the nosebleeds.
+- If there were rankings for press conferences, I wouldn't have to worry about dropping out of the top five, I hope.
+- You know, you can only throw in so many haymakers before one misses and you get knocked out.
+- If I'm being honest, I think I'd be good at television; I just don't know if I am interested, because you are kind of geographically responsible to a location, and frankly I don't know if I retired from tennis so that I could sit around tennis tournaments 12 hours a day.
+- I don't think anyone in their right mind takes me serious.
+- I've pretty much been portrayed as every style thing you can be. After Wimbledon you are Andy Everyman, who everybody is rooting for. I think the meat and potatoes of who I am hasn't been covered yet.
+- I've been pretty good about keeping my nose to the grindstone. I feel like I won a lot of matches from hard work and persistence, even maybe when I had better options as far as shot-making.
+- When you come off something really disappointing, you want to come back and kind of regroup and get involved in something positive right away.
+- I played basketball in high school, and I love watching sports - I'll watch everything except maybe hockey.
+- I think it's foolish to think that if you've done something for so long, you can kind of delete it out of your memory bank or delete every emotion attached to it. I knew when I retired what that meant.
+- I'm convinced being a tennis analyst is the easiest job in the world.
+- Call me All-American, but I love Ham and Cheese sandwiches. And not just any old ham and cheese sandwich... My mother's is the best. I've tried many times to make these sandwiches on my own, but it's never the same.
+- The selfish thing about an athlete is you always look at the side of things where you say I could've done that better.
+- I cook a little - I've never taken classes or anything - but enough to get by.
+- In the States, tennis is sixth or seventh on the totem pole as far as sports go.
+- My worst days are still pretty good days. That's something I might lose in the moment sometimes, but I have a pretty good grasp of it.
+- There have been great champions in every generation.
+- I like playing tennis. I've always enjoyed the process of being a tennis player; I'm just not sure that I enjoyed the travel at the end, and my body didn't recover from the day-to-day grind.
+- I don't know that I've ever been someone who's interested in existing on tour. I have a lot of interests and a lot of other things that excite me.
+- I don't have much interest in being on a senior tour. I don't think I retired so that I could be on tour.
+- Having two older brothers is a healthy reminder that you're always closer to the bottom than you are to the top.
+- I don't know that I'll ever be the guy who needs to go to a tournament to be seen and to spectate. I feel like I can accomplish spectating from home.

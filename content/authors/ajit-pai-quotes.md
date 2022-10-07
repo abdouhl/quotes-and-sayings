@@ -1,0 +1,93 @@
++++
+author = "Ajit Pai"
+title = "Ajit Pai Quotes"
+quotes_len = "87"
+description = "the best87 Ajit Pai Quotes"
++++
+- Like many consumers, I love Uber. But not everyone does.
+- Light touch regulation means that we create broad regulatory frameworks that can protect consumers to ensure an overall competitive marketplace.
+- We all agree on the core values of a free and open Internet. We simply may disagree on the appropriate regulatory framework for securing those values. And I would much rather have an open and honest debate about the appropriate regulatory framework as opposed to throwing misinformation out there to achieve political ends.
+- In my first remarks as Chairman of the Federal Communications Commission to the agency's terrific staff, I stressed that one of my top priorities would be to close the digital divide - the gap between those who use cutting-edge communications services and those who do not.
+- There is no reason why any legitimate caller should be spoofing an unassigned or invalid phone number. It's just a way for scammers to evade the law.
+- We all have an interest in an open Internet.
+- Consumers and businesses alike value their ability to keep a phone number when changing providers or relocating. This concept is called 'number portability.'
+- Consumers fare best when the barriers to business entry are low, which helps ensure that the market - any market - becomes competitive and stays that way.
+- Overly restrictive regulations not only stifle the private sector; they also ultimately hurt consumers.
+- President Clinton got it right in 1996 when he established a free-market-based approach to this new thing called the Internet, and the Internet economy we have is a result of his light-touch regulatory vision.
+- The Internet should be an open platform where you are free to go where you want and say and do what you want without having to ask anyone's permission.
+- Scammers and spammers use spoofing to disguise their identity, to trick consumers into answering unwanted calls, and to hide from authorities.
+- No one seriously believes that unlocking a cellphone to switch carriers is equivalent to piracy.
+- Our rules need to keep pace with current technology so that Americans who use hearing aids can easily use phones.
+- Spoofed robocalls are often used by fraudsters to lure consumers into scams and avoid detection.
+- The FCC should facilitate, rather than frustrate, innovation.
+- Bottom line: government shouldn't be a bottleneck for entrepreneurs looking to design a better mousetrap.
+- Broadband Internet access service is inherently an interstate service, and that is not a determination that just the FCC has made.
+- Now look: I love Twitter. But let's not kid ourselves; when it comes to a free and open Internet, Twitter is a part of the problem. The company has a viewpoint and uses that viewpoint to discriminate.
+- Whether you live in a big city or a small town, a call placed by a loved one, friend, or customer should go through.
+- Giving consumers the power to keep their phone numbers when they switch carriers has been great for consumers and businesses alike.
+- One of the great joys of my job is having the privilege of meeting people from all across the country and hearing their stories.
+- Protecting consumers goes beyond just fighting illicit schemes. It also involves making sure that they get what they pay for. Unfortunately, rural telephone customers aren't always assured of that.
+- Let the free market for wireless services and devices flourish. If the government gets out of the way, the wireless marketplace will continue to be an American success story.
+- Broadband Internet access shouldn't depend on who you are or where you're from.
+- Imagine a world where everything that can be connected will be connected - where driverless cars talk to smart transportation networks and where wireless sensors can monitor your health and transmit data to your doctor. That's a snapshot of what the 5G world will look like.
+- Some claim that the Obama FCC's regulations are necessary to protect Internet openness. History proves this assertion false. We had a free and open Internet prior to 2015, and we will have a free and open Internet once these regulations are repealed.
+- What is responsible for the phenomenal development of the Internet? Well, it certainly wasn't heavy-handed government regulation.
+- In the Telecommunications Act of 1996, the government called for an Internet 'unfettered by Federal or State regulation.' The result of that fateful decision was the greatest free-market success story in history.
+- Entrepreneurs are constantly developing new technologies and services. But too often, they're unable to bring them quickly to market for consumers because regulatory inertia stands in the way. Unfortunately, the FCC can suffer from this government-wide problem.
+- I've talked a lot about the need to promote digital empowerment: to enable any American who wants high-speed Internet access, or broadband, to get it.
+- Unfortunately, Lifeline, known in some circles as the 'Obamaphone' program, is plagued by waste, fraud, and abuse.
+- The one thing that is distinctive about America historically has been the fact that we are all able to engage in public discourse without the political becoming personal.
+- The FCC's job is not to put a finger in the wind and decide which way the winds are blowing; it's to look at the facts and make a sober judgment based on what the law is.
+- In the United States, the government has no business entering the marketplace of ideas to establish an arbiter of what is false, misleading, or a political smear.
+- The United States needs modern, flexible, light-touch network regulation, not a one-size-fits-all utility model from the 1930s.
+- I support a free and open Internet.
+- I'll never forget the first time I heard Johann Sebastian Bach's 'Partita in E Major' for violin. It was in a late-1980s television commercial, of all things. As a young violinist at the time, it enchanted me - it was so pure, precise, and unadorned.
+- Hurricanes Harvey, Irma, and Maria each caused billions of dollars in damage, claimed the lives of many Americans, and disrupted millions more. They also reminded us how important communications networks can be during emergencies - and that the FCC has a role to play in helping keep people safe.
+- Consumers have the right to know important information about the service they are choosing to purchase and/or use.
+- Hyperbolic headlines always attract more attention than mundane truths.
+- As a native of Parsons, Kansas, a small town near the Oklahoma border, I have a deep respect for tribal nations in Oklahoma. But this federal spending in Oklahoma is outrageous. And excessive subsidies have made the state a playground for Lifeline fraud.
+- The free market for mobile devices and wireless service has been a dramatic success.
+- Throughout the history of communications, we've seen that the country that sets the pace in rolling out each new generation of wireless technology gains an economic edge.
+- The FCC has been hard at work doing what we can to help close the digital divide.
+- Heavy-handed regulations hurt the very consumers they're supposed to help.
+- Increasingly, meeting the connectivity needs of all Americans - no matter where you live - means freeing up spectrum to meet the growing demand for wireless broadband.
+- You may never need them, but if you do, they'll be there. It's that bedrock promise of protection that makes our public safety officials the unsung heroes that they are.
+- I believe in the First Amendment.
+- High-speed Internet access, or broadband, is giving entrepreneurs anywhere an unprecedented chance to disrupt entire industries and transform our country.
+- As chairman of the Federal Communications Commission, I've logged more than 5,000 miles driving across the country to see first-hand how digital technologies are unleashing opportunity in U.S. communities and to understand the connectivity challenges many Americans face.
+- The bottom line is this: I want America to be at the forefront of innovation in the broadcast sector, the wireless sector, and every other sector of the communications industry.
+- Whereas robocalls are ever-present, the problem of contraband cellphones in prisons - that is, cellphones illegally being used by inmates - is generally out-of-sight and too easily ignored. But the need for action is just as clear.
+- The Internet has enriched my own life immeasurably.
+- Without having to ask anyone's permission, innovators everywhere used the Internet's open platform to start companies that have transformed how billions of people live and work.
+- To realize the promise of 5G, we will need smart networks, not dumb pipes. Dumb pipes won't deliver smart cities. Dumb pipes won't enable millions of connected, self-driving cars to navigate the roads safely at the same time.
+- Beginning in the Clinton administration, there was, for nearly two decades, a broad bipartisan consensus that the best Internet policy was light-touch regulation - rules that promoted competition and kept the Internet 'unfettered by federal or state regulation.' Under this policy, a free and open Internet flourished.
+- I'm a lawyer by training, of course.
+- As we're unleashing the benefits of communications technologies, we also want to minimize the downsides.
+- For too long, Americans have been plagued by unwanted and unlawful robocalls. For too long, they've found unauthorized charges and changes to their phone service on their bills - practices commonly known as 'slamming' and 'cramming.' And for too long, some phone calls that are placed to rural residents have been dropped.
+- We need to create a level regulatory playing field. It makes no sense for Internet giants like Google, Facebook, and Twitter to be allowed to buy newspapers while a small AM radio station is prohibited from purchasing its local paper.
+- My own view is that the Internet should be run by technologists and engineers and business people, not by lawyers and bureaucrats here in the nation's capital.
+- Everyone believes that artificial or prerecorded calls - 'robocalls,' as they're known - are awful. They're intrusive. They're unwanted.
+- Infrastructure investment is critical to closing the digital divide in our country and bringing high-speed Internet access to more rural Americans.
+- Incumbents have long promoted regulation in the name of protecting consumers when their actual goal is to block new entrants and stifle competition.
+- The federal government has no business spending your hard-earned money on a project to monitor political speech on Twitter.
+- To bring the benefits of the digital age to all Americans, the FCC needs to make it easier for companies to build and expand broadband networks. We need to reduce the cost of broadband deployment, and we need to eliminate unnecessary rules that slow down or deter deployment.
+- The FCC, under my leadership, will stand for the First Amendment.
+- I'm not an IT expert myself.
+- Regulatory mandates have a disproportionate effect on small businesses.
+- Gigabit Opportunity Zones would enable Americans to become participants in, rather than spectators of, the digital economy. They would be a powerful solution to the digital divide. I hope our elected officials will give the idea serious consideration.
+- Rules designed for the Ma Bell monopoly during the era of rotary phones were a poor fit for the greatest innovation of our time, the Internet.
+- Under the law, the FCC does not have the authority to revoke a license of a broadcast station based on the content of a particular newscast.
+- Next-generation networks are hard to build. It takes a lot of money and effort to lay fiber, install wireless infrastructure, build satellite earth stations, and more. It also requires a reasonably certain business case for deployment, which is all too often hard to prove in parts of the country with sparse population and/or lower incomes.
+- My view is that the Internet should be run by engineers and entrepreneurs, not lawyers and bureaucrats.
+- To those who wish to shape the nation's political dialogue, social media is dangerous.
+- Forty-six years after my parents' journey from India, here I am, the grandson of a spare auto parts salesman and a file clerk, tapped by the President of the United States to be the nation's chief communications regulator.
+- For newspapers to continue to play an important role in civic engagement, they need more access to capital. Their decline has created a real threat to independent reporting at the state and local level.
+- I oppose any proposal for the federal government to build and operate a nationwide 5G network.
+- The scourge of unlawful robocalls is technically complex to address, and no single action will get the job done.
+- Whether it's police officers, firefighters, first responders, or 911 dispatchers, many dedicated Americans work long hours, and often in difficult conditions, to make sure that when someone's in need, they can help.
+- In the Restoring Internet Freedom Order, the FCC strengthened its transparency rule so that Internet service providers must make public more information about their network management practices. They are required to make this information available either on their own website or on the FCC's website.
+- I think it's dangerous to make a decision based on where one thinks the public may or may not be. Aside from the fact that that's not what the law prescribes, it's also, I think, not what reasoned decision-making is all about... You always try to look at the facts and apply the law faithfully.
+- There is no reason why any legitimate caller should be spoofing an unassigned or invalid number. And providers shouldn't be sued for doing the right thing by blocking illegitimate spoofing.
+- It's vital that low-income Americans have access to communications services, including broadband Internet, which Lifeline helps to achieve.
+- Wireless carriers certainly don't need the federal government's help.
+- I believe that the FCC and Tribal Nations share the same goal-ensuring high-speed Internet access to anyone who wants it, while respecting and preserving sites with historic, religious, and cultural significance to Tribes.

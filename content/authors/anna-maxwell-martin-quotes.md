@@ -1,0 +1,18 @@
++++
+author = "Anna Maxwell Martin"
+title = "Anna Maxwell Martin Quotes"
+quotes_len = "12"
+description = "the best12 Anna Maxwell Martin Quotes"
++++
+- I am shy - going to parties kills me.
+- I'm forever being told that I'm an odd-looking actress, so it's great playing parts where there's no vanity. You just look as rough as you possibly can!
+- I come from Beverley in East Yorkshire, and no one there would step outside their front door, or even their back door, on a Saturday night - or any other time, for that matter - unless they were dressed to the nines.
+- I don't get offered many comedies.
+- I played crying people in corsets for a long time, but I went into acting to be a character actor.
+- Oh, I got totally misquoted saying I can dance like Rihanna. I can't! What I did say is that I enjoy a dance-off with my stepdaughter and her friends.
+- My father was from Northern Ireland, and coming from somewhere like that, your faith defines you. That's something we don't really understand outside Northern Ireland, but because of my parents and grandparents, I've experienced it.
+- I get described as 'interesting' a lot. People often call me odd, too. Maybe they mean ugly. Given the services of a plastic surgeon, I would get a pair of cheekbones.
+- As a young girl, I was too intent on getting to London and drama school and out of east Yorkshire to think about winning Oscars. I did win a Bafta once, and was so unprepared for it I jabbered on for a minute - a minute too long.
+- I was always a show girl. My parents were wonderful. There wasn't a lot going on where we lived, but they ferried me to classes and competitions all over the place. When I was 12, I came to London as a finalist in a singing competition and I was completely wide-eyed.
+- I'm rather a practical person. I just get on and focus on what I have to do. I just don't get sleepless or suffer from the jitters.
+- For some actors, their star shines brightly and fizzles out. My star doesn't shine that brightly, but it buzzes along. Hopefully, that means it will last longer.

@@ -1,0 +1,28 @@
++++
+author = "Anna Ewers"
+title = "Anna Ewers Quotes"
+quotes_len = "22"
+description = "the best22 Anna Ewers Quotes"
++++
+- I like to head upstate to the Catskills, to Woodstock.
+- Brigitte Bardot is an icon, and her look is timeless. She is seen as one of the most beautiful women of all time. I feel very honored to be compared to her.
+- I don't like to diet, so I work out with a trainer a few times a week. We do kickboxing and strengthening - it's hard! I also do yoga and love to walk everywhere. I live in Brooklyn, so walking is the best way to discover the city and the neighbourhoods.
+- Kate Moss, for example - she's never given a lot of interviews. She stays so mysterious. Nobody knows who she is, really.
+- For a natural look, I just use a little concealer and mascara.
+- I've learnt the best way to put on the fragrance is by spraying it and walking into it so it's all over you.
+- It is always comforting to be around people you like and know!
+- When I go out, I just put on a little mascara - Chanel is my favourite - and fragrance. I actually apply fragrance right out of the shower - I spray and walk through it so it's not too overpowering.
+- I try to not wash my hair a lot because it takes the moisture out of the hair. If I don't work, I wash it every two or three days. I don't brush my hair after I wash it, and I let dry naturally.
+- When I wear Hugo Boss 'The Scent For Her', I feel more confident, attractive, and seductive - it's the perfect fragrance for a date.
+- My first interviews, I didn't know what to say. I was really, really shy. It's overwhelming sometimes.
+- I'm very lucky. I'm not too exposed to social media and is going quite well for me. I like to have my privacy.
+- There was a model in my high school. She was like, 'You're so pretty. You should come see my agency'.
+- I love Weleda Skin Food and Avene's Moisture Mask, especially if I've been travelling. Weleda also makes great deodorants and body oils - my mum introduced me to them long ago.
+- I think it's really important to not stress out about anything.
+- My best beauty secret ever is to drink a lot of water!
+- With modelling, a lot happens behind the scenes; all the fittings and hair and makeup. Then the runway takes two minutes - you just walk out and come back in!
+- Daria Werbowy is my beauty icon.
+- I like to walk around. And I have a really big garden in Brooklyn. Growing tomatoes in my backyard feels very rewarding.
+- I like cycling and swimming and walking everywhere. I'm not going to the gym. I like being outside rather than inside a room.
+- I like going after work back to Brooklyn because it is so much more relaxed and chill.
+- I like a man who smells manly. I love the smell of nature.

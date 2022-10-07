@@ -1,0 +1,12 @@
++++
+author = "Abraham Pais"
+title = "Abraham Pais Quotes"
+quotes_len = "6"
+description = "the best6 Abraham Pais Quotes"
++++
+- The rule of the game was never assume that anybody, however honorable, would be able to stand up under torture. If Mr. X, who knew where I was, was caught for some reason, I should move.
+- One of the things I learned, one of the strangest things, is how to think. There was nothing else to do. I couldn't see people, or go for a walk in the forest. All I had was my head and my books, and I thought a lot.
+- I spent every night until four in the morning on my dissertation, until I came to the point when I could not write another word, not even the next letter. I went to bed. Eight o'clock the next morning I was up writing again.
+- One of the absolute rules I learned in the war was, don't know anything you don't need to know, because if you ever get caught they will get it out of you.
+- Once I even took the train to Utrecht, forty miles from Amsterdam, with my yellow star, this star which I still have. Why did I go? I just wanted to visit some friends. I was a little bit crazy, a little bit insane.
+- Of course, relative citation frequencies are no measure of relative importance. Who has not aspired to write a paper so fundamental that very soon it is known to everyone and cited by no one?

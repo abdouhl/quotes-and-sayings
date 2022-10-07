@@ -1,0 +1,104 @@
++++
+author = "Alek Wek"
+title = "Alek Wek Quotes"
+quotes_len = "98"
+description = "the best98 Alek Wek Quotes"
++++
+- I've eight brothers and sisters - five girls, four boys. I am the seventh.
+- My commitment to refugees comes from a very personal place.
+- Restaurants serve huge portions on even huger platters, and people are tempted to eat too much.
+- It's sometimes tiring to get off a long-haul flight and go straight to the studio for a shoot, but if you really plan everything well, you can get so much out of combining travel with work.
+- There's never too much you can do.
+- I have eight brothers and sisters, so I'd like to have a few children.
+- All the exhausting aspects of my job are made worthwhile because I get to experience so many different cultures. It makes you really appreciate the memories.
+- You've got to make yourself happy. I'm a happy person naturally.
+- Bones inside clothes. That was war to me.
+- There's one thing we all share: We eat to nurture ourselves, to feel stronger.
+- I like unique little boutique hotels, such as Blakes in London.
+- I used to have nightmares about the civil war when I got to England at ages 14 to 15. It took me some years to get over that.
+- I'm an artist at heart.
+- I believe we should utilise any power we have for important issues that are bigger and beyond us. Whether it's with refugees or working to educate kids. I don't think you need to have gone through a civil war to do something. I believe as human beings, we can look out for each other.
+- I like to accept it all, the negative and the positive.
+- London is like my second home. I've still got friends there from school and from when I first started in the modelling business - people such as Karen Elson, Jasmine Guinness, Jade Parfitt.
+- Don't focus on negative things; focus on the positive, and you will flourish.
+- My family is the most important thing to me.
+- We eat to live.
+- I grew up in southern Sudan, one of nine children. Our life was simple but very happy.
+- The day you stop enjoying something is the day you should quit, if you can afford to.
+- You could fancy what you'd like, but as a woman, my mother always raised us to believe in ourselves. I am very grateful that my mother brought me up that way.
+- The fact that designers like Lagerfeld, Gaultier, Galliano and Dior could believe in Alek made me believe in myself, too.
+- In restaurants in my Brooklyn neighborhood, I always ask for a doggie bag to bring the leftovers home.
+- My father made sure of discipline, but my mum, she was serious business.
+- Whenever I feel I am going through my own 'little' challenging moment, I just think about my mom.
+- Starting modeling in the '90s, it was quite surreal. They were like, 'You're so different! So weird! So bizarre!' And I'm like, 'I'm so normal. What are you talking about?'
+- We need to do everything we can to protect the health and welfare of children around the world, but fortunately, it's getting easier to provide things like medication and care.
+- When I think of 'Instagram models,' I say you have to take baby steps. You cannot just walk straight onto the runway.
+- When I was growing up, my mother taught me and my sisters to celebrate each other - there was no room in our household for negativity. She taught us to embrace each other, and this was empowering for us. She also taught us the value of celebrating our differences.
+- From nine years old, I lived with fear. I saw our neighbours disappearing. I was scared that I would come home from school and my parents would not be there.
+- I've seen mothers and children really being vulnerable in the refugee camps; it's supposed to be temporary, but they end up having children who have grown up in refugee camps.
+- It's a small world when you're from South Sudan.
+- Beauty is subjective and should not be limited to only what we see on the outside.
+- You can feel very strongly that someone doesn't like you. I think any model who didn't have the same sort of upbringing as me would find that very difficult. But I absolutely knew I was entitled. I never thought I was ugly - it never crossed my mind.
+- War tore my family apart.
+- I have short hair. It doesn't make me more unattractive than a woman or my sisters that have more longer hair and a bit lighter.
+- I don't understand when people are being greedy or mean, when they say who should get what, when they get control of someone else's life.
+- The most beautiful things are not associated with money; they are memories and moments. If you don't celebrate those, they can pass you by.
+- I had serious psoriasis as a child - it's strange that I make my living off my looks after years of looking like a monster.
+- I was working part-time as a cleaner while I was going to college and then babysitting after school.
+- I don't even know where to start in terms of people having such an issue about color, especially being dark. I just think on different levels it's ignorance; it's no belief, no confidence, it's insecurity, so you want to inflict it on somebody else.
+- I am not really into buying a lot of expensive things.
+- At times, we take freedom for granted. We really don't know how to cherish the freedom we have until it's taken from us.
+- When I was 10 years old, I fled my homeland amid the bomb blasts of civil war in Sudan.
+- For me, you have to have some kind of modesty.
+- My life was filled with family in South Sudan. I am the seventh of nine children, and we grew up in what would be considered a middle-class family. We did not have a lot, but we did have more than a lot of other people.
+- When I first started working with World Vision, I would sit down and talk with them about issues that concern any part of the world. MSF told me about what was going on in North Korea. I also support AIDS and breast cancer charities.
+- Everything has to do with education: If you educate the girls, you educate the family, the community, and society, in general.
+- Beauty does not mean one thing but not something else.
+- There are mothers who sew for six months to make a fashion collection - someone's grandmother, someone's sister. We come in and get paid to walk for 10 minutes at the end. Whenever I think about that, I realise it's not about me. I was just the one chosen to represent those women and sell the clothes.
+- For me, it always goes back to what my mother taught me and my sisters. That all women are beautiful, and we should embrace each other.
+- Education is the key to the future.
+- When I was 14, I came to school in London. I remember it was very cold, but also having to adjust and become fluent in English.
+- I grew up in a small town in Sudan. There weren't many cars, so we did things in the countryside near where we lived.
+- We survived on natural resources, so we should take care of the earth. When I leave home, I do things like switching off the heat and lights.
+- My experience as a refugee had made me strong; I could survive anything, even the world of fashion.
+- Having arrived in London to seek refuge during the civil war in Sudan, where I was born, the thing I'm most proud of is having totally evolved. I came here not knowing how to speak English, but I went to school and learned; I adapted to this new culture.
+- I had jobs from the age of 14, when I arrived in London as a refugee. Aged 17, I'd get up at 4 A.M. to work as a cleaner before school. It wasn't pleasant.
+- When I was working, there was no digital. We actually worked; we used Polaroids.
+- South Sudanese people are rich like the soil; they just need a little water, and they will grow.
+- It's an awful feeling, being hungry.
+- I meet and talk to women from every corner of this planet, and I can find beauty in each and every one of them.
+- Leaving southern Sudan as a child was terrifying. It was 1985, and my family and I were trying to escape to Khartoum, the capital in the North, to safety.
+- True beauty is born through our actions and aspirations and in the kindness we offer to others.
+- I never thought I would see a free South Sudan.
+- I think beauty is not just about what we put on our heads or on our faces or what we wear: it's deeper than that, and if we can celebrate that, celebrate the women, not just the superficiality... I think it would be really gorgeous.
+- Many live to eat, instead of the other way around.
+- There are tons of black girls modeling, and each one is special.
+- When I was a girl, civil war in Sudan forced me to flee my home town of Wau.
+- If my mother hadn't encouraged me, I would be nervous and feeling like I'm doing something wrong.
+- I could never understand why other kids wanted to truant - my education here gave me everything. It's the place where I really got to flourish.
+- My mother always has embedded in us that you guys rock in different ways, and to be able to celebrate that with each other is just beautiful.
+- When my friends talk about childhood, I've never heard of any cartoons or TV they remember. The only thing we share is Michael Jackson. That's how far his music travelled - to a remote village on the other side of the world.
+- Beauty should not be culturally relevant; it should be universal.
+- I think the fashion industry has gotten to a place where it is embarrassing.
+- I've always loved to paint - I was studying to do an art degree when I was approached to become a model - and I've being doing some design work as well. I also love just having a quiet time, sitting in my little library at home in Brooklyn and reading or watching documentaries or listening to music.
+- There was no concept of fashion and catwalk shows where I came from.
+- When I started modeling, it was like, 'Oh, she's too dark,' and I kind of looked at them like, 'You're too daft.'
+- When you give, you receive.
+- When I first started modeling, I realised I was very different from many of my colleagues, but I welcomed the opportunities my career in fashion offered me and the support from many inspiring individuals in the fashion industry.
+- When the militias came to Wau, they would blast out 'Thriller' as they moved down the dirt streets.
+- My mother has always instilled in us that we should carry ourselves with dignity despite the horror that came with the civil war. She also taught us that where you come from is very important because that's what makes you who you are. So for me, whatever I've gone through had profoundly shaped me; it has given me strength and unwavering faith.
+- I know how it feels to go hungry.
+- I feel, in 2015, when we see human beings and children dying to cross the ocean, trying to find safety, something more must be done to help them because refugees are just like me and you.
+- I still have dreams in which someone is coming to the door.
+- There are people who can look out for other human beings; there are people who can speak up when something is not right and say, 'This is wrong, and something should be done.'
+- Black girls, I feel, rock, in so many ways, especially coming from five girls.
+- I would love to continue to model but also have a family.
+- Going back to South Sudan after the independence took place was deeply emotional for me because I had gone through the civil war with my family just before going to seek refuge in London.
+- When I talk, it shouldn't just be black girls listening.
+- I love cooking. I love having friends around.
+- Going on safari in South Africa was hardcore but a lot of fun - though my friend Maura was absolutely freaking out about all the bugs in her hair and having to pee in the sand.
+- The beauty of reading is that it lets you travel in a way you could never know.
+- It was the most exciting thing to leave secondary school and go to college, to have that freedom to study whatever I wanted.
+- I am so impressed by UNHCR staff who live and work side by side with the refugees. It's really remarkable.
+- I use Johnson & Johnson! I use their baby oil gel.
+- When I started, I'd hear other people saying, 'God, she's so bizarre-looking,' because I didn't look like the girl next door. But I was just normal. I was the girl next door. There were people in high fashion I could better relate to who were doing something more interesting and not talking this sort of rubbish.

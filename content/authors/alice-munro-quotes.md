@@ -1,0 +1,60 @@
++++
+author = "Alice Munro"
+title = "Alice Munro Quotes"
+quotes_len = "54"
+description = "the best54 Alice Munro Quotes"
++++
+- In twenty years I've never had a day when I didn't have to think about someone else's needs. And this means the writing has to be fitted around it.
+- I seem to turn out stories that violate the discipline of the short story form and don't obey the rules of progression for novels. I don't think about a particular form: I think more about fiction, let's say a chunk of fiction.
+- When I was into my 30s, I became increasingly depressed by rejection letters. I had had the feeling that by the time I was 30, I would be established. But I was not at all. By the time of 'Lives of Girls and Women,' I was into my 40s and I had become more thin-skinned.
+- 'Lives' is one of those books I should really have written when I was younger. It is the classic childhood, adolescence, breakthrough-into-maturity book. Every beginning writer has that material - and after that, you're not sure what you can do.
+- In many ways, I've been writing personal stories all my life.
+- I think any life can be interesting, any surroundings can be interesting. I don't think I could have been so brave if I had been living in a town, competing with people on what can be called a generally higher cultural level.
+- When you are young, you cannot imagine being disabled. You imagine you would conquer it somehow. As I've got older, I can imagine it; I can see how life narrows in. I feel compassion for my mother now.
+- Why do I like to write short stories? Well, I certainly didn't intend to. I was going to write a novel. And still! I still come up with ideas for novels. And I even start novels. But something happens to them. They break up. I look at what I really want to do with the material, and it never turns out to be a novel.
+- Mothers and daughters generally have fairly complex relationships, and ours was made much more so by Mother's illness. She had Parkinson's disease, which was not diagnosed for a long time... All that made me very self-protective, because for one thing, I didn't want to get trapped.
+- Housework never really bothered me... what bothered me about it later was that it was expected to be your life... when you're a housewife, you are constantly interrupted. You have no space in your life. It isn't the fact that you do the laundry.
+- People are more aware now of cities and of different ways of life. I suppose the writing I do is a bit in the past, and I'm not sure it's the kind of writing I would do if I were starting now.
+- In those early days, the important thing was the happy ending. I did not tolerate unhappy endings - for my heroines, anyway. And later on, I began to read things like 'Wuthering Heights,' and very, very unhappy endings would take place, so I changed my ideas completely and went in for the tragic, which I enjoyed.
+- I think, often, people who run away are people who got into things most enthusiastically, and then they want more. They just demand more of life than what is happening in the moment. Sometimes this is a great mistake, as it's always a good deal different than you expect it.
+- I want the reader to feel something is astonishing - not the 'what happens' but the way everything happens. These long short story fictions do that best, for me.
+- I had my first baby at twenty-one.
+- I read all the time, and I'm often struck by something I'm reading.
+- Naturally, my stories are about women - I'm a woman. I don't know what the term is for men who write mostly about men. I'm not always sure what is meant by 'feminist.' In the beginning, I used to say, 'Well, of course I'm a feminist.' But if it means that I follow a kind of feminist theory, or know anything about it, then I'm not.
+- I was a housewife, so I learned to write in times off, and I don't think I ever gave it up, though there were times when I was very discouraged because I began to see that the stories I was writing were not very good, that I had a lot to learn, and that it was a much, much harder job than I had expected.
+- I don't think that much about my relationship with my mother and what it did to me. I sometimes feel terrible regret about her, what her life must have been like. Often, when I'm enjoying something, I think of how meager her rewards were and how much courage, in a way, she needed to go on living.
+- I can have people around a lot more because I'm not always chasing them away so I can work on my novel. My non-novel, I mean.
+- I can't play bridge. I don't play tennis. All those things that people learn, and I admire, there hasn't seemed time for. But what there is time for is looking out the window.
+- The complexity of things - the things within things - just seems to be endless. I mean nothing is easy, nothing is simple.
+- In my own work, I tend to cover a lot of time and to jump back and forward in time, and sometimes the way I do this is not very straightforward.
+- I never start out with any kind of connecting theme or plan. Everything just falls the way it falls. I don't ever think about what kind of fiction I write or what I am writing about or what I am trying to write about. When I'm writing, what I do is I think about a story that I want to tell.
+- It's not possible to advise a young writer because every young writer is so different. You might say, 'Read,' but a writer can read too much and be paralyzed. Or, 'Don't read, don't think, just write,' and the result could be a mountain of drivel.
+- Maybe I should say that memory interests me a great deal, because I think we all tell stories of our lives to ourselves as well as to other people. Well, women do, anyway. Women do this a lot. And I think when men get older, they do this too, but maybe in slightly different terms.
+- That's something I think is growing on me as I get older: happy endings.
+- While working on my first five books, I kept wishing I was writing a novel. I thought until you wrote a novel, you weren't taken seriously as a writer. It used to trouble me a lot, but nothing troubles me now, and besides, there has been a change. I think short stories are taken more seriously now than they were.
+- William Maxwell's my favorite North American writer, I think. And an Irish writer who used to write for 'The New Yorker' called Maeve Brennan, and Mary Lavin, another Irish writer. There were a lot of writers that I found in 'The New Yorker' in the Fifties who wrote about the same type of material I did - about emotions and places.
+- I've lived in a big showplace house, and I never want to live again in a house that overshadows me.
+- The stories are not autobiographical, but they're personal in that way. I seem to know only the things that I've learned. Probably some things through observation, but what I feel I know surely is personal.
+- For a long time, I had the idea that I would do a certain amount of work the best I could, and then I would reach a comfort zone, and I wouldn't be pushed to write more. I would become a different person. It's a surprise to me that this hasn't happened. Your body ages, but your mind is the same.
+- I was brought up to believe that the worst thing you could do was 'call attention to yourself,' or 'think you were smart.' My mother was an exception to this rule and was punished by the early onset of Parkinson's disease.
+- The deep, personal material of the latter half of your life is your children. You can write about your parents when they're gone, but your children are still going to be here, and you're going to want them to come and visit you in the nursing home.
+- One is lucky to be born in a place where no one is doing it, because then you can say, 'Well, obviously I can write better than everyone else in high school.' You have no idea of the competition.
+- I think, when you are growing up, you have to pull apart from what your mother wants or needs. You've got to go your own way, and that's what I did.
+- Writers are always writing about infidelity. It's so dramatic. The wickedness of it, the secrecy, the complications, the finding that you thought you were one person but you're also this other person. The innocent life and the guilty life. My God, it's just full of stuff for a writer. I doubt it will ever go out of fashion.
+- I got interested in reading very early, because a story was read to me, by Hans Christian Andersen, which was 'The Little Mermaid,' and I don't know if you remember 'The Little Mermaid,' but it's dreadfully sad. The little mermaid falls in love with this prince, but she cannot marry him because she is a mermaid.
+- I was a grade B housewife, maybe a B minus. But when I got time to write, I would be unable to finish a sentence. I had anxiety attacks. Partly it was a way of personifying the situation because I couldn't breathe. I was surrounded by people and by duties. I was a housewife and the children's mother, and I was judged on how I performed those roles.
+- Time is something that interests me a whole lot - past and present, and how the past appears as people change.
+- Memory is the way we keep telling ourselves our stories - and telling other people a somewhat different version of our stories.
+- I've often made revisions at that stage that turned out to be mistakes because I wasn't really in the rhythm of the story anymore. I see a little bit of writing that doesn't seem to be doing as much work as it should be doing, and right at the end, I will sort of rev it up. But when I finally read the story again, it seems a bit obtrusive.
+- 'Royal Beatings' was my first story, and it was published in 1977. But I sent all my early stories to 'The New Yorker' in the 1950s, and then I stopped sending for a long time and sent only to magazines in Canada. 'The New Yorker' sent me nice notes, though - penciled, informal messages. They never signed them. They weren't terribly encouraging.
+- Charlotte Bronte was writing about sex. I supposed Jane Austen was, too. Where do you get a hero like Darcy unless you are writing about sex?
+- My mother, I suppose, is still a main figure in my life because her life was so sad and unfair, and she so brave, but also because she was determined to make me into the Sunday-school-recitation little girl I was, from the age of seven or so, fighting not to be.
+- I feel that I've done what I wanted to do, and that makes me feel fairly content.
+- Some of the stories I admire seem to zero in on one particular time and place. There isn't a rule about this. But there's a tidy sense about many stories I read. In my own work, I tend to cover a lot of time and to jump back and forward in time, and sometimes the way I do this is not very straightforward.
+- I'm always trying. Between every book, I think, 'Well now, it's time to get down to the serious stuff.'
+- 'The New Yorker' was really my first experience with serious editing. Previously, I'd more or less just had copyediting with a few suggestions - not much.
+- I no longer feel attracted to the well-made novel. I want to write the story that will zero in and give you intense, but not connected, moments of experience. I guess that's the way I see life. People remake themselves bit by bit and do things they don't understand.
+- Sometimes I get the start of a story from a memory, an anecdote, but that gets lost and is usually unrecognizable in the final story.
+- I like gaps; all my stories have gaps. It seems this is the way people's lives present themselves.
+- I have never kept diaries. I just remember a lot and am more self-centered than most people.
+- I found it hard to be young. When I was married in my twenties, I hated being regarded as 'the little wife.' You don't know what it was like then! I'd never even written a cheque. I had to ask my husband for money for groceries.

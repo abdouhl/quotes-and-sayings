@@ -1,0 +1,96 @@
++++
+author = "Anthony Doerr"
+title = "Anthony Doerr Quotes"
+quotes_len = "90"
+description = "the best90 Anthony Doerr Quotes"
++++
+- We live through life, but we live through art, too. And in art, as in life, nothing is generalized. No one thing is a copy of the next. Everything is individual.
+- All around us right now, tucked into the valleys and along the coasts, bookshops glow in the winter light. Think of them like singular, magical, and multi-dimensional recipe boxes. They wait for us to pluck out a card, to stand over the stove, to start cooking.
+- I think fiction is important because it has the power to transport a reader into another life.
+- Maybe scarcity isn't always a bad thing. Maybe scarcity is something to seek out, to fabricate for oneself.
+- Fiction writers have long turned to winter to advance bluer palettes, slicker surfaces, and sharper contrasts. The sky darkens, the wind picks up, and flakes start to fall. Horizons shrink. Couples bicker. Cars slide off roads. Obliteration tends to loiter between the sentences.
+- The most amazing gift about being a novelist is that you get to pursue your curiosity every day.
+- Growing up, I loved to play. Writing was a natural outtake of play. I realize now, having kids, that maybe that's unusual. Living out in the middle of nowhere, I entertained myself by writing.
+- I write reviews of science books for the Boston Globe, so I like to give science books.
+- Great writers probably shouldn't be ranked, at least not by me.
+- I was a nerdy kid.
+- Indeed, every book on my shelves is a key to a little vault of memories.
+- I did go to an MFA program, at Bowling Green State University in Ohio. For me, it worked perfectly. It was a small program. They only take five fiction writers a year, and they fund all of us - you don't go into debt to get an MFA. It's not like getting an MBA - you're not going to buy yourself out.
+- We buy a copy of 'Gravity's Rainbow,' say, and we carry our copy home. We open it; we fall into it. And it is here that the word 'copy' fails. Because what I experience when I read 'Gravity's Rainbow,' or 'Beloved,' or 'The Moviegoer,' is not at all a 'copy' of what you experience when you read the same novel.
+- Science and literature are both ways to ask questions about why we're here.
+- Without always meaning to, I write really long short stories, 60-pagers, 90-pagers, pieces of fiction that are too long for all but the bravest magazines to print, and too short for all but the bravest book publishers to publish.
+- My sister-in-law is a painter, and I'll say, how long did it take you to paint that painting. She'll say, It took me maybe three days, but it took me all my life to get the skills to paint that painting.
+- My mom was a high school science teacher for decades. She just never made it feel like we had to choose between the arts and the sciences. We had bookshelves full of novels, and she also had Rachel Carson and Aldo Leopold and Carl Sagan.
+- Short stories are wonderful and extremely challenging, and the joy of them, because it only takes me three or four months to write, I can take more risks with them. It's just less of your life invested.
+- For me, the natural world is always telling big stories about humongous scales of time. And I often feel simultaneously terrified and humbled by those scales and in awe, and delighted that I get to be here; that I'm lucky enough, that we are lucky enough to get experience these things for the tiny finger snap of time that we get to be on Earth.
+- When I was a boy, all the books I owned fit on a single shelf. Now I have several thousand stacked around the house.
+- Travel definitely affects me as a writer.
+- My parents would drive us to Florida every spring in this big old, rusy Suburban, and we'd collect stuff on the beach for our aquarium back in Ohio; we had this big saltwater aquarium back in Ohio. Every time we found anything, any mollusk, my mom would bring out the guidebook and quiz us on what it was, so that stuff was built in early.
+- I've been getting into Nick Drake lately, the folk singer. Sad, gorgeous stuff.
+- In my students, I'm always dispelling the notion that characters come like a light bulb over the head in cartoons. For me, it's like a shapeless big lump of clay. You just build it into something, and then you step back and go, 'That's not right,' hack it apart, put out a new arm, and say, 'Maybe this will walk around and work.'
+- Learned to read, and for a while as a kid, you think books are just leaves on trees. Then suddenly, you think a human being is making that, and maybe you could do that.
+- I guess you could say I've been writing all my life.
+- My mom is a science teacher in high school, and one of my brothers works in optics at Bell Labs, and so I was always surrounded by it.
+- I had the little Radio Shack crystal radio, and then my aunt Judy bought me a shortwave radio. It was amazing to me: like on these really clear nights - I lived in Ohio - I could get Texas or Florida. You felt like the world was a smaller place.
+- Sometimes my readers ask me what else they should read, and I recommend Sebald.
+- In my early 20s, a friend and I worked for a few months on a sheep farm in New Zealand. Working with ewes, I learned a lot about the power of wool - how it keeps you cool when you're hot, warm when you're cold, dry when you're wet.
+- My ribs ache from all the texts I'll never make time for.
+- I read Stephen Crane's 'The Open Boat' when I was 11.
+- I'll read anything Anne Carson writes, anything J. M. Coetzee writes, and anything Cormac McCarthy writes. I'll drop whatever I'm doing to read a new Mary Ruefle essay.
+- Memory is this one attempt to not be erased by time. And I think that ties back to what I learned watching my grandmother lose her memories is, you know, we are all facing erasure eventually.
+- We only get 60 years, if we're really lucky, as adults on earth, and why not try to wake up every day and learn something and talk to people?
+- If your mind is anything like mine, it can stumble through a half-dozen different thoughts in a heartbeat.
+- Sometimes I wake at 2 A.M. worrying that my great-granddaughter will have to march through her distant, broiling future gathering all the plastic I ever disposed of.
+- Supposedly, some writers work in rowdy coffee shops or compose whole novels to Megadeth, but when I write, I wear a pair of chainsaw operator's earmuffs.
+- The preciousness of life and the changes of weather and the beauty of seasons - all those things have always sort of dazzled me.
+- For me it was perfect, because it wasn't a very competitive environment, and it was a studio program. They basically send you off, and say, bring us some work, and we'll help you improve it. It really rewarded self-discipline.
+- Pretty much every night of their lives, my 8-year-old sons have absorbed themselves entirely in books. As toddlers, they pointed out pictures, made conjectures; lately, we find them in their bunk beds embarked upon two-hour comic-reading benders.
+- You and I can go on YouTube and learn how to fix a tractor engine or learn Farsi. Groups are using those tools to recruit young people into a climate of hatred.
+- I've always been so interested in both the visual beauty of mollusks and the tactile feel of them. As a kid, I collected them all the time.
+- I originally got very interested in memory in high school when my grandmother came to live with us. She had been diagnosed with dementia. It was the first time I had heard the word 'Alzheimer's disease.'
+- I kind of do all of this writing as a way of thinking and learning. I'm sure it's similar to being a journalist: You get to learn, and that's the greatest kind of job.
+- Twain's 'A Connecticut Yankee in King Arthur's Court' made me long to wake in an era when my Casio wristwatch would strike folks as sorcery, and Martin Amis's 'Time's Arrow' wrecked my assumption that all narratives had to proceed from Then to More-Recently-Than-Then.
+- The world is so fundamentally interesting that it makes me fall in love with it a dozen times a day.
+- You need to be imagining all the time, imagining yourself outside the walls of your own skull.
+- It took me about three years to write About Grace. I wasn't teaching two of those years, so I was working eight-hour days, five days a week. And it would include research and reading - it wasn't just a blank page, laying down words.
+- I always told my dad I'd play professional football.
+- 'Never do the dishes without music,' my brother Mark once advised me - the same brother who once ate a spoonful of refrigerated dog food to escape his turn at the kitchen sink. And really, it may be the most sensible advice I've been given.
+- I feel like it has gone very fast for me, but I feel like it wasn't instantaneous, at all. I was getting a lot of rejections. I just got very lucky and it happened quickly for me. I don't feel like I'm a prodigy or something.
+- If our biological imperative is to pass our genes to the next generation, our moral imperative has to be to try, before we become corpses, to leave them a planet they can survive on.
+- But then of course you reach a point where you have to say, I've got to figure out how this book's going to end. Otherwise, you're going to write yourself into so many dead-ends.
+- 'Research,' for me, is a big word that encompasses a lot of different activities, all of them based around curiosity. Research is traveling to places, or studying snowflakes with a magnifying glass, or excavating one's memories. Research is walking around Hamburg with a notebook.
+- Every artist wants an audience, and it's incredible to me how books take on a life of their own and reach people whom you could never meet. That's what got me interested in writing in the first place.
+- Fridays after school, especially when the weather was lousy, Mom would take me to the library. She'd let me check out whatever I wanted, and I checked out a lot.
+- I studied history and English in college, got a master's in writing, but I was always sort of an autodidact in science.
+- Lewis Robinson's first novel, 'Water Dogs,' is stuffed with snow. Open practically any page of this book, and crystals will shake out.
+- Sometimes, if you wander long enough out-of-doors, you look up and find yourself in a suddenly devastating place: on a glittering slab of granite, say, hanging a thousand feet above a mountain lake.
+- I subscribe to the theory that reading a book is similar to walking a trail, and I'm most comfortable walking when I can see where I'm going and where I've been. When I'm reading a printed book, the weight of the pages I've turned gives me a sense of how far I've come.
+- My goals aren't really commercial success.
+- I think some people think that writers read and read and read, get the information, and then write. That's not how it works. Often, you write yourself into a dark place where you don't know what you need to know, so you go get the information.
+- I was reading C.S. Lewis with my mom, and she was pointing out that he was dead, and I'm like, 'What do you mean he's dead?' We were in this world he created, and he was gone from the Earth. Yet in those black marks on a white page, his imagination lived on, his voice lived on. That is so miraculous.
+- You don't say, I'm going to be a writer when I grow up - at least I didn't.
+- I listen to podcasts while I run in Boise's foothills.
+- Basketball games - and seasons - make great narratives; they feature distinct acts, heroes and villains, and guaranteed resolutions.
+- I grew up in Cleveland, so my heart got attached at a young age to the freight train of sadness that is Cleveland sports.
+- Hour by hour, minute by minute, I make decisions that seem like the right things to do at the time but which prevent me from reflecting on the most significant, most critical fact in my life: Every day, I participate in a system that is weaponizing our big, gorgeous planet against our kids.
+- I have always felt that it's a little artificial to divide the sciences and the arts on college campuses.
+- What I tell young writers is to find those things that you're so passionate about that your energy doesn't run away.
+- Sometimes, when the neighborhood is silent and the sky is aswarm with the stars and the mind is swirling like a flushed toilet, a person gets to doubting himself. In the hardest times, the stand-at-the-kitchen-sink-and-stare-into-the blackness times, I put on Bob Dylan's 'Tomorrow Is a Long Time.'
+- That's the power of fiction, that it can take the collective and make it personal.
+- I found my first novel difficult. I don't want to make it sound like it's any more difficult than driving a cab or going to any other job, but there are so many opportunities for self-doubt, that you just kind of need to soldier on.
+- I never played inside as a kid - even in the rain I'd go out.
+- When people ask for book recommendations, I say this: Do some math. If you read one book every week for the rest of your life, and if you're lucky enough to live for 50 more years, you're only going to get to 2,600 books.
+- I'm terrified of cliches.
+- We Americans are churning through fresh water at an alarming and unsustainable rate.
+- We live in a culture that venerates scores. We affix numbers to how much fat is in our mochachinos, how quickly our telephones suck information from the air, how much pain we're in. Reading, too, has become a skill to quantifiably assess.
+- Gold and diamonds are nice, but clean, crisp, controlled water has long been the preeminent hallmark of the rich.
+- I feel like you are allowed in fiction to embrace imagination and try to enter other worlds. And I feel like you should push yourself to try to persuade your reader that you have the authority to engage with people who, you know, lived in the past, who live in the future, other genders, other places, other cultures.
+- I do fish. I think there is a connection between thinking and fishing mostly because you spend a lot of time up to your waist in water without a whole lot to keep your mind busy.
+- It wasn't until I was 26 or 25 when I started sending work out to magazines.
+- Short stories are not maybe the biggest deal in our culture anymore.
+- I don't believe in reincarnation. I feel like we're here for such an appallingly brief period of time. I believe we each get this one trip, and if we're really, really fortunate, maybe we get 70 or 80 years on Earth.
+- The only books I give up on are texts where the writer's attention is concentrated so heavily on narrative questions that his or her use of language becomes careless.
+- Anyone who has spent a few nights in a tent during a storm can tell you: The world doesn't care all that much if you live or die.
+- Fiction writing is just an excuse to go discover interesting things.
+- I guess whatever maturity is there may be there because I've been keeping a journal forever. In high school my friends would make fun of me - you're doing your man diary again. So I was always trying to translate experience into words.
+- If you're lucky enough to have 70 years of literate adulthood, and if you read one book every week, you're still only going to get to 3,640 books.

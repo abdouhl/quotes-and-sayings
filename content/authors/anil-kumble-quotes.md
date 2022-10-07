@@ -1,0 +1,70 @@
++++
+author = "Anil Kumble"
+title = "Anil Kumble Quotes"
+quotes_len = "64"
+description = "the best64 Anil Kumble Quotes"
++++
+- I have always believed that the first Test of a series is very crucial.
+- Getting 20 wickets in test cricket will win you matches and that will be the focus.
+- I'll ensure that I go out there and enjoy my cricket and enjoy being captain of India.
+- There is a vast difference between playing Pakistan at home and away. I clearly recall, going into the quarter-finals at the Chinnaswamy stadium in 1996, that the pressure eased a bit when I stepped into a stadium where I had practically grown up as a cricketer.
+- As a coach I need to organise preparations for the team and give informed input to captain and the team to strategise better, inclusive of every player.
+- If it was a very senior team you can sit back and strategize. But for a young team you need be in the middle.
+- I was involved with Gary Kirsten only for the Test matches, a very short period. He was, again, someone who worked in the background and didn't make himself visible. Exactly how I'd like to work as well. Not in the front, but behind the scenes.
+- If I am trying to set up someone then I might go up to the keeper and say that I might bowl down the leg side. That's where you feel that if the 'keeper has a longer stint, he will read you better.
+- I certainly believe Bengaluru is a wonderful place to live in, equipped with all the amenities one would expect from a leading city. Its contemporary, cosmopolitan, vibrant and forward-thinking set-up definitely sets it apart.
+- There were many batsmen who were very difficult to bowl at. Brian Lara was probably at the top.
+- I've played my cricket very sincerely and honestly, that's the approach my team takes, and we expect that from Australia as well.
+- I think it's important for every individual to have a vision, to have an aim. If you don't have an aim, you don't think; if you don't think, you can't achieve.
+- I think people believe that Bengaluru as a city will be more aware because of its cosmopolitan nature. However, I don't think that is necessarily true. Not many people today are even aware that they may have diabetes.
+- It is true that when you're defending a target, you tend to be more ruthless when you're defending a lower target than a 300-plus one because you have the comfort of runs in the latter case.
+- Everyone in India wants the team to beat Pakistan, just as everyone in Pakistan wants their team to succeed. It's one match where the result matters, not really how you play.
+- I like a challenge. Captaincy has always been a challenge for me.
+- One thing I will ensure is that whether we win or lose, the fighting spirit should always be there.
+- As a bowler you are not a hero, you are always backing a hero but you need 20 wickets to win a Test match.
+- In a team game, everybody's contribution is very important.
+- You need the other team to be feeling the heat when they walk on to face you and that only comes from their being wary straight off of your dominance on the field of play.
+- Yes, you'll try and set up a batsman and get him to play a few shots. It's just that you are always trying to play a mental game with the batsmen and as long as you are doing that consistently throughout the day and keep asking questions you are bound to be successful.
+- Captains realise over a period that if they plan right and understand the strengths and weaknesses of the opposition, luck attaches itself to their side.
+- Diabetes is a silent killer and awareness about the same is certainly lacking, hence I felt there was a need for me to get involved and assist in creating the required awareness.
+- When I was a player I used to feel that you are the captain of your own bowling, which I would like to try and inculcate, especially in the bowling group. That is important. All of them must believe that they are leaders.
+- At the end of the day, the bowlers have to get 20 wickets to win a Test match. I'm sure they do have a little bit of brains to get those wickets.
+- Cricket has always been about using street smarts and putting the opposition under pressure, on the field and off it.
+- I generally try to bowl one-on-one with the 'keeper and bowl all the deliveries in my arsenal so that he can have a good look.
+- Cricket is all about looking out for your mate and playing as a unit.
+- I think it's a great challenge for a bowler to be captain of India and it is not looked at very positively in India for some strange reasons.
+- As a player, one has to stay positive, and embrace the pressure rather than give in to it.
+- I have always felt it is better to lose in pursuit of victory than to kill a game with defensive tactics.
+- Performance comes only when there is confidence. And for a player, his confidence increases if he knows his team-mates are confident of him, the media is confident of him, the fans back him.
+- This is my belief, whether its practice, a match, or whatever - your mind has to be ticking all the time. As for the team, yes, it needs an overall vision, for the same reason, because it gives us something to work towards.
+- I became captain after playing 17 years for India so probably I became captain by default because nobody else wanted it.
+- Aggression is not just the emotion that you show on the field, but at the end of it, you have to ensure that you play the game aggressively and the ball has to do the talking.
+- No matter what, I was always looking for a wicket. Whether I was bowling to restrict or bowling to get wickets, at the back of my mind, I always had the thought that I wanted the wicket.
+- If you are the top bowler in your team, you need to get the top batsman in the opposition. So it is expected and people just highlight that particular bit and make it sound like it is gamesmanship.
+- I feel the only way you feel the pressure is when you think it is an important match or series. If you feel that every time you go out into the middle the match is important then pressure ceases to exit.
+- But yes, I'm going to miss being a part of the team, sharing a dressing room, playing a test match, all those kinds of things.
+- I have been a player and now I am the coach, so I understand both the roles well.
+- It will be wonderful to get into the Indian dressing room as the coach. I am really looking forward to the challenge and the huge responsibility. I know there will be a lot of expectations and that is something which I am looking forward to.
+- My basic strength has been accuracy, line and length and I've always worked on that. I knew that would hopefully never leave me. Even if I don't bowl for three months, the first time I go out I would still be able to land it on the spot.
+- The coach's role is in the background; it's the players who come first. I am ready to take this role.
+- It is challenging at times, especially while I am travelling, but my training gear and sports shoes are among the first things that go into my suitcase so that I can get in a good work-out session wherever I am.
+- But one thing I would like to certainly clarify that I am no player-manager, nor is my company a talent management company. That needs to be very clear.
+- I think each one has his own style. I think, with me, I have always commanded the respect of my captains and I have always set my own field.
+- Yes, you have to treat playing Pakistan just like you would any other side, but in other matches, you often stress on the processes knowing that the result will take care of itself. Against Pakistan, the result is more important than the process, and that is the simple truth.
+- I need to make one thing clear, the IIndian way of playing cricket is loved around the world. People love to watch an Indian batsman, because he is different from say an Australian one. That is why we are special, we play with our own kind of flair, our own style, and we shouldn't change that.
+- There have been a lot of doubts created by people about my career. But I didn't have those doubts, nor did my team members, nor my family.
+- All these years I have spent bowling have helped me understand the game better.
+- I played a lot under John Wright, he's been a great influence on how I'll go about the job, in terms of being in the background. When I became a mentor for Mumbai Indians, I brought John in because he understood a lot about Indian culture and then the way coaches work.
+- No matter where I end up in terms of wickets or the number of matches that I play, I think people will always remember me taking 10 wickets. So it is something that is always going to be special for me and for Indian cricket.
+- When I first played, I had the belief that I could go out there and win matches but when people saw me first I don't they had the belief. I had to be able to be able to prove, to tell them you can count on me.
+- What we tend to forget in a skill-based game, is that if you start paying too much attention to mind games, you'll get into all kinds of avoidable issues. It's not easy to ignore them, but you have to try.
+- I just want to go out and enjoy my game and ensure that I contribute to the team's success, to whatever I was doing before. I would like to continue that if not better whatever I was doing. It's important for me to ensure that we win every time we go out, that's the personal target and team goal.
+- Having myself bowled in the early stages of the innings, with field restrictions in place and two men perforce required in catching positions, I know what it takes to bowl on unresponsive tracks against quality batsmen.
+- I don't think expectations will change as a player or as a captain. We have discussions and people who have played the game for long definitely express their views in a team meeting and I don't see that changing much. But the expectations would be to ensure that we are consistent.
+- Having been with the Indian team for such a long time and having had various experiences of not just conditions, but outside the cricket field, when you're a coach, you're not just coach on the field but also off it. You're trying to build personalities, trying to build leaders.
+- I am not someone who goes through emotions; but it is always tough when your time is up and you know that you have to give up something which you have loved and played for all these years.
+- In India you pick teams based on pitches, so it's the bowlers who get changed. if it is a turning pitch a fast bowler can't play, and if it is a green pitch, a spinner can't play.
+- It is a cliche to say that you need to take 20 wickets to win a Test and it is the bowlers who get you the 20 wickets.
+- The way I handle it is by preparing for any match in the same way. I stick to a routine and I stick to it no matter whether I am playing a Ranji Trophy game or an international game.
+- I believe that any ball can take a wicket.
+- An Indian captain is a friend, guide, philosopher to the players under him.

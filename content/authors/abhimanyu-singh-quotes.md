@@ -1,0 +1,64 @@
++++
+author = "Abhimanyu Singh"
+title = "Abhimanyu Singh Quotes"
+quotes_len = "58"
+description = "the best58 Abhimanyu Singh Quotes"
++++
+- Mythologicals and historicals have always found takers in India. The audience identifies with them and they make for good family viewing.
+- I decided to do theatre intensely. I joined Makarand Deshpande's group Ansh. He became my guru. That's where I met Anurag Kashyap and Kay Kay Menon. These were the people who supported and inspired me.
+- I can't begin to tell you what a pleasure it was to work with Vikram. He is such a brilliant actor and so hassle-free.
+- Getting back into shape is always a difficult task for me.
+- A run-of-the-mill bad guy role does not satisfy me creatively.
+- When I moved to Mumbai I had no acting background and so was unable to make a breakthrough for years.
+- I used my television phase to save myself as an actor for the bigger screen.
+- I think once you get noticed as an actor you get roles irrespective of the characters you portray.
+- The first thing that strikes a person when it comes to Southern film industries is the hard work, professionalism and the punctuality that people religiously adhere to.
+- Personally, I believe that playing the lead antagonist is always better than a character artiste, whose weightage isn't much.
+- As a boy from Patna, I've always dreamt of a chance to showcase my talent.
+- I was introduced to the world of films by Manoj Bajpayee and trained under theatre actor Makrand Deshpande.
+- That's my only plan: to keep doing good roles and win appreciation.
+- Even though I have been receiving offers left, right and centre, I have been a little choosy about my projects.
+- In Bollywood, it is common for shoots to have unexpected delays and go well into the night, but shoot schedules in the South are mostly wrapped up by evening, unless absolutely required.
+- There is no such thing as playing someone else's character. Every actor takes a character and makes it his/her own while enacting it on screen.
+- It does take a lot of time to establish yourself with your own hard work.
+- Acting gives you freedom to express your thoughts.
+- It's not easy trying to get into the psyche and behaviour patterns, which are far removed from one's own personality. Some intense characters linger long after it's over on screen.
+- I guess some characters always remain the same, and Macbeth is one of them.
+- I'd have gone berserk if I hadn't met Sargam Singh, an actress who soon became my wife. Within a year of our marriage our daughter Ameli was born. Sargam gave up her career to look after me and our daughter.
+- The first two days that I rode a horse, I had someone controlling it with a rope around its neck.
+- I believe films are the mirror of society we live in.
+- Rohit Shetty liked my acting in the movie 'Theeran,' which released in 2017. He believed that I would justify the role of a baddie in 'Sooryavanshi.'
+- I have stopped expecting from films. What I expect never happens.
+- I have always tried to portray each role as differently as possible.
+- I have done a lot of television serials in order to make ends meet.
+- I know Sanskrit, which has similarities with Tamil, so it helps me understand the language.
+- I'm not the type who will go and ask people for roles.
+- In 'Rakht Charitra,' I had equal screen space to that of the lead.
+- The first eight years in Mumbai were specially tough. I knew during the first two months of my stay that there's no point waiting for hours to meet producers. They won't meet you and definitely won't give you a role.
+- Gulaal' gave me a chance to channelise my restlessness into a character that had layers of complexity.
+- When you work with Vikram, you give your best. It brought out the best in me.
+- Not many people know that it was Manoj Bajpayee who recommended me for a role in 'Aks.'
+- As for Bollywood, actors are no longer typecast there and I'm happy to be in that phase where the industry is evolving for the better.
+- Playing a sadhu is not easy at all.
+- Sandalwood is a force to reckon with. People from all over are investing time and money here because the films have good reach and reap good rewards as well.
+- I have learnt the hard way that neither success nor failure last forever.
+- It is a big deal to play the antagonist in a Rohit Shetty film.
+- Karthi is such a wonderful human being. He is always focused towards improvisations and keeps working on it.
+- I was pleasantly surprised that south directors started creating roles for me after watching 'Rakta Charitra.'
+- There was a lot of aggression in me. It comes from my Bihari roots, I guess.
+- I've stopped making plans a long time back because they never work in my case. Now, I just take each day as it comes.
+- After my debut in 2001 in 'Aks,' where I had a small part, I had to work really hard to get work in the industry. For almost three years, I had no work.
+- Acting in different languages doesn't stop you from growing; on the contrary, for an artiste, it helps a lot.
+- More than anything else it pleases me to know I've made people back home in Bihar proud of me.
+- I had zero connection to Bollywood or movies when I started out. I worked in theatre for eight years where luckily Makarand Deshpande mentored me, helped me to improve my body language and voice modulation.
+- In India, people still want an image to connect to and, even if it's a false one, they will stick to it. We are ready and want to be fooled by someone or the other, be it a baba or a politician.
+- The police or any higher authority should never try and criminalise people for their sexuality. It is something that is to great extent given by God.
+- Srideviji is a powerhouse performer. She has been my favourite actor since my college days and to share screen space with her is a dream come true for me.
+- I realised that if I wanted to act, I needed to join theatre where I could improve my acting skills first and also show my talent.
+- My mother is very fond of cooking and whenever I am home she ensures that I eat the best food prepared by her, because of which I gain a lot of weight.
+- People in the South want heroes to be their own, whereas it is easier for them to accept a villain who hails from another state.
+- 10 Endradhukulla' is a thriller and the characters are all on the run. The film travels from South India traversing through the North, to the mountains where the climax takes place. Mine is a different kind of character; he is very suave and stylish and only later it is discovered that he is not what he looks like.
+- People in the South are very organised and are thorough professionals besides being good paymasters. They are very disciplined and start and wrap up work on time.
+- Eventually, after the hero and heroine, it is the antagonist who comes with the most anticipation in any film.
+- Luckily, 'Rakta Charitra' did well in the South and I started getting a lot offers from the Tamil and Telegu film industry.
+- I'm very much a family person.

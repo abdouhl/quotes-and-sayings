@@ -1,0 +1,29 @@
++++
+author = "Andy Cole"
+title = "Andy Cole Quotes"
+quotes_len = "23"
+description = "the best23 Andy Cole Quotes"
++++
+- I always knew what Manchester United was about.
+- I remember when I was retiring I said to my kids 'I promise you I'll never put on weight' because people always think footballers retire and eat and drink and put on loads of weight.
+- I have had a lot to deal with health wise, nothing is ever plain sailing, that is part and parcel of having a transplant. I have two children who I want to see grow up. It does give you a different outlook on life.
+- I've thoroughly enjoyed my life since I stopped playing. Of course you miss playing now and then, but I've travelled, I still work with Manchester United, I spent more time with my family and watched my kids grow up.
+- Of course, not everyone's going to get on but when you crossed that white line it didn't matter. For those 90 minutes it didn't matter what else was going on, we'd do anything to win.
+- I had always looked after myself after I stopped playing.
+- I went through the process of trying to convince myself I was not ill.
+- Don't forget my new kidney is a foreign object. My body attacks it. So I have to take these anti-rejection drugs to stop my body winning.
+- Dialysis is horrible and left me so tired. I couldn't do it any more, it takes so much out of you. By the end I was tired of being tired. I could sleep 11, 12 or 13 hours a day and still be absolutely knackered.
+- I apologise now to everybody for being the way I've been. What I was doing, torturing myself over an illness, is horrible. You push them away because you're trying to quantify what's gone on.
+- Usually, if you're going to be a manager, you always want to talk about football and be a connoisseur of the game.
+- United should have won more than three European Cups. When you look back at some of those semi-final and quarter-final defeats, we could and should have gone on to win the competition.
+- Imagine being the parent of a six or seven-year-old who needs a transplant and there is no match. I understand now what that means.
+- Obviously I tell myself I'm more than happy for everything that's been given to me. But if I wake up one morning and my kidney decides 'I don't fancy it today', I'm back to square one.
+- You can create space just by standing still.
+- I will take any opportunity to help others.
+- Transplant is a life-changing 'experience. Organ donation transforms lives. It is torture for you, torment for you as an individual in need.
+- I was depressed after the transplant because it's very tough to understand the trauma you still face. I remember emptying a big bag of medication and just crying and thinking, 'For me to survive another day, this is what I've got to take. For the rest of my life. I'm not sure I can continue.'
+- I listen to my body but I'm just thankful to be alive so that I can.
+- When I admitted to myself I was ill, it was tough to accept. I didn't want my family to worry about me.
+- I think it's very tough to manage a club like United.
+- I just want to start doing normal things again which I'm missing. Going for a run, playing football.
+- I think I have a bright future. I know I have a problem which is going to be with me for the rest of my life, but it's for me to manage it.

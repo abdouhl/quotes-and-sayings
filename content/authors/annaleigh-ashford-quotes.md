@@ -1,0 +1,84 @@
++++
+author = "Annaleigh Ashford"
+title = "Annaleigh Ashford Quotes"
+quotes_len = "78"
+description = "the best78 Annaleigh Ashford Quotes"
++++
+- I always have multiple ladybugs around because they're lucky, and they're good for flowers and the environment.
+- If you've ever been to a great clown show, there's always a moment where the clown goes into the house and fuses with the audience. There's something fantastic about the improv of it all.
+- I took obedience, agility, and shepherding with my dog.
+- We had a cabin in the mountains - and I remember, one year around this time, a moose came down the river, and one night he came to our cabin and hung out on the back porch for hours. They're really, really, really big animals. And dangerous, especially if they're a momma.
+- I'm a modern girl with old-fashioned sensibilities.
+- That's one of the beauties of James Lapine and Stephen Sondheim and their work together. They have such a depth to the emotional exploration of the story that they're telling, but there's always a release, and the release is a laugh.
+- It takes skill to sing bad and dance bad, because there's a certain amount of unawareness that people have when they can't sing and they can't dance, so I have to say that it is a challenge!
+- I just hope to tell stories that help change people's minds about loving and accepting others. And one of the best ways we can do that is through laughter.
+- Theater was just what I was supposed to do.
+- Vocally, it's important to sing every day. It's a muscle, and you have to keep it in shape.
+- Sometimes in a big theatre, you have about, probably, six yards sometimes between you and the first person in the audience. It's almost like you've got to jump across a little pond to get there and then keep moving.
+- This is magic - the people of Broadway. There's nothing better!
+- In 'Kinky Boots,' I looked for moments to be bold, showing Lauren's gutsiness and smarts. She's a little bit kooky now, too, and I love me some kooky.
+- I feel that since I was a little, little person, I knew that one of my life goals was to tell stories and bring joy to people.
+- I feel like any actor that has started out in the theater, the theater will always be their home.
+- As an actor, I always think that if someone does pick up a phone during a performance, something dire must be happening in their lives that is more important than theatre - some kind of tragedy they were attending to, or something. It's very uncomfortable if you don't know why they would pick up a phone and talk in the middle of a show.
+- There's no better gift to an actor than when you walk into an audition, and the casting director is your partner.
+- We actually found some home videos, some really funny footage of me when I was around 3 years old. I come up to the camera to do a Nixon impression. I don't know who taught me that, but I come up to the camera and said, 'I am not a crook.' I got a really good laugh. You see me register that bringing joy to people is a positive thing.
+- I love finding ways to make familiar characters into someone unique.
+- I've chosen a career that's quite tricky. You have such high highs and low lows, and it's outrageously inconsistent. But it is what I love, which is so rare, and I'm so grateful for that every day.
+- I loved reading 'Anne of Green Gables' and 'Little Women' and Jane Austen. Those were times when people really did have only one true love in their life.
+- I was born and raised in Denver, CO.
+- I think no matter what you are going to pursue, if you pursue it like it's the most important thing, then everything else will be lost. And at the end of the day, when it's time to evaluate the path that you chose for your life, there has to be something more.
+- Greg Grunberg is so beautiful and charming and funny and heartbreaking.
+- I kind of had a quarter-life crisis before I did 'Rent.' I had done Glinda in 'Wicked' for a while. I had worked for Cirque Du Soleil, and then I did 'Hair.' Then I had a real quiet time, not having work, and it was a time of not only self-discovery of me as a person, but also what I wanted as an artist and actor.
+- I've been lucky to play strong women who are trying their hardest to do good.
+- I, for one, have a great momma.
+- I always try to have a positive and warm intention that is not about me. It is easy to make everything about yourself. But you take the weight off when we make it about the audience. It's about the joy you can bring to somebody else instead of the joy that you get from doing it.
+- I came out of the womb singing, dancing, and telling awkward jokes.
+- Sondheim has been a part of my musical collective since I was eight. I was a dramatic little kid.
+- St. Louis is a very interesting city in terms of accents.
+- Even as a little kid, I just loved to make my own music. So I loved singing, and I loved sharing it because it was a way to connect to people.
+- The people I see be the most successful are the people who have an inner confidence and an inner strength that comes from the character they display away from the stage and from what their parents taught them.
+- I'll be, like, grocery shopping or doing something totally mundane, and once a day, you'll hear a Cyndi Lauper song on the radio. It is astounding what an icon she is, not just in popular music but in popular culture.
+- My first big show in Denver was 'Ruthless! The Musical.' I played Tina Denmark at the Theatre on Broadway. It was my big break!
+- The older I get and the more iconic the piece, I believe that it's wise to watch a bit and become inspired and take moments that feel so connected to the story and also connected to me that I feel like I can make a part of my own performance.
+- I dreamed my whole life of New York being my home.
+- Animals are completely grounded in their root chakra.
+- Donna Summer was one of the strongest female singers in pop music. She was very underrated as a vocalist and a writer, and her songbook is just outrageous.
+- Sadly, I never really tell people what I think. So it's a real treat to play a woman who's able to speak her mind unabashedly.
+- I love working in television and film, but it's completely different. The theater will always be my home. So I would love to be a lady who gets to work in all of the mediums and who calls the theater her home.
+- My go-go dancing was not your typical go-go dancing: I really was doing performance art. I would do dramatic, elaborate lyricals across the bar. I learned a lot, actually, as an artist during that time.
+- If you can change your mind, you can change the world!
+- Since I was a little girl, I've collected ladybugs. Not real ones - I never had a weird ladybug farm!
+- In the late 1950s, the woman's place in society was second-class.
+- I think every New York actor's dream is to do Shakespeare in the Park. Each show is so special and unique and diverse because of the elements that we're performing in. Every live show is truly a one-of-a-kind.
+- I love to share in a scene - I'd rather share than be alone.
+- In the comedy world, there's always been one woman to five men. I think that's changing, that we're being respected more as writers and comedians.
+- I am a huge Idina Menzel fan. She's incredible.
+- My mom is an elementary school gym teacher and a track and cross-country coach, so she really wanted me to be a runner. But I was not a runner. I was horrible at running.
+- I don't know how to explain it, but ever since I was a little girl, I knew that I wanted to perform.
+- Performing outside, you have to wear sunscreen.
+- I've had such an amazing opportunity to work on so many different types of projects that continued on to Broadway. Unfortunately I didn't always continue on with them. Still, you know, I always had such a great pride in kind of helping the authors and directors create the show.
+- Love is never not going to be a problem.
+- The cast of 'The Big C' is such an amazing group of people. They're so joyful and just open their arms to you as an actor.
+- On camera, the audience can see your eyes close up - they can see behind your eyes - and when you're on stage, you need to make sure that the person sitting in the back row can feel what's happening behind your eyes, even if they can't see them. Having a live audience is exhilarating and exciting all on its own, but you know, it is quite different.
+- You have to be so honest in comedy.
+- I'm really excited to share cabaret, the art form, not just with the generations that are above me, but also my generation and the generation under me. I think it's an art form that's incredibly important, and I think that my generation is a little unfamiliar with it.
+- I come from a family of educators.
+- I actually have some family that's from Missouri, and my husband is an outrageous St. Louis Cardinals fan, so we go to St. Louis every once in a while to go see baseball games.
+- My very first scene on camera for anything was with Sarah Jessica Parker in the 'Sex and the City' movie, and she couldn't have been more lovely and beautiful and kind, and on top of that, she's just a killer actress.
+- I think there's something beautiful about the art of making art, and it just will live and breathe.
+- It's very unusual to be playing something other than human.
+- Even though technically the fundamentals of acting are always the same in every medium, what's different is the size.
+- I've always felt very attuned to, and at home in, the gay community.
+- It's important to remember to pinch yourself to remind you where you came from and how lucky you are.
+- We don't often talk about the quarter-life crisis, but it is a real thing.
+- I started performing non-professionally at birthday parties and family gatherings doing 'Saturday Night Live' impressions at four. Then I started for real at seven.
+- As an actor, you have times that are bustling, and then you have the quieter, slower times. I definitely had some of those.
+- There are certain performers that the gay community receives and recognizes with love, and my whole life, I've always responded to those same artists.
+- I think part of becoming a wonderful actor and part of defining your craft is defining yourself and being confident in yourself, so when the hard knocks come, and you don't get a job for five years, and your ego is being kicked around, you can pull yourself out of it.
+- A dog's heart chakra is always open; their aim in life is to please.
+- One of the great things that playwright A.R. Gurney does in 'Sylvia' is he gives language to the emotional gestures and energy that our dogs give to us when they're communicating.
+- I grew up listening to cabaret. At 7 and 8 years old, I was already singing like a club performer.
+- I did clown training for months.
+- My mom is a gym teacher, and she's not musically inclined, but she always wanted to help me out with music as best she could.
+- I have always known mosquitoes love me, but they really love me in Central Park.
+- I'm so not a Bridezilla.

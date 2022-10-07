@@ -1,0 +1,105 @@
++++
+author = "Apl.De.Ap"
+title = "Apl.De.Ap Quotes"
+quotes_len = "99"
+description = "the best99 Apl.De.Ap Quotes"
++++
+- I want to leave this earth knowing that I did something. I made a difference in someone's life.
+- We've had great experiences in Israel - besides traveling around, we got to go to some clubs. We didn't really know how the nightlife would be in Tel Aviv, and we were surprised how big the party was and what a high level the clubs and music were at.
+- You have to keep pushing yourself and reinventing yourself.
+- DJing is one of my hobbies.
+- The Peapod Foundation provides tools and mentors encouraging children to express themselves through music and art.
+- We wanted to make music to fit with the way we live and celebrate life.
+- In every Filipino family, the children always want to help the parents... that was my goal.
+- The Black Eyed Peas is a family.
+- You know, some things you can't change, but you can start from the youth to change the future.
+- My friends, they can't beat me in pool or bowling.
+- I never met my father. He left before I was born.
+- All my life, I believe in overcoming challenges.
+- It is really important for me to help my culture.
+- I like to be hands-on because that's what motivates me. I like to involved from the ground-breaking to ribbon-cutting to auditing the funds. Just giving money away is a little discouraging because I don't know where it is going.
+- Coming from the Philippines to the U.S. did shape me in that it gave me perseverance.
+- I believe that there are many talented Filipinos and their talent is great and globally competitive, just waiting to be tapped. I don't want such great talent to be wasted.
+- We're always in the studio pretty much, either at home or on the road, trying to come up with new ideas and stuff.
+- Back in Sapangbato in Angeles City, my mom signed me up on this foundation called Pearl S. Buck where they support Fil-Am kids left during the time when U.S. soldiers where at the Clark Air Base.
+- When I dance, I picture myself and the floor in my head.
+- I have introduced Filipino culture to the world.
+- I wanted to be an engineer or a nurse.
+- I hated sunsets for a long time.
+- I was blessed and lucky to have been given opportunity. I really thank my dad, Joe Ben Hudgens, for taking his time and adopting this kid from the Philippines, and gave him his future, and opportunities. Without him, I wouldn't be here.
+- We come up with slogans on the road and then we start putting them on the songs.
+- Music gave me that neutral lane to relate with everyone.
+- You also have to surround yourself with people who have the same dreams and values as you do.
+- Our first conversation went like: 'So, what do you do in the Philippines for fun?' 'Well, I like to rap and breakdance.' And Will was like, 'What?? Me too!' That sparked our friendship and from then on, we were inseparable.
+- It was already hard enough growing up in the Philippines but imagine being blind, that's 10 times harder.
+- When I see the discrepancy between kids in the Philippines and the U.S., I feel like I have to give them an opportunity.
+- Growing up for me in the Philippines was hard to read comic books because I'm blind.
+- Hip-hop is just bombarded with a lot of materialistic stuff. When a group like us with more creativity comes out, I think it will make some kind of change.
+- I have been a product and a beneficiary of the creative industry.
+- Being adopted was my motivation to help others by first becoming successful.
+- There's a lot of kids just like me growing up in the Philippines, so I don't want them to give up. So listen to your parents, work hard and you can achieve so much.
+- Mentoring artists is something I love.
+- I was once a struggling artist, so I just want to help others, and provide my resources and connections and the people I know.
+- Filipinos are naturally creative and artistic.
+- I want the kids in the Philippines to compete with the world, with other kids out there, to have the opportunity. You never know, you might find the next Black Eyed Peas out there.
+- I'm good at shapes. If I'm not close, even if it's big, I can't read it.
+- Usually when you hear about rappers in Asia, they always try to be like gangsters and stuff like that and I don't get it.
+- There were a lot of gangs in high school. Instead of being in a gang, I decided to dance.
+- I doubted myself for a long time.
+- I was just a kid. I had nothing to my name but I was still happy. But I was also given a chance to pursue my dreams, have an education.
+- Singapore ladies are very beautiful.
+- I can do somersaults and back flips.
+- Until I discovered hip-hop, I felt I wasn't going to accomplish anything.
+- I think anyone that's running for office really should focus on the education for our youth, creating more jobs and employment, and really focusing on our next generation.
+- There's no reason but luck that I'm in one of the biggest bands in music.
+- Growing up, I've always kinda been into academics.
+- I like to cook chicken adobo and do my own laundry.
+- I had poor eyesight when I was young and despite that, I was making good grades.
+- Someday' talks about a dream of mine.
+- We want to show people in the U.S. and Europe that hey, here in Southeast Asia, we have so much artists brimming with talent and so deserving. We needed to tap into that so that the West can take notice and sign them up, too.
+- In break-dancing, you create your own style.
+- To me, it's pretty much the same thing - I just love playing music. But the cool thing about DJing is that I get to play other people's music, I can mix it up between our songs and a variety of musical genres. It also enables me to be more intimate with the audience.
+- I want to encourage Filipino artists to be original, write your own songs and don't be afraid to go outside the box and try new things.
+- When you have an education, you can make anything happen.
+- I was born blind in Sapangbato in Angeles City.
+- Me, I'm just gonna keep spreading the word about 'We Can Be Anything' campaign among Fil-Am communities in the U.S.
+- There's the fine line between presenting your culture and learning about other cultures so it becomes global.
+- When Will and I were growing up in Los Angeles, his girlfriends were always Israeli, so we'd always be hanging out with Israelis in L.A.
+- Not only I am an adoptee, but I also want to prove to everyone that being legally blind with a rare eye disease called Nystagmus that you can do and be anything if you put your mind to it and believe in yourself.
+- Stan Lee is like the universal hero. He got every culture together by storytelling. He gave every community their own hero to follow, in fiction and actually in factual life.
+- It is important for me to help others because I was also helped by others before I became part of the Black Eyed Peas.
+- I am proud to be Pinoy and I never forget where I came from.
+- Coming from the Philippines, my whole goal was to support my family and have a better living situation.
+- I just wanted to have an education.
+- Music is common language. I can sing 'Bebot' in front of white people and they will dance.
+- There is some gangsta music I like, like Biggie Smalls - he reminds me of Slick Rick -doing the same thing, but he did it in a really artistic way.
+- Our stuff is more about being positive, but not in a preachy way.
+- Some teachers used to worry and ask me, 'What are you going to be when you grow up?'
+- My being in America and being adopted from the Philippines have given me motivation and drive as an artist.
+- I've been building classrooms for children. Computer labs for kids. It's such a huge problem and so many children just aren't given a chance in life.
+- I actually got to go back to where I was born and perform there. I just brought my mom up onstage and was like, 'Look, here we are.'
+- My computer's the first thing I'd save if my house was burning down.
+- I was sponsored to go to the U.S. and became a Black Eyed Peas, and now I'm paying it forward and helping other children like me.
+- I came to the U.S. to have opportunities. I saw a lot of people in gangs. I just didn't understand that - you live in the U.S., you have all these opportunities. And then you get in a gang?
+- Building virtual classrooms was the brainchild of Charity Dreams. So many people play games online, it's a huge business - and so harnessing the power of the Charity Dreams community to help build classrooms just made a lot of sense.
+- There are many tremendous artists that never make it. Talent is not enough if no one sees, hears and tastes your work.
+- Be authentic about what you produce and there will always be an audience.
+- When you become successful, it is not just money that makes you happy.
+- But when I discovered music, I knew that that's what I wanted to do in my life and I just jumped in all the way and pursued my dreams as a musician.
+- I'm comfortable not using my vision.
+- We met Ferg at one of our shows in L.A. She gave us her number. For the song 'Shut Up' on Elephunk, we needed a vocalist. Someone said 'yo, remember that white girl - we should get her in the studio.' Since then, we've become friends. She's one of the guys now, she isn't just a girl.
+- It is very important for me to give forward in helping out every Filipino.
+- I have pursued my dream and I believe it is important to give back because I have been given the opportunity to be what I am now.
+- I'm fascinated by the Philippines because I'm from here. I was born here. I'm a Filipino.
+- Everybody wanted to be Michael Jackson. That's how Will and I got to know each other.
+- Queen Latifah once came up to me and said 'Bebot' was her favorite song. She said, 'I don't know what you're talking about, but it feels dope!'
+- If we go to a party, I'll just be chilling in the corner, absorbing everything.
+- I would take the jeepney all the way to Angeles City, and that's how I got introduced to break dancing.
+- If there's a Filipino flag waving, will.i.am whispers to me, 'Filipinos are over there!' And then I wave towards that direction.
+- I've started my own record label - Jeepney Music - and I want to put out my own stuff and also stuff by other Filipino artists.
+- I remember I told my mom that I was scared. I asked her, how will I talk to everyone in English? And my mom gave me a dictionary, where I learned one day at a time.
+- I'm proud of who I am, where I came from, what I was born into, and I would represent that till I die.
+- You need a screwdriver for screws and a hammer for nails. Anybody that's trying to screw in a nail with a screwdriver... that ain't too smart.
+- I have memories of being on the farm with my grandfather.
+- Back then we were young, we would just mash all forms of music together and come up with something.
+- I go out pretty much every night, and when you spend time in those clubs, watching how the DJs make their mash-ups to heat up the room, you want to create that sound yourself.

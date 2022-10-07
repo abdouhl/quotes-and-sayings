@@ -1,0 +1,27 @@
++++
+author = "Adrian Edmondson"
+title = "Adrian Edmondson Quotes"
+quotes_len = "21"
+description = "the best21 Adrian Edmondson Quotes"
++++
+- Performers like Tommy Cooper, who are always getting things wrong, are much more endearing than comedians who are sassy and smart.
+- It only works because we still amuse each other. After we have been working with other people, it is so refreshing to laugh unreservedly when we are back together again.
+- I remember once having to stop performing when I thought an elderly man a few rows back from the front was actually going to die because he was laughing so hard.
+- It's definitely time to stop. We're getting too old. We both realised that the show wasn't as engaging as it used to be. We were starting to look a bit ridiculous.
+- We have never been strictly political, only strictly funny.
+- I've always had a kind of visual eye, and it was a pleasant exercise for that.
+- The most fun I ever have is sitting in with Rick writing, and we laugh at our own jokes.
+- People expect us to be different, but we're not. We're very similar people, and it's because we're so similar and close to each other that we make each other laugh - in fact we make each other laugh more than we make anyone else laugh.
+- You're entering dangerous land when you start theorising about comedy.
+- Even though we work in the same field, we have an intense private life away from our professional lives.
+- On stage, we just want to generate hysteria. We don't care about looking cool or posing.
+- We only have one agenda, which is to make 'em laugh their pants off. Unless they are girls, of course, when it is to make them laugh their bras off so we can get a quick look.
+- A lot of people are obsessed with looking cool. They feel they have to look after their image.
+- I'm waiting for the time when I fail - because we all fail - and I'm ready, I'll take up carpentry.
+- Most modern comedy is crap.
+- I've never played a hero before so I jumped at the chance.
+- From the stage I've seen people of all ages absolutely roaring at really good toilet humour.
+- There is a lot of rubbish written about toilet humour - people saying it is childish and pretending it is beneath them - but there is no doubting the effectiveness of a really good willy gag.
+- We had so much fun in Ghana and they are really lovely people.
+- I don't claim that our TV comedies are highbrow in anyway, but I think there's a basis to them, and that's why they're more popular than other TV comedies. There's a basis of truth in them, a gut feeling.
+- Richie and Eddie couldn't exist without each other. They're two halves of the same person.

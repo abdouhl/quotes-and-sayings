@@ -1,0 +1,106 @@
++++
+author = "Amy Jackson"
+title = "Amy Jackson Quotes"
+quotes_len = "100"
+description = "the best100 Amy Jackson Quotes"
++++
+- Acting is my passion, but I like hosting shows, too.
+- If my role in a film is meaty, and I get a good song along with it, then why not?
+- A. L. Vijay asked if I could dance, and I just said yes. I didn't tell him the only dancing I had done was on nights out in Liverpool. He said he would arrange workshops and help me with the scripts and the language. He liked the fact that I was English but had an Indian look.
+- I think definitely 'Robot 2' is a milestone in my career.
+- I got trained in kick-boxing and mixed martial arts. I enjoyed the whole process so much, and I'd love to do more action films.
+- At home, I'm just Amy, but in India, I get mobbed.
+- My Hindi is OK. I think I am better with Tamil. I remember the Tamil words.
+- I love art and finding different bits and bobs for the apartment; so, I'm adding all my personal touches to the house.
+- I actually didn't find too many differences between B-town and the south. The difference lies in the temperature. I was shooting when it was 45 degrees Celsius in Chennai; Mumbai is cooler.
+- I'd be getting texts from my mates saying they'd just got into a club in Liverpool with a fake ID, and what was I doing? I'd have just finished a 20-hour day and be sitting in a hotel room, starving.
+- You don't say no to a Shankar film.
+- It makes no difference to my family where one comes from as long as we make each other happy. They are pretty cool like that.
+- When you have Khiladi Kumar on one side and Thalaiva on the other, you have to know your stuff well.
+- I won Miss Teen World, and then a movie rep saw me on the pageant website and thought that I had the perfect image for the role in 'Madrasapattinam.'
+- I can't believe all this is happening to me, but I am definitely here to stay. And I am happy to be in Indian cinema.
+- For me, age doesn't matter. You've got to go with your heart.
+- For my first Bollywood movie, 'Ekk Deewana Tha,' my mum also came over because Mumbai was completely new to me, and I'd heard it's a huge city.
+- Action was something I really wanted to do and will continue doing it in future as well, but at the same time, I know dancing and songs are huge part of Bollywood, and it will be my top priority to excel in that.
+- I've got Indian looks, but there is nothing in my background.
+- When I first got a call for the movie, I couldn't believe that I am doing a film opposite Akshay Kumar. He is such a big superstar.
+- My parents came from lower-class British backgrounds. But they worked hard and, without formal education, made it where they are today.
+- Who wouldn't want to date Salman?
+- It is my job to step into different characters.
+- You get people coming up to you and asking about movies, especially in Chennai, which is nice.
+- It is ridiculous - like a mad whirlwind... it's mad that I'm so famous.
+- I get treated like a princess in India. It is like a different world.
+- Pond's is a name that everyone is familiar with, and I know that I can trust them when it comes to skincare.
+- Rajinikanth is an absolute legend to work with. Imagine meeting him every day and spending time with him on the set. Sharing the frame with him is a lifetime experience; there's a reason he is called a legend.
+- It has been crazy and amazing. I had never thought I would work with Akshay and Rajinikant and would get to associate with these talented people.
+- I just don't do the treadmill; I hate that. I do Pilates and yoga. I've recently joined aerial Pilates; you're in the air and with straps. It's crazy fun.
+- There's competition everywhere.
+- India has introduced me to my ultimate passion - acting. I don't plan to give it up, and I intend to stay here for a long, long time.
+- I love a mix of kickboxing, gym, yoga, Pilates, horse riding, and dancing. I also do skinny rappelling, which is a quick cardio workout with music and lighting, so it's fun.
+- I have become like a rhinoceros - thick-skinned - all the gossip about my numerous affairs does not bother me anymore.
+- I was once so terrified of acting that I used to pretend I was ill to get out of drama.
+- When I was 17, my sister and I used to drive back from school in her car and sing the Spice Girls' chartbusters from the '90s at the top of our voices.
+- I was so shy, I couldn't stand up in front of people and speak. Now I'm in the next big three Bollywood movies.
+- As an actor, I know it is my job to shape myself for a role - any role.
+- If people enjoy your movies, that's the most important thing.
+- Back in England, a girl with thick black hair, dusky skin and big brown eyes will turn heads. It is vice versa in India.
+- I fell in love with Nawaz on-screen after watching 'Gangs of Wasseypur.' So my love story starts with him from there. I was quite nervous to act alongside him. He is an excellent actor.
+- I feel more comfortable in saris than gowns.
+- I am conscious about not getting typecast, but obviously I have to keep picking up great roles so that I don't get typecast.
+- Bollywood is very structured and organised, but Kollywood and Tollywood can be quite spontaneous, and I enjoy that.
+- I'm getting good exposure because of the movies I'm picking and the people I'm working with.
+- I love my pets, and I'm a big animal lover. I also enjoy the nature and countryside.
+- Completely overwhelmed, it is huge project to be working on 'Singh Is Bliing.' How everyone is enjoying the film is everything to me. Definitely, it is the biggest milestone of my career.
+- I was always focussed on the modelling and succeeding in that, but now I'm completely focused on making it over in India in the movies.
+- I generally like to stay fit.
+- Learning Indian mannerisms, how to wear saris, and the language were a challenge.
+- The hardest thing for me was leaving my friends and family behind.
+- Like most girls, I suffered from pimples, too. I tried dozens of treatments but was never satisfied with any.
+- I'm a huge fan of Nawazuddin.
+- My favourite thing to wear is a saree.
+- I like to do a lot of research for my films and live my character.
+- My dad did a radio show. I was on it when I was seven. So now you know that the showbiz bug bit me really early.
+- I look forward to Pond's products to deliver better skincare for girls everywhere.
+- 'Singh Is Bliing' came up to me as my dream role.
+- I had to pinch myself. I got the call and didn't expect it. And right up 'til nearly the end of filming, I was thinking, 'Am I actually doing a film with Akshay Kumar?' because I was a massive Akshay Kumar fan before, and the first film that I ever watched was his and Katrina's film, 'Namastey London.'
+- I was new to acting before my role in 'Madrasapattinam.'
+- I love being in Mumbai and want to continue being here.
+- I use this method to bring emotion into my performance. I recite my lines in English first, and then switch back to the original lines when shooting begins.
+- Thanks to having my dad travel with me, I don't feel quite cut off from my family.
+- Working with Shankar is a once-in-a-lifetime opportunity.
+- I started with Tamil film, then Hindi. Now, I am also doing a Telugu film. The journey has been wonderful so far.
+- If you look from my point of view, that's what Christians strive for - love from God.
+- I loved having Indian take-aways on a Friday night in Liverpool, but it's so different in the real India.
+- I had so much fun working with Akshay, especially in the action scenes.
+- We can stop the cycle of animal homelessness and save lives by opening our hearts and homes to a loving cat or dog from an animal shelter instead of buying animals from breeders or pet shops.
+- Hindi is far easier a language to pick up than Tamil.
+- I used to dress up in my older sister Alisia's clothes and thought modelling would be fun.
+- I am a Christian, and since the age of five I have been singing... chanting hymns containing the word 'Hosanna.'
+- 'I' is bound to have an impact on my career.
+- When I'm not shooting, I like to spend time with friends and family.
+- It's not easy, but I'm really enjoying what I am doing. One day I am in Chennai, the other in Mumbai, then in Coimbatore. But I love my job, and I am really passionate about my work.
+- I have been away from home since I was 17.
+- Now that I've moved to Mumbai, I should perhaps get a horse. It'll be a nice escape from my everyday life.
+- When it comes to the New Year, I make it a point to catch my mum and dad awake before the clock strikes 12. Then, I celebrate the night with friends.
+- The industry is big, and if I get an interesting role, I will take it up.
+- I love horse-riding - I have three back home in the U.K.
+- Bombay is different to Liverpool, or anywhere, really.
+- My mum is really fair and has blonde hair, and my dad is not dark, either.
+- When 'I' released, I gave a couple of interviews in which I expressed my interest to play an action heroine.
+- I'm taking dance lessons and getting stuck in. It's a great way of keeping fit, and it's obviously a big part of Bollywood movies, so I need to learn.
+- I am very conscious about picking my roles and make sure that they are different.
+- As a performer, I want to push my boundaries and try different roles.
+- The negativity will always be there. I think that's for any actress or actor. But I think you've got to take it with a pinch of salt.
+- I'd really like to make my mark in India.
+- '2.0' is an entirely new thing in Indian cinema, a movie to watch out for.
+- I went to the U.S. to start my modeling career at a very young age. So, venturing into films and handling the pressure isn't a big task.
+- Going to India to do a film is not an everyday affair. I thought I would do that one movie to show my grandchildren when I am 60.
+- For me, as an actress, you are playing a character, and to play that character, you have to get into that mindset.
+- I was 19 when I made my Bollywood debut with 'Ekk Deewana Tha,' and all alone in Mumbai. I would be easily affected by all that was said or written about me.
+- I would say Nawaz is my lucky charm.
+- Every time someone buys a cat or a dog from a breeder or a pet shop, a cat on the streets or in an animal shelter loses his or her chance at finding a good home.
+- I think, whenever you're in the public eye, you're never going to be loved by everybody.
+- I was only 16 when I was selected for 'Madrasapattinam.' I celebrated my 17th birthday on the set of the film. That was the first time I had travelled to India, and it was a rollercoaster ride. I soon fell in love with the country.
+- I am open to any good script and the character I can do justice to.
+- I am all for healthy living and maintaining a fit lifestyle.
+- As an actress, I am very happy with 'Singh Is Bliing' because that was totally different from what I have done before.

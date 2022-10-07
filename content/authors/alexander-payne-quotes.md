@@ -1,0 +1,66 @@
++++
+author = "Alexander Payne"
+title = "Alexander Payne Quotes"
+quotes_len = "60"
+description = "the best60 Alexander Payne Quotes"
++++
+- My flag is always flying. My shingle is always out. I'm always looking for movie ideas.
+- I think that Peter Jennings is the only decent one of the big three.
+- The hardest part of this whole movie-making endeavor is finding ideas.
+- Jesuits encourage an intellectual rigor in a way that I like.
+- There is an audience out there for literate films - slower, more observant, more human films, and they deserve to be made.
+- It seems that our politicians see the world in black and white, so why not our artists? Did Woody Allen's 'Manhattan' have to be in black and white? No. But is it fantastic that it was? To see New York like that? Yes!
+- The most heinous shift in American films is that they reinforce good things like 'couples' and 'relationships.'
+- In a sense, 'Schmidt' is the most Omaha of my films. But have I gotten it right? I'm not sure. Did Fellini get Rome right? Did Ozu get Tokyo right?
+- I think cynicism lasts. Sentimentality ages, dates quickly.
+- The novel succeeds on terms exclusive to literature. A good film succeeds on terms exclusive to the cinema. That's why so many bad novels can become good movies, like 'Jaws' or 'The Godfather.'
+- If you were falling in love and you could go back in time and relive a day and see the banal things you did that you'd forgotten about, you'd weep, looking at that day.
+- The best actors are always the ones who've directed as well, as they understand all the problems you face.
+- I don't feel despair because I am able to make the films I want to make, and that gives me hope.
+- There's a bizarre insistence on how a story should be. 'The protagonist must be sympathetic!' they say. Whatever that means. I never engage in that discussion. I never use that word, 'sympathetic.' I just know 'interesting.'
+- The biggest fear I have is to die with regrets, and of course that will come true.
+- Hollywood films have become a cesspool of formula and it's up to us to try to change it... I feel like a preacher! But it's really true. I feel personally responsible for the future of American cinema. Me personally.
+- I think a badly crafted, great idea for a new film with a ton of spelling mistakes is just 100 times better than a well-crafted stale script.
+- But it's just that the whole country is making generally lousy films these days and has been for quite a while. That's the big problem that we all have to think about.
+- I like actors who, when you see them on screen, you sense a person, not just an actor.
+- 'Independent' means one thing to me: It means that regardless of the source of financing, the director's voice is extremely present. It's such a pretentious term, but it's auteurist cinema. Director-driven, personal, auteurist... Whatever word you want.
+- I get asked, 'How can you have such failures in your films?' Well, what else is life about? There's some sense of constant failure in something. Humor gives you a distance from it.
+- When I'm shooting, I don't care who the star is. I have an actor playing a part, and I'm serving the script, not serving anyone's career.
+- A pitfall of making a comedy with a studio-and it's also an American cultural thing-is that I get tired of being encouraged to go always for laughs.
+- When you watch a movie, you don't want to feel like a machine made it. You want to feel a soul.
+- Each one of my movies becomes easier to get off the ground.
+- In the moment of making films, I want to share my observations of life, not of other films.
+- I don't want all of American cinema to be big cartoons that are just made to be digested by the entire world.
+- I mean, look, I love movies, not just the ones I make... In fact, I don't like the movies I make very much.
+- Omaha, like Rome, is built on seven hills.
+- Life mixes tones all the time.
+- I always wanted 'Sideways' to be like a great 1960s Italian film.
+- Well, that's what life is - this collection of extraordinarily ordinary moments. We just need to pay attention to them all. Wake up and pay attention to how beautiful it all is.
+- As the years go by and I make more films, I am increasingly interested in capturing place as a vivid backdrop for my films.
+- I never wanted money worries to slow me down or make me take a job I didn't want.
+- Anytime you cast a movie and you need someone famous in the lead part, you're a prisoner of whoever happens to be famous in the six-month window in which you're trying to get a film financed.
+- I still have energy and some degree of youth, which is what a filmmaker needs.
+- I don't think so much about verbal comedy. I always think about visual comedy. I was raised watching silents, and I'm always thinking about how to make cinema, not good talking - although I want good talking. I'm much more interested in framing, composition, and orchestration of bodies in space, and so forth.
+- That's how I like to do it with actors, have them really go for it and I'll tell them when it's too much. It's always easier to bring it back then to push it further.
+- I think if you watch most of my films with the sound off, you could still tell what's going on.
+- You look at how many years you have left, and you start to think: 'How many more films do I have in me?'
+- I want all of my films to belong to me.
+- I'm so not interested in producing, other than doing my own work, producing my own films. I only do it as favors, for other people to get their films made.
+- I like voice-over in films, and most of my films have been voice-over films.
+- What is filmmaking but groping in the dark?
+- They say you can do honest, sincere work for decades, but you're given in general a 10-year period when what you do touches the zeitgeist - when you're relevant. And I'm aware of that, and I don't want my time to go by.
+- I guess maybe I try to make movies that are closer to real life than are many Hollywood movies. But I still try to stay within a commercial narrative, a contemporary American vernacular.
+- The kindest thing a director can do is look with open eyes at everything.
+- I definitely in filmmaking more and more find writing and directing a means to harvest material for editing. It's all about editing.
+- If you're trying to recreate life, the life that you best know is the one you grew up with.
+- Even if we die at 100, we're still dying young. I want at least 700 years. There's a lot of travelling and books to read and movies to see. I'm not going to squeeze it all in in 85 years.
+- You begin a film more with questions than with direct intentions. It's more of an exploration and discovery.
+- You just never know when you're living in a golden age.
+- A book suggests a whole world and story that I could have never thought of in a million years.
+- I like to think of film-making not just as an act of personal self-aggrandisement but rather as an act of public service.
+- The best cinema is about ethics.
+- Marketing has supplanted story as the primary force behind the worthiness of making a film, and that's a very sad thing. It's film only as a function of consumerism rather than as an important component of our culture, and that's everywhere around the world.
+- I'm hoping one day I can make one really good film.
+- When you're a houseguest and you leave, it's nice to straighten something up or send your hosts a useful gift. And when you leave the planet, it's nice to have made a positive contribution.
+- The actors are the greatest executors of tone in a film. They're the most important cinematic component.
+- Joe E. Lewis said, 'Money doesn't buy happiness but it calms the nerves.' And that is how I feel about a film being well-received.

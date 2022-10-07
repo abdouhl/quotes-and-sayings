@@ -1,0 +1,70 @@
++++
+author = "Amy Adams"
+title = "Amy Adams Quotes"
+quotes_len = "64"
+description = "the best64 Amy Adams Quotes"
++++
+- My job as an actress is to make things work and come up with reasons of my own and not just fill in the blanks for anybody else, you know what I mean?
+- I love accents - I wish I could find an accent for every one of my characters. It makes it so much easier when I don't have to hear my own voice.
+- The Muppets have such a great tradition of bringing together all of genres of actors and all ages of actors.
+- I find that it's the simple things that remind you of family around the holidays.
+- I have a hard time articulating the emotional experience of working on a film. Even when I have meetings on films or discussing them with directors, I find that's my biggest challenge. Different words mean different things to people.
+- I didn't get into acting to have a moment, I got into it because of people who've inspired me, like Judi Dench, Holly Hunter, and Jodie Foster.
+- If I had a project that I had auditioned for and I was getting close to getting it, I didn't want to tell anybody because I thought then I wouldn't get it, but in reality that really had no bearing on whether or not I got a part.
+- What I respect in people more than anything is work ethic. And Justin Timberlake's got that. He works his tail off, and he knows his stuff.
+- I'm much more comfortable speaking through my characters' voices than my own.
+- I'm just grateful I didn't have to spend my early 20s in front of paparazzi cameras.
+- Being an actress hasn't made me insecure. I was insecure long before I declared I was an actress.
+- I come from musical theater, and a lot of musical theater is about accepting fantasy. I think it is more about just being open and accepting.
+- Perfect isn't normal, nor is it interesting. I have no features without makeup. I am pale. I have blond lashes. You could just paint my face - it's like a blank canvas. It can be great for what I do.
+- My dad is a singer. He used to sing in nightclubs, or pizza joints.
+- School was hard for me. If there had been a school for the creative arts, I might have thrived, but... I needed that creative outlet so much. Also, I'm just bad with numbers.
+- I thought 'Out of Africa' would be a beautiful ballet.
+- I was one of seven, and we took a lot of road trips - long road trips. And this was before iPhones and iPads and DVD players in cars. I remember how novel it was when I got my own Walkman so I could listen to music.
+- I like Cinderella, I really do. She has a good work ethic. I appreciate a good, hard-working gal. And she likes shoes. The fairy tale is all about the shoe at the end, and I'm a big shoe girl.
+- I think the kick to doing comedy is just to get in a film with really funny people and let them do their jobs. I find that in most comedies, I'm not the funny one, which works out great.
+- I didn't necessarily fit in in high school. I felt very awkward. I still feel completely awkward and weird in my body sometimes. I'm hoping that's going to go away, but I've just embraced it as reality.
+- I would say that a lot of the characters I've been attracted to are very vulnerable and they expose themselves emotionally. Not so much in 'The Fighter,' not so much in 'The Master' - I think those are different.
+- I graduated high school and I didn't have a skill set and I didn't want to go to college. I needed a job.
+- Most of the time it's the parents who recognise me. They try to tell their kids, 'Look, it's Giselle,' and I say, 'No, no, no, don't ruin this for them,' because I'm usually standing there with my hair sideways and no make-up on. And the kid is saying, 'That is not Giselle. No way. That is some worn-out girl who really needs a bath.'
+- I think that I've always been attracted to characters who are positive and come from a very innocent place. I think there's a lot of room for discovery in these characters, and that's something I always have fun playing.
+- How I work is I work from of very character-driven place. And I trust the writers.
+- I was a pretty scrappy, tough kid; I got in all sorts of fights at school. I defended myself - boys didn't mess with me. But as one of seven children, you have to fight for everything anyway.
+- I'm pretty Sicilian if I've been crossed. I don't seek revenge, but I never forget. And I make it hard to repair, which is not a great quality because if people held me to that standard, no one would be around me - ever.
+- I have worked with some of the meanest people in the world. You can't do anything to intimidate me.
+- I do love shoes that make my legs longer. I have the upper body of someone who's 5ft 8in, so high heels help me even out the discrepancy.
+- It's always challenging when you're shooting a film. Shooting things out of order and keeping continuity on all levels is always for me the most challenging thing.
+- As an actress people always tease me like: if there's anything you can do to make yourself unattractive you will do it.
+- I grew up as a Mormon, and that had more of an impact on my values than my beliefs. I'm afraid I will always feel the weight of a lie. I'm very hard on myself anyway. Religious guilt carries over too. You can't really misbehave without feeling badly about it. At least, I can't.
+- I research every part thoroughly. I talk it out with my actor friends, but then I throw it all away when I get to the set. You have to be spontaneous.
+- I'm really good at gymnastics, and that's about it.
+- I was the dork in high school who sang musical numbers up and down the hallways.
+- When I died my hair red the first time, I felt as if it was what nature intended. I have been accused of being a bit of a spitfire, so in that way, I absolutely live up to the stereotype. The red hair suits my personality. I was a terrible blonde!
+- I used to have a lot of superstitions, and then I realized that it was kind of hogwash. Once I let go of them, I relaxed a lot.
+- When I was younger, my sister thought it was funny to pretend to punch me in the face because my mom was concerned about my teeth falling out. They were loose for a long time, and she knocked out my teeth.
+- Thirty was a big deal for me. It was the age where I reevaluated everything - how I approached life and how I thought about myself. When I look at my 20s, or when I look at any period in my life, I think about how much time I've wasted trying to find the right man.
+- I have to say I've been lucky in that way in that I've been able to go from different films and different genres with different challenges.
+- That's how I prepare for anything - I read whatever I can get my hands on, talk to people. I'm a bit of a nerd like that.
+- I always had a larger view. I'm interested in real life - my family, my friends. I have tried never to define myself by my success, whatever that is. My happiness is way beyond roles and awards.
+- There's such a work ethic involved in theatre that you can't learn in L.A.
+- It's just very homey in Ireland. It's very comforting and comfortable. There's lots of fireplaces with fires. It's just really cozy.
+- I still think I'm like the poor girl from Colorado who worked three jobs to buy a car. That's still my mentality, so I'll be walking down the street, and I forget what I do and who I am.
+- I tend to be really pragmatic, but ultimately tend to be attracted to people who pull me into more spontaneity. I've really learned that, through surrender, the best experiences of my life have happened.
+- Being pregnant finally helped me understand what my true relationship was with my body - meaning that it wasn't put on this earth to look good in a swimsuit.
+- I knew I wanted to be a performer, but I didn't know I would specifically be in film. I actually never thought I would be in film. I always envisioned being on the stage.
+- I watched 'The Muppet Movie' obsessively. I can still pretty much say a lot of the lines and do a pretty mean Fozzie Bear.
+- I'm not the kind of actress who asks a lot of questions of my directors unless it's something I really need to know.
+- I'd love to be a diva. But I'd then have to send so many apology notes for my abhorrent behaviour.
+- I'm like the luckiest girl in the world. I've gotten to be a princess, I've gotten to work with the Muppets. A lot of my childhood dreams about who I wanted to be when I was a grown-up, I at least get to play them in movies.
+- I'm one of seven kids. That'll keep your ego in check.
+- Something I'm going to try to really instill in my own family is a lot of tradition. And, I used to have a lot of superstitions, and then I realized that it was kind of hogwash. Once I let go of them, I relaxed a lot.
+- My natural response to a stressful situation is to shut down. I do weird things, like, I don't cry, I get really cold.
+- I probably never would have been hired on Broadway had I not moved out to L.A. and pursued acting and film, which is sad, really.
+- When you're picking up and moving, it does create... well, I can sleep anywhere, which is really useful, it turns out, on movie sets. But what it really does is teach you how to adapt and change and fit into a new group or school, and that really is a lot like turning up to a new movie project and finding your place.
+- I like not being noticed. It has been a struggle because I love performing, but if I'm in a group of people and someone has a bigger personality, I'm like, 'Go ahead, and have fun!'
+- Moving out to L.A. for me was a leap of faith. I was very secure in my dinner theater world; I loved it, and I was just like, 'I think there's something else out there for me and I just have to go for it.'
+- Once I moved to L.A., there was a dark moment of trying to keep up with the girls I thought were pretty. Until I realised that's the stupidest thing you can do because people are so pretty in L.A.!
+- Some of these actresses or public personas who are very public about their disciplined diets, more power to them. I just don't see the point. I'm just not going to be one of those people photographed in a bikini where people are like, 'OMG, look at Amy!' I mean, it might be OMG, but not for the reasons I want.
+- I think a lot of times we don't pay enough attention to people with a positive attitude because we assume they are naive or stupid or unschooled.
+- I saw some musicals at dinner theaters where I grew up. But I didn't go to a big theater to see one until probably after I graduated from high school when I took myself to see 'Tommy' when it was on tour. I absolutely loved it.
+- In high school, I was so painfully self-aware that how I thought of myself was probably very different from what other people thought of me. I thought of myself as just painfully awkward and dorky. I had a lot of hair and was kind of weird. I sang a lot in the hallways.

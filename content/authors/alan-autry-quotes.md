@@ -1,0 +1,30 @@
++++
+author = "Alan Autry"
+title = "Alan Autry Quotes"
+quotes_len = "24"
+description = "the best24 Alan Autry Quotes"
++++
+- I will lobby tirelessly in cooperation with other mayors around the country to insure that federal funding for our recently added police officers continues.
+- I support public and private partnerships whenever appropriate in order to achieve our goal of a prosperous and vibrant downtown.
+- We must be willing to courageously invest in our city.
+- Every city across the country that has successfully renewed and revitalized itself points to a robust education system as its fundamental key to success.
+- We need innovation in education and dedication to the task before us.
+- I'll work overtime to open the doors of opportunity to industry and commerce.
+- We can no longer let the threat of an early frost send a chill of fear throughout a large portion of our workforce. Diversification is the only answer.
+- I do not believe that defending traditional marriage between one man and one woman excludes anybody or usurps anybody's civil rights and denies anybody their civil rights.
+- Your Mayor must seek new ways to bring jobs and industry to our community.
+- We must do more to protect our neighborhoods and give integrity to our community plans.
+- It cannot take decades to resurrect, we must act immediately with purpose and enthusiasm to rebuild.
+- There has been much talk referencing what I consider conceptual reports like the Landscape of Choice and documents created as a result of the Great Valley Center.
+- I'll continue to work to ensure that safety and I am honored to have earned the endorsement of the men and women who provide public safety in our city.
+- All of the factors that make up a quality city - safe streets, high paying jobs, strong neighborhoods, etc. - emanate from a strong educational premise.
+- A multi-purpose stadium is an absolute must in order to invigorate our downtown and, simultaneously, let the rest of the country witness that we can get things done.
+- Nothing is more devastating to a community than out-of-control crime.
+- Leadership requires the courage to make decisions that will benefit the next generation.
+- The key to truly rebuilding our central city on a vital and sustainable foundation is people.
+- Leadership demands that we make tough choices.
+- While it is true that we must seek value added industries like food processing plants and call center operations, we must do what is necessary to expand and develop our economic profile.
+- In fact, even the perception of a resurgence in crime can be enough to paralyze business momentum and destroy the sense of security that a vibrant and progressive city requires.
+- You don't need a city charter to know that education is the foundation of any community.
+- High tech companies that focus on research, development and production will learn that they can be the perfect complement to our world-renowned agriculture heritage.
+- I am convinced that your Mayor must take the leadership role in education too.

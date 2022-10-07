@@ -1,0 +1,106 @@
++++
+author = "Abby Johnson"
+title = "Abby Johnson Quotes"
+quotes_len = "100"
+description = "the best100 Abby Johnson Quotes"
++++
+- When I say, 'I want women to have control over their bodies,' I mean that I want women to know and embrace their fertility.
+- We all sin. We all can change. We all can be reborn in Christ.
+- Most prochoicers have a line in the sand concerning abortion. There are very few abortion supporters who believe in abortion through all nine months of pregnancy.
+- Abortionists are not the enemy. Our enemy is sin.
+- Being reminded of your past doesn't mean that you have to live with constant grief. It simply means that you have been given the opportunity to transform your past into something positive.
+- I try not to go down the 'what if' road very often. It isn't fruitful and just makes you feel crummy.
+- Being pro-choice was not just a movement to me; it was a lifestyle. I wholeheartedly embraced that lifestyle and loved being a part of it.
+- Should Planned Parenthood be defunded, women will still have access to great quality healthcare. Speaking as a former Planned Parenthood director, I know that quality health care is best provided outside of Planned Parenthood.
+- I wish I had a dollar for every pro-choicer who told me that abortion has to be accessible for poor women... as if being poor makes you an unfit mother.
+- I left Planned Parenthood in 2009 and have since started an organization called And There Were None, which helps abortion workers leave their jobs and find new ones.
+- I certainly never thought I would find myself walking into a pro-life office, and I never thought that I would one day be pro-life.
+- While I am a pro-life woman, I am also a woman who is concerned about rights for the disabled, maternity leave, the death penalty, health care, domestic violence, breastfeeding rights, etc.
+- Planned Parenthood's mission, on paper, is to give women quality and affordable health care and to protect women's rights. In reality, their mission is to increase their abortion numbers and, in turn, increase their revenue.
+- I got married to Doug in 2005. I knew that we wanted to delay having children for a while, and I had tried pretty much every hormonal birth control method under the sun.
+- It's my theory that one of the big reasons clinics have shut down - and will continue to shut down - is that former abortion workers have spoken out about their experiences in public and worked to testify against their former employers.
+- I've heard pro-lifers yell at abortion clinic workers that they should 'Repent!' Repent of what? They don't see what they are doing as something that needs to be repented of. Why? Because they are blinded. Do you think yelling at them will remove that blindness? Not likely.
+- Abortion does not just hurt women. Abortion hurts a family, and it has a domino effect of hurting those related and close to those families through the grief and reality of losing a child to abortion.
+- I didn't grow up believing that abortion was a good choice for women, but since it was legal, I thought it must be okay.
+- If the church doesn't minister to sinners, then who will?
+- I had developed a relationship with one of the anti-abortion sidewalk counselors who stood in front of my facility. We talked regularly through the fence and she had asked me to go have coffee with her one day. I was impressed with her persistence and, honestly, I thought I would really like her if I got to know her.
+- I have many memories of my time with Planned Parenthood. I spent eight years of my life there. Some memories are good, some are not. But they are contained in my mind. It's easy to forget them.
+- No one is beyond the power of conversion, because no one is beyond the power of truth.
+- I didn't want to be pro-life. I hated the pro-life movement. I had been taught to hate them. I thought they hated me.
+- Natural Family Planning works and is as effective, and sometimes more effective, than the birth control methods out there.
+- I have a nationally distributed film whose pivotal scene is the ultrasound-guided abortion.
+- When I say, 'I stand for equal rights,' I mean equal rights for all persons... from the moment of conception until natural death. I mean that I believe in the equal human dignity of all persons, no matter the 'contribution' they make to society.
+- I am a woman's advocate. I stand against abortion.
+- An abortion is expensive. Its cost includes pay for the doctor, supporting medical staff, their health benefits packages, and malpractice insurance.
+- The only thing that will keep an abortion worker in the industry longer is a pro-lifer who condemns them.
+- I live with very serious headaches, even though I am on daily medication.
+- The abortion facility in Texas where I worked for eight years closed after enough workers like me left. They closed because I finally spoke out against the terrible things I saw, the deceit I participated in, and the unsanitary practices common to many abortion facilities.
+- Pregnancy Resource Centers (PRCs) are constantly in the crosshairs of the abortion industry. They are angry that PRCs take away clients who would otherwise use them for abortion. They lose lots of money to PRCs every year - and are vastly outnumbered.
+- We are all afflicted with our own spiritual blindness. That's what sin does to us, and we all sin. We would do better to look into our own hearts and deal with our own sin before we condemn the sins of others.
+- In any business, there are facilities that excel at what they do and others that need improvement and further training.
+- Planned Parenthood doesn't care about women's health care needs; it cares about abortion.
+- As a person who worked in the abortion industry for eight years, I can say unequivocally that the most manipulation I have ever witnessed was inside the walls of the abortion clinic.
+- Part of being a former abortion clinic worker is learning how to deal with your past sin.
+- Planned Parenthood is an organization that does not provide quality health care.
+- When I say, 'I want women to have access to authentic female healthcare,' I mean that I want women to have access to healthcare that supports their natural femininity. I mean that I want women to have access to healthcare that doesn't include the use of contraception and abortion.
+- The abortion industry is interested in nothing but the bottom line.
+- I know I'm a smart person, and yet I was duped by the abortion industry for eight years. Why did it take so long for me to see the truth? I don't know.
+- Bottom line: Contraception does not reduce abortion.
+- I have seen women literally run into the abortion facility because someone was yelling Bible verses at them or pushing a graphic image in their faces.
+- After working in a prominent position at a Planned Parenthood facility in Central Texas for over eight years, I can say that women deserve better than Planned Parenthood and that their funding should be reallocated to Federally Qualified Health Centers.
+- We can be mothers and have careers. We can finish our education with children in tow. Is it a challenge? Yep. But women are made for challenges. We are strong enough to handle the challenges presented to us. It's what we were made to do.
+- If Disney wants ideas for a princess, make her an independent woman, one who is not afraid to face the daily struggles of life, and refuses to wear expensive dresses. Because we all know life is messy, and those dresses are too pretty to get dirty.
+- I'm happy to talk to liberal media, and we often have good conversations.
+- I want women to understand that the most beautiful thing a woman's body does is to grow other human beings.
+- I believe all children deserve quality health care.
+- Not many people get that 'happily ever after' they want in life. There are disappointments every step of the way, no matter how hard one strives for the best.
+- An important part of my story is that I didn't walk out of Planned Parenthood immediately after witnessing the ultrasound-guided abortion. It is made to appear that way in the film, 'Unplanned,' because they are trying to fit 10 years of my life into an hour-and-a-half-long movie.
+- My first March for Life was in 2010, three months after I left my job in the abortion industry as clinic director at a Planned Parenthood in Texas. It was intensely emotional, shocking in many ways, especially the outright love I saw in the faces of people who I once considered enemies.
+- I am a big sinner.
+- I am not just pro-birth. I believe in supporting a woman during and after pregnancy.
+- When former abortion workers speak out in public about what they did in their clinics, what they saw happening, and the disrespect consistently shown women, hearts and mind change, and abortion facilities close.
+- I am definitely not the best wife, and no one has nominated me for 'Mother of the Year.'
+- Filthy abortion clinics are not uncommon, but finding out about health violations at each clinic is no easy task.
+- Planned Parenthood's bottom line is number. And, with abortion as its primary money-maker, that means implementing a quota.
+- When I left Planned Parenthood, I was extremely nervous. I was immediately thrown into the media spotlight, and I had no idea what it was going to be like to be a public figure in the pro-life movement.
+- Some images stick with you forever, images that you can't unsee.
+- As someone who used to work in an abortion clinic and who now has helped over 425 people get out of the abortion industry, I have hundreds of first-hand accounts of what abortion clinics do to cut corners on cleanliness and health. Truly disgusting tales.
+- I wrote in my book, 'unPlanned,' about a church that kicked me out when they found out that I worked for Planned Parenthood. I often get questioned about that, whether I still think they made the wrong decision. My answer is a resounding 'Yes.'
+- I am part of a movement that loves women into conversation and conversion. I am part of the pro-woman movement.
+- Planned Parenthood is a tough place to work - the hours are long, the work is emotionally draining, the paperwork is endless, and the morale can run low.
+- If a woman goes to Planned Parenthood for birth control and discovers in the course of her visit that she has high blood pressure, Planned Parenthood can't help her. She has to be referred to a FQHC for treatment.
+- Why do I leave the March for Life every year happier than when I came? Hope and gratefulness are the reasons. Gratefulness for the life we have and the life we've given and hope for the future, to live in a world where abortion becomes unthinkable.
+- I worked at Planned Parenthood for eight years, rising through the ranks from volunteer escort to clinic counselor to clinic director.
+- There is such little tolerance for women on the national stage who don't agree with the hosts of 'The View' or celebrities who march with Planned Parenthood.
+- Abortion, more than not, leaves women with an aftermath of grief, guilt, and emotional overload. In a lot of cases, this can last a lifetime.
+- Planned Parenthood has consistently claimed to 'care' for women 'no matter what' and champion 'women's rights' - yet they frantically silence any woman who thinks women deserve better than Planned Parenthood.
+- If you want to truly stand up for women's reproductive rights, then stand against birth control. Because nothing says anti-woman more than birth control.
+- How pro-lifers are perceived by those who oppose us is important.
+- I feel so pure in heart.
+- 'And Then There Were None' is a network of former abortion clinic workers who are stepping forward to tell our stories about what really happens behind the closed doors of Planned Parenthood and abortion facilities across America. We are stepping forward because our voices deserve to be heard, and America deserves to know the truth.
+- I get asked this question a lot. Am I really pro-life? Am I against abortion in all circumstances? Yes. Do I believe there are any exceptions for abortion? No. Do you want to make abortion illegal? Yes.
+- Women - and those who love them - need to know the truth about abortion facilities.
+- Can you love people into truth? Absolutely.
+- The testimony of former abortion workers can help persuade lawmakers to create fair laws that protect women from dirty abortion facilities.
+- Pro-life feminists believe in women and their ability. Pro-choice feminists only see women as weak and something to be exploited.
+- The abortion industry and their workers are under unique pressure and constantly in the spotlight because abortion is so controversial, and people on both sides are considerably passionate. This isn't a typical nine-to-five job. It's on a whole other level of intensity.
+- Throughout history, women have often been treated as second-class citizens and their voices silenced.
+- I am far from a perfect pro-lifer.
+- When I worked for Planned Parenthood, we had a specific protocol that we had to follow when picking up our abortion doctor. Looking back, I realize how crazy this was, but at the time, I felt like I was a part of some super secret high-level security task force.
+- Fertility should be shared between a husband and wife.
+- We know the risks of birth control, and yet we continue to pump it into our system as if we have no choice.
+- Equal rights for women. I agree with that concept. But we will never be free, we will never obtain equality, until we stop letting ourselves become pawns of the abortion industry. Our freedom depends on our rejection of abortion.
+- I have daughters. They love Disney princesses.
+- Abortion is a severely traumatic and potentially dangerous procedure.
+- I would say I am a mediocre Christian.
+- Never underestimate the power of anyone's story... anyone's life.
+- I joined Planned Parenthood because I wanted to help poor women with real health care needs.
+- I had always believed that I would retire with Planned Parenthood.
+- I know from personal experience just how critically important the work of LifeSite is - not just to me but the whole pro-life movement!
+- Why do Planned Parenthood and their allies only 'trust women' and only want to hear women's stories when they agree with Planned Parenthood? Why do they work to silence any women who disagree with them? Don't our stories matter?
+- Being 'pro-life' means standing up for all life, valuing all life.
+- Time is money, and the more breaks given, the less money that is made.
+- How can we condemn those who are truly blinded by evil? We can't. We shouldn't. How do we bring about conversion of those living in blindness? By love. By truth in charity. By offering forgiveness. By offering mercy. With prayer.
+- While I am a single-issue voter, I certainly don't live a single-issue existence. Many causes affect my family and me, and I intend to be a voice for those as well.
+- It is a beautiful thing to witness when my kids ask about the baby in my belly whenever I have been pregnant.
+- Planned Parenthood claims to offer a wide variety of services, but they actually fall short in many areas.

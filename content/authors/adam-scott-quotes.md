@@ -1,0 +1,117 @@
++++
+author = "Adam Scott"
+title = "Adam Scott Quotes"
+quotes_len = "111"
+description = "the best111 Adam Scott Quotes"
++++
+- I like having a beard. What's funny is when you shave a beard, you realize how freezing cold your face is! The primary purpose evolution-wise is to keep you warm, to grow hair on your face. You shave it off, and your face is freezing for a few days.
+- Going to the roof of the Empire State Building is pretty amazing for kids.
+- I came to Los Angeles to be an actor, which is, at best, a gamble.
+- I like having a duty. I'm a terrible cook, but when people come over, if I'm falling between the cracks socially, I can always run away to my job.
+- Sometimes people's behavior is seemingly unexplainable.
+- I was a pretentious teenager, so of course I had, you know, 'Raging Bull' posters and all of that. 'Raging Bull' is not a pretentious movie, but me having the poster was a pretentious action. I even grew a goatee and had a Knicks cap, because I thought I wanted to be like Spike Lee.
+- I guess I'm used to TV where we don't really rehearse. You block it out, and then you just start shooting.
+- I prefer Los Angeles just because I live there and my family's there. But I think New York is just kind of the center of the world.
+- In television, you make an hour-long episode every seven days; we used to make 'Party Down' in four days per episode. It's quick and with independent movies is the same: you gotta keep moving. It's very similar.
+- If I'm going to be away from my family, I'd rather it be working with my friends.
+- I worked at Johnny Rockets. For one day. I had to quit because they said that anytime a particular song comes on the jukebox, all the servers have to stop and do this special sing-along and dance, and I just knew that I wouldn't be returning.
+- Amy Adams was great to work with, fun and lovely.
+- As a seven-year-old, I had definite opinions on Ronald Reagan.
+- I love the people I work with and the stuff I've found and that's found me.
+- I grew up right in Santa Cruz, right across the bay from Monterey. I would go to Monterey all the time.
+- I tend to be a little too old to feel guilty about watching anything. Like, I watch 'Survivor' every week.
+- Most of the time, I don't think movies of TV shows are a great idea. It's worked a few times, but usually, I think that what's on TV works on TV.
+- I think when you're on a network show, it's crazy how different it is... just being on a network show that reaches that many people. It's not like I'm very famous, but seemingly overnight, I would get recognized more, and it was really weird.
+- It's really fun to get recognized for 'Step Brothers.'
+- Like, on the 'Parks And Rec' set, I still feel like I'm a guest star. Being a fan of the show, it's really surreal to be on the set and see that it's not real, and getting to know the actors and they're not their characters.
+- I think podcasting is here to stay.
+- I don't think people who are bad people think they're bad people.
+- Dr. Bronner's is the best. My mom had Dr. Bronner's around since I was a little kid, and I've used it in the shower as soap ever since.
+- I like to improvise; I think it's just a healthy thing to do, to keep everything loose and fun.
+- The great thing about New York is that you don't have to set out to do anything. Whenever I go without the kids, I walk all day and see the most interesting stuff. There's always some kind of drama playing out.
+- I love hearing about bad behavior. It's just so funny to me. Especially, grown ups acting like weird, inconsolable babies over really stupid things, to me, is really funny.
+- I'm a big consumer of media and content online.
+- You know, it looks like I have a varied resume or a varied career, that I've made interesting choices, when the truth of the matter is, in a way I've just kind of piece-mealed a career together, you know?
+- The way Apatow works, you do it scripted a couple times, and then he just kind of lets you go and improvise.
+- I think a lot of us are a lot more cautious with marriage because of what we saw happening with our parents. I see a lot more healthy marriages in my generation than they probably saw in theirs.
+- It is not like casting me in your movie is going to help you get financing.
+- I think 'Piranha' won't be in the guilty-pleasure category, because it's gonna be - well, yeah, maybe for some people. From what I've seen, it has a sense of humor about itself, and it's also really scary and really, really violent. I would call it a popcorn movie from the planet Popcorn.
+- I remember getting out of acting school and friends of mine talking about, like, 'You know, I don't think I'm gonna do TV.' Like, people putting on these airs of being picky. And I was never a snob about it.
+- I love a good, poppy chorus.
+- I'm an R.E.M. nerd and have been since I was 14.
+- I think that a movie of a TV show is really tricky, and I don't know if it's ever really been done well. Because it's really hard if you have a 22-minute show, especially something like 'Party Down,' where it's all contained at the party.
+- I have a recurring dream where I'm on the run for a horrible thing I did years and years ago. Like, in the dream... because the thing I did was so long ago that it's just a faint memory in my dream, so I'm sort of remembering it as I'm on the run from the police. And I'm totally guilty of it.
+- My upbringing was healthy and terrific.
+- As far as base humiliation goes, acting is a tough business. It's a tough, embarrassing thing to do for a living when you're starting out, and you better not have any ego or pride, because that will be wiped away clean by utter devastation.
+- Chasing kids on the beach and sleeping is the closest I come to exercising while in Hawaii.
+- For me to get a lead role in a real movie is something to jump at. It's not like I get to do that all of the time.
+- The divorce in my family was really amicable. There were no fireworks. It was all sort of behind the scenes, if you will. None of us kids ever saw any argument.
+- I just like staying at home and eating and watching movies and running around in the back yard.
+- If I look at it and feel there is someone who can do it better, I won't do it. Whether it's 'Party Down' or 'Piranha 3-D,' I'm going to bring something to it to make it special.
+- My hair is very limp. I have to put stuff in it so it's not as flat on my head.
+- What could be said about 'Party Down?' So many things. It was such a good idea - a different party every week is such a slam-dunk of an idea that I couldn't believe it had not been done yet. The creators of it are my friends.
+- One line on a Tom Selleck sitcom does not a career make.
+- I think people are getting more and more comfortable - watching content at home is blurring that line, because people are getting used to watching movies at home.
+- I know that I am not entitled to anything, and when somebody thinks they are, that's a step in the wrong direction.
+- I immediately understood the general air of humiliation that comes with trying to do something as ridiculous as be an actor in Hollywood. It's just kind of an embarrassing endeavor.
+- It was just really fun doing 'Step Brothers,' and then 'Party Down' came a year later. I was having so much fun. I loved the people and the comedy community.
+- David Wain just texted me and asked me if I wanted to do 'Wet Hot.' And I just said, 'Yeah, sure.' And he said, 'You want me to call you and tell you about the character?' And I was like, 'Not really. Just tell me when, and I'll do it.'
+- I would be horrified to watch whatever I was doing on 'Party Of Five.' I'm sure I'm bad on it.
+- I was an extra in a Tia Carrere music video.
+- It's the worst noise in the world: me analyzing the reasons for making a podcast about U2.
+- JanSport thinks about everything that a person in the 21st century would need, and then creates a pocket for it.
+- I focused my life on things that are a little more dependable, like my family and things that actually make me happy, rather than momentary flashes of success or anything like that.
+- AirPods have squirmed their way into my life. I use them every day, and I always know where they are and if they're charged or not.
+- If I had gotten the parts in 'Scream' or 'I Know What You Did Last Summer,' I would not have been very good in them, and I would've squandered whatever success I had gotten because I wasn't ready for that sort of thing. So I feel grateful for all of the years that I have behind me trying to get traction and a career.
+- Just as a fan and a consumer, I think less of actors as one thing and belonging to one genre or medium. People do all kinds of things.
+- All of my favorite comedy has always been of the grounded variety. Even 'MacGruber.' I think that MacGruber is a really grounded character.
+- No, I don't regret doing anything, and, you know, at the time, 'Monster-in-Law' was... I was so excited to get that part. I got to be in a big movie for a few months. I got work, and everybody on it was really nice, and it was a fun experience.
+- I never was a caterer, but I did deliver pizzas.
+- Every year, you can depend on having at least a couple really exciting Nicole Kidman performances, and that's a rare thing.
+- It's interesting how there are a few times in your life when you get to reinvent yourself. Like the beginning of junior high or high school, and certainly when you go off to college.
+- I was a chubby kid.
+- I love working with friends; it's my favorite thing to do. I've found over the years that that ends up being the best way to spend my time.
+- I remember, the first time I played a parent was - I did a guest spot on 'Veronica Mars,' and they were like, 'OK, and this is your daughter,' and there's this little girl standing there. And I remember thinking, 'OK, this is weird... I guess I'm old enough to have a daughter.'
+- I was trying to get an audition for 'Walker, Texas Ranger' and they wouldn't see me. And I was crestfallen, because I really needed money. And to be told you're not good enough to be seen by 'Walker, Texas Ranger' is a tough blow.
+- 'Raiders of the Lost Ark' is my favorite movie, and it's why I wanted to be an actor.
+- And if you get caught up in combing the Internet for what people think of you or how people perceive you, I think that's a slippery slope.
+- You know, writing is really difficult, and it takes a real patience and a skill. I don't know if I have that. I admire it in others, so much, and I envy it.
+- My brother really shaped my musical taste when I was younger. He turned me on to classic rock like Led Zeppelin, and then he got me into R.E.M. and U2.
+- I did a couple quick things with Nicole Kidman, and I really loved that. She was a really cool person to chat with and had a really lovely presence on set. I'm a big admirer of her work. It's amazing the volume of work she does.
+- After a long day at the beach, a hamburger and fries usually does the trick.
+- When you blow an audition that you have a lot of importance on, it haunts you for years.
+- I think 'Party Down' found its audience primarily on Netflix and stuff like that, and primarily after it had been cancelled.
+- If I would have had the same opportunities when I was 22, there's a good chance I would have squandered them. I know my work wouldn't have been any good.
+- My parents were pretty cool about letting me listen to whatever I wanted. The only objection might have been playing music too loud.
+- I mean, the acting school I went to, we did have a social experience, but you know, when it's a bunch of actors, it's everyone self-consciously having a social experience rather than just having a social experience.
+- I mean, I love action films, you know, good action films.
+- I think 'Eastbound & Down' is one of the great television shows, ever.
+- I've learned, over the years, to go after the parts where I feel I can add something.
+- Journalism classes would have been interesting to me.
+- For me, the comedies that truly work are the ones that are grounded in some way. If it's all heightened, it's really hard. It's a little slippery. It's hard to get purchase on the side of the wall.
+- I have this Waterpik that shoots water between your teeth. It's great. You do that along with flossing, and you know for a fact you've cleaned your mouth as much as humanly possible. It's like going to the dentist every night in your bathroom. I don't know if it's a floss replacement, but in conjunction with flossing, it's great.
+- I got really into Martin Scorsese as a teenager, so then it was kind of the whole reason I wanted to be an actor. Just like tons of young actors, I think, get freaked out by the Scorsese/DeNiro movies. I loved all his movies in the '90s, too. Then I got a part in 'The Aviator' and couldn't believe it.
+- I used to be into the Grateful Dead, so I understand the Phish thing.
+- Being an actor is just kind of embarrassing.
+- I'm glad that I didn't get a part in 'Scream 2' and become a star in 1995.
+- There is nothing more unpleasant than watching someone on a TV or movie set act like they are entitled to a particular kind of treatment just because they have been doing it for longer. We are all in the same boat - one job at a time.
+- I think one of the great things about 'Bridesmaids' is that it's a big studio comedy, but all of the relationships in it are so grounded that you're watching a real movie.
+- 'Step Brothers' itself, when I did it, I don't know if I had any idea that it would become a defining moment in my career and life like it has, and I'm really happy that that's the one that ended up being that for me.
+- More and more, you're seeing television shows that are better than 99% of the movies out there. I mean, you watch something like the last couple of seasons of 'The Sopranos,' which is some of the most sophisticated writing I've ever seen filmed and some of the best filmmaking I've ever seen - and it's a TV show.
+- I did just about anything to pay the rent for a while.
+- Ever since having kids, napping is something that I'm prone to do and very easily could do but rarely get the chance to.
+- I can't imagine my wife and I ever splitting up. I can't imagine a life without her.
+- There was a lot of improvisation on 'Step Brothers.' I remember it being really frightening, and it took me a long time to get used to it and grow to be able to hold my own. But I remember when it was done feeling like, 'I don't know if I ever want to go back to working another way.'
+- I thought I would be a dramatic actor - everyone starts that way.
+- Every little interaction I had with Scorsese is forever tattooed on my brain.
+- I'm just excited to watch my kids grow up.
+- I had a double bacon cheeseburger at Chili's, and I lost a tooth in it. My tooth!
+- I was a political junkie, and it just exhausted me, and after Obama won, I just kind of unplugged from all of that for a while.
+- I've barfed in movies before. It seems like it always ends up being Campbell's soup mixed with something else.
+- For a lot of people, divorce is an incredibly healthy move to make in your life.
+- 'Rectify' is really good.
+- For years and years, I was doing extra work and guest spots and anything I could cobble together.
+- Growing up, I did not have many friends with parents who were together.
+- There's certainly harder things in the world and the country to do than being an actor, but it's a particularly emotionally humiliating thing to do, that you don't really anticipate when you choose to do it. You don't really think that it's going to be quite so soul-crushing at times.
+- 'Black Mass' was a really great experience.
+- 'Parks and Rec' is definitely a mainstream show - the group that watches it on TV on Thursday night is small, but the audience that watches it on things like Hulu, Netflix, and Tivo is enormous.

@@ -1,0 +1,63 @@
++++
+author = "Akhil Akkineni"
+title = "Akhil Akkineni Quotes"
+quotes_len = "57"
+description = "the best57 Akhil Akkineni Quotes"
++++
+- Humor and family emotions are integral to Telugu cinema.
+- I had a normal upbringing, studied in Chaitanya Vidyalaya till class VIII, went to Australia for two years, returned and did my Inter at Oakridge. I wasn't inclined towards academics. I barely scraped through.
+- If I choose a holiday destination, it would be a beach.
+- My parents are super chilled-out.
+- It takes time to gain the audience's trust. I am taking one baby step at a time.
+- Unfortunately, I have a temper. I tend to flare up once in a while.
+- I know the world isn't always beautiful or magical.
+- Though my first love is cricket, I was never away from any other disciplines too.
+- All my staff is male and the same age group as me.
+- When someone is mean to a dog, they are being cruel to a living being.
+- I don't know whether it was my fault or someone else's fault, but I was extremely disappointed that my first film was a total washout.
+- In Telugu filmdom, audiences like to see their hero dance, fight and play a larger-than-life character. It's precisely why most of our commercial films do extremely well and get remade too.
+- I love to be outdoors.
+- From childhood, both my brother and I have had only one hero, and that's our dad.
+- 'Hello' was a niche film with no high levels of energy. It had no much happiness, no much dance in its screenplay. But it did a lot of good for me. I was in a negative space before it happened.
+- As I represent the next generation of the Akkineni clan, I'm expected to do much more. It's the only fear that makes me realize how hard I have to work to survive.
+- If Hello' had been my debut film, the numbers would have played out differently.
+- For me, Hello' was more of getting my confidence back and gaining the audience's trust.
+- 'Mr. Majnu' is a modern and passionate love and he loves to be around girls, they love him too. But, I'm nothing like that in real life.
+- When I'm bored, I hate being alone so there's always a friend at my place.
+- You know, it's so tough not to be bit by the acting bug being in this film family.
+- Animals don't deserve to be abused. They deserve to be friends with us and they deserve to be appreciated for the beautiful beings they are.
+- To be honest, my first film Akhil' was a disaster and to come out of the negativity it brought, it took a lot of time.
+- I want to give fans what's expected of me and once I've made my mark, I can experiment and do the kind of films I'd like to do.
+- I would definitely love to do Hindi films but I'll choose films carefully.
+- No matter how much buzz you create for a film, it's the content that finally gets judged.
+- Irrespective of my father's support, if people don't like me there's nothing my family status can do about it.
+- Whether you are a star kid or not, it all depends on the actor and how he/she can get the audience to the theatre.
+- I believe Mr. Majnu' is a complete film.
+- The star family status can easily get you opportunities, but the offers dry up after a point when you don't prove yourself.
+- I have been brought up in a house where animals are our friends and we treat them as equals.
+- About him as a father, I can only say that he has been nothing less than a hero in real life to me and an inspiration like no other. I'm just in awe of his life and I am so grateful to be a part of his life.
+- In the evenings, I like to go for dinners with my close friends.
+- Not that I have any regrets about my first film. It was a learning experience and I'm grateful for the opportunity. But I think somewhere we went wrong with the planning and execution of my debut.
+- The problem is that right from the beginning, there was this whole pressure that I've had to make it big. I don't know if it's my fault or if someone else created this atmosphere around me, but it's been there.
+- 'Mr. Majnu' is just my way of saying that I am trying to start off from the basics.
+- When you come from a star family in the South, you're expected to be really good in dance and fights. It's really important that you open up as an actor in front of the camera.
+- In person, I am a person who doesn't talk about myself.
+- In real life, I am nothing like a playboy.
+- I was always the shy one around, I wouldn't sing even in family gatherings.
+- It's important for an actor to self-analyze.
+- Everyone likes a little bit of flirting and I do indulge in healthy flirting at times.
+- Sometime in your teens you have to decide what you want to do. I knew it had to be cinema.
+- As a child I had a lot of energy and took to sports.
+- Every son needs his father to be a hero and my father is like a superhero!
+- There's nothing wrong in starting all over again and taking it step-by-step.
+- Honestly, I wanted to play it safe with my first film; I didn't want to do something completely out of the box.
+- Ever since I can remember, over-expectation and pressure have been my worst enemies.
+- My father is my go-to man.
+- I am open to doing multi-starrers if something exciting comes.
+- Fans always have an opinion of their own. We only try to live up to their expectations.
+- I see marriage as a new beginning in my life.
+- If it's a Sunday, I usually wake up by around 11-11:30 A. M.
+- Being a star son, everywhere I would go the first question that I would face was When is your debut?' I guess that's why it had to be planned well, for the curiosity that exists about your debut film is the highest and it makes for grand openings.
+- My Dad has been on board for the entire project. He has produced Hello' and made sure that everything is just right this time.
+- Audiences are brutally honest nowadays. If they don't like an actor, they have all the right to write him off.
+- I'm not much of a dancer.

@@ -1,0 +1,23 @@
++++
+author = "Aron Eisenberg"
+title = "Aron Eisenberg Quotes"
+quotes_len = "17"
+description = "the best17 Aron Eisenberg Quotes"
++++
+- I had Macs when Blizzard was pretty much the only company making games for Macs. I played all the Blizzard games, like 'Diablo II.'
+- I'm just a regular guy. I have two kids, I do photography, I pay my mortgage - I just happened to be on a TV show.
+- I want to to play some fun, interesting, crazy little character. I would love to get into something really fun and cool. It would be awesome.
+- In many ways, Nog is a lot like me, like the way he goes after Starfleet with such tenacity, much the same way I went after my acting career when I started out.
+- I go to conventions all the time. I'm not one of those actors who's public-shy, meaning I don't mind when someone comes up. It doesn't happen often in the real world because people don't recognize me because I was in makeup, but when it does, I don't usually mind it at all if somebody says something.
+- When there's a team mentality, that's what I enjoy. I enjoy when it takes several people to come together to win a game.
+- I started doing work as an extra and began taking acting classes. My height didn't seem to matter and no one was making fun of me. I found where I belonged.
+- When I was doing 'Deep Space Nine' the only other competing shows were 'Babylon Five' and I think 'Stargate' not too long after that.
+- It's good to be prepared, but spontaneity is very important - just to let yourself go and let it be whatever it is.
+- Sometimes I think you do the things you think are best at the time for what you need to take care of, and then just one thing leads to another thing. And one day you're there going, 'How did I get here? It wasn't my ultimate plan, but I'm here.'
+- Tony Todd, Avery Brooks and Cirroc Lofton were wonderful.
+- I think you just do the best you can to follow the dreams that you have and to make the most out of what you enjoy out of your life. That sets the road in front of you.
+- I was so excited to audition for 'The Lord of the Rings,' I knew it was going to be huge. Maybe, by some small chance, Peter Jackson's a 'Star Trek Deep Space Nine' fan.'
+- I think the majority of people will always take the easy route first.
+- I'm looking forward to 'Cataclysm.' I have to be honest: I think one of the things that I worry the most about in the game is the homogenization of the game.
+- Nog is just so fun to play. He's not a boring or quiet kid, and he's not too loud or obnoxious. He's just a little different. He's a Ferengi.
+- I auditioned for 'The Lord of the Rings,' I auditioned for the part of Sam, and I didn't get very far... they wanted people that were taller and alter them in Computer Generated Images, so I never got a call back.

@@ -1,0 +1,36 @@
++++
+author = "Albert Finney"
+title = "Albert Finney Quotes"
+quotes_len = "30"
+description = "the best30 Albert Finney Quotes"
++++
+- My dad was great. He was very droll, very dry.
+- There might've been wires, but I have this ability to make myself light. Well you know what, in ballet, when you kind of lift yourself here, it's all up in the head.
+- When I read the script, I liked the script very much and I thought it was a marvelous part for her, because I think it is a change of pace. I mean, we know how wonderful she is in romantic comedy.
+- I think that one of Tim's great qualities and abilities is in what seems like a thumbnail sketch to get something quite telling, very simply, when you're doing it or being in that thumbnail sketch, you don't feel that it's important.
+- I haven't seen the film yet because I just got in from London. In the scenes where the two characters are bantering with each other, it is like bobbing at the net in tennis.
+- I don't enter, I'm entered. It's up to someone else. It's up to them.
+- Within two weeks of working with her, I realized how good she was for the role because she was absolutely with it and she has got terrific instincts, I think, as an artist, too.
+- My girlfriend and I rented a nice house on the river and I was there for about two and a half months, and we were just out of Alabama. I hardly got to see Alabama.
+- Well, I've always thought that my career was in England, really. I used to do more in the theatre, and I felt that I should be there. It's not far is it? It's amazing the way that special FX have taken a quantum leap in what they're capable of doing.
+- I'm not bothered by the paparazzi and I don't feel hemmed in, I've never felt that. My youth, mind you, there wasn't quite the same attention to celebrities as there is now, but I've never felt that.
+- I think that I'm busy in the present, and I don't want to go back. Well, there's been an unauthorized biography, and you can't stop them. It didn't worry me.
+- It was great to do and it's exciting to do those things. That's another thing, that one enjoys the game.
+- All we did in Alabama was have a read through with the script, but there was, 'No, well, it needs more. You've got to do this, Albert. You've got to do that, Jessica.' It didn't feel like that at all.
+- They have to exist or not in their own right. I mean, with kids, you don't say, 'Which is your favourite,' or 'Which did you enjoy bringing up the best?'
+- I mean, I did a film, a musical of 'Scrooge', in '70, and the tricks were done by flat clothes and mirrors. I hope that the day will come when we don't have to turn up at all.
+- I'm doing another Churchill. I did a Churchill for HBO and that was up to 1939 and there's talk of the war years. They were going to do it this fall, but the script wasn't going to be ready.
+- No, she is right up there with the best I've worked with. I was very impressed with her, I really was.
+- She goes on the set with headphones and gives you notes. She's terrific and I always run to her now, because she is just great to work with, as well as very good at different accents.
+- You come on as a guest. You don't get the girl anymore. But that is our lives. You start off as the boyfriend, then you are the lover, then you are the husband, then you are the father, and then you are the grandfather.
+- You just feel comfortable with him, and he certainly makes sure that you're comfortable. He makes sure that you feel good and that you're happy with what you're doing.
+- I don't think that we necessarily lie. I mean, we make our living by pretending that we're someone else. I don't tell tall tales. I always tell the truth.
+- We're given the springboard of the text, a plane ticket, told to report to Alabama, and there's a group of people all ready to make a film and it's a marvelous life.
+- To be a character who feels a deep emotion, one must go into the memory's vault and mix in a sad memory from one's own life.
+- We meet before the movie and she gives you charts with sounds on them and makes a tape of examples. While they are setting up the scene, I go with her to the trailer and we go through the scene and correct the speech.
+- I like playing accents, and doing things like that, it was fun. It was fun.
+- He tells you stories, but then, after a while, when you want more, he doesn't give you more. He insists on this old elaboration, the old stories that never changes.
+- She is up there with the best of them. I can only talk about my experience, but it was genuinely special.
+- That is one of the reasons one enjoys acting. Now and again, you get scenes where you work with somebody really good and you have a good time trying to make it really work and really work well.
+- I was in London. It's a long way to go for a very long party, sitting there for six hours not having a cigarette or a drink. It's a waste of time.
+- It's a marvellous life, a gregarious life that we've had. We're very lucky in that way. Unlike writers or painters, we don't sit down in front of a blank canvas and say, 'How do I start? Where do I start?'

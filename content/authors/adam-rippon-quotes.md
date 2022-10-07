@@ -1,0 +1,105 @@
++++
+author = "Adam Rippon"
+title = "Adam Rippon Quotes"
+quotes_len = "99"
+description = "the best99 Adam Rippon Quotes"
++++
+- Mike Pence doesn't stand for anything that I really believe in.
+- Being gay has never been a big deal to me, which is why it's a little funny to be getting all this attention about it.
+- I enjoyed playing the other sports. I just sucked at them.
+- I want to inspire other young kids, no matter what their background is or where they're from or anything like that, that they can go out there and, if you work hard, you can do anything.
+- I'm not like a gay icon or America's gay sweetheart. I'm just America's sweetheart, and I'm just an icon.
+- It's my world, and the rest of us are living in it.
+- Those are the moments athletes live for - we live for those exhilarating, breathless, take-your-breath-away, you're-on-the-seat-of-your-chair moments.
+- Representing the U.S.A. is one of the greatest honors of my life, and being able to do it as my authentic self makes it all so much sweeter.
+- I've gotten a lot of attention, I think, just for being myself. I think that a lot of people, when they come to a competition, are afraid to be themselves no matter who they are.
+- I don't follow the rules!
+- I've always spoken my mind and from the heart.
+- When I was young, to have had somebody out there to look up to... it would have made a world of difference; it would have changed my life.
+- My mom has always taught me to stand up for people who don't have a voice.
+- I personally don't have anything to say to Mike Pence. I'm very lucky because legislation that he's pushed hasn't affected my life at all. I spoke out because there are people out there whose lives have been affected by change that he's tried to make.
+- It might come off as cocky, but I've been through a lot in my life.
+- I think it's so important for somebody like me to stand up for the things I believe in and speak up on things I don't think are right.
+- I think what you think of as the American people embracing - I don't think, on paper, I embody anything of that perceived persona. I think that's what people are latching on to, that I'm different.
+- If I forgot to put something on, and I have to wear a trash bag, I'm just like, 'I'm gonna rock a trash bag today.'
+- I think I had a stress fracture before I broke my foot, and I think that was absolutely because I was not getting enough nutrients.
+- 1988 Olympic Champion Brian Boitano was famous for doing a Lutz with one arm over his head. And I wanted to build on that.
+- I want to represent my country to the best of my abilities. I want to make Reese Witherspoon proud.
+- Sometimes I just get attention, and I really don't know how it happens.
+- I am from Scranton, PA.
+- The first time I ever sang in front of a crowd of people was, like, 10,000 people in Japan at a skating exhibition.
+- Haters are fans in denial.
+- I'm like a witch! You can't kill me!
+- I always said that if I had the platform and the opportunity to share my story and make it easier for others, I would - so that, in a way, I can be the role model that I was looking for as a kid.
+- I realize now that it's important that I share my story... Also, it'll be easy for me to do an interview, to interact with people.
+- I'm proud of a lot of things I've said on Twitter.
+- Athletes are given a really special platform. It's our duty, as athletes, to be role models.
+- My earliest memory of the Olympics was watching the 1996 Games in Atlanta. I remember everyone being so excited to watch. Seeing the American athletes on the podium, I saw myself. I knew that that was what I wanted to do. I wanted to be one of those athletes on the podium representing their country and bringing home medals.
+- I'm representing my country whether they like me or not.
+- I can't tone it down. I'm being me, and I'm being myself, and I'd be doing myself an injustice, and I'd be doing an injustice to those kids who don't feel like they're comfortable to be themselves.
+- I always loved music, to dance, and to be really active. When I started skating, it was the first time all of these things came together. It felt like magic, and I always wanted to be at the rink.
+- I know I am delusional at times, but I'm not completely-out-of-touch delusional.
+- Sometimes I might meet people, and they might just not like me, not want to get to know me. And that's OK. They're boring as hell anyway.
+- I love to have my own story, my own path, and forge ahead because my career isn't going to be like anyone else's.
+- Chris Martin has this voice that resonates through a whole arena.
+- I don't think he has a real concept of reality. To stand by some of the things that Donald Trump has said and for Mike Pence to say he's a devout Christian man is completely contradictory.
+- I usually finish things in the last second. But I think, as I've gotten older, I don't worry about it, and I just rock it.
+- I remember when I told my mom that I wanted to come out, and my mom was a little hesitant. She was saying, 'Are you sure? Do you think that might affect your scores?' or, 'Is it something that you think that you need to do?' And I told her, 'I don't care. It's important to me.'
+- Honestly, it's really fun to be yourself. It's really fun to be me.
+- What makes America great is that we're all so different.
+- I was living in my coach's basement.
+- When you're not hiding anything, it's just very easy to be yourself - shockingly.
+- As an audience member, I like to watch what they're doing, and that's one of the reasons I love skating: because it's a performance, and I love to perform. That's my favorite aspect of skating.
+- I feel so honored that I've had the opportunity to share my story with so many people.
+- I don't find it distracting to be me.
+- I'm able to go out there, and I'm really able to be, like, unabashedly myself. And I want somebody who's young, who's struggling, who's not sure if it's OK if they are themselves to know that it's OK.
+- It bothers me so much that people have gone out of their way to make trans people feel less than.
+- As an athlete, I know that I'm such a perfectionist that I'll want to go out and keep working on something over and over until it's perfect. Part of growing up is learning to take a step back.
+- If you ever have the option, come to the Olympics. It's, like, a fun time.
+- It's totally crazy! I can't believe all the young kids doing it in competition now. It's pretty unbelievable to have an element variation named after me.
+- Sometimes when you're not confident in yourself, to see someone who doesn't care - and I don't care anymore. I really don't care - it gives you that confidence.
+- I know what it's like to be young and to feel like you don't belong.
+- They usually say that after the Olympic Games, somebody's life changes forever, and a lot of times, it's the gold medalist. But I have a feeling that my life has changed forever.
+- Being gay is not something that defines me. What defines me is what my mom always taught me: to treat everyone with respect, to always be a hard worker, and to be kind.
+- I'm just one of those people that, if there's a problem, I want to work through it. Push through it and do everything I can. Anything.
+- I've never made a meal that I wasn't able to eat, but it that doesn't mean anyone else would ever eat it, haha!
+- As soon as I broke my foot, I remember thinking that I'm going to make this the best thing that's ever happened to me.
+- There's no such thing as a wardrobe malfunction - only a wardrobe opportunity.
+- I came out seven times in one weekend. I have a flair for the dramatic.
+- I love being active.
+- You have a personality like mine, it's for everybody... It's not just for some group of people.
+- I don't want my Olympic experience to be about Mike Pence. You know, I want it to be about my amazing skating and being America's sweetheart.
+- I remember my mom let me stay up late and watch Tara Lipinski and Michelle Kwan compete in the 1998 Olympic Games. I made paper medals and wore them the whole night. I didn't start skating until 2000, but I was so inspired by their skating that it was why I wanted to start.
+- My mom always taught me to stand up for what I believe in.
+- For such a long time in my life, I didn't trust my own voice at all. I always tried to do what other people wanted.
+- I'm really go-with-the-flow, but I take things really seriously. At the same time, when things don't go my way, I don't ever freak out. Why? Why freak out?
+- When I am home in L.A., I love to stop by a yoga class or Soul Cycle session. There is nothing like doing some cycling in the dark to club music and candle light.
+- I think that in figure skating, and in sports in general, that when you're young, it's considered a huge advantage because you're fearless, and you also don't have bad past experiences. But with age comes experience, and I have found that my experience is a huge advantage to me as a competitor.
+- I know that I can do myself better than anybody else can.
+- It takes a lot of effort to look this mediocre.
+- I am usually wearing some sort of see-through when I am competing.
+- As a self-proclaimed cooking disaster, I try to makes things that I think I can easily master.
+- I've gotten so many messages I could even get emotional thinking about it, but I've gotten so many messages from young kids all over the country that my story's resonated with them.
+- Growing up, I really didn't have a lot of role models.
+- I looked around and saw my competitors: they're all doing these quads, and at the same time, they're a head shorter than me, they're 10 years younger than me, and they're the size of one of my legs.
+- I would say that I'm a hot mess all the time.
+- I would absolutely not go out of my way to meet somebody who I felt has gone out of their way to not only show that they aren't a friend of a gay person but that they think that they're sick.
+- There are so many emotions when I step on the ice.
+- All the sacrifices my mom and family had made had been worth it.
+- I've been given this amazing platform as an Olympic athlete, and there are so many people out there who don't feel like their voice is being heard. I feel it's my responsibility to speak out on issues that are important.
+- Sometimes I'll be listening to NPR at the gym, and I'll hear them say, 'Oh, Donald Trump did this today.' And I'm like, 'What?' All of a sudden, I have more energy than if I drank an espresso.
+- I can see my competitors sweating, and I am cool as a cucumber.
+- I can't tone it down. I'm being me and being myself.
+- It's 2018, and being an openly gay man and an athlete, that is part of the face of America now.
+- I remember seeing people who I thought were so confident and exuberant. I remember being young and watching Oprah and being like, 'Damn. That lady is so confident. She can talk to anybody.'
+- I'm confident in who I and what I'm doing.
+- I can't explain witchcraft.
+- Nobody loves me as much as I love me, so I guess I'll just be my own valentine.
+- When I found skating, it was something that was individual, and it was something that I could focus on being my best. And I loved the whole practice, and I also loved performing. It was probably the first time I felt really good about myself and that I was good at something, because I always liked being athletic.
+- I've been skating since I was 10 years old.
+- I love being on Twitter and interacting with different people. Also, I very dangerously love to go shopping online!
+- I really brought that with me: that people think gay people are disgusting... I remember thinking, 'Okay, I might be gay. But I won't tell anybody. Nobody will ever know.'
+- First and foremost, I'm an athlete. And I'm an Olympian. I'm not a gay Olympian. I'm just an Olympian that's also gay. I don't mind reading that - like, 'gay Olympian Adam Rippon.' It's fine. I hope that, in a way, it makes it easier for other young kids who are gay. If they go to the Olympics, they can just be called Olympians.
+- I've used my sense of humor as a coping tool. It's gotten me through a lot of challenging times.
+- I think I've shown the world I'm a fierce competitor, yes. But I've also shown them that I'm a fierce human being.
+- Given this platform of being an Olympic athlete, I think it's really important that we stand up for what we believe in, and we speak out against things that we think are wrong and injust.

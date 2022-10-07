@@ -1,0 +1,71 @@
++++
+author = "Andrew Sean Greer"
+title = "Andrew Sean Greer Quotes"
+quotes_len = "65"
+description = "the best65 Andrew Sean Greer Quotes"
++++
+- I heard you had to get 200 rejections before you got published.
+- Some people think of the '50s as a time of innocence, but they are misremembering it or reinventing it: if you look at the papers of the time, they are filled with dread and anxiety.
+- Critics, how I would love if you could clear the word 'sentimental' from your minds.
+- A downside to being a successful novelist? Wow - I can't imagine one.
+- Some books inspire one to read, and some inspire one to write; for selfish reasons, I'm always looking for the latter.
+- Really, what you should tell a novelist is, 'Keep going until you finish the draft. Don't show it to anyone.'
+- I think, like, fiction has a place to understand those things that are hardest to understand that non-fiction can't ever get at.
+- I was raised Unitarian, and my mother said she took us to church so that we wouldn't get religious later in life.
+- I love going to writers' colonies in pastoral settings where there's nothing to do but either walk around or read a book or work on your book, and they all seem helpful.
+- It's funny how the present can change the past.
+- You write three pages over six hours, and you don't feel like you've gotten anywhere, but if you've done a beautiful metaphor or a lovely sentence, or you finally got to some moment you wanted, then that's worth it. Then you can close your computer and get a little relief.
+- 'The Story Of A Marriage' was initially a short story I wrote, and before that, it was a family story. It was a story that a relative of mine told me about herself in the '50s, and it was a story that no one else in my family believes, and it might not be true.
+- You can sort of start to write around 10. You also become a good reader around that time, and you want to imitate the thing that you love. I got praise for it, and then I found that it was a great way of translating my life, so I would write little stories and plays and things. At that point, it was kids' books that I was reading.
+- I don't think I'm a gay activist. I used to be.
+- To distract myself from writing, I was singing Bob Dylan's 'My Back Pages.' You know, 'I was so much older then; I'm younger than that now.' I thought, 'I should write a character like that.'
+- My mom is an experimental chemist and physicist, so she is a cut-and-dried, nuts-and-bolts kind of woman, and my dad is a theoretical chemist, so we were definitely raised with his philosophical point of view: imaginary numbers and dimensions beyond our own. That's the kind of thing we would talk about.
+- They say you hit your stride as a writer at about 50. I'm hoping to do that.
+- Other writers know what you're going through, what you're talking about when you write.
+- Travel is hard, and it's mostly not your fault.
+- There must be times when people look in the mirror and they realize they're 60.
+- Every writer is an outsider.
+- I think screenplay is hard. I've tried that, and it felt really difficult; like, all the stuff I think I'm good at, like description and internal experience and memory, you can't do that - or, at least, I couldn't figure out a way.
+- I do think that Americans do not understand that things are done differently in other parts of the world and that the other ways people do things are equally accurate ways to do things. Someone else just came up with something different.
+- I have to get three pages done every day, and there's usually a point about 150 pages in where everything falls apart, where all the plans are for naught. The book has become something else, and I have a nervous breakdown, and then I submit to what the book has become, and I keep going, and that's a terrible and then a great time.
+- Definitely for writing, what inspires me is poetry, which I have next to me all the time because I think they're doing what I'm doing, but much harder, more condensed. It's the same job, but they're more talented. All of them. So I just steal openly from them.
+- My country is nothing if not diverse.
+- There's a certain point in chemistry and in calculus where I reached the end of my abilities, and I realized, 'This is where I'm stupid.'
+- My mother taught me to ask people about the things they love.
+- I feel like artists, as much as we'd like to think we're communal, are pretty much loners.
+- I had never heard of 'young adult novels,' which I guess are about teenage gangs and the new boy in town or something.
+- My own accumulation of influences is actually what made me a writer in the first place.
+- Science fiction writers, when I was a kid, were a big deal.
+- A lot of problems get solved in those sort of in-between moments when your subconscious has been working on some problem. If you keep it spinning, you can fix ideas sometimes better than if you focus on them directly.
+- 'A High Wind in Jamaica' is like those books you used to read under the covers with a flashlight - only infinitely more delicious... and macabre.
+- My mother is a southern lady with short dark hair and a wary, blue-eyed smile. She is also an experimental chemist and teaches a college course entitled The Chemistry of Cooking.
+- It's hard to tell if I've had writer's block because it seems to me that it's when nothing comes, but, you know, every day you stare at that computer screen, and I think, 'It's never going to happen today. How can I write three pages?' And the hours pass, and they haven't shown up, and then at the very end it always happens, so it's willpower.
+- With each book, I'm trying to do something that terrifies me.
+- Can you call and thank reviewers? I always wondered that.
+- My grandmother wore a beehive hairdo even when it was out of fashion.
+- Writing fiction is an act of imaginative empathy.
+- I think what shaped me was I had two parents who were scientists, and especially, they were great readers. They had both grown up in sort of rural parts of the South and were oddballs where they grew up. They were budding intellectuals.
+- I never wanted to be a scientist.
+- I think it would be bad to a truly successful celebrity person, because I know these novelists where people get a cult following, and they have some strange personal attachment to them because it's so personal to read a book.
+- To say 'A High Wind in Jamaica' is a novel about children who are abducted by pirates is to make it seem like a children's book. But that's completely wrong; its theme is actually how heartless children are.
+- They had a contest where they would - for some reason, someone in the past loved musical theater, and so if you wrote a musical, they would fully fund it and put it on the main stage with full costumes and a set and everything, and my roommate said we should totally do that.
+- I've wanted to be a writer since I was, like, 10.
+- I have come to this conclusion: if 'sentimentality' is lazy emotion, then the term itself is lazy criticism.
+- Both my parents were atheists, and my grandmother was an atheist in rural Kentucky, and so they were trying to make sure that my brother and I would be atheists, too, and it worked, which doesn't mean that they didn't teach us a lot of wonder of science and of nature and the world and all of that.
+- During every book, I have a nervous breakdown. Usually it's about two thirds of the way through the book - I'm just comatose on the couch for at least a week, and I eventually break through it and have an answer about how to fix the thing.
+- I would write these novels about bullies in school: 'The Bullies: a Novel.'
+- I'm not despairing of love at all.
+- I wake up at 10. I have coffee, and then I spend a half an hour on the computer, where I read newspapers and progressive blogs. I have to tear myself away, or I'll spend all day reading.
+- I don't read literary blogs. I used to read them, but it was upsetting when they would talk, in a snarky way, about my friends.
+- I hadn't meant to do the pattern of publishing short stories and then a novel. I thought, 'I'm a novelist. I know it.' But you have to kind of write a lot of bad novels before you can write a good one, I think, so I did that. But meanwhile, I loved the short stories I did.
+- I grew up in the suburbs, which I don't think shaped me very much.
+- Any gay man in America redeals a deck at some point.
+- My fifth-grade teacher, Mrs. Poppy, had us each write a 'novel,' whatever that meant to us. It must have been 10 pages long, and we bound it and colored the front. And she wrote on mine, 'I can't wait till your real novel comes out. Give me a call.'
+- Human love and desire is my bag.
+- Usually on Sundays, I won't cook because I'll have dinner at my mom's. She's the provost of Mills College in Oakland and lives on campus. It's a very beautiful school in a very bad part of town.
+- I think I'm a terrible researcher. I find it very boring and frustrating, but the things you can find are better than what I could imagine. And when you find them, it's wonderful, and they don't feel artificial.
+- You can look at my books and not find particular joy on every page because, of course, what you want to write about is the difficulty of the human experience. You don't want to lie about things to make happy endings and weddings if they don't deserve to happen. But I would be lying if I didn't try to communicate some of the pleasure of being alive.
+- My grandmother was not a great storyteller.
+- For writers: don't hold back. Be weird. Be sentimental. Be melodramatic. Take the risk of being not-cool, not-hip.
+- I was good in biology, but I did very badly in chemistry, and my parents were horrified by that.
+- An elephant funeral makes me weep every time, and so does an ad with a kid leaving home for college.

@@ -1,0 +1,105 @@
++++
+author = "Amy Morin"
+title = "Amy Morin Quotes"
+quotes_len = "99"
+description = "the best99 Amy Morin Quotes"
++++
+- Being ill-prepared and unequipped to deal with life's inevitable challenges leaves us vulnerable to the dangerous effects of stress.
+- The greatest things in life tend to happen outside our comfort zones, and doubting your ability to step outside of your comfort zone will keep you stuck.
+- Narcissists - people with an inflated self-concept and a strong sense of uniqueness and superiority - seek attention and affirmation on Facebook.
+- Trying to change before you're ready isn't likely to be productive. For example, most New Year's resolutions don't last because people spring into action without being prepared for the work it's going to take. Forcing change based on a date on the calendar, rather than a true readiness to transform, can be a setup for failure.
+- Rather than dispute their shortcomings or hide their mistakes, resilient people are authentic. Their humble, self-aware approach assists them in developing strategies to become better.
+- Mental strength is not the same as mental health. Just like someone with diabetes could still be physically strong, someone with depression can still be mentally strong. Many people with mental health issues are incredibly mentally strong. Anyone can make choices to build mental strength, regardless of whether they have a mental health issue.
+- While managing a career and family leaves, some parents feeling guilty and frazzled; others seem to be able to effortlessly balance parenthood with full-time work. Parents who are able to raise well-adjusted children while also maintaining a career make sacrifices to keep the peace.
+- The busyness of life can keep you running from one activity to the next. If you never step back to consider whether all those activities are really how you want to spend your time, you could miss out on building the kind of life you want. Devote at least 10 minutes each day to examining the bigger picture in your life.
+- Even though your emotions aren't wrong, that doesn't mean you have to stay stuck in a particular mood. You can certainly choose to make changes that will influence the way you feel. If you want to change the way you feel, change the way you think and behave.
+- Whether you're working on becoming a more patient parent or you're striving to become an elite athlete, building mental strength will help you reach your goals.
+- Whether you aim to lose 20 pounds or you want to launch your own business, mental strength is the key to long-term success. After all, you need fierce determination and tenacity to reach your greatest potential.
+- Sleep deprivation robs you of mental strength and impairs your ability to deal with stressful events.
+- Sleep deprivation impairs everything from your motor skills to your reaction time.
+- Although circumstances may change in the blink of an eye, people change at a slower pace. Even motivated people who welcome change often encounter stumbling blocks that make transformation more complicated than they'd originally anticipated.
+- Impulse decisions can often be our downfall when it comes to sticking to good habits. Do something to buy yourself some time when you're experiencing those 'moments' of weakness, and often, the urge will pass. If you keep the cookies in a box in the basement, you might find it's not worth the effort to go get them.
+- Proactively working to develop mental strength increases your resilience to stress and reduces the toll it takes on you both physically and mentally.
+- Sticking to good habits can be hard work, and mistakes are part of the process. Don't declare failure simply because you messed up or because you're having trouble reaching your goals. Instead, use your mistakes as opportunities to grow stronger and become better.
+- Although we may think we're masking our insecurities or portraying ourselves in the most favorable light, our behavior on social media reveals more than we might think. It's not just what we post on Facebook that reveals information about our personalities - it's also what we don't post that can be quite telling.
+- Friends have a big influence over how you feel, think, and behave.
+- While reflecting on past relationships and learning from them can be helpful, February isn't the best time to try and gain insight.
+- When you're feeling overtired and stretched too thin, it may seem incomprehensible to squeeze in a little 'me time.' But, the times when you feel like you can't possibly spare a minute for yourself, are likely the times when you need 'me time' the most.
+- Somewhere along the line, positive thinking seems to have been confused with magical thinking. There's a notion that if you think positively enough, you can make anything happen by using the power of your mind. All the positive thinking in the world won't deliver good fortune or prevent tragedy from striking.
+- Most people fill their schedules with work, and leisure only happens when there's time left over. But it's impossible to live a rich and full life without doing things that give you joy. Forget about productivity once in a while and give yourself permission to goof off.
+- Achieving a balance between career and children doesn't necessarily mean the time is split evenly. Successful parents understand there will be times when their family will need more attention and times when a career will demand more energy.
+- Resilient people recognize that no matter how bad the circumstances are, their situation could always be worse. They don't allow themselves to exaggerate how terrible their problems are, and they don't run around predicting how much worse things are going to get. Instead, they view failure with an accurate perspective.
+- Striving for success is healthy - but believing you need to succeed the first time around may backfire. Mentally strong people believe failure is part of the process toward a long journey to success. By viewing failure as a temporary setback, they're able to bounce back and move forward with ease.
+- Establishing healthy habits - like eating a healthy diet, getting plenty of sleep, and participating in regular exercise - can also go a long way to improving how you feel. Similarly, getting rid of destructive mental habits, like engaging in self-pity or ruminating on the past, can also do wonders for your emotional well-being.
+- Since self-control is vital to reaching long-term goals, befriending people with willpower could be the secret to success. Whether you're tempted to skip that workout at the gym, or you're considering blowing this month's budget, spending time with a disciplined friend could boost your motivation to maintain healthy habits.
+- After a hard day, choosing to do something to help you feel better - as opposed to staying in a bad mood - is a healthy skill.
+- Time and energy are finite. You only have so many hours in a day and so many days of your life. The solution to using your time wisely isn't about exerting more energy - eventually you'll run out of steam. The key to reaching your greatest potential is about working smarter, not harder.
+- While ignoring your bad habits may help you feel good initially, that avoidance will eventually catch up to you. When you don't address the unproductive and unhealthy things you're doing alongside your good habits, you'll stagnate.
+- A lot of problems stem from a desire to avoid discomfort. For example, people who fear failure often avoid new challenges in an effort to keep anxiety at bay. Avoiding emotional discomfort, however, is usually a short-term solution that leads to long-term problems.
+- Mentally strong people overcome setbacks with confidence because adversity only makes them better.
+- Mentally strong people don't shy away from change - nor do they expect immediate results.
+- Recognizing and replacing the unhealthy thoughts, behaviors, and feelings that may be sabotaging your best efforts is the key to building mental strength.
+- Pay attention to how your thoughts change when you're faced with negative people. The more time you spend dreading, fretting, worrying, and rehashing, the less time you'll have to devote to more productive things. Make a conscious effort to reduce the amount of mental energy you expend on negative people.
+- Rather than make excuses for their failures, resilient people learn from each mistake. They identify skills, ideas, and life lessons that can be gained from each failed opportunity.
+- Examining your behavior on social media could give you insight into your own personality as well as how others perceive you. You may think you're presenting yourself in a certain light, only to discover other people view your behavior completely different.
+- As a therapist, I've worked with many high-achieving people who don't feel worthy of their success. Whether it was a recent college graduate who had landed a high-paying job or a mature adult who had just received another promotion, all of these people suffer from impostor syndrome.
+- Empowering yourself is an essential component to building mental strength and creating the kind of life you want to live.
+- Conscientious people are self-disciplined, hard workers who spend the least amount of time on Facebook.
+- Idealism doesn't prevent problems.
+- Feeling sad or lonely isn't a bad thing. But those emotions increase the risk that you'll cross the line into self-pity.
+- It'd be nice to learn enough from each mistake that we'd be guaranteed to never repeat that same mistake twice. But, how many times have you said, 'I'll never do that again,' only to find yourself right back at it a few days later. Learning from our mistakes requires humility and a willingness to look for new strategies to become better.
+- Quitting because you don't want to be uncomfortable will prevent you from growing.
+- Just like it's not healthy to think overly negative thoughts, exaggeratedly positive thoughts can be equally detrimental. If you overestimate how much of a positive impact a particular change will have on your life, you may end up feeling disappointed when reality doesn't live up to your fantasy.
+- It's difficult to look on the bright side when you're surrounded by negativity.
+- Building mental strength is about learning to regulate your thoughts, manage your emotions, and behave productively despite whatever circumstances you find yourself in.
+- The more you practice tolerating discomfort, the more confidence you'll gain in your ability to accept new challenges.
+- Being a top performer - whether it's in business or on the athletic field - requires grit and tenacity, as well as the continuous desire to become better.
+- Stress impacts the way we think, feel, and behave. It often leads to a negative, self-perpetuating cycle that is hard to escape.
+- When self-doubt creeps in, don't ignore it - address it. Respond to harsh self-criticism with something more compassionate. Talk to yourself like a trusted friend and refuse to believe your unrealistic, negative inner monologue.
+- If you want to become physically stronger, you'll need healthy habits - like going to the gym. You'll also have to give up unhealthy habits - like eating junk food. Building mental strength requires healthy habits - like practicing gratitude - while also giving up unhealthy behavior, like giving up after the first failure.
+- Most of us are never educated about feelings. Instead, we're expected to learn socially acceptable ways to deal with feelings by watching the people around us. But the truth is, many people don't role model healthy ways to deal with feelings.
+- Sometimes we see things as being black or white. Perhaps you have two categories of coworkers in your mind - the good ones and the bad ones. Or, maybe you look at each project as either a success or a failure. Recognize the shades of gray, rather than putting things in terms of all good or all bad.
+- As we go about our daily routines, our internal monologue narrates our experience. Our self-talk guides our behavior and influences the way we interact with others. It also plays a major role in how you feel about yourself, other people, and the world in general.
+- The more you practice tolerating uncomfortable emotions, the more confident you'll become in your ability to tolerate the distress that may be necessary to reach your full potential.
+- Truly successful people don't rise to the top by acting tough; they become better by growing stronger.
+- Idealizing the reality of past romances won't do you any favors as you face Valentine's Day alone.
+- Lack of sleep greatly impairs your ability to make good decisions.
+- Just because you're struggling with self-discipline doesn't mean you have to raise the white flag and declare your self-improvement efforts a complete failure. Instead, work to increase the chances that you'll stick to your healthier habits - even when you don't feel like it.
+- If you quit every time you face a new challenge, giving up can change how you view yourself. You may begin to think you're weak or that you're a failure because you can't seem to stick with things long enough to see positive results.
+- Many of life's problems and sorrows are inevitable, but feeling sorry for yourself is a choice.
+- When it comes to physical strength, someone may have a stronger upper body than lower body, or a stronger right arm compared to the left arm. Similarly, we're likely to excel in some areas of mental strength while struggling with others.
+- It can be easy to get swept up into catastrophizing the situation once your thoughts become negative. When you begin predicting doom and gloom, remind yourself that there are many other potential outcomes.
+- Reminding yourself of your strengths can help chip away at your core belief that you aren't good enough to be successful.
+- Whether you want to exercise more often, or you're hoping to become debt-free, real change happens in stages. Slow and steady progress is great - as long as you're taking steps in the right direction.
+- Engaging in good habits 90 percent of the time, while indulging in bad habits 10 percent of time, places you at risk of being like a hamster running in a wheel. Despite all the energy you're exerting, you won't move forward. You'll never be able to outrun your bad habits.
+- Being stuck in a rut can kill your creativity, stress you out, and zap your productivity. Doing the same thing over and over again causes your days to blend together.
+- We all have vulnerabilities that can sidetrack us from reaching our goals. Recognize the times when you're most likely to give into temptation, and make it harder for a single moment of weakness to sabotage your best efforts.
+- Acknowledging the unproductive thoughts and ineffective behavior that you've tried to ignore can be uncomfortable. But, stepping out of your comfort zone and choosing to proactively address bad habits will skyrocket your ability to create long-lasting change.
+- Wasting brain power ruminating about things you can't control drains mental energy quickly. The more you think about problems you can't solve, the less energy you'll have leftover for more productive endeavors.
+- Don't allow negative people to steal your time and energy. Rather than complain about people you don't enjoy, choose to strike up conversations about pleasurable topics.
+- Mental health is a continuum, and people may fall anywhere on the spectrum.
+- Building mental strength is about regulating your emotions, managing your thoughts, and behaving in a positive manner, despite your circumstances.
+- Positive thinking is a valuable tool that can help you overcome obstacles, deal with pain, and reach new goals.
+- You certainly can't prevent all mental health problems - factors like genetics and traumatic life events certainly play a role. But everyone can take steps to improve their mental health and prevent further mental illness.
+- Thinking things like, 'I will never get hired for this job,' or 'Nobody ever listens to me,' can alter your behavior in a way that makes those predictions come true.
+- Creating time to reflect on your life could be the key to reaching your greatest potential.
+- The quantity and quality of your sleep plays a major role in your ability to learn new information.
+- People with a mental illness aren't mentally weak. In fact, many of them are incredibly strong. And just like everyone else, they possess the ability to create positive change in their lives.
+- One of the major dangers of being alone in February is the tendency to dwell on past relationships. Whether you're daydreaming about that 'one that got away,' or you're recalling the fairy tale date you went on last Valentine's Day, romanticizing the past isn't helpful - nor accurate.
+- Whether you're dealing with a recent breakup, a fallout with family, or a failed business venture, be aware that your emotions could affect your spending habits. Uncomfortable emotions can increase the chances that you'll behave recklessly, which may have a negative impact on your bank account.
+- Parents who achieve a successful work-life balance don't live and breathe to make their kids happy. Instead, they strive to raise independent children that will grow to become responsible adults.
+- Spending time with negative people can be the fastest way to ruin a good mood. Their pessimistic outlooks and gloomy attitude can decrease our motivation and change the way we feel. But allowing a negative person to dictate your emotions gives them too much power in your life. Make a conscious effort to choose your attitude.
+- Sometimes people think that regulating their emotions means trying to act as if they don't have feelings. But, that's not the case. A realistic view of emotions shows that we're capable of experiencing a wide range of emotions, but we don't have to be controlled by those emotions.
+- Although most of us don't spend time thinking about our thoughts, increasing your awareness of your thinking habits proves useful in building resilience.
+- Mental strength requires a three-pronged approach - managing our thoughts, regulating our emotions, and behaving productively despite our circumstances. While all three areas can be a struggle, it's often our thoughts that make it most difficult to be mentally strong.
+- Resilient people aren't afraid to admit they have weaknesses. Whether an effective leader acknowledges problems within an organization, or an individual recognizes areas in need of personal growth, resilient people use failure as an opportunity to spot their weaknesses.
+- If you've ever felt like you aren't good enough, you're not alone. However, if you're not careful, those feelings can keep you from reaching your greatest potential.
+- There will always be obstacles and challenges that stand in your way. Building mental strength will help you develop resilience to those potential hazards so you can continue on your journey to success.
+- Pick friends who make poor choices, and you could get dragged down fast. But, if you choose friends who inspire and challenge you to become better, you'll increase your chances of reaching your goals.
+- Choosing to avoid uncomfortable feelings offers immediate short-term relief, but avoidance can lead to long-term consequences.
+- Empowering yourself is an essential component to building mental strength and creating the kind of life you want.
+- Being mentally strong doesn't mean you don't experience emotions. In fact, mental strength requires you to become acutely aware of your emotions so you can make the best choice about how to respond.
+- Building mental strength is the key to reaching our full potential in life.
+- Your thoughts greatly influence how you feel and behave. In fact, your inner monologue has a tendency to become a self-fulfilling prophecy.
+- Everyone has the ability to increase resilience to stress. It requires hard work and dedication, but over time, you can equip yourself to handle whatever life throws your way without adverse effects to your health. Training your brain to manage stress won't just affect the quality of your life, but perhaps even the length of it.
+- Acting tough is all about developing an attitude and a persona that says, 'Look at how great I am.' But often, that tough exterior is meant to hide self-doubt. Mentally strong people invest more energy into working on their weaknesses rather than trying to cover them up.

@@ -1,0 +1,74 @@
++++
+author = "Al Jarreau"
+title = "Al Jarreau Quotes"
+quotes_len = "68"
+description = "the best68 Al Jarreau Quotes"
++++
+- I say what's on my mind and have a good time. I try to give people a show. It's all about giving people a good time once you get out under those lights.
+- I was singing doo-wop on the corner under the streetlight with four other guys when it wasn't called doo-wop. We just got together and sang, so that music is inside of me. It's a lot of stuff that has been rolling around in here and becoming this compost and has made me who I am as a singer.
+- My mother and father come from that post-Depression, middle-of-World-War -I kind of thinking that says, 'Find a practical job. You know what I mean, Mr. Big Shot? So, you can sing a song ...'
+- I was really learning my craft as a jazz singer and working with some great players and all, really growing and feeling my wings.
+- I'm touched by the Beatles. I want some of the music I do to reflect that. Here I am. I love Sly Stone and James Brown and Stevie Wonder, and I want my music to reflect some of that. Here I am. I'm touched by Jon Hendricks. I want some of my music to reflect that. And when I write, you're going to hear it.
+- I love connecting with the audience, and there's more ways than one to do that.
+- I work 'cause I have to pay the bills. But I also work 'cause I love it. I don't know what I'd do with me if I didn't have this work. It's what I've done all my life. It's my motivation. It's my satisfaction. It's my joy to stand in front of an audience to sing, to come back home and write songs. Man, it's amazing for me.
+- I tour Europe a lot. They still have a love and a fascination with the basic thing about music - how it feels and that being the focus. I've got people bringing their kids. And their kids bring their kids. The grandchildren are getting selfies with their Uncle Al.
+- It's always been about making music. I've never gotten caught up with the trappings. You can't get caught up in the limousines and the chicks. The most important thing is the music.
+- I've got an odometer on my voice that has out-odometered an odometer on an automobile.
+- I have this image in my head of me in the house I grew up in, and hearing this incredible music on the television show, going over to it, and there's Jon Hendricks, Dave Lambert, and Annie Ross. It knocked me out of my socks, and I'm still in flight.
+- I have been with the record company and Tommy was there doing records with other people.
+- Jazz should be recognized as music of the people, based in a lot of accents and melodies. What is jazz but music that people danced to? Jazz has the dynamic thing. I don't think you have to be playing only Charlie Parker licks on your horn or whatever the new version of that is.
+- The band and I really enjoy working for people who enjoy the music. I haven't made a bazillion dollars doing this. I do it because I love it. I did it for free and will do it for free in the morning.
+- That's the way I try to live. I think it's the only way for human beings at this point in our evolution as souls, where everyone in their lifetime is going through stuff.
+- It's joyful in that there's another point of view on all things, you know, not just mine. That's why I like to write and collaborate with people. There's another point of view, and when those two things come together, and people work at it really hard, they get something that is the whole is more than the sum of - is that how you say that?
+- Before I get out of bed, I am saying thank you. I know how important it is to be thankful.
+- I tour a lot and interview a lot. I'm on the Internet and doing stuff. I go out and promote. I've got a bass drum and a sandwich sign and a washboard. You just have to shout louder and louder that you're still alive.
+- What I try to get beyond is playing music at people and, instead, to play music with people because audience members are constantly part of the experience. What they say in their body language, what they say in their eyes, what they sing with me... it's an 'us,' and there's a communication that's like... it's like church, man.
+- I'm touched by rock n' roll. I'm touched by the Beatles. I want some of the music I do to reflect that.
+- It's a wonderful thing to have life and to look at all this creation and say thank you. I even say it on stage.
+- I've thought about doing it as soon as it is possible with this new CD getting some wings and getting out there. I don't know how soon that will be.
+- The Metropole Orchestra is like Count Basie or Duke Ellington with strings... it's strings that swing. Strings that swing like Dizzy Gillespie... keep swinging, baby. And when you have all of that special excellence of the Metropole Orchestra, then your music just flies - it soars in a way that's really magical.
+- Jazz told people about the special music that came out of America and about America in general and this kind of liberty and freedom that we have.
+- I grew up the son of a Seventh Day Adventist minister, so I was really close to the church and sang church music between sips at my bottle, you know? I sat on the piano bench next to my mother. She was the church organist, so that music is deeply inside of me.
+- When you do a lyric for 'April in Paris,' those who have heard it before can hear it in a different way now. It can add perspective to a great piece of music that does not have a lyric and may be inaccessible to lot of ears because people don't deal with complex music very well.
+- My eyes went blank, and I stared off, and the music started. It was raining, and the sun was shining at the same time, and there were these big bay windows, and there was the blue in the sky, and the sun on the trees, and it was drizzling.
+- Since the beginning of my recording career in 1975, I have had a little difficulty because the pop stations think I'm a jazzer who doesn't have a feeling for pop, so it's hard to get my records played. Similarly, black urban radio doesn't understand that with my R&B roots, I am more than a jazz singer. So I get pigeonholed.
+- Once you discover that you can, then you must. And it's not easy. You have to take direct steps. You really have to count your blessings and you have to make a decided effort to not get seduced by the blues.
+- I am a distance runner, a marathoner... literally and figuratively.
+- I had five brothers and sisters. Four of them older, and some of them played instruments, and we would get together and have family recitals and raise money for the church. I belonged to a wonderful church community that encouraged me to sing.
+- I've been saying for almost 20 years that I need to do a jazz project and it ought to be either big band or I should do some jazz songs with a trio or quartet.
+- We are just fanatics about using the technology to make it all wonderful. We laughed at the fact that we were having such a great time working this way.
+- I want an audience that we might call a pop audience. Cross over to pop. Cross over to R&B. And bring those people to Brubeck and Chick Corea, you dig? A lot of people found Dave Brubeck and Chick Corea because they came to hear 'We're in This Love Together' and 'After All.'
+- I have serious hearing loss. I'm challenged if I don't have my hearing aids in.
+- I can't imagine a more ideal life.
+- I am inspired by all kinds of players and singers.
+- I'm a little bit nervous for us with all of this electronically generated new hyper-space that we've moved into, where not only people but also economies and systems, like banking, are left to zeros and ones. I want to be more than a zero or one.
+- These songs are old friends I have entertained myself with when I'm washing the dishes, driving to the store and walking down the aisles. The ones that you sing when you're driving in the car and as a singer you always go back to them.
+- I want to give the audience the whole package, and for me, the whole package is to give them something fresh as well. It's not as much fun resting on your laurels.
+- I really do see it as the start of the second half of my career.
+- More live recording. I have missed the boat over my career by not doing every second or third CD live because things happen onstage that don't happen in the studio.
+- Every good gospel singer you can hear is a scat singer; they're just using different syllables. There are a lot of jazz singers out there, and more coming out of the churches.
+- You know, I think in some kinds of ways, we are all born into stuff that gives us no choice.
+- I'm an R&B and pop singer as well as a jazzer.
+- I don't know how much more what I've done is any more important than what Ella Fitzgerald did. Ella crossed those lines, as did George Benson before me. There've been lots of people who brought a pop audience to jazz because they were able to link the two and give people easy access to the world of jazz.
+- There's a wonderful tradition of jazz people getting on stage and jamming and finding some feeling for music with audiences who may be fresh. For others, it might be just like a comfortable shirt they've been wearing.
+- Music is such a balm. Always has been. It's such a heartbeat, like blood thrumming through the womb. That's why music appeals to people.
+- I'm saved every day by the intrinsic value of the work I do, which I truly enjoy.
+- You pray for things and accept the blessings when they come, you know? And it is about how you talk to yourself and what you say morning, noon and night about what you want to happen in your life. Some folks call that creative visualization. Other people call it prayer. But it is about that message that you send out there to yourself.
+- I'm touched by Jon Hendricks. I want some of my music to reflect that. And when I write, you're going to hear it.
+- I love Sly Stone and James Brown and Stevie Wonder, and I want my music to reflect some of that.
+- Learn it well in your head, know it well, pick things you know and bring the old you and all the experience you have from singing these various kinds of feelings that are still related to what I have done in the rest of my career.
+- I'm not sure it's a better music world of appreciation and performance. I think the listener is a different guy, and listening is something he does in passing, with other stuff going on. There's less care and understanding of the relationship between the song and the listener.
+- It is a very serious consideration for a lyricist to step in there and suggest the meaning to a song. The music is speaking for itself.
+- Obviously given good health, and a continuing audience and a record company that allows me to do music. So given those things yes, I'm introducing some new music that people haven't really heard me do in quite this fashion.
+- I'm this strange kind of fusion of jazz, pop, and R&B.
+- I think being a little older and a little more determined and being a little more evolved in my case and maturity in the kind of music I was doing and how I was doing it really helped to keep me grounded and with an audience that could appreciate what I was doing, who grew with me and evolved with me and kept me alive and around.
+- The work must be its own reward. I got that early on. And I'm blessed by meeting my own standards of excellence.
+- Music - special magic that communicates feelings and sensitivities that are human and what is so wonderful about the art. Let your kids get involved in the arts and study this workshop of human sensitivities, sadness, joy, happiness and aware of sadness and joy and happiness in their lives.
+- I slept fourteen feet from a polka tavern as a kid growing up. I heard polkas all night long, people singing and drinking beers and having a great time. I know more polkas than Frankie Yancovic!
+- I still have a pretty lively audience in German and across Europe. And I continue to say, 'Thank you, God,' for making me smart enough to avoid getting hit by trucks and going out and finding myself an audience abroad. Which includes Asia - from Jakarta to Japan. Working hard at finding an audience abroad.
+- Al and Tommy and I sharing the biggest laugh because it was predicted by everything we did in the first three or four records in my career. It was predicted in the grooves that we would be here sometime later on down the road.
+- I came along with that crowd of singer-songwriters who were able to make their own statements in such a personal way that it changed the industry: Laura Nyro, Joni Mitchell, Bob Dylan, Sly and the Family Stone.
+- I'm a Buckeye at heart. I spend more time giving concerts in Ohio than I do in any other state - perhaps more time than I spend performing anywhere else in the world. I have a great relationship with the people of Ohio, and it's great to be near the OSU when I come to Columbus.
+- That's Tommy, this great producer who comes in contact with people and must have a mental library of personnel who are great for this and great for that, and he brought this whole group of musicians to the project that I'd never worked with before.
+- I'm really looking forward to it because it will give me the opportunity to do the whole other kind of approach to the music live that I haven't had a chance to do. and I think is important for me to do.
+- I don't know where we got the notion that God wants us to suffer. Every living thing tends toward the good or we would have been gone a long time ago.

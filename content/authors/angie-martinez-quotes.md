@@ -1,0 +1,44 @@
++++
+author = "Angie Martinez"
+title = "Angie Martinez Quotes"
+quotes_len = "38"
+description = "the best38 Angie Martinez Quotes"
++++
+- I am going to do as much as I can do, because I hate to do anything and not give my all.
+- The truth is that the music business is mean and honest and brutal.
+- I want to speak Spanish fluently; that's on my bucket list.
+- Sometimes I may come off like I know what I'm doing or I'm confident, but I'm not always.
+- I think I'm like the kid who loved hip hop, and all of a sudden - I don't know what it was - it started to put me in positions to do great things.
+- After you date a player or two it's nice to just chill with a guy that can keep it basic.
+- If you are a woman with this full life who is incredibly ambitious like I am, you have to find somebody who is into it, respects it, encourages it, and celebrates it because he loves that about you. Otherwise, you're going to feel like you're muting yourself.
+- I had to tell the city that 2Pac passed, and I had to be on the radio early after Biggie passed. Those were awful, emotional.
+- We have to remember that no matter how much hardship we go through in our life, there is always going to be that fragile place in our heart.
+- I have a soft spot for him because he's such a free spirit, and people just beat him up, and he's just trying to be him, so I do have a little soft spot for Kanye.
+- Nobody from my label called any of their labels to get this done. Most of it happened very naturally. Mary and I have been friends for a long time. Then Jay-Z offered.
+- The people I chose to work with me on this album are there because I have a personal relationship with them.
+- I love Jay personally and as an artist; I think he's incredible.
+- When I was 16, my mother moved me out of Brooklyn and sent me to Florida to stay with my family for a little bit because I was being bad, not going to school and stuff.
+- Every weekend we've been trying to go out of town, to let people know about this album. I've been trying to host parties. It's hard, because it's a lot of work to do both.
+- Ultimately, I do my best to not subscribe to things that are unnecessarily negative, harmful, or hurtful to somebody.
+- I went to night school and summer school, I made that whole year up and I actually graduated on time. Also, I got a part-time job at the radio station.
+- I might like somebody, and have to go interview somebody that hates them, but I still have to be fair.
+- I like to be a peacekeeper, and I just don't believe in stirring up conflict.
+- Tupac was real and honest about every question I asked.
+- The beauty about my career is that none of it was really calculated.
+- I think it's important for women to know that you don't have to compromise your fullness, your dopeness. You can be everything you want to be.
+- I had a lot of respect for Biggie, and it was just a weird, kinda difficult thing. When I'm doing touchy interviews like that, I just try to be fair to both parties.
+- My mother was a great influence in my life and my career. She not only helped me master the business side of radio, but she also taught me how to conduct myself.
+- Imagine the first time you are about to rap in a studio and you find yourself in a booth with Redman and KRS!
+- Sometimes, when I'm doing an interview, my delivery or my take on a story may lean a little feminine, depending on the story, but it's never intentional.
+- I ran into Snoop one night. I was in the studio later, and I got this beat and thought he would sound great on it. I called him and he came right through that night.
+- There's something beautiful in being who you are and being comfortable with whatever your voice is.
+- I like Chance The Rapper a lot.
+- I try to be real positive because I know I'm being listened to, and I have a responsibility.
+- I've always trusted my natural instinct because nobody ever taught me how to be on the radio or produce a show, and I never went to broadcasting school or anything like that.
+- Sometimes you gotta say, 'Okay' - even if you're not sure you're ready.
+- Whenever I think I'm going to get certain information out of a person, it's never as effective or comfortable as just having an open conversation, listening to them, being present, and being open to hearing something I didn't even know they were going to say.
+- I tried to really look at what's best for my career, what's best for my life, what's best for my family, for me.
+- I had no idea what to expect when we did Ladies' Night. I didn't think it was going to get nominated for a Grammy. I didn't know that we would have to perform on the MTV Awards show.
+- It's always interesting to talk to people's moms or sisters or wives. It gives you a different perspective of somebody that everybody already thinks they knew.
+- I grew up watching Oprah on television. So, to say I didn't learn a lot from her just wouldn't be true.
+- I always want to represent being in the moment, staying honest, and being comfortable in my skin.

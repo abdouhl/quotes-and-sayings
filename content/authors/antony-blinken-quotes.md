@@ -1,0 +1,106 @@
++++
+author = "Antony Blinken"
+title = "Antony Blinken Quotes"
+quotes_len = "100"
+description = "the best100 Antony Blinken Quotes"
++++
+- As Vietnam increasingly opens its doors, it will reap the rewards of progress for its people.
+- The Revolutionary Guard Corps is the official protector of Iran's revolution, with 100,000 troops divided into air, naval and ground divisions. It plays a large role in Iran's economy. Its international paramilitary arm, the Quds Force, is Tehran's main vehicle for supporting Shiite proxy forces.
+- The targets of George W. Bush's 'axis of evil' speech were not Iraq, Iran and North Korea. Those regimes don't need a State of the Union address to know where they stand with the Bush administration. The intended audience was elsewhere: in France, Russia and China.
+- We need to take actually concrete actions to make sure, for example, that none of our companies are providing China with things that they can use to repress populations, including the Uyghur population. But we also have to make sure that we are dealing with all of our interests.
+- Our hope is that every single day the work we're doing is helping to make the American people just a little bit safer, a little bit more prosperous, a little bit healthier.
+- It's hard to overstate the lasting harm Mr. Tillerson's tenure will do to America's diplomacy.
+- The United States took the lead in shaping the norms, rules and institutions of what became the liberal international order, including the United Nations, the international financial institutions and the Marshall Plan.
+- When it comes to climate change, I think that success at home is directly tied to our ability to lead effectively abroad.
+- We put a lot of money into Russia after the fall of the Berlin Wall, trying to support it economically, trying to support democratic institutions.
+- Tweeting first and asking questions later is not a good way to make policy - especially in the Middle East.
+- In countless communities across America today, refugees are giving back to the country that has given them a new start.
+- Mr. Trump is a false prophet.
+- Mr. Trump's travel ban has never really been about security. Rather, it's the tip of the spear in a much broader battle: to drastically curtail immigration to the United States that is changing the complexion of our country.
+- Pyongyang possesses thousands of artillery pieces 30 miles from Seoul. Just one retaliatory salvo could decimate South Korea's capital.
+- It is not acceptable for one country to change the borders of another by force.
+- So, China is a great nation. And with that comes great responsibility.
+- I don't think anyone in the 1990s, the late '90s, anticipated that the Putin they knew then would become the Putin we know now.
+- Whether we like it or not, we don't choose Saudi Arabia's leaders. They do.
+- As Vietnam opens its markets and strengthens fundamental rights, the relationship between our nations will continue to grow - to the benefit of both our citizens.
+- In my judgment, the JCPOA for whatever its limitations, was succeeding on its own terms in blocking Iran's pathways to producing fissile material for a nuclear weapon on short order.
+- Many Muslims consider the United States hostile to Islam and to Arab interests. In fact, the United States saved tens of thousands of Muslims in the Gulf, Somalia, Bosnia and Kosovo.
+- Climate change, the spread of weapons of mass destruction. None of those can really effectively be dealt with by any one country acting alone and even the United States can't handle them alone. China needs to be part of the game on that.
+- The lessons Noam Chomsky sets out to teach us in 'Toward a New Cold War' are invaluable. The United States, like any other nations, can and does err, and often in a big way. But Chomsky cannot support at all his implicit diagnosis that America is 'bad.'
+- The United States genuinely sought to advance Russia's integration into the West and into international institutions. We genuinely sought to support Russia. We wanted a strong, successful Russia, not a weak and contained one.
+- During the Clinton administration, engagement, backed by the threat of force, convinced Pyongyang to freeze its dangerous nuclear program and put a moratorium on the production of long-range missiles.
+- Bringing the Baltics into the alliance is not a zero sum game in which NATO's gain is Russia's loss, NATO's strength Russia's weakness.
+- My father's father fled a pogrom in Russia in the early 20th century and was welcomed to the United States. So was my stepmother, who escaped as a young girl from Communist Hungary in 1950.
+- Chomsky's characterization of the United States as a 'propaganda' state like all the rest - distinguishable only by its more effective and seductive salesmanship - is particularly hard to swallow.
+- The United States can't dictate outcomes to a sovereign Iraq. But it can support, incentivize and mobilize those willing to move Iraq in the right direction.
+- We deal, unfortunately, every single day with leaders of countries who are responsible for actions we find either objectionable or abhorrent, whether it's Vladimir Putin, whether it's Xi Jinping, whether it's any others on a long list of people I can name. But we find ways to deal with them.
+- Every country has a founding mythology. For Americans, it starts with our first president's youthful encounter with a cherry tree and refusal to tell a lie. Mr. Trump would do well to find inspiration in that story, which goes to the heart of what makes America different - and our foreign policy effective - around the world.
+- When we're actually modeling good behavior, and when we get results, other countries are more likely to follow our lead.
+- Mr. Tillerson's obsession with downsizing our diplomacy has colored his time at the State Department.
+- As deputy secretary of state, I spent hours with my Turkish counterparts trying to find a modus vivendi for continuing American support to the Syrian Democratic Forces.
+- Anti-Americanism is often the product of limits on free speech, education systems that promote bias and the practice of some leaders of saying one thing abroad and the opposite at home.
+- President Donald J. Trump was right to strike at the regime of Syrian President Bashar al-Assad for using a weapon of mass destruction, the nerve agent sarin, against its own people.
+- Russia wants stability along its Western borders, neighbors who treat their Russian minorities with respect and prosperous trading partners. NATO enlargement promotes such developments.
+- Mr. Trump knows that banning travel to the United States from a half dozen Muslim-majority countries would do nothing to enhance our security - and everything to undermine it.
+- I think China knows that in the early stages of Covid, it didn't do what it needed to do, which was to, in real time, give access to international experts, in real time to share information, in real time to provide real transparency.
+- Interests change and diverge; values do not.
+- I was the first senior American official to meet with Riyadh's dynamic Deputy Crown Prince Mohammed bin Salman after the Saudi intervention in Yemen in 2015. I reiterated the United States' commitment to defend Saudi Arabia against Houthi aggression and to help press the Houthis back to the bargaining table.
+- President John F. Kennedy demonstrated the value of presidential credibility at the height of the Cuban missile crisis, when he sent emissaries to America's allies in October 1962 to secure support for the quarantine of Cuba.
+- Vietnam's transformation - like that of so many nations - has been supported and even accelerated by an international, rules-based order dedicated to the progress of every nation.
+- If Xi Jinping is the world's most powerful man, conventional wisdom puts Vladimir Putin a close second. He's made his own bare-chested virility synonymous with a resurgent Russia.
+- The United States must not see China or Russia through a zero-sum prism.
+- The world is not self-organizing.
+- By alienating Muslim communities and our closest allies, Mr. Trump would destroy the partnerships we need to effectively fight terror.
+- It's one thing for a foreign partner to doubt a president's judgment; it's entirely more debilitating when that partner doubts the president's word.
+- Most of the money that we provide to the WTO is done on a voluntary basis.
+- It fell to President Harry Truman to contain Soviet expansionism. He built America's first peacetime alliances, starting in Western Europe, then in Asia.
+- Beijing's foreign investments can be coercive and exploitative - using Chinese laborers and contractors instead of local ones, saddling poorer countries with enormous debts, leaving behind shoddy workmanship and fueling corruption.
+- The best and brightest are not exactly clamoring to jump aboard the Trump bandwagon.
+- Every administration suffers its share of 'what the president meant to say' moments.
+- Mr. Putin seems to be playing on every chessboard, from what Russia calls its 'near abroad' to the Middle East, from Europe to America.
+- President Trump's daily assault on our own democracy, on its institutions, on its values, on its people, that's deeply tarnished our ability to lead.
+- Without Madeleine Albright, our community of democracies might be smaller.
+- There is no shortage of objectionable Iranian behavior.
+- The Iranian regime is nothing if not resilient. It fought an eight-year-long war with Iraq to a draw despite losing hundreds of thousands of lives; it has survived decades of isolation.
+- It is not all right for Russia to decide Ukraine's future.
+- Every day at the State Department, we tackle issues at the intersection of foreign policy and science and technology.
+- When it comes to sowing doubt about democracy and fueling dissension among Americans, Mr. Putin is eating our lunch.
+- Even the most disciplined commander-in-chief misspeaks from time to time.
+- In the end, North Korea's conduct may change only when its leadership does.
+- The late 1990s were really a moment of still tremendous hope and optimism about the relationship between Russia and the United States.
+- The National Security Act of 1947 - which established the National Security Council - laid the foundation for a deliberate, multitiered process, managed by the national security adviser, to bring government agencies together to debate and decide policy.
+- As the personal trajectories of Mr. Trump and Mr. Xi diverge, so too does the focus of their leadership. While Mr. Trump is obsessed with building walls, Mr. Xi is busy building bridges.
+- While the United States has often taken the wrong path, it has rarely failed to demonstrate - at least in the long run - the courage to reverse its steps.
+- The United States will rightfully go on deploring human rights excesses in the Soviet Union. And it is hardly likely Americans will one day espouse the communist ideology. But nowhere does it say we cannot live in peace with the U.S.S.R. In the nuclear age, there is truly no alternative.
+- Mr. Trump seems more at home with Middle Eastern autocrats than he does with European democrats.
+- Visitors to a future Donald J. Trump presidential library may find a whole section dedicated to his demolition of the 2015 Iran nuclear accord: 'worst deal ever;' 'horrible' and 'one-sided;' 'major embarrassment;' 'defective at its core.'
+- When President Clinton opened NATO's doors in 1994, some predicted a crisis with Russia. That did not occur, mainly because the Kremlin understood that NATO enlargement did not threaten Russia's interests.
+- The liberal order led by the United States favored an open world connected by the free flow of people, goods, ideas and capital, a world grounded in the principles of self-determination and sovereignty for nations and basic rights for their citizens. It did fall short of its ideals, often in Latin America and Southeast Asia.
+- When it comes to people, process and policy, Mr. Trump's administration has gone from bad to disastrous.
+- The contributions of refugees to the diverse mosaic of our nation are undeniable.
+- President Trump should win the Nobel Peace Prize.' It is hard to imagine anyone other than Mr. Trump expressing that sentiment.
+- The world's greatest power deserves to have the world's very best diplomatic corps.
+- Day by day, we are meant to continue the work of building a nation that better reflects the values, honors the diversity, and lives up to the aspirations of every single one of its citizens.
+- When it comes to the effective stewardship of our nation's security - especially during crises - the most successful administrations had three things in common: people, process and policy.
+- It's true that no policy fully survives first contact. But if you don't spend time anticipating the shots you are likely to take, you wind up flailing about wildly.
+- The United States and China are competitors. And there is nothing wrong with competition.
+- In the absence of an engaged, diplomatically energized America, others will set the agenda, shape the rules and dominate international institutions - and probably not in ways that advance our interests or values.
+- Mr. Putin's primary goal in the 2016 elections was to delegitimize our institutions and pit Americans against each other.
+- As we look at China, there is no doubt that it poses the most significant challenge of any nation state to the United States, in terms of our interests the interest of the American people.
+- Some friends of Israel believe that the Palestinians will never, in their hearts, accept a Jewish state in Palestine. Yet Germans and French, Chinese and Japanese, Mexicans and Americans have overcome their once insurmountable differences. Palestinians and Jews also have much to gain from peaceful coexistence.
+- Look, we don't have the luxury of not dealing with China. There are real complexities to the relationship, whether it's the adversarial piece, whether it's the competitive piece, whether it's the cooperative piece.
+- The Iran nuclear deal, the so-called JCPOA, was very effective in cutting off all of the pathways that Iran then had to produce fissile material for a nuclear weapon. And we know that that agreement was working.
+- A president is entitled to advisers of his choosing, who reflect his worldview.
+- Our purpose is not to contain China, to hold it back, to keep it down. It is to uphold this rules-based order that China is posing a challenge to. Anyone who poses a challenge to that order, we're going to stand up and - and defend it.
+- Public diplomacy was an effective Cold War weapon.
+- Mr. Xi is all-in on robotics, aerospace, high-speed rail, new-energy vehicles and advanced medical products.
+- I think that over time, China believes that it - it - it can be and should be and will be the dominant country in the world.
+- President-elect Biden is committed to the proposition that Iran will not acquire a nuclear weapon.
+- Washington should tell governments that printing lies and teaching intolerance will have consequences in terms of foreign assistance, political support and military aid.
+- By virtually every metric, the liberal international order has made the world healthier, wealthier, wiser, more secure and more tolerant than it has ever been.
+- Especially when it comes to national security, there is a premium on an administration speaking clearly, consistently and precisely, starting with the president.
+- It is not O.K. for one sovereignty to dictate to another which countries or organizations it may associate with.
+- In times of crisis, credibility is an American president's most valuable currency.
+- Every time Mr. Trump provokes howls from the establishment, his base cheers and gets re-energized.
+- We have a serious commitment to Taiwan being able to defend itself.
+- When we're in the business of picking fights with our allies instead of working with them, that takes away from our strength in dealing with China.

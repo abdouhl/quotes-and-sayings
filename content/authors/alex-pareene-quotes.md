@@ -1,0 +1,88 @@
++++
+author = "Alex Pareene"
+title = "Alex Pareene Quotes"
+quotes_len = "82"
+description = "the best82 Alex Pareene Quotes"
++++
+- An American parliamentary system with proportional representation wouldn't immediately or inexorably lead to a flourishing social democracy, but it would at least correct the overrepresentation of an ideological minority and cut down on intentional tactical economic sabotage.
+- American politicians are responsive almost solely to the interests and desires of their rich constituents and interest groups that primarily represent big business.
+- Many on the professional Right owe their livelihoods to a large and growing network of nonprofit donor-funded groups and for-profit consulting and direct marketing companies hired by those groups.
+- The Right likes to think that intellectuals and academics like Allan Bloom and Dinesh D'Souza spurred the explosive growth of movement conservatism in the 1980s and 1990s, when it was actually mostly Rush Limbaugh.
+- Everyone knows how hard it can be to market to millennials.
+- Sen. Rand Paul is a Different Kind of Republican. He will drag the party, kicking and screaming, toward a new kind of conservatism that appeals more to today's youth, who embrace liberty and are skeptical of foreign intervention.
+- Every year, the White House Correspondents' Dinner inspires two competing varieties of coverage: celebrity-obsessed fawning and angry tirades about how it represents everything twisted about our broken democracy. It doesn't, really.
+- Do you know who takes weekday shuttle flights between Washington and New York? People who think they are too important for the train, let alone the bus.
+- Medicare is expensive because we spend a lot on healthcare. We spend a lot on healthcare basically just because we want to, and doing so has been very good to a lot of people who work in healthcare fields.
+- Modern political speechwriting is not a high-minded pursuit for brilliant talents.
+- Because TED is for, and by, unbelievably rich people, they tiptoe around questions of the justness of a society that rewards TED attendees so much for what usually amounts to a series of lucky breaks.
+- Cory Booker became a millionaire because this is how the economy works for people of his class: Rich people give other rich people money to do nothing, simply because they 'deserve' it.
+- Vaccines don't cause autism. Vaccines, instead, prevent disease. Vaccines have wiped out a score of formerly deadly childhood diseases. Vaccine skepticism has helped to bring some of those diseases back from near extinction.
+- Programs aimed strictly at the poorest Americans are always and forever under assault from a Republican Party that still has not dared to cut spending on programs - like Medicare and crop insurance - that also benefit the rich.
+- Only a small rich fringe hates Social Security for disincentivizing 80-year-olds from seeking full-time employment.
+- For the most part, congressional Republicans represent people who are whiter, older and richer than most Americans, and our creaky old political system gives those Americans disproportionate influence over public policy.
+- For the cable news guest, nothing happens for a while until suddenly everything happens very quickly. After you receive your television face, you stand around for a while, ignored, until you're sat down at a desk and asked to argue with strangers.
+- Cable boxes are, almost without exception, awful. They're under-powered computers running very badly designed software. Their channel guides are slow, poorly laid out, and usually riddled with ads.
+- I think humor can be an effective way of getting the point across, but there are definitely times where I just write very earnestly.
+- Some BuzzFeed articles are written by smart people who use complete sentences. Some of the disposable lists are witty and appear to have taken some effort to put together.
+- Anderson Cooper is fine. He is a smart, conscientious guy, and he seems to want his show to produce and highlight good journalism. But he also seems to want to replace Regis, or maybe even Oprah.
+- Ideally, in the future, you'll just pay your cable company for the stream, which you'll be able to watch and manipulate through whatever means on whatever devices you like.
+- The late Christopher Hitchens had the professional contrarian's fixation on attacking sacred cows, and rather soon after his cancer diagnosis, he became one himself.
+- FreedomWorks, which is funded primarily by very rich people, solicits donations from non-rich conservative people. More than 80,000 people donated money to FreedomWorks in 2012, and it seems likely that only a small minority of those people were hedge fund millionaires.
+- I guess if you want me to stop writing horrible, mean takedowns of everyone, give me a really, really cushy columnist gig.
+- Political journalists, socially inept or no, are not nerds. Most of them can't do math, a fact that campaigns and politicians regularly exploit.
+- Rush Holt would be a fine senator. He's an actual physicist, which is neat. He cares very strongly about global warming, which is probably the single most pressing issue of our era.
+- Most politicians are vain. Many of them are stupid.
+- The song 'Take This Job and Shove It' spent 18 weeks on the country charts in 1977. 1970s country music fans had a clearer understanding of the ennui of wage-slavery than modern elites.
+- It's been possible for years to use a PC to watch and record over-the-air television broadcasts, and unencrypted cable television tuners have been available almost as long. But for a long time, you could only watch copyright-protected channels with a cable company-leased box.
+- For most of the millions of people who watch TED videos at the office, it's a middlebrow diversion and a source of factoids to use on your friends. Except TED thinks it's changing the world, like if 'This American Life' suddenly mistook itself for Doctors Without Borders.
+- Donald Trump, an oft-bankrupt make-believe mogul clown with a television show where he pretends to fire America's saddest former celebrities, is one of the Republican Party's most prominent national figures because he is on TV and people have heard of him.
+- Freedom from menial work should be a rallying cry, not a cudgel to be used against the Left. How much liberty is there in having to do something you hate in order to survive?
+- Co-opting the conservative line on anti-poverty programs did nothing to halt conservative attacks on anti-poverty programs.
+- In case you're unfamiliar with TED, it is a series of short lectures on a variety of subjects that stream on the Internet for free.
+- 'Flash mobs' are reported on extensively because they're novel and can be used to stoke fears of young people and the Internet. The media, of course, have absolutely no clue what they're reporting on.
+- We're getting the sort of 'compromise' American politics specializes in: the one where things are intentionally made worse for most people in the hopes that if things are made bad enough, the other side will cave.
+- Vaccine conspiracies, like so much modern cult conspiracy culture, perpetuates itself and lives on indefinitely thanks to the community-building and archiving of the Internet.
+- If some modern-day David Brock wanted to defect from the conservative movement and write a tell-all focused solely on the financial chicanery of the entire right-wing nonprofit/think tank/publishing sphere, I would read the absolute heck out of it.
+- The thing with 'The West Wing' is that the fantasy was legitimately better than the reality - these were smarter, better people than their real-life counterparts, working together at a better White House than the one we had.
+- There's no good reason that reliably liberal states should be electing senators as friendly to Wall Street as Cory Booker.
+- In many ways, Tucker Carlson's a better symbol of the pathetic state of what passes for conservative journalism than even Glenn Beck or the late Andrew Breitbart, to name two of his contemporaries with a much larger following.
+- Most of us don't think forwarding a racist joke or speaking in an insulting 'comedic' accent is appropriate at the workplace. Unfortunately, for those raised in the toxic culture of conservatism, the sort of mentality that leads government employees to do those things is widespread.
+- The State of the Union is less written than it is designed, structured and organized around applause prompts and camera cues.
+- Please don't begin to believe that the American political establishment is anything but a corrupt puppet of oligarchy.
+- Apocalyptic hysteria is much more effective at getting people to open their wallets than reasonable commentary.
+- Aaron Sorkin is why people hate liberals. He's a smug, condescending know-it-all who isn't as smart as he thinks he is.
+- As long as Rupert Murdoch has owned it, the 'New York Post' has been defined by its shamelessness and total lack of interest in taking responsibility for its worst errors and poor judgment.
+- 'The Newsroom' is phenomenally bad good TV. Sam Waterston and Jeff Daniels and Emily Mortimer are all terrific! So is the production, and the direction, and even the editing!
+- I don't want to be totally repetitive and doing the same thing over and over again for the rest of my life. I don't want to do that at all.
+- Niall Ferguson is an intellectual fraud whose job, for years, has been to impress dumb, rich Americans with his accent and flatter them with his writings.
+- Modern political speechwriting is certainly a skill, and one that requires experience and practice to master.
+- I love insults, devastating takedowns, things that could be described by Twitter hacks as 'shots fired,' and funny ad hominem attacks.
+- We are actually a very rich country with a lot of resources and the ability to do almost whatever we want. We could eliminate poverty in America by spending a fraction of what we spend on defense.
+- CNN's problem goes to its very core and to the identity it's sought ever since the rise of Fox News, on its right: CNN is the channel for people who don't want to watch the other channels! That's a stupid strategy.
+- There are two important things to remember about 'entitlements': They are hugely popular programs for a very good reason, and actual sensible 'reform' would mean improving them, not sacrificing them at the altar of 'fiscal responsibility.'
+- From the late David Broder on down, the most powerful and influential of the great Washington columnists and journalists tend to cultivate the driest, least lively voices possible.
+- In some future America, there could be a plausible Michael Bloomberg path to the Democratic nomination. I would love to read a column by a smart person actually attempting to persuade me of this, using evidence.
+- CNN will always be the channel people turn on when wars and horrible disasters happen. The 'trick' is getting people to also want to watch it when there aren't hundreds or thousands of people somewhere in the world currently in mortal peril.
+- 'Simplifying' the tax code is a priority mainly for people who make enough money to want to avoid paying taxes, and who make their money by means unorthodox enough to make avoiding taxes possible and desirable.
+- 'Political junkies' and liberals will watch MSNBC, and angry, old right-wingers will watch Fox.
+- It's easy for the thought-leader and executive classes to embrace a 'do what you love and love what you do' philosophy when they are wealthy enough to work hard only voluntarily, and when their jobs grant them status.
+- Conservatives don't want to read good, smart books. They mostly want to read Fox and talk radio hosts writing about presidents.
+- Furloughing a bunch of air traffic controllers has a pretty easy-to-predict effect on air travel: It causes delays.
+- For CNBC, and for Wall Street, billion-dollar fines for violations of the law are just part of the price of doing business, along with litigation costs and 'compliance.'
+- The Pentagon budget, like all government spending, is an expression of priorities.
+- What really destroyed Tucker Carlson, respected magazine journalist, was TV. TV exposed him as glib, smug, and not nearly as clever as he thought he was.
+- I grew up in a politically aware household: very civically-minded, good Minnesota liberals.
+- Many people - especially those people who earn livings by convincing editors and bookers that rich and influential strangers consider their thoughts and opinions interesting - have ideas about who should or should not run for president.
+- I'm not great on television. That's one reason I don't do it very often.
+- The conservative media movement exists primarily as a moneymaking venture.
+- The goal isn't, and shouldn't be, to block Hillary Clinton. The goal is to make sure a potential President Clinton is beholden to a better Congress and a better Democratic Party.
+- In our system of government, an opposition party doesn't have the ability to pass legislation, but it has the ability to massively screw things up.
+- Political battles are won when the rich favor them.
+- Conservatives frequently complain of being frozen out of the culture industry, though, like all industries, the culture industry will produce or sell anything it expects to profit from.
+- There are a lot of people whose livelihoods depend on keeping lots of conservatives terrified and ill-informed. The groups that exist to raise funds raise more funds when they endorse the crazier candidate.
+- Christopher Hitchens, the late essayist and sot, was a man who purposefully cultivated a lot of friends of a certain type - rich, self-important, generally dim-witted and hence easy for a well-spoken Oxbridge debater to impress - and he electrified Washington D.C. society mainly by not being a completely charmless bore.
+- Obviously no one wants to give members of Congress a lot of money, because they barely do anything, and many of them are terrible, but a Congress that is made up of rich-but-not-super-rich people is going to be more corruptible than a Congress of really rich people.
+- Tax expenditures for middle- and working-class Americans - like the earned income tax credit - aren't thought of as loopholes; they're just thought of as benefits.
+- I think Matt Yglesias is wrong to declare that the world of 'This Town' is dying, unless he thinks publicly financed elections, strict lobbying bans and Scandinavian-style wealth distribution are imminent.
+- Is there something psychologically wrong with David Gregory? No, besides the usual superhuman vanity of a television professional. He is just not a great host of a news talk show!
+- John Boehner was and is an unprincipled ward-heeler who simply couldn't weather the transition of the Republican Party from a corporatist party with a sizable conservative base to a purely conservative party.

@@ -1,0 +1,24 @@
++++
+author = "Anita Sarkeesian"
+title = "Anita Sarkeesian Quotes"
+quotes_len = "18"
+description = "the best18 Anita Sarkeesian Quotes"
++++
+- There's a toxicity within gaming culture, and also in tech culture, that drives this misogynist hatred, this reactionary backlash against women who have anything to say, especially those who have critiques or who are feminists.
+- As others have recently suggested, the term 'gamer' is no longer useful as an identity because games are for everyone. These days, even my mom spends an inordinate amount of time gaming on her iPad. So I'll take a cue from my younger self and say I don't care about being a 'gamer,' but I sure do love video games.
+- Game studios, developers, and major publishers need to vocally speak up against the harassment of women and say this behavior is unacceptable.
+- My own contentious relationship with gaming continued through high school and college: I still enjoyed playing games from time to time, but I always found myself pushed away by the sexism that permeated gaming culture. There were constant reminders that I didn't really belong.
+- There are people I've blocked for a long time who will still respond to every single person that replies positively to me on Twitter. I have quite a few cyber-stalkers like that.
+- Games have a huge impact on our society because the media plays a role in helping to shape our attitudes. So it's not just fantasy.
+- GamerGate is really a sexist temper tantrum. That's kind of a silly, funny way of putting it, but it's kind of what it feels like, right? They're going after and targeting women who are trying to make changes in the industry. They're attacking anyone who supports women.
+- We are witnessing a very slow and painful cultural shift. Some male gamers with a deep sense of entitlement are terrified of change. They believe games should continue to cater exclusively to young heterosexual men with ever more extreme virtual power fantasies.
+- Online harassment, especially gendered online harassment, is an epidemic. Women are being driven out; they're being driven offline. This isn't just in gaming. This is happening across the board online, especially with women who participate in or work in male-dominated industries.
+- Harassment is the background radiation of my life. It is a factor in every decision I make. Any time I tweet something or make a post, I'm always thinking about it.
+- Game creators aren't necessarily all sitting around twirling their nefarious-looking mustaches while consciously trying to figure out how to best misrepresent women as part of some grand conspiracy. Most probably just haven't given much thought to the underlying messages their games are sending.
+- I love playing video games, but I'm regularly disappointed in the limited and limiting ways women are represented.
+- I was frustrated with how academia tended to present feminist theory in disconnected or inaccessible ways. I wanted to try and bring a sociological feminist lens to the limited and limiting representations of women in the media and then share that with other young women of my generation. YouTube was the perfect medium.
+- The notion that gaming was not for women rippled out into society, until we heard it not just from the games industry, but from our families, teachers and friends. As a consequence, I, like many women, had a complicated, love-hate relationship with gaming culture.
+- We can be critical of the things that we love. That is possible.
+- Developers need to start moving away from the entitled macho-male power fantasy in their games. They need to recognize that there are wider stories that they can tell.
+- The power of pop culture stories should not be underestimated, and there is an enormous potential for inspirational stories that can have a positive, transformative effect on our lives.
+- The time for invisible boundaries that guard the 'purity' of gaming as a niche subculture is over. The violent macho power fantasy will no longer define what gaming is all about.

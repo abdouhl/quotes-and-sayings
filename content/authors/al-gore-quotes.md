@@ -1,0 +1,88 @@
++++
+author = "Al Gore"
+title = "Al Gore Quotes"
+quotes_len = "82"
+description = "the best82 Al Gore Quotes"
++++
+- There's lots about politics I don't feel comfortable with. To talk about the politics of future ideas is impossible in soundbite form.
+- The day I made that statement, about the inventing the internet, I was tired because I'd been up all night inventing the Camcorder.
+- The signs that the world is spinning out of kilter are increasingly difficult to misinterpret. The question is how to convince enough people to join a critical mass of urgent opinion, in the U.S. and the rest of the world.
+- Our world faces a true planetary emergency. I know the phrase sounds shrill, and I know it's a challenge to the moral imagination.
+- I do genuinely believe that the political system is not linear. When it reaches a tipping point fashioned by a critical mass of opinion, the slow pace of change we're used to will no longer be the norm. I see a lot of signs every day that we're moving closer and closer to that tipping point.
+- If we don't succeed, we run the risk of failure.
+- America's political system has evolved over the last 50 years in ways that have enhanced the power of business lobbies.
+- The dominance of short-term perspectives has led to routine decisions in the markets that sacrifice the long-term buildup of genuine value in pursuit of artificial, short-term gains.
+- The conversation on global warming has been stalled because a shrinking group of denialists fly into a rage when it's mentioned.
+- Winston Churchill aroused this nation in heroic fashion to save civilisation in World War Two. We have everything we need except political will, but political will is a renewable resource.
+- We're all capable of mistakes, but I do not care to enlighten you on the mistakes we may or may not have made.
+- For a free country to continue thriving, there have to be regular reforms, because any society, any economy that stays in place, you're going to see repeated attempts to exploit the openings for twisting policy to the advantage of those who already have wealth and power.
+- Our democracy, our constitutional framework is really a kind of software for harnessing the creativity and political imagination for all of our people. The American democratic system was an early political version of Napster.
+- A zebra does not change its spots.
+- I pledge to you today that as president, in my first budget, I will introduce the largest increase in special education ever.
+- Science has a culture that is inherently cautious and that is normally not a bad thing. You could even say conservative, because of the peer review process and because the scientific method prizes uncertainty and penalises anyone who goes out on any sort of a limb that is not held in place by abundant and well-documented evidence.
+- I was in elective politics for 24 years. I've made four national races, two for President, two for Vice President. I have found there are other ways to serve, and I'm enjoying them.
+- I'm naturally an optimist, but my basis for hope is rooted in my understanding of human nature.
+- I remember as a boy when the conversation on civil rights was won in the South. I remember a time when one of my friends made a racist joke and another said, 'Hey man, we don't go for that anymore.'
+- Airplane travel is nature's way of making you look like your passport photo.
+- If you want your energy bills to go up, you should support an ever greater dependence on foreign oil, because the rate of new discoveries is declining as demand in China and India is growing, and the price of oil and thus the price of coal will go sky high.
+- When you have the facts on your side, argue the facts. When you have the law on your side, argue the law. When you have neither, holler.
+- It's a blessing to have work that feels fulfilling.
+- In digital era, privacy must be a priority. Is it just me, or is secret blanket surveillance obscenely outrageous?
+- CO2 is the exhaling breath of our civilization, literally... Changing that pattern requires a scope, a scale, a speed of change that is beyond what we have done in the past.
+- The entire North Polar ice cap is disappearing before our very eyes. It's been the size of the continental United States for the last 3 million years and now 40 percent is gone and the rest of it is going.
+- I flew on Air Force Two for eight years, and now I have to take off my shoes to get on an aeroplane.
+- Population growth is straining the Earth's resources to the breaking point, and educating girls is the single most important factor in stabilizing that. That, plus helping women gain political and economic power and safeguarding their reproductive rights.
+- A president who breaks the law is a threat to the very structure of our government.
+- I have faith in the United States and our ability to make good decisions based on the facts.
+- The presidency is more than a popularity contest.
+- While President Bush likes to project an image of strength and courage, the real truth is that in the presence of his large financial contributors, he is a moral coward.
+- We need to remake the Democratic party. We need to remake America.
+- The Bush administration works closely with a network of rapid response digital brownshirts who work to pressure reporters and their editors for 'undermining support for our troops.'
+- Consider what kind of car you get. Buy cars and other products that have the least impact environmentally.
+- Civil disobedience has an honourable history, and when the urgency and moral clarity cross a certain threshold, then I think that civil disobedience is quite understandable, and it has a role to play.
+- The heart of the security agenda is protecting lives - and we now know that the number of people who will die of AIDS in the first decade of the 21st Century will rival the number that died in all the wars in all the decades of the 20th century.
+- It's not unusual to find big political shifts that take place beneath the surface before they're visible above the surface.
+- The ability of big money to shape perceptions - where you have four anti-climate lobbyists for every single member of the House and Senate - is a big factor.
+- I am Al Gore, and I used to be the next president of the United States of America.
+- When people flirt with despair about the future, they are less likely to take the actions necessary to safeguard it, focusing instead on the short-term.
+- There are skeptics who do not come to their view because they have a source of income from carbon polluters.
+- I think it's harder for people than it should be. But as more and more of us become carbon neutral and change the patterns in our lives to be part of the solution instead of part of the problem, we are now beginning to see the changes in policy that are needed.
+- I think the cost of energy will come down when we make this transition to renewable energy.
+- Consider a clock thermostat, and set it so that you're not using energy when you don't need it, when you're out of your house.
+- I take no pleasure in the fact that the scientific predictions I've relayed to popular audiences turn out to be true.
+- The golden thread of reason that used to be stretched taut to mark the boundary between the known and the unknown is now routinely disrespected.
+- There are many who would much prefer that the word 'climate' never be mentioned and that the issue be eliminated from our national conversation.
+- Today we're dumping 70 million tons of global-warming pollution into the environment, and tomorrow we will dump more, and there is no effective worldwide response. Until we start sharply reducing global-warming pollution, I will feel that I have failed.
+- If the only tool we use to analyse what's valuable is a price tag, then those things that don't have price tags begin to look like they have no value.
+- As I have said for many years throughout this land, we're borrowing money from China to buy oil from the Persian Gulf to burn it in ways that destroy the future of human civilization. Every bit of that has to change.
+- I drive a hybrid, and we've changed our light bulbs and windows and installed solar panels and geothermal ground source heat pumps and most everything else.
+- You know the old saying: you win some, you lose some... and then there's that little-known third category.
+- I have absolutely no plans and no expectations of ever being a candidate again.
+- Hey, you know what, I've gotta go on that 'Letterman' show. That show is so lame.
+- How could this Y2K be a problem in a country where we have Intel and Microsoft?
+- I see myself in the mold of Rin Tin Tin. It didn't go to his head either.
+- The first less is this: take it from me, every vote counts.
+- George Bush taking credit for the wall coming down is like the rooster taking credit for the sun rising.
+- I have always been fascinated with those who try to look over the horizon and see things that are coming at us.
+- We are going to have the best educated American people in the world.
+- I took the initiative in moving forward a whole range of initiatives that have proven to be important to our country's economic growth, environmental protection, improvements in our educational system.
+- I did very extensive diligence on Al Jazeera English, the network from which Al Jazeera America is going to be derived, and it's really very clear that they have long since established a reputation for excellence and integrity and objectivity.
+- There is the natural tendency that all of us are vulnerable to, to deny unpleasant realities and to look for any excuse to push them away and resolve to think about them another day long in the future.
+- I've learned the importance of changing people's minds at the grassroots level so that whoever does run will have a much better chance of encountering public opinion that reaches a critical mass and brings about a change not only in White House policies but in the Congress and in the state legislatures and all around the world.
+- As human beings, we are vulnerable to confusing the unprecedented with the improbable. In our everyday experience, if something has never happened before, we are generally safe in assuming it is not going to happen in the future, but the exceptions can kill you and climate change is one of those exceptions.
+- As president, I will bring all the parties and stakeholders together. I am going to come up with a solution that respects the environment and does not cause an upheaval in the economy.
+- Surveillance technologies now available - including the monitoring of virtually all digital information - have advanced to the point where much of the essential apparatus of a police state is already in place.
+- The Congress is virtually incapable of passing any reforms unless they first get permission from the powerful special interests who are most affected by the proposal.
+- No matter how hard the loss, defeat might serve as well as victory to shake the soul and let the glory out.
+- There is an air of unreality in debating these arcane points when the world is changing in such dramatic ways right in front of our eyes because of global warming.
+- I'm old enough to know that a red carpet's just a rug, and I've been able to enjoy the pageantry without letting it go to my head.
+- A low voter turnout is an indication of fewer people going to the polls.
+- The science linking the increased frequency and severity of extreme weather to the climate crisis has matured tremendously in the last couple of years.
+- Iraq's search for weapons of mass destruction has proven impossible to deter and we should assume that it will continue for as long as Saddam is in power.
+- The struggle against poverty in the world and the challenge of cutting wealthy country emissions all has a single, very simple solution... Here it is: Put a price on carbon.
+- The Internet empowers individuals to play a more active role in the political process, as Obama's campaign has manifested.
+- During my service in the United States Congress, I took the initiative in creating the Internet.
+- I think George W. Bush has a warm, engaging personality. But, you know, the presidency is more than just a popularity contest.
+- I think that more diversity is a good thing, and fresh points of view articulated by people who are committed to excellence in journalism is a beneficial change in the American media landscape.
+- The Bush-Cheney administration had betrayed some basic American values. So there was hunger for change.
+- I wrote newspaper articles professionally for seven years, and I love newspapers.

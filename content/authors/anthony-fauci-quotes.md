@@ -1,0 +1,80 @@
++++
+author = "Anthony Fauci"
+title = "Anthony Fauci Quotes"
+quotes_len = "74"
+description = "the best74 Anthony Fauci Quotes"
++++
+- Inevitably, malaria parasites developed resistance to commonly used drugs, and mosquito vectors became insecticide-resistant.
+- Even the pandemic flu of 1918 only killed one to two percent of the people who were infected.
+- The world is a place that is so interconnected that what happens in another part of the world will impact us.
+- Pneumococcal disease is a real threat. Pneumococcal disease is a bacterial infection that causes anything from middle ear infection to pneumonia to meningitis. Children are particularly vulnerable to it, but adults can get pneumococcal disease themselves.
+- It's the advantage of the virus to spread, and you can only spread when you infect people and they infect other people without necessarily killing them. So if you had 100 percent mortality, the potential pandemic would almost self-eliminate itself.
+- Antibiotics are a very serious public health problem for us, and it's getting worse. Resistant microbes outstrip new antibiotics. It's an ongoing problem. It's not like we can fix it, and it's over. We have to fight continued resistance with a continual pipeline of new antibiotics and continue with the perpetual challenge.
+- Some people feel, you make your case, if they listen to you, fine, if they don't, that's it. That's not what leadership is. Leadership is trying to continue to make a case.
+- We can sharply deflect the curve of HIV incidence.
+- I'm generally considered a conservative in my predictions for disease.
+- When you vaccinate someone, or when you get infected, the microbe is presenting itself to the immune system in a way that the immune system recognizes the important elements of the microbe and makes an immune response, both an antibody response and a cellular response, to ultimately contain the microbe.
+- When you think in terms of public service, I heard so much about what Mother Theresa had done in her life. And I was fortunate enough to get a chance to meet her and talk to her a lot about what motivates her and what drives her. And that, to me, is a person that really is an extraordinary role model.
+- You can't rush the science, but when the science points you in the right direction, then you can start rushing.
+- There's always going to be the need for new medications, better medications.
+- I run a modest-sized laboratory that's looking specifically at what we call 'the pathogenic mechanisms of HIV disease, or AIDS.'
+- The nature of a protective immune response to HIV is still unclear. Because in a very, very unique manner, unlike virtually any other microbe with which we're familiar, the HIV virus has evolved in a way that the immune system finds it very difficult, if not impossible, to deal with the virus.
+- When you're dealing with a very sick person and you're doing something to them, an intervention, be it a procedure or a medication, safety is critical.
+- I consider myself a perpetual student. You seek and learn every day: from an experiment in the lab, from reading a scientific journal, from taking care of a patient. Because of this, I rarely get bored.
+- Whooping cough is not a mild disease. Whooping cough, before the vaccination, could make you very, very sick. First of all, there was a chance you could die from it - small chance, not a big chance. You would be coughing and coughing. It wouldn't last for a few days, like a cold.
+- I'm a born, cautious optimist.
+- Staph lives on skin. That's the reason why many infections start as a boil.
+- When I was a child, there were not that many vaccines. I was vaccinated for polio. I actually got measles as a child. I got pertussis, whooping cough. I remember that very well.
+- The body's immune system is like any other system of the body. Each of them have their vital function for the human host.
+- Investigating rare diseases gives researchers more clues about how the healthy immune system functions.
+- What the immune system of man has in its advanced development is what we call immunological memory, so that once it sees something for the first time, when it sees it the second or the third time, it can respond against it in a way that's much more accelerated than when it sees it for the first time.
+- Well I think the media has a very powerful influence on almost anything and everything we do because the general public gets their perception of what is going on in things they don't have immediate access to from what they get through the media.
+- A pandemic influenza would mean widespread infection essentially throughout every region of the world.
+- I enjoy very much communication. I think that scientists need to communicate.
+- I think, collectively, we should be paying more attention to what is going on around us in the world among people who don't have the advantages that we have.
+- I believe I have a personal responsibility to make a positive impact on society.
+- Better ways to diagnose, treat and prevent E. coli 0157:H7 infections are badly needed.
+- When we can get the incidence of HIV down enough to turn the trajectory of the pandemic, it will assume a momentum of its own in diminishing HIV.
+- The National Institute of Allergy and Infectious Diseases is an institute of the National Institutes of Health that is responsible predominantly for basic and clinical research in the diagnosis, treatment and prevention of immunologic and infectious diseases.
+- Disagreements are one of the fundamental positive aspects of science.
+- Certainly the support for research in HIV/AIDS was good in the Clinton administration, good in the Bush administrations. It just was.
+- There is an urgent need for a protective Ebola vaccine, and it is important to establish that a vaccine is safe and spurs the immune system to react in a way necessary to protect against infection.
+- There are a number of candidate vaccines that are in development for HIV/AIDS.
+- You might be asking too much if you're looking for one vaccine for every conceivable influenza. If you have one or two that cover the vast majority of isolates, I wouldn't be ashamed to call that a 'universal vaccine.'
+- Human nature is weak.
+- I think the media can be a very positive influence by essentially holding people to task about the importance of high quality medical care. And when the media is scrutinizing you, then I think that's a very good, positive thing for the field of medicine.
+- The worst potential bio-terrorist is nature itself.
+- Previous efforts to eradicate malaria failed for several reasons, including political instability and technical challenges in delivering resources, especially in certain countries in Africa.
+- The most pressing ethical question is to make sure that everything you do from a scientific standpoint is done for the ultimate good and positive issue for the people that you're caring about.
+- You don't have to vaccinate every man, woman and child in the country if you have a couple of cases of smallpox cropping up.
+- Although it is still important to develop an HIV vaccine, we have significant tools already at our disposal that can make a major impact on the trajectory of this epidemic.
+- The Europeans have lots of data on the use of adjuvanted flu vaccine in the elderly, but I don't think anybody has really good data on adjuvants in children.
+- You can have an epidemic in a state. You can have it in a region. You can have it in a country where the critical level of disease passes a certain threshold, and we call that an 'epidemic threshold.'
+- An AIDS-free generation would mean that virtually no child is born with HIV; that, as those children grow up, their risk of becoming infected is far lower than it is today; and that those who become infected can access treatment to help prevent them from developing AIDS and from passing the virus on to others.
+- It is now widely recognized that any attempt at malaria eradication must be a long-term commitment that involves multiple interventions, disciplines, strategies and organizations.
+- The launch of phase 1 Ebola vaccine studies is a first step in developing a vaccine that could be licensed and used in the field to protect not only the front line health care workers but also those living in areas where Ebola virus exists.
+- There's more than one way to get to the goal that you want to get to, but once you compromise your own principles, then you're lost. You're really lost.
+- There are so many different varieties of HIV out there.
+- It's very, very difficult when you have to prepare for something that might not ever happen.
+- It's extremely likely that the people who have never been exposed to a human who has leprosy, it's very likely they got leprosy from exposure to an armadillo.
+- Activism has been very productive in our society.
+- We need to know more about how group A strep interact with humans to cause so many different illnesses.
+- Knowledge goes hand-in-hand with truth - something I learned with a bit of tough love from my Jesuit education first at Regis High School in New York City and then at Holy Cross College in Worcester, Mass.
+- The most confounding thing of all is that we still haven't identified the cause of 20% to 30% of adult common colds.
+- Is it or is it not ethical to create an embryo, and to create a person for the purpose of getting an organ to give to someone else? Your knee-jerk reaction is 'absolutely not;' but you need the ethical analysis of that to show why and how that is something that you need to stay away from.
+- Bioethics is a very, very important field. As we get more and more in the arena of understanding science and getting better opportunities, the fact that you can do things with biological sciences that have an impact on a human being means you must have ethical standards.
+- There's always the danger when you have influenzas that infect chickens, that when you have the close quarters of chickens spreading from one to another and occasionally a human coming into close contact, that there will be the jumping of species from a chicken to a human. This is not something new.
+- I think it would be over-exaggeration to think that there are millions of viruses ready to jump on us and bring us back to the 14th century. That would be looking over a ledge that isn't there.
+- Bio-terrorism is a threat.
+- Testing two vaccines against different H1N1s at the same time has never been done.
+- Some of the most vulnerable people to getting the SARS virus are health care providers. The general public, walking in the street, there is really not that much risk at all. It's a very, very low risk - a very, very low risk.
+- The discovery of HIV in 1983 and the proof that it was the cause of AIDS in 1984 were the first major scientific breakthroughs that provided a specific target for blood-screening tests and opened the doorway to the development of antiretroviral medications.
+- There has been treatment for hepatitis C, but the treatment has not been overwhelmingly effective, number 1. And number 2, it has had considerable toxicity.
+- There cannot be any impediment to science that will ultimately be good to the general public.
+- When a company is fairly certain of a profit margin that is substantial, it can assume responsibility for the clinical trials to develop a blockbuster drug.
+- Science is telling us that we can do phenomenal things if we put our minds and our resources to it.
+- I grew up in an inner city neighborhood called the Benson Hurst section of Brooklyn, which was a very embracing, warm, family-type neighborhood.
+- Today we know the best way to prevent the spread of Ebola infection is through public health measures.
+- The difference between H7N9 and H5N1, is that H5N1 kills chickens very rapidly, so it is easy to identify where the infected flocks of chickens are. H7N9 doesn't make the chicken sick, so it has been difficult to pinpoint where the infected chickens are.
+- The immune system's goal is to protect the body against invaders either from without, such as microbes, or from within, such as cancers and different types of neoplastic transformation.
+- For the first time, we have the genetic sequences of all three of the players in the global malaria debacle: the parasite, the anopheles mosquito and the human. It's a very important milestone.

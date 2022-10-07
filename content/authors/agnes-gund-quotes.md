@@ -1,0 +1,30 @@
++++
+author = "Agnes Gund"
+title = "Agnes Gund Quotes"
+quotes_len = "24"
+description = "the best24 Agnes Gund Quotes"
++++
+- I've had to sell a lot of art, which I've hated to do because I really love the art I have.
+- If it's taught well, art really is important to kids early on. It helps children develop language and allows them to see themselves in a way that isn't right or wrong, because if they draw an animal with five legs instead of four, nobody's criticizing them for it.
+- I own works by women artists; it is hard for me to see, literally to see, how women and men differ in the quality of their work. Why are women artists less known and less admired?
+- The need we have for information is great, and we get it from many admirable sources. The need we have for understanding and acceptance is much greater. The arts are uniquely able to help us meet the greater needs.
+- Art shouldn't be prohibited in public schools when kids in private schools always get it.
+- I'm so lucky in my life, but I'm so unlucky in my abilities. I love art so much, but I'm unable to produce it. I can't even draw a dog that doesn't look like a horse.
+- Six of my 12 grandchildren are black.
+- Women fail, very simply, if they have no guidance and friendships in art, if they are not perceived as, or permitted to be, artists, and if they have no institutional access.
+- I'm hoping someday that we'll be able to start a consortium with places like Carnegie Hall to work on early childhood education. I really feel that's the most important place to put the arts.
+- Recycling old buildings to show art is very important.
+- Of course, museums and galleries and art spaces will continue to ground the art world. But certainly the public - as well as artists - also benefit when art is encountered in other everyday situations.
+- My education in the arts began at the Cleveland Museum of Art. As a Cleveland child, I visited the museum's halls and corridors, gallery spaces and shows, over and over. For me, the Cleveland Museum was a school of my very own - the place where my eyes opened, my tastes developed, my ideas about beauty and creativity grew.
+- Most of the art I have is more on the beautiful side than the violent or disturbing side.
+- I have always had an extreme sensitivity to inequality.
+- You don't have a balanced life if you don't have art.
+- The arts capture our insecurities, quicken our instincts, guide us through threats. They help us know ourselves. They help us know each other. They help us know better.
+- I actually believe that this Trump phenomenon, which has affected many of us, is going to accelerate the use of art for philanthropy, because people are realizing that art is a vehicle for showing opposition - just look at the signs in the women's marches.
+- However dark, however demanding the realities of existence are, artists provide the lift, the light, the ways to make it through. They help us find the joys and delights, the hopes we need for our days and hours. I am grateful for their gifts.
+- In my own life, I share my home with works by artists like Elizabeth Murray, Martin Puryear, Jackie Windsor and so many others, whose creativity is clear and fresh and compelling; the works break through the usual, and they inspire creativity; they inspire responses and understanding.
+- Dealers claim that women artists are not as salable as men, that they are a poor investment. We know that there are few women art collectors, a fact which may have an impact on the market.
+- I get income, but I don't have a big swath of money to invest in things.
+- Women artists, no matter how well recognized they are, are seldom given solo exhibitions or featured in significant group shows. They are never top-ranked in auction choices.
+- I have the same sense of discovery and exhilaration from objects of design and everyday use - I am inspired by the buildings in my city, by park greenery and dazzling store windows, by the jaunty strollers and umbrellas and billboards I walk past. Just strolling our streets, we encounter creativity every single day.
+- I was never a good fundraiser.

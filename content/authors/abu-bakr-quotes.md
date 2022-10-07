@@ -1,0 +1,61 @@
++++
+author = "Abu Bakr"
+title = "Abu Bakr Quotes"
+quotes_len = "55"
+description = "the best55 Abu Bakr Quotes"
++++
+- The people who abandon Jihad fall a victim to humility and degradation.
+- Maybe a thing that you do not like is really in your interest. It is possible that a thing that you may desire may be against your interest.
+- Allah will help him who moves in the way of Allah.
+- Muslims should live like brothers.
+- In the matter of justice, all should be equal in your eyes.
+- You should not quarrel with your neighbour, for he will remain where he is, but your high handedness will become the talk of the people.
+- Solitude is better than the society of evil persons.
+- Run away from greatness and greatness will follow you.
+- The true believer is rewarded in every thing, even in affliction.
+- He who aspires to paradise should learn to deal with people with kindness.
+- There is greatness in the fear of God, contentment in faith of God, and honour in humility.
+- O man you are busy working for the world, and the world is busy trying to turn you out.
+- Without knowledge action is useless and knowledge without action is futile.
+- If you want to control other people, first control yourself.
+- He who avoids complaint invites happiness.
+- Do not follow vain desires; for verily he who prospers is preserved from lust, greed and anger.
+- Do not get elated at any victory, for all such victory is subject to the will of God.
+- He who prays five times a day is in the protection of God, and he who is protected by God cannot be harmed by anyone.
+- Jihad is obligatory for the Muslims.
+- He who becomes a Muslim does so in his own interest.
+- Our abode in this world is transitory, our life therein is but a loan, our breaths are numbered and our indolence is manifest.
+- When knowledge is limited - it leads to folly... When knowledge exceeds a certain limit, it leads to exploitation.
+- Do not deceive or be faithless even with your enemy.
+- Cursed is the man who dies, but the evil done by him survives.
+- He who builds a masjid in the way of Allah, God will build a house for him in the paradise.
+- God blesses him who helps his brother.
+- To fight against the infidels is Jihad; but to fight against your evil self is greater Jihad.
+- There is no harm in patience, and no profit in lamentation. Death is easier to bear (than) that which precedes it, and more severe than that which comes after it. Remember the death of the Apostle of God, and your sorrow will be lessened.
+- Youth is not restored by the dyeing of your hair.
+- Be good to others, that will protect you against evil.
+- If you expect the blessings of God, be kind to His people.
+- Piety is the most solid goodness, and the vilest of what is evil is vice.
+- Every day, nay every moment, try to do some good deed.
+- The greatest truth is honesty, and the greatest falsehood is dishonesty.
+- I have been given the authority over you, and I am not the best of you. If I do well, help me; and if I do wrong, set me right. Sincere regard for truth.
+- He who fears to weep, should learn to be kind to those who weep.
+- God helps those who fear Him.
+- When you seek advice, do not withhold any facts from the person whose advice you seek.
+- Intentions count in your actions.
+- Good actions are a guard against the blows of adversity.
+- Do not look down upon any Muslim, for even the most inferior believer is great in the eyes of God.
+- The more knowledge you have, the greater will be your fear of Allah.
+- It is a matter of shame that in the morning the birds should be awake earlier than you.
+- Pride in the case of a rich man is bad, but pride in the case of a poor man is worse.
+- He who indulges in falsehood will find the paths of paradise shut to him.
+- It is bad for a young man to sin; but it is worse for an old man to sin.
+- Knowledge is the life of the mind.
+- If anybody seeks your advice, offer right and sincere advice.
+- Have an earnestness for death and you will have life.
+- When you advise any person you should be guided by the fear of God.
+- He who is not impressed by sound advice, lacks faith.
+- Death is the easiest of all things after it, and the hardest of all things before it.
+- Use the same measure for selling that you use for purchasing.
+- Follow the way of life, which the Holy Prophet has shown you, for verily that is the right path.
+- If an ignorant person is attracted by the things of the world, that is bad. But if a learned person is thus attracted, it is worse.

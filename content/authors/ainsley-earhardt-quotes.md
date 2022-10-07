@@ -1,0 +1,106 @@
++++
+author = "Ainsley Earhardt"
+title = "Ainsley Earhardt Quotes"
+quotes_len = "100"
+description = "the best100 Ainsley Earhardt Quotes"
++++
+- I enjoy makeup and having someone who does my hair. What female wouldn't?
+- I want to be honest about my faith, but not preachy, for my viewers and my readers.
+- Having a baby makes me grateful that I work for a company that does give you four months' leave. And my heart breaks for women that don't get that time with their child. As a mom, you're just not ready to go back immediately - physically, you can't. You just need some time not only to bond, but you need some time to heal.
+- I've realized I'm not going to please everyone; not everyone's going to love me.
+- We are inflicting opinion in our newscasts like never before. That was never done and never taught in our journalism classes.
+- Jesus died when he was 33, and when I was 33, I was coming out of a failed marriage and was in a really low point in my life because I was really sad about that. God healed me so much during that period. So I loved that year because I leaned on God, and then, as a result, I started checking things off my bucket list.
+- I believe there's a place for goodness and love in everything I do.
+- I just wanted to be angelic and pure and nice and kind.
+- I don't think you can say yes to every opportunity and work the weekends and work the overnight shift unless you're really passionate about your job. So I encourage everyone to find their passion and go for it.
+- I got promoted to co-anchor of the early-morning show 'Fox & Friends First' in 2013.
+- I love my job and always have.
+- Giving back to those in need is something that everyone on all sides of the political aisle can relate to, and it is beautiful to see people come together, especially during the holiday season.
+- Hopefully, my story will help change people's lives.
+- My favorite foods are anything Italian.
+- I think if Hillary Clinton had come on 'Fox & Friends,' she would have gotten so many more votes, especially if she had done it over and over and over.
+- I think that makes America wonderful, that we have different opinions.
+- I love Jesus, and I cannot hide that.
+- The Make-A-Wish Foundation started with one wish out of Phoenix, Arizona, and the organization has grown so grand ever since.
+- I moved to New York City from Texas in 2007, where I lived for two years. Before that, I lived in South Carolina for the majority of my life.
+- I have my dream job.
+- I do read newspapers constantly and my 'Jesus Calling' devotional on my way to work each day. In addition, my Bible is on my bedside table and my 'go to' for advice and direction.
+- I wrote the children's books, and those were wonderful tributes to my life as a daughter and a mother and just a thank-you to my parents for all the lessons in life they had passed on to me that I could pass onto my child and to other kids around the world.
+- You can choose what channel you want to watch.
+- I am southern - from the great state of South Carolina. They say, 'You can take the girl out of the South, but you can't take the South out of the girl.' And it's true.
+- Not a day goes by that I don't look at myself in the mirror and ask God, 'Why me? Why did you choose me, Ainsley Earhardt from Columbia, South Carolina, to be one of a handful of female national news anchors?'
+- I don't want to sound self-righteous, and I don't want to act like I have it all put together.
+- The bosses can't read your mind, so I think women should tell them what they want out of their careers. And so I think that if you're just a good person, you work hard, you say 'yes,' and you are driven, you will eventually work your way to the top. At least, that's how it's been for me.
+- We're all flawed, and no one is perfect.
+- I lived on Nantucket in college during the summer and have spent a lot of time there since. It's a special place for me.
+- It's always nice to be around family.
+- I may have a very visible job that allows more than a million viewers to invite me and my fellow anchors into their homes every morning, but that doesn't make me famous, nor does my job entitle me to any kind of special privileges.
+- I love steamed vegetables.
+- I'm so grateful to God for allowing my dreams to come true. It was worth going through a few tough times, as I am so appreciative for my many, many blessings.
+- I encourage others to choose a career they are passionate about and can do for the rest of their lives.
+- I'm not here to make everyone love me. I wish they would.
+- I am proud to live in this country, where anything is possible.
+- I want to be a journalist; I want to ask tough questions.
+- I wanted to be an actress at a very early age and then decided to become an orthodontist after working in Dr. Richard Boyd's office in high school.
+- I knew no one in New York City was going to hire me if I had a southern accent.
+- When I really discovered who God was and had a firm relationship with him my junior year of college, I journaled constantly. All day long. I had boxes of journals. They were really just love letters to God, just thanking him and praying out loud and telling him my desires.
+- Children teach you to stop and smell the roses even though you're busier than you've ever been before.
+- If you're going through a hard time or if you've experienced a miscarriage, so many women have come up to me and said they went through the same thing, and they never wanted to talk about it, so I hope my journey can help you and that you can find God in my life.
+- I really thank the viewers; I don't take them all for granted.
+- Becoming a parent changed my life drastically and left me little time for leisure reading.
+- When I was five years old, I remember watching the opening of the Oscars with my mother and crying as I watched celebrities walk in on the red carpet. Why would any child cry watching the Oscars? For me, the reason was simple: I wanted to be there so badly that I burst into tears.
+- I'm so excited about what God has done in my life.
+- As any Christian would understand, I feel church is sacred. For me, it is the place I worship, where I learn about God and feel closest to Him each week.
+- We know there are a lot of amazing people that work for the FBI as investigators.
+- The moment I stop giving Him the glory is the moment I will fall, and I will fail, and I know that. Because I've experienced that in my life. I've turned my back on Him, and it was the hardest time of my life.
+- How frustrating would it be if you're the president of the United States, and every single time you turn on the TV on most of the channels, they're misconstruing what you say?
+- Now that I'm a mom, it brings tears to my eyes.
+- I started in local news in South Carolina, so viewers there supported me. We had a morning show that we put to No. 1, and then I moved to San Antonio, Texas, and we became the No. 1 morning show there, too.
+- I'm so excited to wake America up every day.
+- Life is short, and time just flies by, so I love those moments when we're all sitting around the table together laughing and joking.
+- I think I was afraid of being a mother for many reasons. I wanted to be a good mom, and I was fearful at one point of even working at the national level because I was afraid that I would disappoint a child or I wouldn't be as ready for a big position as maybe I should have been when I came to Fox.
+- I am not perfect, but my faith keeps me as close to the straight and narrow as possible.
+- I attended Florida State University on an academic and leadership scholarship, changed my major from biology to broadcasting, and transferred to the University of South Carolina for my last two years.
+- I do want everyone to be happy and safe.
+- We had a miscarriage.
+- I have this wonderful schedule where I work full-time and also get to be a full-time mom.
+- Hard work really does pay off.
+- I would say... I'm a traditionalist.
+- Mom was a school teacher, and she had to be at work at 7:30 every morning. So Dad was in charge of us three kids around the breakfast table. He always made it creative: he did the bananas with the smiley face and the eyes with peanut butter on top, made us drink grapefruit every morning even though we had to do it holding our noses.
+- I'm just a normal person.
+- Absolutely, yes, I'm proud of every woman, of every American, that makes her dreams come true.
+- I had worked my way up at Fox. I started in 2007, working the overnight shift on the weekends. I would do one-minute news-of-the-day updates every hour on programs like 'Hannity.'
+- Fox has always allowed us to be ourselves. They've never told us what we can say, what to say, what not to say.
+- I did grow up in a southern Christian background, and I have friends from all walks of life, but I will never forget from where I came.
+- Now I tell everyone, 'Just become a mom if you can' - it is so amazing, and God answers all your prayers, and all those things that you worry about don't matter.
+- If God tells me to write another book, then I will.
+- It's pretty cathartic for me to write a letter to God and tell him what I'm praying for that day or what I'm going through emotionally.
+- I got through my miscarriage with God.
+- We ask our men and our women to go overseas to fight for our country and sacrifice so much for this great country so that we can be the land of the free, the land of the brave.
+- In my heart, I was drawn to PR.
+- The Unites States of America continues to represent life, liberty, and freedom. We believe in hard work and capitalism.
+- Honestly, I just love my life.
+- I took so many different things away from my maternity leave. It taught me to have more compassion for other people and to see every individual as someone's child.
+- All I really worry about is my little world.
+- When you're a parent, your child's health is your number one concern, and to get the news that your child has diseases or is unhealthy, I'm sure, is absolutely crushing.
+- If you look at the Kennedys, if you look at Bill Clinton, I think our country has decided or learned that we are all flawed, that we all have imperfections, and if all of that were revealed about each one of us, we would all be tainted.
+- I know one day I will take my last breath, and if I am in His 'house' when that happens, I pray my family can find a bit of solace and peace knowing that is where I saw Jesus for the first time.
+- My two grandfathers fought in World War II.
+- We defeated communist Japan.
+- The haters out there, I don't really pay attention to them, because I feel like I'm doing the best I can, and I just don't want that negativity into my heart and into my mind.
+- Hands down, 'The Family Man' is one of my favorite movies with Nicolas Cage and Tea Leoni. I've always loved that movie... it's pretty special. I also love 'It's a Wonderful Life,' and 'Home Alone' - I think it's really funny.
+- When I got the job with Fox, I said 'God, are you sure?' I know nothing about politics; I've been covering car accidents and street closures and the pothole patrol in my hometown.
+- We're the most generous country in all of the world.
+- Yes, we have our faults. But because of this country, our world is definitely a better place. We are great.
+- No one wants to get up at 5 A.M.
+- I am not into spicy foods. Big Red chewing gum is even too 'hot' for me.
+- Having faith allows me to try to be the best person I can be.
+- Making a difference - and allowing God to use your gifts to change someone else's life - is truly the greatest joy you will ever experience.
+- I love this country. I love tradition. And I just want to make sure our country's heading in the right direction.
+- I attended theater camps and classes growing up, but there was never any talk of me making a life out of acting. My parents were much too practical and grounded for that.
+- If you don't want a speeding ticket, don't speed.
+- I would have been a fine orthodontist.
+- I was in a Bible study, Henry Blackaby's 'Experiencing God,' and I started to experience God as I was reading the pages of this workbook and studying scripture with some friends, and we all just searching to fill that void in our lives.
+- What about the majority? I'm so tired of protecting the rights of the minority. What about the rest of the country?
+- When I realize I've come through so much, good and bad, because of my relationship with Christ, I can't hide that light within me.
+- I feel like the Left wants to destroy Fox News.

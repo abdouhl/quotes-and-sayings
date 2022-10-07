@@ -1,0 +1,71 @@
++++
+author = "Akkineni Nagarjuna"
+title = "Akkineni Nagarjuna Quotes"
+quotes_len = "65"
+description = "the best65 Akkineni Nagarjuna Quotes"
++++
+- I'm a fan of a very few actors.
+- What is important for me is that people are liking my movies, I am liking my work, for which I am very happy.
+- There should be a flexibility on ticket prices in multiplexes.
+- At home, we never used to perform pujas every day. But God has always been there in the hearts.
+- As an actor with a star status, I can't restrict myself to one type of films and roles.
+- I don't consult anyone - not my mother, not my father, anyone - about my work. And I must add that neither Dad nor Mom interfere in my work.
+- I've seen my mom confined to a wheelchair in the last three years of her life. Both her knees had given way, and there was no way she could undergo surgery at her age. Even though I was concerned for her, I didn't know at that time what she had to go through.
+- I am a very physical actor. I generally use my hands a lot.
+- Once in a while, I need to go out of my way to do different films, to exploit all commercial angles to cater to the masses.
+- I don't believe in the concept of working out rigorously to pump muscles. It may be effective, but when you stop working out, it comes back to square one.
+- I don't think about stardom anymore. I'm way past that phase.
+- I believe, for an actor, both the success of his film and awards are equally important.
+- I will not campaign for any party.
+- The success of a film at the box office will ensure happiness to the entire unit, but individual awards are like vitamin shots that will help boost the morale of an actor.
+- Audiences don't come to theatres going by reviews. Even if a film is rated low, the collections won't get affected.
+- My father used to see God in human beings and in his work. Each person has his own way.
+- When I portrayed Shiridi Sai, I changed as a person.
+- I want to keep trying something new all the time. It is the only way to grow.
+- Everybody deserves an opportunity to fulfill their dreams.
+- If you follow a strict diet for a few months, flaunting six packs abs is no big deal.
+- The films I've done with all my heart have gone on to become huge hits. When I set out to do a 'mass masala' intending to please B and C centres, it bombs.
+- My passion is films and making them.
+- A film like 'Shirdi Sai' caters to the family audiences, while 'Rajanna' evokes patriotic sense in viewers. 'Damarukam,' on the other hand, is a full-length commercial film made for the masses.
+- The adulation from viewers is a huge stimulant for me, and it keeps me going.
+- Early in my career, I got roles that demanded that I be fit to carry off the angry young man look. Of course, I'm a fitness freak, and that's something I picked up from my dad.
+- If a gym is not available, wherever I am, I do my free hand exercises.
+- For me, it's about moderation and discipline, and that's something I picked up from my dad. I don't believe in rigorous workouts but believe in eating right, going to bed early, and getting a proper workout.
+- It's good to have a governing body to oversee matters in making of films, but you can't blame films for what is happening in society.
+- If I get good stories, then I don't mind working for multi-starrer movies.
+- I exercise six days a week for one hour in the morning.
+- I want to make good, fun films, not necessarily experimental ones.
+- Once I finish shooting a film, I usually sit on it to see how we can make it better.
+- Besides regular exercising, one should also take care of his or her daily habits such as adequate sleep and drinking lots of water.
+- I don't like anything about 2013. Too many things have happened, including 'Bhai.' I lost my way. Sometimes it happens, and I definitely feel bad about it.
+- I am a big Batman fan, not so much a Superman fan.
+- Sometimes people just need to be heard. They find happiness in sharing their thoughts.
+- Some films change your life a little.
+- After 'Shirdi Sai,' I wanted a total image makeover. I was looking to transform myself.
+- A film's success does not depend on box office collection and the number of days it was screened but on the amount of satisfaction an actor can draw from it.
+- It's depressing to think what it would mean to be impaired down the neck.
+- I want to continue acting as long as I can because being on the sets is a big stress buster for me. I can't possibly think of stopping my visits to the sets because I'm old.
+- Films like 'Namo Venkateshaya' give immense satisfaction, happiness, and makes us feel blessed, and so I consider it the best film in my career.
+- People know excessive consumption of anything is bad for health. By imposing a ban on something, we are, in a way, provoking them to do it.
+- When I remember my mother, it makes me really sad. But, when I remember my father, it makes me smile.
+- My mother would take me to Tirumala right from when I was 7 years old. I used to go along with her every time.
+- I can confidently say that I am comfortable with all the directors, co-star and producers with whom I have worked; there have been absolutely no tensions.
+- When Raghavendra Rao garu approached me to do a film on Lord Venkateswara, my initial response was 'What more can we do than Annamayya?' But he asked me to go through the script, and I really liked it.
+- I would love to host a television show.
+- Enjoy the films I do, get entertained, get your money's worth, and when you leave the theatre, leave it all behind!
+- I admire Modi's leadership and his ideology.
+- Sheer brilliance needs to be expressed properly.
+- People should try and look for something that constantly keeps them motivated, and they start enjoying what they are doing.
+- I believe there is lot of untapped potential in the television market. With shows such as 'Bigg Boss' and '24' turning out to big hits on TV, I'm interested to be in it.
+- I would like Modi to become the Prime Minister and expand the Gujarat model of development across the country.
+- Critics who complain that we don't do anything new will hopefully be happy with 'Oopiri.'
+- I believe you need films like that - feel-good, breezy films that families can watch.
+- Usually after a shot, we look for a chair to rest our feet. In 'Oopiri,' it was the other way around. After every shot, I was on my feet, walking around the set trying to get the blood circulation in my legs working properly.
+- Everything about 'UY' is new and fresh, and we are extremely happy at the response from the audiences, as most people are walking out of cinema halls with a smile on their faces.
+- Just getting a degree is not enough, and you need to sell your ideas.
+- The intelligence of cinema-goers should be respected.
+- Frankly, I love my independence too much to give it up.
+- Style has become a crucial differentiating factor for most actors in the industry. I generally choose my look based on the character I essay. I research a lot on the Internet and pick something that would suit my face.
+- The film-watching crowd are mainly youngsters who see fashion on TV, in Hindi films, and in magazines.
+- One shouldn't get carried away by styling, as it can be a double-edged sword. The person should have it in him or her to carry it off.
+- I don't want to make films for myself.

@@ -1,0 +1,17 @@
++++
+author = "Amy Irving"
+title = "Amy Irving Quotes"
+quotes_len = "11"
+description = "the best11 Amy Irving Quotes"
++++
+- One of my problems is that I'm very honest and direct. You pay a price for that.
+- And you know, the baby boomers are getting older, and those off the rack clothes are just not fitting right any longer, and so, tailor-made suits are coming back into fashion.
+- I thought that my movie career was finished. I was quite happy to dedicate myself 100% to the theater. Surprisingly enough, I've never gotten so many work offers. It's so exciting, this feeling of a new beginning after 40.
+- I have a passion to do theater.
+- When my career first began, I didn't have children - so there's a whole lot of difference in the way I choose roles now. Not just films for my children, but how long I'm going to be away, and is Dad going to be home while I'm gone. That sort-of factor plays a part.
+- You walk off the plane in Rio, and your blood temperature goes up. The feel of the wind on your face, the water on your skin, the taste of the food, the music, the sexuality; Brazilians are very comfortable in their sexuality.
+- Actors are not a great breed of people, I don't think. I count myself as something of an exception. I grew up in the theater, and my values were about the work, and not being a star or anything like that. I'm not spoiled in that way, and if I fight for something, it's about the work, not about how big my trailer is.
+- I used to travel in tennis shoes; I am just not allowed to anymore. I'm an old hippie from San Francisco.
+- I get along great with directors, but I think some producers would tell you I'm a pain. They may say I'm tough to work with, but I have a great passion for what I do. I believe in fighting for it.
+- I will argue my points; I will have my opinions. But at the end of the day, it's the director's choice.
+- In the U.S., with very few exceptions, actresses older than 35 are simply discarded.

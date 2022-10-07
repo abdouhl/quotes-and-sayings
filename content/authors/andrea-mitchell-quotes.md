@@ -1,0 +1,16 @@
++++
+author = "Andrea Mitchell"
+title = "Andrea Mitchell Quotes"
+quotes_len = "10"
+description = "the best10 Andrea Mitchell Quotes"
++++
+- They put me on the shift where they thought I could do the least harm, midnight to eight in the morning. Although the hours were lousy, they were perfect for an apprentice reporter.
+- When it came to political power, blacks need not apply. Add to this steaming stew the growing tensions over the Vietnam War and the movement for civil rights, and you had plenty of elements to fire the imagination of a novice journalist.
+- Finally, I told them I'd drop out of the management program if they'd give me an entry-level job in the newsroom for union wages, about fifty dollars a week.
+- It was a presidential election year, and as a member of a consortium of Ivy League radio stations, we participated in 'network' coverage of election night.
+- Philadelphia reflected the national turmoil over race and the Vietnam War, often exploding on my watch.
+- When I entered college, it was to study liberal arts. At the University of Pennsylvania, I studied English literature, but I fell in love with broadcasting, with telling stories about other people's exploits.
+- Someday perhaps I'll have to get a grownup job... but for now I'm having too much fun being a reporter.
+- All they expected me to do was rip and read the wire 'leads,' without doing any original reporting. It was pretty basic, but gave me a taste of how to combine my love of politics and broadcasting.
+- As kids, we traded 'I like Ike' and 'All the way with Adlai' buttons in elementary school.
+- Once again, no one in charge had given any thought to the possibility that a woman would be involved.

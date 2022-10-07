@@ -1,0 +1,34 @@
++++
+author = "Anthony Ramos"
+title = "Anthony Ramos Quotes"
+quotes_len = "28"
+description = "the best28 Anthony Ramos Quotes"
++++
+- It's not uncommon to have at least one friend that you used to mess with, and it didn't work out. But still, there's mad love there.
+- The people that are closest to your heart are always the people who were with you when you had nothing.
+- AMDA was intense. I realized when I got there that I had to play a little bit of catchup. A lot of these kids knew so much about musical theater.
+- It's a blessing to have people who love the art that you make and who are inspired by the art you create and are a part of.
+- Money will come, and opportunities will come, but the only thing we don't get back is time.
+- You answer anger with love. You answer anger with selflessness. The answer to anger is always the opposite thing of anger.
+- We lost our jobs at 'Heart and Lights' at one-o'clock that day. At two-o'clock, I got the call from Telsey telling me I was cast in 'Hamilton.'
+- I did an open call for some random show, and afterwards, they said they wanted to meet me for a thing called 'Hamilton's Mixtape.' I was like, 'What? That's not what I auditioned for, but cool, I guess.'
+- It was hard knowing that you walk into a store sometimes, and you're wearing a baseball cap and a hoodie and some baggy jeans, or your skin is a little darker, and the clerk is just staring at you a little bit harder. The cops treat you a little differently.
+- As an artist, you can work to make money, or you can be an artist who thinks about their legacy.
+- Looking back, when my cousins and I were kids, we'd put together these little skits - these 10-minute improv scenes. I didn't really understand what I was doing - that I was writing these mini-sketches and acting - but we were all totally into it.
+- I started to lose my love for baseball. I knew I needed something else, so I auditioned for something called 'Sing,' which I thought was a talent show.
+- In junior high school, I had this singing group called The Halsey Trio. We would sing songs by The Temptations at school assemblies, so I figured I could do something like that again.
+- I just feel like, especially after 'Crazy Rich Asians,' gentrification isn't affecting art. I am actually more inspired by art now than ever.
+- My biggest influence is my big brother.
+- I grew up in Bushwick, and I lived with my mom. She was a single parent with three kids. I've got an older brother and a younger sister. We all were pretty active kids, but school wasn't particularly our strong suit; we were always good at other things.
+- We were all working for 400 dollars a week at the Public Theater and sharing a space downstairs together, so we grew to love each other. That dynamic for me as an original company member is special to me.
+- My go-to app is the TD bank app because I'm constantly checking my bank account. That's what happens when you put all of your money in your savings and leave none in your checking.
+- There are sad moments - lonely moments - when you're sitting up in your room all by yourself, shooting on location in Atlanta or Vancouver or L.A., and your family's back home. You can miss home.
+- The only thing that matters is how you feel in the moment and what you think is the right choice in that moment.
+- Baseball was the escape. I played all throughout my childhood.
+- I'm being more selective about what I do, but really, it's just, if I love it, I'ma do it. It's that simple.
+- I started my career because if I'd have done anything else, I would regret it. I truly feel this career chose me more than I chose it. I would say that it's for something greater than me with a little of the creative fulfillment that comes with it splashed in there.
+- Just speaking from growing up in the projects, it was hard for me to take dance classes or voice classes because I didn't have money. Or learn an instrument because I didn't have the money to buy one.
+- In high school, baseball was life. My senior year, I had the highest batting average on the team. I was one of the starting pitchers. I wanted to play Division III ball and eventually coach.
+- Success is doing what you love and loving people while you do it.
+- I just want kids to know that, no matter what your circumstance is and no matter where you're from, you can always make a way. There's always a way out of or a way in to do something - that thing that you want to do.
+- Singing was something I only did at family functions, but I never took it seriously.

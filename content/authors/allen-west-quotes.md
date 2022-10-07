@@ -1,0 +1,76 @@
++++
+author = "Allen West"
+title = "Allen West Quotes"
+quotes_len = "70"
+description = "the best70 Allen West Quotes"
++++
+- For far too long we've allowed the other side to paint us as racist, as sexist, inhumane war mongers - well, today as a conservative black Republican and former solider, I'm here to set that record straight.
+- Every year, thousands of Californians flee that populous paradise for tax-eased small government oasis of America's red states.
+- We must not allow the liberals to move us away from the conservative values of the American past which sustain our present and shall secure our future. As for me and my family, we will serve God, we will serve this constitutional republic, we will serve America.
+- I spent 22 years in the United States military, so I'm a pretty strategic level thinker.
+- I'm a conservative because I believe we're here on this earth to do a little more than crawl through life, comfortable in the cradle of government excess and oblivious to the duties required to keep this republic standing.
+- This liberal progressive agenda... is the antithesis of who we are as a constitutional republic.
+- Where is love exchanged? Where is the love felt when a state administrator stuffs a welfare check into an outgoing mail?
+- Leadership is about being a servant first.
+- When dealing with illegal immigration, the answer is simple; enforce Constitutional mandates, and you will protect Floridians and the American people.
+- I think that there is a changing wind. There are black conservatives out there, and their voices need to be heard.
+- I believe the election and reelection of Obama were among the most conspicuous acts of denial in recent years. Voters just stopped paying attention. They accepted consistently bad behavior and rewarded it. Then they wonder why they get more bad behavior.
+- I've been married for 22 years. That's the only person I want.
+- As a 22-year Army Veteran who served in Operations Desert Storm and Iraqi Freedom, and as a Civilian Advisor to the Afghan Army in Operation Enduring Freedom, I understand both the gravity of giving the order, and the challenge of carrying it out.
+- We must never forget why we have, and why we need our military. Our armed forces exist solely to ensure our nation is safe, so that each and every one of us can sleep soundly at night, knowing we have 'guardians at the gate.'
+- We're told compassion comes not from generosity but from compliance. We're told kindness means raiding a man's hard-earned wages and sending them off to Washington so they - not you - may dole them out in courtesies and indulgences.
+- The great thing that I appreciate - the fact that my godfather, William 'Sticky' Jackson, was a Tuskegee Airman because my father was first born in Ozark, Alabama. The sacrifices and the commitment of those men made it possible for myself and many others.
+- While there are towns and cities still planning Memorial Day parades, many have not held a parade in decades. Some think the day is for honoring anyone who has died, not just those fallen in service to our country.
+- I think that this liberal progressive agenda is not the thing that the American people want and it's antithesis to who we are as a constitutional republic.
+- I don't think there's anything divisive about me.
+- I never heard the word 'compromise' used. So I'm starting to believe that these terms only come into play to try and force Republicans to do what the Democrats want.
+- You had 42 blacks that ran on the Republican ticket this Cycle, 14 made of them made it to the general election and two of us made it to the House of Representatives. So I think that there is a new movement that needs to have a voice in the Congressional Black Caucus.
+- I think that if we get back to some basic fundamental principles, we can make sure that we resolve the issues. And I think that that's what the Tea Party was all about. It's getting back to a constitutional conservative government. And that is limited, but it's also effective and efficient. I think that that's what we'll be able to do.
+- Liberals worry that what's best for the individual might not be better for the public at large. But that philosophy assumes something vicious about each and every one of us. It assumes we only care about ourselves.
+- In the real world, I see conservatives volunteering at adoption agencies, at churches, at bake sales and the local American Legion Post while the only charity a progressive sends is a smug sermon on fair share and what fairness is.
+- This is what America is about when it comes to understanding that it is equal opportunity versus equal achievement. Each and every one of us has the opportunity for greatness in this country.
+- Part of Obamacare eliminated the private sector financial market that engages in giving college student loans. I mean, now the federal government has taken over college student loans, so I sit back and strategically look at this and say this just cannot be happening.
+- I am willing to work with anyone that wants to do what is best for this country.
+- I'm tired of liberals dividing this country up into little groups, setting them upon each other, breeding spite and envy, and then having the nerve to accuse conservatives of hatred.
+- Take your message of equality of achievement, take your message of economic dependency, take your message of enslaving the entrepreneurial will and spirit of the American people somewhere else.
+- Of course, for me, having served 22 years in the military and to have the opportunity to continue to serve my country is a great honor and is a privilege. So that's what makes it special each and every day.
+- Quite simply, federal laws already on the books aimed at stopping the flow of illegal immigration must be enforced. Furthermore, states must be given the resources necessary to confront the problem, which includes strengthening the border patrol.
+- Liberal progressivism evolved after our Constitution. It has repeatedly failed all over the world so why do we think it could be successful here in the United States of America?
+- I do not believe having a baby is punishment.
+- I don't look to a man to get pride in myself. It's not about having a black president, it's about having a good president, and I think that's the most important thing.
+- I believe there's about 78 to 81 members of the Democrat Party who are members of the Communist Party. It's called the Congressional Progressive Caucus.
+- In Obama's case, we've enabled affirmative action to find a home in the nation's highest office. There you have it. I said it and I stand by it. America fell for the gimmick candidate, disregarding every fact and warning sign in the rush to have 'the first African-American president.'
+- When you look what is happening in this country with the debt, the deficit, the CBO coming out and saying once again we're going to have a trillion dollar plus deficit in 2012, the fourth straight year, and unemployment may be going back up to 8.9 or maybe nine percent by the end of the year, these are serious situations that are going.
+- So now is an opportunity for us to stand up and have a good, strong immigration policy to make sure that E- Verify becomes mandatory and we have got to train and properly equip our Border Patrol.
+- But when I look at the fact that today is 1,000 days that we have not had a budget for the United States of America, you know, the House, one of the things we did, we passed a budget last year. But that is still sitting over there at the Senate. And so we have got to get this country back on track.
+- No one talked about the fact that in this year under the Obama administration you've seen the highest casualties in Afghanistan. And the fact that it took him almost 90 days to figure out what his strategy is going to be was absolutely appalling.
+- Our soldiers, sailors, airmen, Marines and Coast Guardsmen volunteer to protect and defend this country and all its citizens, and do so with honor, integrity and excellence. Our nation continually asks them to do more and more, with less and less.
+- We believe in humility and integrity, the spirit of one people, bound together under God. We understand that the Constitution was written to control and regulate the government, not the people.
+- I think that Governor Romney operates on the capital gains tax, his investments, what he lives off of instead of doing it off of his income.
+- When did 'Ask not what your country can do for you' become 'Ask only what your country will give you'?
+- Well, I think we need to have attrition by enforcement. We need to secure our borders. We need to enforce our laws.
+- Conservatives understand that the power that binds our republic together is fierce independence held high on the shoulders of compassion.
+- I'm a conservative because I believe in peace - real peace, not just the peace of mind. I'm a conservative because we understand that real peace comes from the Marine Corps, not the Peace Corps.
+- There's nothing on this green earth that a liberal progressive fears more than a black American who wants a better life and a smaller government.
+- From 1971 onwards, the Memorial Day holiday was officially observed on the last Monday in May and became the unofficial start of the summer, with barbecues, blockbuster movie openings and mattress sales.
+- I'll give you a great example of an issue that no one brought up during this Florida primary, the fact that we're going to have a Chinese made oil rig put in place about 60 miles off the coast of Florida.
+- I think we have to understand that when tolerance becomes a one-way street, it will lead to cultural suicide. We should not allow the Muslim Brotherhood or associated groups to be influencing our national security strategy.
+- When more Americans prefer freebies to freedom, these great United States will become a fertile ground for tyranny.
+- I am angry about the mammoth, out-of-control social welfare entitlement programs from Washington, D.C., that were supposed to solve our problems. The obvious truth is these impractical, politically motivated programs have irreparably damaged the fabric of our black society and community.
+- The republic I fell in love with, the republic I risked my life to defend, the values I hold dear, the integrity that we all share - these do not know prejudice and they do not accept partiality.
+- Compassion comes from a choice and not the liberal definition of a choice - the choice to say I can do with a little less so my brother can have a little more.
+- I taught high school for one year in Deerfield Beach, Fla., and in the end, it was such an enjoyable experience breaking up fights daily, that I decided to return to the combat zone of Afghanistan.
+- Of course we have compassion. We just don't believe the safety net should be used as a hammock.
+- When I retired out of the military, I registered myself as a Republican because my views and perspectives were more in line with that party.
+- The Republicans in the House and Senate took the district that I firmly represent, 22 in south Florida, from a D plus one to a D plus five almost a D plus six district, which means you are given a five to six percent registration advantage to Democrats. They drew in more Democrats into the district I represent.
+- Nowadays, many Americans have forgotten the meaning and traditions of Memorial Day. At cemeteries across the country, the graves of the fallen are sadly ignored, and worse, neglected.
+- One of the critical issues that we have to confront is illegal immigration, because this is a multi-headed Hydra that affects our economy, our health care, our health care, our education systems, our national security, and also our local criminality.
+- I think that Governor Romney needs to talk about the fact that what he tried to do in the state of Massachusetts was him seeing what could be best for his state, but maybe it didn't work out as well.
+- It is the liberal philosophy, not the conservative one, that views humans as selfish automatons.
+- A person like myself, born and raised in the inner city of Atlanta, Georgia, to lower-middle-class parents. But I had the opportunity to get an education, to go and earn a commission in the United States Army, to serve for 22 years, to lead men and women in combat.
+- The little platoon of the black community is the church. Our Christian faith is based on individual freedom from sin and the personal decision to find spiritual liberty that leads to a better life here on Earth and for eternity. On Sundays in America, the most conservative people can be found in black churches.
+- If people want to keep their kid on their insurance at 26, fine. We've got to make sure no American gets turned back for pre-existing conditions, that's fine.
+- Our purpose is to be up here to resolve these issues. Our purpose is to be up here and represent the people.
+- Well, first of all, we've got to get away from being offended by the truth. We've seen a 41 percent increase in food stamp recipients across the United States of America since President Obama was sworn in in January 2009. That has nothing to do with black, white, Hispanic or whatever. It's a fact, and we need to, you know, deal with that.
+- I am sick and tired of hearing that it is our moral duty to serve the state, because conservatives believe that it is our moral duty to serve our fellow man regardless of race, sex, affiliation or creed, and when we serve, we believe that it is the state's duty to get out of the way.
+- I support transitioning from the progressive tax to a flat tax system - both individual and corporate/business.

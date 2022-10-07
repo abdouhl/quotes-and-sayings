@@ -1,0 +1,15 @@
++++
+author = "Alfred Amoroso"
+title = "Alfred Amoroso Quotes"
+quotes_len = "9"
+description = "the best9 Alfred Amoroso Quotes"
++++
+- I feel comfortable in saying that the traction for TotalGuide and Rovi Cloud Services is strong, and I expect it to continue to strengthen.
+- DivX Plus Streaming provides secure streaming delivery of a feature rich premium digital entertainment experience to connected devices including HDTVs, Blu-ray players, smartphones, game consoles, PCs, Max and cable set-top boxes.
+- DivX Plus Streaming is adaptive bit rate streaming solutions, which means it works by detecting a user bandwidth and CPU capacity in real time and adjusting the quality of the video stream accordingly.
+- We believe content relationships are compelling draws even where paid-TV-provided guides are prevalent, such as here in the United States.
+- I'm very grateful and proud of the progress Yahoo! has made over the past year. When I took the position as chairman, I told the board that my intention was to serve for one year in order to help Yahoo! during a critical time of transformation.
+- We're crafting versions of our TotalGuide Solution to work on both legacy devices as well as new and advanced boxes with varying levels of services based on the capabilities of the set-top box and network.
+- Major markets are a key factor in advertise and budgeting decisions.
+- Overall, while the Rovi entertainment store is a nice stand-alone offering, more importantly, however, it is also a part of our total customer solution, fitting in now with our data and TotalGuide offerings.
+- When combining the elements on the Total Guide Solution, we believe we are positioning it to be the starting point for consumers to discover and enjoy digital entertainment on their television. And our name changed to Rovi embodied the ability to be that homepage for consumer search through the TV.

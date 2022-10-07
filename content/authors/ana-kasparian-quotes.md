@@ -1,0 +1,106 @@
++++
+author = "Ana Kasparian"
+title = "Ana Kasparian Quotes"
+quotes_len = "100"
+description = "the best100 Ana Kasparian Quotes"
++++
+- Before I finished my undergraduate degree, I found 'TYT' and dedicated myself to helping it grow into a digital news empire.
+- I don't care if you're Democrat. I don't care if you're Republican. We need to make sure that, you know, people in other countries don't have any impact on our elections.
+- We need to boycott the mainstream media, and we need to go online, and we need to find credible news sources.
+- As much as I dislike Trump, I have to admit that his campaign took off because he seemed real and unscripted to a lot of voters. He wasn't rehearsed, senatorial, or buttoned up. That resonated with people who are distrustful of today's politicians.
+- The NRA is funded by weapons manufacturers, and those same manufacturers know that they stand to lose some business if we pass common-sense gun legislation. As a result, the NRA contributes money to politicians to ensure that gun control never happens.
+- There is this massive misconception that young people have absolutely no interest in the news. Young people definitely do want to be informed, but they want to be informed by people they can relate to.
+- Yes, the United States deserves criticism for meddling in other elections, but that doesn't mean that we should give foreign nationals the opportunity to meddle in ours.
+- Trolls live in their own pathetic bubble, and it's called Twitter.
+- I'm seeing too much power being concentrated in the executive branch, and so our system of government is really in jeopardy, and more importantly, the overwhelming issue that we've had for a long time is money in politics. I see that problem getting worse.
+- Words like 'bossy,' 'shrill,' and 'moody' are used to describe women who speak up at work and give voice to their passion - but I believe this negative commentary is meant to keep critical thinkers quiet.
+- We look at individuals who would vote for Donald Trump as if... we kind of undervalue them. And we underestimated them.
+- The reality is that passion and emotion go hand in hand.
+- I always wanted to be part of the media. I knew I wanted to work as a journalist.
+- I can't pretend I'm some robot that's always neutral. I need to share my opinion - and sometimes aggressively so.
+- The point of journalism is to hold people in positions of power accountable.
+- When the NRA is funding your campaign and giving you, you know, millions of dollars, are you likely to pass gun legislation or support it? No, and I think that's the reason why we see members of Congress refusing to do anything.
+- If people are anything but enthusiastic about the information or ideas that they're sharing, they're either not that invested in what they're doing - or they're not communicating that investment effectively.
+- People don't want to have their rights online violated. They want the freedom of the Internet.
+- I do not respect Trump supporters, but I believe in being fair to them.
+- For those who are fighters rather than defeatists, a battle is over when it's impossible to win.
+- I will honor and respect my husband, but I'll also call him out when he's being doofus. I hope he does the same with me.
+- Income inequality has become so prevalent in the U.S. that examples of its negative impact on the middle class are as common as Kanye West saying something cringeworthy in the media.
+- Former Congressman Aaron Schock was applauded for his fitness when he flaunted his six pack on the cover of 'Men's Health.' Using his sweet pecs didn't end his career, although using taxpayer money to lavishly decorate his office did.
+- Liberals genuinely believe that this country is about helping one another out and doing it for the greater good.
+- Income inequality and government corruption are both unfortunate realities in the United States.
+- Thanks to advancements in gender equality, you now have salty women like me who not only follow politics but also share their opinions on the daily.
+- What's worse - loneliness or a relationship that inevitably leads to costly therapy sessions?
+- It's really difficult for mainstream - let's say, cable outlets - to talk about things like income inequality, wealth inequality when the advertisers that are funding their shows are the same corporations that want to ensure that the same system continues.
+- The abuse on Twitter has become so commonplace and accepted that people have literally made careers out of it.
+- There's a two-tier justice system. And anyone who denies it is either naive or in denial. This is what the reality of America is. If you have certain privileges, if you're from a certain socioeconomic status, you have a certain skin color, the odds are in your favor.
+- That's really what's kept me at 'TYT' even though I've gotten offers where I'd make a lot more money working at other media outlets: There's a value in making sure we inform our audience so they're responsible members of the democratic process. To me, that's more valuable than ratings or money or anything else you can get at these other networks.
+- I'm tired of advertisers being the gatekeepers of what is and is not appropriate on news shows.
+- I know I'd be a good mom.
+- I've never relied on one job and usually have a few different gigs going.
+- Regardless of how deplorable Trump is, using violence and physical attacks against his supporters is unacceptable and grossly counterproductive.
+- Who is Allen West? What is Allen West doing with his time? He's the most irrelevant person in America.
+- Men can be sex symbols and also earn respect for their professional accomplishments, and the same standard should apply to women.
+- Charter schools were supposed to compete with public schools, and in turn, that competition was meant to improve education. But that wasn't the end result.
+- If the U.S. is the richest country in the world, why is it also the most unequal?
+- I don't know how humble a person can be while consistently spouting statements like 'I, Donald Trump, am a totally gifted politician,' or 'I'm, like, a smart person.'
+- I always imagined myself doing what Barbara Walters did on '20/20.' That, essentially, is what inspired me to go to journalism school.
+- As you get older, you're humbled by the fact that you're a moron.
+- If the federal government is so concerned with why people are deciding against having kids, maybe they should consider how little support and protection the middle class gets when it comes to being parents. Paid leave would be a good start, and increasing wages would also help.
+- I think it's safe to say that mass shootings pose a gigantic threat to national security.
+- I personally think that women should have the choice to show as much skin as they're comfortable with, and it shouldn't negatively impact their careers.
+- People get so terrified that the government might take their guns away that they stockpile as much as they can afford. They've been led to believe that there will be an outright ban of guns, so they drink the NRA propaganda and spend their money on more weapons.
+- I've always wanted to do what I'm doing for the news, but I hate the idea of being some sort of celebrity.
+- If you value the democratic process, you have to value the protection of political speech.
+- What concerned me the most about Twitter wasn't just the violent vitriol I was exposed to regularly. I was more worried about what it was doing to me as a person and how it was changing my overall perception of humanity.
+- Income inequality has made having kids, much like getting a quality college education, a rich person's privilege.
+- If you want an audience that genuinely sticks around, you have to listen to what their opinion is.
+- Maybe this isn't a common thought that goes through one's mind when considering children, but I think about the ramifications of climate change and how the extreme weather conditions will only get worse as we keep drilling for oil and fracking for natural gas. Do I want to bring a little human into that mix?
+- The great thing about the Young Turks is that we've always stayed true to our principles.
+- When it comes to the Democratic party, all you need to do is look at the ideology of Millennials.
+- I think Millennials are more progressive, more socially progressive, much more concerned about economic issues that impact the poor and middle class, and so that basically shows me that the Democratic party will have a bright future.
+- Why do evangelicals support Trump? It could be because he amplified his religious messaging on the campaign trail by saying that women who get abortions should be punished and that he's not in favor of same sex marriage.
+- My disdain for Trump is clear and warranted.
+- One one hand, it's important to hear out the other side and try to reason with them using facts. The problem arises when we can't even agree on what the facts are. I've found myself walking away from debates when the person I'm talking to just won't acknowledge long-established facts.
+- The thing that still somehow surprises me, and I have come to this realization over and over again, is this nonsense that gets peddled regarding, 'Just work really hard, be really smart, do the right thing, and you'll get rewarded.' No, you don't. You don't get rewarded for those things in this society.
+- In states like California alone, the vast majority of undocumented immigrants contribute a great deal to society and the health of the economy.
+- Creating a system that makes birth control accessible for everyone not only helps women plan for their futures, and lessen the risk of poverty by preventing pregnancy, but it also saves taxpayers money.
+- It is frustrating that religion in general includes components that treat women as a support system for a man rather than a leader or equal player in the relationship.
+- We consistently allow politicians to get away with playing identity politics rather than demanding evidence of what they're going to do and how they're going to do it.
+- How do the same evangelicals who incessantly force-feed us their morals and family values manage to overwhelmingly support someone like Donald Trump?
+- What I never seem to understand about feminist-bashing conservative women is their inability to see how ironic it is that they attend political rallies, share their opinions, and cast their ballots when the America they're nostalgic about wouldn't allow them to do any of those things.
+- There are great news anchors; they're probably very smart, but they're not talking to the audience like real people. They're just reading from a teleprompter.
+- No one disagrees that undocumented criminals should be deported.
+- When I graduated, I was really lucky because I got hired immediately by CBS as a production assistant.
+- I would argue that electing Donald Trump would be a disaster for minorities; it would be a disaster when it comes to foreign policy.
+- Obviously, guys don't deal with the same level of criticism if they show off their bodies. Russian President Vladimir Putin literally staged a goofy shirtless photo shoot to show the people of Russia how 'handsome' and 'fit' he is. No one questioned his ability to lead a country as a result, although a lot of people did crack jokes about it.
+- The Constitution has become a convenient tool and talking point for politicians that get paid by the NRA. The same goes for Americans who just love their guns, so suddenly they're Constitutional scholars who care about what our founding fathers allegedly wanted.
+- If all schools become privatized in the U.S., the poor wouldn't be given vouchers for 'school choice.' They would have no choices.
+- The sense that I get is that every election cycle, the mainstream press devolves more and more.
+- It's a little hard to go out there and spend your money on a home, car, or goods and services if your wages are being garnished to make debt collectors rich.
+- Little by little, the U.S. has allowed questionable domestic policies to chip away at the only hope poor students have at a better future. The Right Wing loves to distract voters from these realities by making it seem as though the poor remain so because they lack the work ethic necessary to 'pull themselves up by their bootstraps.'
+- I used to believe that you have to say yes to every opportunity that comes your way in order to succeed in life. Now I realize that the rarely-talked-about secret to success (and sanity) is recognizing when it makes more sense to say no.
+- Fox News is garbage.
+- I did graduate early and even received my master's degree in political science before I turned 22.
+- Much of the criticism centered around Betsy DeVos focuses on her lack of experience with public schools. While she has shown some interest in 'protecting' students from the non-existent threat of grizzlies wandering onto their campuses, she has never run, taught in, attended, or sent a child to a public school.
+- The push to defund public schools and reroute taxpayer money to charters and private institutions is actually a very clever strategy by the Right Wing, which has always had a great deal of disdain for a system that forces them to pay taxes toward some other kid's non-religious, science-based education.
+- I'm not going to tone down my rhetoric, and I'm not going to censor myself in sharing what I believe to be the truth. People could either love that or hate that, but I'm not really interested in playing games in order to appeal to a broader audience.
+- It's sobering to realize that there's a huge chunk of the U.S. voting population that doesn't think of sexual assault as something horrendous enough to disqualify a presidential candidate.
+- Young people overwhelmingly supported Bernie because he wasn't the standard politician. He let his hands flail around as he passionately spoke about the issues that sincerely matter to him. He was real.
+- Crippling student loan debt doesn't just affect those who took out loans to get an education. It harms all of us because we can't have a healthy economy without a strong middle class to stimulate it.
+- Let's keep it real - the only time some right wingers pretend they care about protecting women from sexual assault is when they want to discriminate against the trans community.
+- The 2016 election unquestionably deepened the divide between liberals and conservatives.
+- Political speeches might represent the ideas of the politician at hand, but often times, it's not written in their own words.
+- Nearly every politician plagiarizes their speeches, because nearly every politician has a speech writer do the work for them.
+- It's laughable to claim the pro-life label while simultaneously putting people's lives at risk because you're too stubborn to acknowledge that Medicaid doesn't fund abortions.
+- I just don't understand why people decide to be journalists if they're not willing to investigate hard-hitting news stories.
+- Student loan debt is a real problem. People want to have serious conversations about that.
+- Trump might have a populist message that resonates with some voters, but the man doesn't care about any of the people he's appealing to.
+- While I'm sure some millennials are concerned with the ethical issues involved in mining for diamonds, the main reason they steer clear of the gems is because, well, they're a dumb investment.
+- The only time the issue of abortion ever comes up - and you'll notice this pattern - is when there's a presidential election coming around. When there's a presidential election, all of a sudden, 'Oh my God, we care so much about the babies.'
+- If a magazine proudly labels itself 'The Economist,' you would expect that publication to understand the economic burdens of today's youth. But when a tone-deaf writer at the magazine tweets an article asking 'Why aren't millennials buying diamonds,' it pretty much sums up how oblivious some can be in matters they're supposed to be experts in.
+- Jesse Watters is just a deplorable human being. I have no respect for him whatsoever.
+- The Medicaid money that right-wingers want to snatch away from Planned Parenthood actually goes toward critical preventative care and treatments for the disadvantaged. So if pro-life activists are genuine in wanting to preserve human lives, waging a war against clinics that help low-income men and women isn't the way to go.
+- When the vast majority of strangers you interact with are trolls on social media, it slowly begins to chip away at your love for humanity.
+- Colleges prefer to enroll wealthy students because they know it's more likely that they'll pay for full tuition without needing financial aid. They're also more likely to have parents who will donate large sums of money to the school. When the privileged students graduate, they're expected to join the alumni association and also donate cash.
+- When it comes to Buttigieg, he doesn't want to reveal what his actual policies are, where his stances are - and for some reason, he is better than all these other candidates in the eyes of mainstream media pundits.

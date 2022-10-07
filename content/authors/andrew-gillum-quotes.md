@@ -1,0 +1,53 @@
++++
+author = "Andrew Gillum"
+title = "Andrew Gillum Quotes"
+quotes_len = "47"
+description = "the best47 Andrew Gillum Quotes"
++++
+- In spite of the fact of my dad telling me that if I did well, I could go to the military, I said, 'No, I want to go to college.'
+- My challenge is that because I am not self-funding... I'm going out leaning on the generosity of everyday folks.
+- I'm raising three children. I'm teaching my kids what it means, the Golden Rule, to treat people like you want to be treated.
+- Florida wants to get married. We want to stop this every-two-year or every-four-year dating process where, in between those election cycles, investments in our state diminish.
+- We're going to expand access to health care by expanding Medicaid in my state.
+- DeSantis can do the bidding of big business and big lobbyists and Donald Trump and his divisive rhetoric. I'm going to be here to do the business of the people of the state of Florida. That's the job of the governor of this state.
+- I recognize out of the box that I am not the establishment candidate. There's nothing about me that would have anybody draw the conclusion that I am somehow preordained for anything.
+- Most people project onto you what they think you can do.
+- Of course you've got a low unemployment rate when people have got to work two and three jobs just to make ends meet.
+- If you're not at the table, you're on the menu.
+- I was literally sued - drug through court for two years by the NRA and the gun lobby - all because, in my city, we refused to repeal an ordinance which said you couldn't shoot guns in city parks.
+- I don't need a set of message board points to tell me that people are hurting in my state. I know it because I've lived it.
+- This is probably an asset that my wife hates, where you compartmentalize. Most times, I think it's an asset, where you can just sort of feel like you chop off one part of your brain to do the next thing that you've got to do.
+- I've got a mortgage, and we've got three kids we work hard to take care of. I believe that we deserve a seat at the table, too, to represent the voices of everyday people.
+- I am one of seven kids, number five of seven, and the first of my siblings to graduate from high school and the first to graduate from college.
+- I consider myself an activist who governs.
+- I'm going to stay true. I'm going to stay true to my values.
+- I actually believe that Florida and its rich diversity are going to be looking for a governor who's going to bring us together, not divide us. Not misogynist, not racist, not bigots.
+- Listen, if Donald Trump were the man you elected president, you'd probably be pretty depressed, too.
+- We fail to continue to talk to, to court, to engage our voters. And then we look up and expect our nominees to look up and go from 0 to 100 in a matter of two months to try to secure a victory.
+- I don't want to be that person who's looking squarely at the shortcomings in the process right where I sit and then choose to walk away and do nothing.
+- In the state of Florida, we've got a lot of issues. In fact, we've got 99 issues, and 'Hamilton' ain't one of them.
+- In the handbook of Donald Trump, they no longer do whistle calls - they're now using full bullhorns.
+- If I'm not the Democratic nominee, I'm gonna get out there and work for whoever the Democratic nominee is, because I believe they will be better than the alternative.
+- Florida A&M University was my first real introduction to politics as a heavyweight game.
+- I ran as a Democrat. I am a Democrat. And, frankly, the values that I hold, I think, are consistent with the values of the Democratic Party. In fact, I think they are the values shared by the majority of Floridians.
+- It's very clear that Mr. DeSantis is taking a page directly from the campaign manual of Donald Trump.
+- What Republican voters have shown us is that when they have the choice between the real thing and the fake one, they go with the real one every time.
+- I've been elected for 15 years without so much as a smidgen of a stain on my public record. I'm confident that I've done nothing wrong. Nothing unethical and nothing illegal.
+- If you want to own the power of God at your waist belt, you should have a background check. If you are a domestic violence abuser, convicted, you should not have a gun where you could snuff out the lives of your loved ones.
+- I'm never going to make apologies for trying to create a kind of society and a kind of community where my kids will be proud to grow up in.
+- When you tell the truth, you don't have to change your testimony.
+- I've endorsed 'Medicare for All' at the federal level. I do not believe a state can accomplish that on its own.
+- We cannot afford to weaponize race.
+- I'm black. I've been black all my life, and as far as I know, I'll die black.
+- People are entitled to their friendships, and we're all entitled to be disappointed by our friends when they disappoint us.
+- I have a very easy time saying no to friends.
+- Regular, everyday working people in my state recognize that communities are going to have crime. They know that. The question is what do communities do about it?
+- Get out there and vote like your lives depend on it.
+- If we really mean that people's votes are to be counted, the timelines ought to exist around what it takes to count every vote.
+- People do want to see themselves reflected. They'll never believe that Gwen Graham, Philip Levine, Chris King, or Jeff Greene will be a better representative of their interests than I will be.
+- It's really interesting when I go into a community where they haven't seen me before because I often get, 'I didn't know you were black.'
+- The job of the governor of the state of Florida is to do what is in the best interest of the people of the state of Florida.
+- I do know that I don't want to see anybody legitimately have the excuse that they are not voting because their votes don't count. That can't happen - whether I'm the one impacted by that vote or not.
+- I'm not calling Mr. DeSantis a racist. I'm simply saying the racists believe he's a racist.
+- The polls tell us something, but they don't tell us everything. They don't tell us how people are going to show up on Election Day.
+- I'm not going to get down in the gutter with DeSantis and Trump - there's enough of that going on.

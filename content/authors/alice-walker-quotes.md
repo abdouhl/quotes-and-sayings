@@ -1,0 +1,225 @@
++++
+author = "Alice Walker"
+title = "Alice Walker Quotes"
+quotes_len = "219"
+description = "the best219 Alice Walker Quotes"
++++
+- Nobody is as powerful as we make them out to be.
+- We must, I believe, start teaching our children the sanity of nonviolence much earlier.
+- Creation is a sustained period of bliss, even though the subject can still be very sad. Because there's the triumph of coming through and understanding that you have, and that you did it the way only you could do it. You didn't do it the way somebody told you to do it.
+- Women have to be extremely careful about choosing something that they consider an act of defiance that can really be used to further their enslavement.
+- I realized I was a country person - I'm just not used to small spaces.
+- What's really hard is that you could care a lot for someone and not want to live with him anymore.
+- I'm not lesbian; I'm not bisexual; I'm not straight. I'm just curious.
+- We must do everything in our power to cease the behaviour that makes children everywhere feel afraid.
+- I deeply regret any harm, or any perceived harm, that I may have done to anyone by any behaviour of mine.
+- My parents were both storytellers. They always spoke with metaphorical richness.
+- I was brought up to try to see what was wrong and right it. Since I am a writer, writing is how I right it.
+- Life is better than death, I believe, if only because it is less boring, and because it has fresh peaches in it.
+- Howard Zinn was magical as a teacher. Witty, irreverent, and wise, he loved what he was teaching and clearly wanted his students to love it, also.
+- It's not possible to stop love.
+- How simple a thing it seems to me that to know ourselves as we are, we must know our mothers names.
+- Part of our tradition as black women is that we are universalists. Black children, yellow children, red children, brown children, that is the black woman's normal, day-to-day relationship. In my family alone, we are about four different colors.
+- I think it pisses God off if you walk by the color purple in a field somewhere and don't notice it.
+- A good model of how to 'work with the enemy' internally is presented by the Dalai Lama, in his endless caretaking of his soul as he confronts the Chinese government that invaded Tibet.
+- I'm still living at least five parallel lives, honestly! I wonder about it. I have no idea how that happens.
+- It's very hard for our parents who see us enter a world that they can't imagine.
+- I think we have to own the fears that we have of each other, and then, in some practical way, some daily way, figure out how to see people differently than the way we were brought up to.
+- My parents taught me service - not by saying, but by doing. That was my culture, the culture of my family.
+- I see children, all children, as humanity's most precious resource, because it will be to them that the care of the planet will always be left.
+- People really had a problem with my disinterest in submission. They had a problem with my intellect, and they had a problem with my choice of lovers. They had a problem with my choice of everything.
+- Language is an intrinsic part of who we are and what has, for good or evil, happened to us.
+- In nature, nothing is perfect and everything is perfect. Trees can be contorted, bent in weird ways, and they're still beautiful.
+- You have to give others the opportunity to love who you love. If they don't accept it, it's their loss.
+- Israel is guilty of apartheid and persecution of the Palestinian people, both inside Israel and also in the Occupied Territories.
+- The experience of God, or in any case the possibility of experiencing God, is innate.
+- So many killings of black men in my lifetime. The physical shock is astounding.
+- There are those who believe Black people possess the secret of joy and that it is this that will sustain them through any spiritual or moral or physical devastation.
+- Any God I ever felt in church I brought in with me.
+- We should not look down on our first ancestors.
+- I think that wealthy white people would like to have a country that resembles the Fifties, when all the minorities were tucked away in ghettos and paid in very low wages but on the surface it was very bright and shiny and free and the rest of the world would look on it longingly.
+- Fiction is such a world of freedom, it's wonderful. If you want someone to fly, they can fly.
+- I wanted in my lifetime to vote for a radical Native American woman, since my vision of any future that we might have is that it will be led by women and older women.
+- I cannot claim to have had a hard time publishing.
+- I consider the fact that thousands of children die each day from starvation and a lack of medicine a crisis for humanity and a problem we must collectively attempt to solve.
+- I think that all people who feel that there is injustice in the world anywhere should learn as much of it as they can bear. That is our duty.
+- In my work and in myself I reflect black people, women and men, as I reflect others. One day even the most self-protective ones will look into the mirror I provide and not be afraid.
+- I grew up in the South under segregation. So, I know what terrorism feels like - when your father could be taken out in the middle of the night and lynched just because he didn't look like he was in an obeying frame of mind when a white person said something he must do. I mean, that's terrorism, too.
+- It is important to remember yourself.
+- In search of my mother's garden, I found my own.
+- I'm tri-racial: African-American, Native American and Euro - that's the Scotch-Irish part.
+- Nobody has ever convinced me that race is real.
+- I'm not convinced that women have the education or the sense of their own history enough or that they understand the cruelty of which men are capable and the delight that many men will take in seeing you choose to chain yourself - then they get to say 'See, you did it yourself.'
+- Women have to summon up courage to fulfill dormant dreams.
+- The trouble with our people is as soon as they got out of slavery they didn't want to give the white man nothing else. But the fact is, you got to give em something. Either your money, your land, your woman or your ass.
+- I have fallen in love with the imagination. And if you fall in love with the imagination, you understand that it is a free spirit. It will go anywhere, and it can do anything.
+- When I was 18, I went to the Soviet Union. I kept hearing that America was planning to bomb them - lots of bombs were going to come down on these people. I went there not knowing anything, except that I thought the whole thing was stupid and that I wanted to see who these people were that we were going to bomb.
+- Anybody can observe the Sabbath, but making it holy surely takes the rest of the week.
+- It is because I recognize the brutality with which my own multi-branched ancestors have been treated that I can identify the despicable, lawless, cruel, and sadistic behavior that has characterized Israel's attempts to erase a people, the Palestinians, from their own land.
+- All History is current; all injustice continues on some level, somewhere in the world.
+- My work is about my life, and what I want to do with it.
+- I know from having had a child, and from having been a child myself, that children will copy you.
+- War contributes greatly to global warming, which shouldn't surprise us. All those bombs going off, all those rockets, all those planes and helicopters. All that fuel of various kinds being used. It pollutes the air and water of this very fragile and interconnected planet.
+- I met Howard Zinn in 1961, my first year at Spelman College in Atlanta. He was the tall, rangy, good-looking professor that many of the girls at Spelman swooned over.
+- I think the foundation of everything in my life is wonder.
+- The animals of the world exist for their own reasons. They were not made for humans any more than black people were made for white, or women created for men.
+- I'm very disappointed in Obama. I was very much in support of him in the beginning, but I cannot support war. I cannot support droning. I cannot support capitulating to the banks.
+- One child must never be set above another, even in casual conversation, not to mention in speeches that circle the globe.
+- People tend to think that life really does progress for everyone eventually, that people progress, but actually only some people progress. The rest of the people don't.
+- The dropping of bombs on people - isn't that terrorism?
+- If you deny people their own voice, you'll have no idea of who they were.
+- For in the end, freedom is a personal and lonely battle; and one faces down fears of today so that those of tomorrow might be engaged.
+- My life is not to be somebody else's impact - you know what I mean?
+- The most common way people give up their power is by thinking they don't have any.
+- And so our mothers and grandmothers have, more often than not anonymously, handed on the creative spark, the seed of the flower they themselves never hoped to see - or like a sealed letter they could not plainly read.
+- My interest in creating anything is that it be useful.
+- I've always felt quite singular, even as a child. That I must stay on track to keep my purpose.
+- A people do not throw their geniuses away. And if they are thrown away, it is our duty as artists and as witnesses for the future to collect them again for the sake of our children and, if necessary, bone by bone.
+- I don't have this feeling that 70 is really old.
+- I just think cities are unnatural, basically. I know there are people who live happily in them, and I have cities that I love, too. But it's a disaster that we have moved so far from nature.
+- It's an awful feeling to write something that you feel is really important... and to feel that you're being published by people who really don't get it and/or don't really care.
+- I just feel that 'The Color Purple,' which was my 10th book, was a true gift from my ancestors.
+- I prefer to praise people and the world rather than criticize them and it.
+- As you know from school, it's when you have not prepared for the test that you have the fear of failing. And if you have prepared, even if you fail, you've done your best.
+- As long as the people don't fear the truth, there is hope. For once they fear it, the one who tells it doesn't stand a chance. And today, truth is still beautiful... but so frightening.
+- I understood at a very early age that in nature, I felt everything I should feel in church but never did. Walking in the woods, I felt in touch with the universe and with the spirit of the universe.
+- Part of what confuses people in times of upheaval is that you're getting so many different points of view and directions and so and so, how to do this and do that. And a lot of it is written in a language that honestly most people cannot understand.
+- I never have an intended audience. I just write, you know.
+- People do not wish to appear foolish; to avoid the appearance of foolishness, they are willing to remain actually fools.
+- Fear is real, but so is love.
+- You know, one race will not be a survivor if the other one dies, and that's something that we should think about.
+- Politically, the world is so confused right now - there's so much suffering caused by various movements by various parties and people in power in government.
+- I don't feel I've had a decent critic ever on the East coast.
+- Once you feel loved by the universe, you're already accepted, and you're not really concerned about offending people.
+- I think America has always been polarized.
+- In South Korea, they believe that when you turn 60, you've become a baby again and the rest of your life should be totally about joy and happiness, and people should leave you alone, and I just think that that's the height of intelligence.
+- I'm entirely interested in people, and also other creatures and beings, but especially in people, and I tend to read them by emotional field more than anything. So I have a special interest in what they're thinking and who they are and who's hiding behind those eyes and how did he get there, and what's the story, really?
+- At Sarah Lawrence, I realized that everybody was already what they were going to be. The painters were painting, the writers writing, the dancers dancing. And nobody wore any makeup. The art was uppermost.
+- I see myself in all the people in the world who are suffering and who are very badly treated and who are often made to feel that they have no place on this Earth.
+- It no longer bothers me that I may be constantly searching for father figures; by this time, I have found several and dearly enjoyed knowing them all.
+- I have a collective sense of suffering.
+- What the mind doesn't understand, it worships or fears.
+- Some people are painters, and some are ballet dancers, and I'm a writer.
+- I think there is a sense of being forced at this time to look at America's really large shadow and that's not all that bad.
+- How long will it take the citizens of the United States, one wonders, to recognize that the house their country bombed in Iraq is the same one they were living in until it was foreclosed?
+- I think Americans generally are not used to working very hard, in terms of working for the collective. I think in our country we have taken individualism to its farthest reaches, possibly.
+- No person is your friend who demands your silence, or denies your right to grow.
+- To me, the black black woman is our essential mother, the blacker she is the more us she is and to see the hatred that is turned on her is enough to make me despair, almost entirely, of our future as a people.
+- I made my first white women friends in college; they loved me and were loyal to our friendship, but I understood, as they did, that they were white women and that whiteness mattered.
+- You cannot see the changes that you're dreaming about, because they're internal.
+- I can imagine in years to come that my papers and memorabilia, my journals and letters, will find themselves always in the company of people who care about many of the things I do.
+- Expect nothing. Live frugally on surprise.
+- We have to wake up. We have to refuse to be a clone.
+- Helped are those who create anything at all, for they shall relive the thrill of their own conception and realize a partnership in the creation of the Universe that keeps them responsible and cheerful.
+- If we want to fight people in the world, we should fight them with pillows - pillows stuffed with food, medicine, music... That would be so much cheaper than bombs.
+- I think writing really helps you heal yourself. I think if you write long enough, you will be a healthy person. That is, if you write what you need to write, as opposed to what will make money, or what will make fame.
+- Well, I think indigenous peoples have ways of living on the Earth that they've had forever. And they've been overrun by organized religion, which has had a lot of money and power.
+- Life is abundant, and life is beautiful. And it's a good place that we're all in, you know, on this earth, if we take care of it.
+- Sexuality is one of the ways that we become enlightened, actually, because it leads us to self-knowledge.
+- Artists have a responsibility to speak and to act when governments fail, and if we don't do that, we really deserve the world we get.
+- The fact is that when you do something from your heart, you leave a heart print.
+- We must begin seeing other creatures as equal. Existence makes us all equal.
+- We should learn to accept that change is truly the only thing that's going on always, and learn to ride with it and enjoy it.
+- For a long time, I thought I was ugly and disfigured. This made me shy and timid, and I often reacted to insults that were not intended.
+- Can people who hunger so desperately for what other people have ever have enough?
+- My mother says I was writing before I was crawling. I wrote in the dirt with a twig.
+- For me, I used to be shy towards journalism because it wasn't poetry. And then I realized that the events that I covered in essays that became journalism were actually great because they inspired me, and they became my muse.
+- I think all documentaries leave out areas of people's lives. Which is good. There are areas that need not be explored.
+- I think many people in my community had very different kinds of mothers: they had mothers who acquiesced in the system of male and white-supremacist domination, and my mother never did. She just could not do it. It just wasn't in her.
+- I started out as a poet. I've always been a poet since I was 7 or 8. And so I feel myself to be fundamentally a poet who got into writing novels.
+- From infancy, I have relied on the fiercely sweet spirits of black men; and this is abundantly clear in my work.
+- At one point I learned transcendental meditation. This was 30-something years ago. It took me back to the way that I naturally was as a child growing up way in the country, rarely seeing people. I was in that state of oneness with creation and it was as if I didn't exist except as a part of everything.
+- As an elder of the Americas and of the rest of the planet, it is my responsibility to care for and protect, to the best of my ability, the young.
+- It's so clear that you have to cherish everyone. I think that's what I get from these older black women, that every soul is to be cherished, that every flower Is to bloom.
+- Since the time of the witch burnings, the grandmothers and the healers and the midwives have been systematically targeted. And burned at the stake for hundreds of years, decimating whole communities.
+- It is crucial that young people are taught sustainable child production and rearing.
+- I feel very happy to be living in Berkeley because there are a lot of people who are politically active here.
+- When I joined the freedom movement in Mississippi in my early 20s, it was to come to the aid of sharecroppers, like my parents, who had been thrown off the land they'd always known - the plantations - because they attempted to exercise their 'democratic' right to vote.
+- Never be the only one, except, possibly, in your own home.
+- I don't know if I've ever cared much what others think.
+- One of the triumphs of the Civil Rights Movement is that when you travel through the South today, you do not feel overwhelmed by a residue of grievance and hate.
+- I just like to have words that describe things correctly. Now to me, 'black feminist' does not do that. I need a word that is organic, that really comes out of the culture, that really expresses the spirit that we see in black women. And it's just... womanish.
+- My mother was very strong. Once, she picked up a coconut and smashed it against my father's head. It taught me about women defending themselves and not collapsing in a heap.
+- Is solace anywhere more comforting than that in the arms of a sister.
+- I can be almost terminally grief-stricken because things are so dire, but at the same time, there's a real lightheartedness about just the recoverability of life, of how things change, how they're not the same, ever again.
+- Meditation has been a loyal friend to me. It has helped me write my books.
+- It is natural to want to have a future.
+- Tea to the English is really a picnic indoors.
+- I have learned not to worry about love; but to honor its coming with all my heart.
+- I never talk about my next project.
+- I don't call myself a Buddhist. I'm a free spirit. I believe I'm here on earth to admire and enjoy it; that's my religion.
+- The gift of loneliness is sometimes a radical vision of society or one's people that has not previously been taken into account.
+- My family was a poor farming family, and we lived under absolute segregation.
+- It's a tragedy, in a way, that Americans are brought up to think that they cannot feel for other people and other beings just because they are different. They think they're different. It's very limiting.
+- People have so many hang-ups about how other people live their lives. People always want to keep you in a little box, or they need to label you and fix you in time and location.
+- Part of my ancestry is Cherokee. And in that tradition, you become an adult when you're 52.
+- I was distressed that after 9/11, when the United States was attacked by terrorists, the United States' response was to attack Afghanistan, where some of the terrorists had been.
+- In the summer of 1966, I went to Mississippi to be in the heart of the civil-rights movement, helping people who had been thrown off the farms or taken off the welfare roles for registering to vote. While working there, I met the civil-rights lawyer I later married - we became an interracial couple.
+- If you want to have a life that is worth living, a life that expresses your deepest feelings and emotions and cares and dreams, you have to fight for it.
+- Yes, Mother. I can see you are flawed. You have not hidden it. That is your greatest gift to me.
+- It is justice and respect that I want the world to dust off and put - without delay, and with tenderness - back on the head of the Palestinian child. It will be imperfect justice and respect because the injustice and disrespect have been so severe. But I believe we are right to try.
+- I believe you mother everybody, not in a cloying, hovering way, but taking care of what is around you.
+- Even with all of the things that are so awful, if you walk into your yard and stay there looking at almost anything for five minutes, you will be stunned by how marvelous life is and how incredibly lucky we are to have it.
+- Poetry is the lifeblood of rebellion, revolution, and the raising of consciousness.
+- I want the Israeli government to be made accountable for its behaviour to the Palestinians, and I want the people of the U.S. to cease acting as if they don't understand what is going on.
+- David Icke reminded me of Malcolm X.
+- June Jordan, who died of cancer in 2002, was a brilliant, fierce, radical, and frequently furious poet. We were friends for thirty years. Not once in that time did she step back from what was transpiring politically and morally in the world. She spoke up, and led her students, whom she adored, to do the same.
+- I'm sure we, the American people, are the butt of jokes by those in power.
+- I continue to care for President Obama and for his family. I think that in many ways they are very courageous people, and I honor that, because I know what it means to live as a black person in a racist America.
+- I love the natural world - it comes from my culture, which grew out of a people enslaved.
+- You bring children into the world. You love them with heart and soul.
+- I don't generally read reviews.
+- All partisan movements add to the fullness of our understanding of society as a whole. They never detract; or, in any case, one must not allow them to do so. Experience adds to experience.
+- I love us so incredibly, insanely deeply; it's almost unbearable to see what we do to ourselves.
+- You don't always have to be doing something. You can just be, and that's plenty.
+- I think war is so incredibly backward, and I don't think it's intelligent, and it's not sane. So why would you want to support it?
+- Most damage that others do us is out of fear, humiliation and pain. Those feelings occur in all of us, not just in those of us who profess a certain religious or racial devotion.
+- I have such respect for 'Democracy Now!'
+- My mother had bought a sewing machine for me. When I went away to college, she gave me a sewing machine, a typewriter and a suitcase, and my mother made $17 a week working as a maid 12 hours a day, and she did that for me.
+- I'm for women choosing whatever they want to do but they have to really know what they are doing.
+- 'Fame' exhausts me.
+- This is a wonderful planet, and it is being completely destroyed by people who have too much money and power and no empathy.
+- I love the women's movement, and I never thought of it as belonging to any particular segment of the population.
+- We must, all of us, learn actually not to have enemies, but only confused adversaries who are ourselves in disguise.
+- Sucking up to the biggies won't get us anywhere.
+- I know black people love the idea that we finally have a beautiful, good-looking black president. But if he is doing awful things to us, we should wake up.
+- I think 'The Color Purple' is so bursting with love, the need for connection, the showing of the need for connection around the globe.
+- Well, capitalism is a big problem, because with capitalism you're just going to keep buying and selling things until there's nothing else to buy and sell, which means gobbling up the planet.
+- It is healthier, in any case, to write for the adults one's children will become than for the children one's 'mature' critics often are.
+- For me, writing has always come out of living a fairly to-the-bone kind of life, just really being present to a lot of life. The writing has been really a byproduct of that.
+- Propaganda is amazing. People can be led to believe anything.
+- I live on the West Coast of the United States, and yet the air that I breathe is sometimes the same air that was being breathed in China the day before.
+- Us sing and dance, make faces and give flower bouquets, trying to be loved. You ever notice that trees do everything to git attention we do, except walk?
+- Clearly older women and especially older women who have led an active life or elder women who successfully maneuver through their own family life have so much to teach us about sharing, patience, and wisdom.
+- Many readers fail to realize this, but 'The Color Purple' is a theological text. It is about the reclamation of one's original God: the earth and nature.
+- The most important question in the world is, 'Why is the child crying?'
+- There's an ecstatic side to writing. It's like jazz. It just has a life.
+- The infinite faith I have in people's ability to understand anything that makes sense has always been justified, finally, by their behavior.
+- The quietly pacifist peaceful always die to make room for men who shout.
+- I started writing as a child. But I didn't think of myself actually writing until I was in college. And I had gone to Africa as a sophomore or something - no, maybe junior - and wrote a book of poems. And that was my beginning. I published that book.
+- 'Thank you' is the best prayer that anyone could say. I say that one a lot. Thank you expresses extreme gratitude, humility, understanding.
+- I have never felt that the one thing that I am 'known for' is what I am.
+- Don't wait around for other people to be happy for you. Any happiness you get you've got to make yourself.
+- Deliver me from writers who say the way they live doesn't matter. I'm not sure a bad person can write a good book, If art doesn't make us better, then what on earth is it for.
+- I start each book when it's ready and never before.
+- Writing saved me from the sin and inconvenience of violence.
+- Some writers sit down without a thought of what they are going to say, and they go through draft after draft.
+- I gave my archive to Emory University because there's a really dear friend who teaches there, Rudolph Byrd, and he's the editor.
+- Human beings may well be unable to break free of the dictatorship of greed that spreads like a miasma over the world, but no longer will we be an inarticulate and ignorant humanity, confused by our enslavement to superior cruelty and weaponry.
+- Sometimes, reading a blog, which I do infrequently, I see that generations of Americans have been wilfully crippled, and can no longer spell or write a sentence.
+- There are thousands of Palestinians in prison virtually for no reason.
+- I try to teach my heart not to want things it can't have.
+- America is not nearly done. We're only in the beginning. Who knows who we will be? Who knows... what color we will be? It is all something that, maybe, our descendants - if they survive that long - will see.
+- I think that I do feel that my nature is to express what this self, this particular self at this time, experiences in the world. And that is so organic - I use this metaphor a lot but I'll use it again - it's like a pine tree producing pine cones, or a blackberry bush producing blackberries - it's just what happens with this being, now.
+- I think the War on Terror is really absurd, especially coming from a country that is founded on terrorism.
+- I cry so much less than I used to. I used to be one of the most teary people.
+- I advocate that every woman be a part of a circle, and a circle that meets at least once a month, or if you can't do that, once every two months or every four months.
+- I live a very secluded life, a very contemplative life and a very meditative one. That is my ideal life.
+- On a spiritual level, it's as though with my sighted eye I see what's before me, and with my unsighted eye I see what's hidden. It's illuminated life more than darkened it.
+- As far as a glass ceiling, I feel that all you can do is give it your absolute best with whatever gifts the universe has given you. And if you make it in some way that other people can recognize, that's fine. But even if you don't quote-unquote make it, you're fine if you've given it your whole heart and soul.
+- Horses make a landscape look beautiful.
+- I used to meditate all the time in bed. That was when I was raising my daughter, and I'd get her up and off to school, and then I would go back to bed and meditate. And then I would do the same in the evening, and that was very good for that period because I had so many things to juggle as a single mother.
+- You know how big love is? Love is big. love can hold anger; love can even hold hatred.
+- I'm the most stubborn person I know.
+- Womanist is to feminist as purple is to lavender.
+- I can easily imagine Obama sitting down and talking to any leader - or any person - in the world, with no baggage of past servitude or race supremacy to mar their talks.

@@ -1,0 +1,73 @@
++++
+author = "Amy Heckerling"
+title = "Amy Heckerling Quotes"
+quotes_len = "67"
+description = "the best67 Amy Heckerling Quotes"
++++
+- I'm obsessed with history, especially WWII and the Jews in Europe during the Holocaust.
+- The building in the Bronx where I grew up was filled with mostly Holocaust survivors. My two best friends' parents both survived the camps. Everyone in my grandparents' building had tattoos. I'd go shopping with my grandparents, and the butcher, the baker, everybody in the whole neighborhood had tattoos.
+- When I first got my driver's license, I was hit by a drunk driver. He was coming off of a freeway, and I was hurt pretty badly from somebody driving really fast.
+- I wasted most of my 20s being so frustrated I forgot to have fun. I was so concentrated on one thing - 'Must make movie.'
+- NYU was my comfort zone.
+- I still find it interesting that there could be a point between a young guy and a girl when they decide to hold hands as they walk down the block. At some point, they decide to make the leap from pushing and insulting each other to doing something tender and possessive and showing the world that.
+- I know I mispronounce things constantly, because maybe I read more than I talk, but I don't know the proper way to say a lot of things, even though I know what they are. But then I know I look like a moron.
+- I spent my entire youth in front of a TV watching old movies, and as soon as I was able to get a subway pass, when I was 14, I joined the Museum of Modern Art and was there all weekend watching old movies.
+- I get offered: 'Here's a girl who's mad at another girl for having a wedding on the same day.' That'll be a big hit, but I don't want to do that.
+- A teenager has to decide what they're going to do with their life, and that's one of the most important decisions that you'll make.
+- I like being able to tape things and then having them home waiting for you, but just dealing with the Time Warner Cable people will drive you insane.
+- To tell you the truth, in the old Jewish shtetls, if your husband died, sometimes they'd have you marry the brother, and my grandparents were actually stepbrother and stepsister.
+- Some women are great, and you wouldn't have been able to get to where you are without them, and others are doing what they can to undermine you.
+- Over-the-knee socks remind me of the 1920s, silent films, and the stars of the era who wore the rolled-down stockings. They sort of referenced that in 'Cabaret,' when Liza Minnelli was singing 'Mein Herr,' and I love the way she looks in that scene.
+- I was in a special class, where you skip a grade - you go from seventh to ninth. But I got kicked out. You had to maintain an 85 average, and I didn't. I was too focused on trying to be popular.
+- Body image - what we're supposed to look like - is made so unattainable that all girls are put in this position of feeling inferior. That's a horrible thing.
+- I wanted to do something in the style of a comedy of manners.
+- I'd rather see what young people are going through than see things explode.
+- I always get hats but never have the nerve to wear them. Hats are a thing that are really stylish, but you have to have the confidence to pull it off.
+- The Bronx always seemed very dreary to me.
+- It definitely sharpened my interest in language, the way people used language, slang words, speech patterns. There's a big advantage to being the outsider.
+- I just wanted to do something about the teenage experience; it's such a wonderful and horrible time of life.
+- Unfortunately, if you're going to say anything that's in your head, you're going to get some kickback.
+- When you have somebody writing or acting for you, you have to be free to have them hate you so you can get your ideas across without worrying.
+- In Hollywood, whenever you do anything, it seems like there's going to be 30 of them. When I did 'Look Who's Talking,' people went: 'Oh but there's going to be this baby movie and that baby movie.' I can't worry about that. I can only do what I want to do.
+- Sometimes people say, 'Oh you did one of my favorite movies,' and I will ask them what the other one is, and it's always something that I totally hate.
+- In one respect, I like the freedom of using all the people that I love instead of being dictated by the studio to use the hot person of the moment.
+- There's something you do when you're completely confident that just can't be replicated when you know you're doing something wrong.
+- I attended Art & Design High School, and at one point, you had to write about what you wanted to be when you grew up. I wrote that I wanted to be a writer for 'Mad' magazine.
+- I really live in my own kind of universe.
+- I'm real excited by a phone where I can look at my kid and talk to her face.
+- Hollywood is the dream factory, and no one dreams about older women.
+- In junior high, I really wanted to be popular. Suddenly there were parties with boys, and I wanted to be part of that. There was a group of girls, and I wanted to be friends with them.
+- Teens are the target demographic for everything in pop culture.
+- I don't know what goes on behind my back... I always feel like, if you don't have anything good to say, then don't say anything.
+- I've always tried to figure out what people think of themselves and what they think they're projecting.
+- Bitterness is so ugly.
+- I hope they remake 'Look Who's Talking' - then I'd make some money!
+- The way things have changed. The pictures in the womb they have now. They're just amazing. They're just like a snapshot of a person.
+- After Gmail, if you have AOL, people are like, 'Are you still with this?' What does it matter what e-mail you have?
+- There was one vampire movie that Gerard Butler was in, 'Dracula 2000,' and they touched on something interesting, but it only worked in the context of that particular movie, which was that the original vampire was Judas.
+- For me, New York is home because that's where I'm from.
+- Everybody who worked in film misses holding pieces of film, holding it up to the light, and seeing exactly where something was image-wise.
+- A lot of my movies were completely destroyed by the censors, who can be pretty arbitrary. They're not completely fair with how they treat one person vs. another.
+- With electronics, they just get smaller and smaller.
+- If you look at all the pictures of women in magazines, everybody's got a forehead that looks like a billboard. Completely blank.
+- Bitterness is so ugly. I don't want to go there.
+- Any time I wind up in the lane where you can't quickly turn off of it and it's turning into the freeway, I just start screaming until I'm off of it.
+- For my money, the movies of the '70s were just amazing.
+- I can't stomach most of the movies about women.
+- There's a whole vampire community online - those are some crazy people.
+- I've always hated the way Hollywood has portrayed accountants. They're always little nerd balls, wimpy, afraid of everything. Growing up with accountants, I don't see them that way.
+- I don't think people know 'Nosfuratu.'
+- There are a lot of people in Beverly Hills who come from the Middle East, who are very much a part of the Beverly Hills fabric, and their kids grew up with the privileges of Beverly Hills. And yet they still have to deal with a lot of the prejudice against them for being foreign-born.
+- I'm just not happy with Hollywood.
+- Babies don't need fathers, but mothers do. Someone who is taking care of a baby needs to be taken care of.
+- I wanted to do something about a really optimistic character: a character who was so optimistic, no one could burst her bubble.
+- When new things come along, some people always want the newest of the new - 'This is what I've been waiting for!' - and some people don't want or need the change - 'I like my old one.'
+- Everything you try to do in life, of any value, people are going to be saying, 'No, no, no.' You have to have the ability to not see that or hear that.
+- When I was 20, I had these furrowed lines between my brows because I was always angry. And I was 20. I don't think that was a mark of age; it was just my personality.
+- Blood probably tastes like salty water, right?
+- When I did 'Fast Times,' I felt very close emotionally to the characters. I liked those characters because they all had to work, so they were dealing with adult problems even though they were very immature, and I could relate to that.
+- I wasn't bat mitzvahed.
+- I sometimes think it's better to go with a bad movie that is true to a certain point of view than to take something and make people try to like it when they're not supposed to.
+- I went to art and design high school with a lot of people taking fashion. They would get up in the morning, and what they put on meant a lot to them.
+- I didn't go to Hebrew school.
+- You could go out with a camcorder tomorrow and make a movie with virtually no money, but promoting a tiny low-budget movie costs $20 million. And the money they spend on the big movies is astronomical.

@@ -1,0 +1,33 @@
++++
+author = "Anthony Pratt"
+title = "Anthony Pratt Quotes"
+quotes_len = "27"
+description = "the best27 Anthony Pratt Quotes"
++++
+- I believe in the difference that a man or woman can make at the top of an organisation. Once you have a really good guy in place at the top, the next most important thing is continuity of management as opposed to a revolving door.
+- The Second Green Revolution, as the world's population grows to over 9 billion by 2050, is the new revolution we have to have to lift food production by another 75 percent.
+- My company in the U.S., Pratt Industries U.S.A., has grown from scratch to become a billion-dollar business based on recycling, as well as the largest Australian-owned employer of U.S. citizens.
+- Private is our DNA, in my DNA. It enables us to make decisions for the long term.
+- Accelerated depreciation helps companies bring forward capital-intensive investments by reducing payback time. It's not a hand out. Companies still have to pay the tax, but they simply get to defer it.
+- My faith in the economic potential of the low carbon economy is not an untested prediction.
+- High-profile industry disruptions such as steel or car plant closures attract much media and political attention.
+- I like to do things that you need to chip away at.
+- Producing clean energy from non-recyclable waste is an important part of my future vision for family company Visy Australia.
+- My vision for Visy Tumut is not only to keep our position as an example of world's sustainable manufacturing, but to build on it.
+- When a raw food becomes processed food, it can be best valued, protected, stored, and safely delivered to customers.
+- We can bring together rich natural resources, innovative research and development, smart investors, and risk-taking farming and manufacturing entrepreneurs.
+- I have a dream that in the not-too-distant future, Visy Tumut will spend around $100 m to expand our clean energy generation here and take in additional waste forest wood to generate clean renewable energy and sell it into the power grid.
+- I think Australia is just a great place to bring up a family.
+- I am very proud of being Jewish. I went to a Jewish school all my life.
+- Ultimately, innovation depends on the people with advanced skills who have the ideas, and on the business risk-takers willing to back them.
+- I believe we have the potential to quadruple Australia's food exports to Asia.
+- We were in recycling before recycling was cool.
+- When we sell paper in Asia, we sell them things such as their corrugator rolls as well as paper.
+- New Zealand's food and beverage industry is the lynchpin of the country's prosperity. Which may explain why it has concentrated their governments' minds.
+- I love Australia. I love the people there; they are fantastic. The business opportunities are endless.
+- In my view, helping to feed a hungry world is Australia's greatest responsibility and opportunity in the 21st century.
+- Food manufacturing is an ideal candidate for targeted accelerated depreciation because the food industry, our biggest industry, creates significant flow-on benefits.
+- Only 10 per cent of food grown in India is processed. So the best way to reduce food waste and maximise calorie delivery is to increase that ratio of processed food to total food.
+- My policy in America is, 'Steady growth is forever.'
+- I'm proud we have built a billion-dollar business from scratch here in the US. It has been done very much in a slow, building way. It wasn't an instant type of thing. America is a huge market where persistence is very important, and I am a builder by nature.
+- Australia is a resource-rich nation. We have been good at exploiting our minerals base and agricultural sector for exports.

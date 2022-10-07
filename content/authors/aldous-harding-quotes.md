@@ -1,0 +1,81 @@
++++
+author = "Aldous Harding"
+title = "Aldous Harding Quotes"
+quotes_len = "75"
+description = "the best75 Aldous Harding Quotes"
++++
+- That's what I look for in music anyway: I want someone to confuse me to the point where I look inwards rather than at what they're doing.
+- There are very few things in the world that make me feel a feeling, really.
+- So, when I was eight or nine my mom's friend gave her a big purple bag full of cassettes and I found Seals and Crofts' 'Summer Breeze'... When I found it I stopped going through the bag because I was like, well, I'm not going to find anything better than this. I just thought it was the most beautiful thing I'd ever heard.
+- As a kid I remember being frightened all of the time, and kind of sad. I was certainly troubled. But a lot of people were, y'know? I don't really know how to measure my trouble against somebody else's.
+- I don't need to hide behind anything because I'm more comfortable with myself.
+- I don't really remember a lot of my childhood.
+- I made a commitment to myself that I'd stick at this and not let weakness in too quickly, that I'd do the best shows I could and make the best songs I can make.
+- I know exactly what my songs are about and I try not to tell people, because a friend of mine really loves 'Stop Your Tears' and I made the mistake of telling her what it's about one day. Now she has to distract herself and look elsewhere when I sing the last verse about being at the river with the baby, because she knows too much.
+- All I ever wanted to do was to do something interesting.
+- It's not a secret that I'm, like, 12 different people rolled into one. Like a lot of people are.
+- I enjoy doing the thing that I find interesting really well.
+- I think a bit of mystery is good, and I used to feel like an eccentric person pretending to be normal. But I am actually just a normal person seeming eccentric, by what I'm putting myself through.
+- I've always been, like a lot of people, driven by fear. Always focusing on the fire on the rope, as opposed to what the rope is coming from.
+- I spend... too much time... in my own head.
+- If someone says to me that 'Horizon' is an anti-feminist anthem, I have to tell them, 'No, that's not right.' But I'm not interested in unpicking my music for people. Everybody has different reference points.
+- If you want to do this, you've got to last. You've got to be well enough to carry your ideas. I'm not saying I've got great ideas, but if I do I need to be able to deliver them.
+- I'm optimistic but I'm also not stupid.
+- I like reading things where someone's looked at what I do with some honesty, and maybe been challenged by it, and they have something to say that shows they've thought about it, even if they don't necessarily like it.
+- With some things, it's not that I like doing them; it's more that I like having done them. I like to look back and see that I've made a nice thing.
+- Probably when I was about 16 or 17 I started writing. I wouldn't call it poetry, even though I've referred to it as poetry a couple times. But I don't think that's right. It was more scribblings and stream of consciousness.
+- I'm So Sorry' is probably one of my favorite songs that I've written... I wrote it very quickly and confidently. And then I didn't question it.
+- When I was making my first record, I think I felt slightly trapped by my mind and my genre. I think in one way, that archaic language I was using came from a kind of mild obsession with the devil.
+- I had a little radio next to the bed and I'd just listen to the top 10 - I mean, it was crap but I was young - and I would get up in the dark with the moon coming in through the window and I would just dance in my pajamas in the dark to the top 10. I didn't have a CD player... so it was kind of all I had, you know?
+- I'm actually quite a shy person and it's becoming clearer to me. Sometimes I would like to disappear, maybe only for an hour.
+- It was definitely a really lovely thing for me, doing 'Jools.'
+- Wales is a lot like New Zealand.
+- I write songs for the same reasons most artists write songs -because I have to, whatever that means. Because I want to talk about myself or have demos that need to be sent off. I like doing it. It's my job and I like doing it. For the most part, it's pretty easy for me.
+- I'm one of those people who's always changing. There's nothing wrong with it but it means I am a hard person to hold onto, I guess.
+- When you're young and starting out, a lot of artists think they know exactly who they are. There are others who come out in someone else's skin. They learn to take it off bit-by-bit and work out the core of what they're trying to say.
+- The first song that I wrote that I was proud of was probably 'Hunter' from the first record. But I listen that now and I don't know. I mean, it's got a good hook, but still. I'm proud of it. I'm as proud as I can be of all the ideas, but I think 'Party' showed a maturity that I don't think I had on 'Aldous Harding.'
+- I think there's strength in seeing somebody who's not necessarily winning at life... to make something that makes people feel like they've won when they hear it.
+- I've got a bad rap for not being more charismatic between songs.
+- I don't think about why I do what I do, or why I started doing what I do, because I'm so obsessed with doing it right now, and what it means to me right now.
+- One of my least favourite gigs was a festival. There weren't many people there and they were all talking.
+- The 'Aldous Harding' record isn't easily placed because it wasn't trying to sound like anything. It was quite organic.
+- I really do feel like an unremarkable person trying really hard, openly, to do something interesting and to make something of value and pleasure.
+- I believe in myself enough to not get hung up on what other people are doing, or what I should be writing, or the nature of how I'm writing. I'm just able.
+- In my mind, I was never going to have the things I wanted if I played music for a living, unless I became a rock star.
+- I knew what I liked, but I was never really obsessed with filling my life with music.
+- I think about it as not so much 'I need to get it out of me,' it's not that my thoughts are poison, I just want to write good music.
+- I'm just focused on getting to the end of each show and feeling like we've done a good job when we walk off stage. And a perfect show isn't necessarily about making the audience feel good. I know I've done my job well if I've made people feel... interesting. I like to leave them a little stunned.
+- For like four or five months of my life I was too scared to like, move around and reach out for things because I was worried that I'd my hands would run into glass, like I could reach up and if I reached up and knocked on the air it would make a noise. I couldn't look at the sky because I was worried that I see a crack.
+- My head is full of songs I'm writing now, and things I am thinking now. I'm not very good at drawing on things that have happened, things I think might happen, or things I want to happen. I'm very much in right now.
+- I don't know a lot about art and music culture.
+- I don't have necessarily good taste. I have some really good taste and I have some really awful taste. I don't see the difference, because when you use them together they can work.
+- I'm not afraid to look stupid and I'm not afraid to look like I'm trying too hard.
+- I don't really like to talk about what my songs are about.
+- I'm not much of a fan-girl.
+- We've played quite a few festivals now. We can take care of it, no matter where we are.
+- We all want the same thing, love and acceptance. That's pretty much it. And what I've learned is that unless I'm happy with my side of the nickel, it can change violently - quickly.
+- It's funny. I change depending on what I'm around, and who I'm around. I've always been like that.
+- I am so much like my mother. When we're in a room together everybody always comments on how spooky it is. I would say I get most of the musicality from my mum - and my dad, but I think my dad is the poet, you know.
+- I find that comforting and an equally purposeful way to think, that there's lots of ways to flex both your strengths and your weaknesses.
+- I definitely have a stage persona. I don't walk around scowling at people too often.
+- If people say to me, 'So, what were you doing in Dubai in that song?' or they spend ages comparing me to some other singer, I just shut down, I guess.
+- You know, we've had some pretty rough festival stages.
+- My music's doing things, out there in the world, and that's a very positive feeling, you know? I haven't had a job I've been this good at or this excited about since I was a dog groomer!
+- It's been a very strong force for me over the years. I don't know exactly why. For some people, fear can be a very useful thing. They can use it to recognise there's something missing, and heal themselves. But fear can also destroy some people. I think I'm the first type of person. I'm pretty anxious, always thinking 'what if?' about the bad stuff.
+- I can be anything.
+- You should see my stepdad's face when he's lifting something. It's the scariest thing I've ever seen! So you can't expect, just because I'm a potentially pretty person, that I won't allow myself to try out emotional states that might make me look ugly to some people.
+- My family used to put on a small folk festival.
+- I like 'The Simpsons' like everybody else. But yeah - people think I'll always be super intense.
+- When it comes to a specific sound, I don't feel like there's something I need to worry about. I'd much rather do something creative and credible. Like, 'Who am I? What am I trying to say? What do I stand for?' I stand for all of it, because I feel all of it, like everybody.
+- Designer' is meant to mean whatever it means.
+- I'm definitely not above wanting to be liked. Because, I mean, that feels less... lonely? But to be honest, because it was never my dream, I live quite a pressure-less existence, y'know. And of course, that's not true, but it's partly true.
+- Because I'm a nobody, surely it's an interesting thing or a nice thing to see a nobody or just a regular person do things that makes you question your taste and feel things.
+- That was the biggest compliment that I can receive - making somebody wonder whether they have the problem, rather than what my problem is.
+- I want to be well enough to enjoy the things I've made.
+- I think people are particularly interested to see who the real me is, but... different stories call for different approaches and you change based on the experience you want that person to have.
+- I'm focused on my future. I'm ignoring my past, apart from the bits that I draw from to help me focus on my future.
+- I tend to overdo things.
+- Just like using an instrument, a song calls for different things.
+- I'm actually hilarious.
+- When I discovered metaphor and what it meant, I got really excited. That was what really pushed me through into music.
+- I'm trying to know who I am and be honest about it.

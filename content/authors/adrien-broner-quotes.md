@@ -1,0 +1,106 @@
++++
+author = "Adrien Broner"
+title = "Adrien Broner Quotes"
+quotes_len = "100"
+description = "the best100 Adrien Broner Quotes"
++++
+- Every fight for me is fun.
+- At six years old, I told my dad that I would be world champion, and on Nov. 26, 2011, I am.
+- I will never let another man disrespect me. I don't care if we sparring or fighting.
+- Adrian Granados is a world-class fighter. A lot of guys duck him, but I wanted to fight him because that's what I'm about.
+- I just learn from other people's mistakes.
+- I've been through so much in this game. I've been up. I've been down. It's the way I grew.
+- I'm taking over boxing.
+- School really didn't work for me.
+- It's a huge deal to have the chance to be a four-division world champion at 26 years old.
+- Listen, you can't just come in to boxing and be a world champion. You've got to be born with it.
+- My first world title fight, it surprisingly came so fast, but we knew it would come sooner or later.
+- You have people that know they have the talent, but sometimes they get scared when success is in their face.
+- Boxing is boxing and business is business.
+- Once someone sees me on TV, they always think that 'He is just a cocky brat,' but I am not. Once you get to sit down with Adrien Broner, you will fall in love with me.
+- I don't drink no more.
+- I'm a real animal. I'm an animal.
+- I've always been an underdog.
+- I feel like everything's got to be neat and everything's got to be right before I put on my performance, so I brush my hair.
+- The sky is the limit for me, but in boxing you have to take it one fight at a time.
+- I want to be the first boxer to generate a billion dollars.
+- At the end of the day, great champions can take a good loss and great champions can take a good win, just like they take a loss.
+- Power is nothing if you can't connect.
+- Anything is tough when you have a lot of things coming your way.
+- You gotta have some flash. Being a nice guy is cool and all, but to really make it in this game, you bring that extra quality.
+- I look up to Floyd Mayweather, but I don't try to be like Floyd Mayweather. He's done great things, he's a role model. But those who say I try to be Floyd can go kick rocks.
+- I don't go for knockout punches.
+- All my life I've been a show-off. Ever since first grade I was a clown, and even then I tried to entertain everyone.
+- What a lot of people don't understand is, you can't really do nothing for power - you're either born with it or you aren't.
+- People will always have their opinions on how hard you trained, especially when they only see you on fight night.
+- In the gym, we're always training hard, but when the fight comes, that's when it's fun. It's like a celebration. You go up there and celebrate what you've been working on.
+- Everybody's got their ways of doing things and for me I've got to stay fresh, fly and flashy. So I'm going to make sure I'm fresh, fly and flashy in the ring too.
+- Nobody can beat me.
+- I'm a man at the end of the day.
+- At the end of the day I'm still a four-time world champion at four different weight classes and I'll still be in the history books.
+- Boxing is all hard work. I don't care what level you're on.
+- Looking back at all of my defeats, the only real punishment that I've taken in this sport was against Maidana. I got a fractured jaw.
+- I'm thankful God really slowed me down and showed me, whatever he had gave to me, he can take it away.
+- I don't want the world to dislike me in any way.
+- There's times when you're by yourself and you want your girl around or your kids around. You just need somebody around. And other times, boxing makes you feel like you want to be by yourself. You get emotional. That's why after some wins, I cry. Even in my losses, I cry. Because I know how hard I work, and I always want to be victorious.
+- I always wanted to be a world champion, all my life. At 13, I told my mom I would be a world champion.
+- God puts you through things - steps in life - and you get over them.
+- I know how to work.
+- No matter if I'm in the ring or on the streets this is going to be Adrien Broner, so you either like it or love it. And if you like it or love it doesn't matter, I'm still going to be Adrien Broner.
+- I could probably go to 154.
+- To come to somebody's hometown and beat them on a split decision, that's saying something.
+- I am the person who is going to take over boxing after Floyd Mayweather.
+- I've already accomplished a lot, but I have so much more to do.
+- A lot of fighters have repetitive workouts.
+- I come from Cincinnati.
+- Maidana is one-dimensional and not in my league. I'm a Ferrari and he's a go-kart, and my fans will see that.
+- You can wear whatever you want to wear.
+- Maidana has to make me respect his power and his boxing skills.
+- I don't do anything different for any opponent. I just do me.
+- Every time I fought at home, I gave my fans a knockout. I spoiled my fan base in Cincinnati.
+- I'm a man at the end of the day and I come from the streets, the trenches, I came from nothing, water and cornflakes.
+- I don't like going into a clean gym. A gym is supposed to stink.
+- I can take over boxing with a win over Pacquiao.
+- Jessie Vargas is not as good as those guys I lost to.
+- I have no problems with gay men or gay women.
+- I really don't look at it as a real sport because anybody can come into MMA and learn that. You can learn that.
+- I hope I get credit when I beat Jessie Vargas. I hope I get the credit I deserve. People want me to lose and go away, but guess what? I worked harder than ever for this fight. I'm not losing to Jessie Vargas.
+- Any time I'm in the gym, I'm training my butt off.
+- I want to do things that no one has ever done inside the ring and outside the ring as a boxer and further my career in the entertainment business after I'm done with boxing.
+- After a tough day, I go eat some steak and potatoes and take a shower.
+- Boxing is a lonely sport.
+- You put Carlos Molina in front of me? That's kind of disrespectful to me.
+- People come to me and they're like, 'You're hand picking fighters.' I don't pick my fights.
+- I love Danny Garcia.
+- I'm a fighter.
+- I just fight whoever is weighing in on the time it's to weigh in.
+- Sometimes, you don't see what you've got to change unless something happens, like a loss.
+- There are a lot of great fighters in this sport, but they just don't bring what I bring to the table.
+- Support me and I will fight for you.
+- I came from nothing and I have a chance to do something that happens once in a lifetime. There are only a couple people who can wake up and say that they're a world champion, a multimillionaire, and a successful superstar.
+- I have no problems with the homosexuality out there.
+- It means a lot to know I play a big part in boxing.
+- It's just something that God blessed me with. I've got power, so it really don't matter what weight class I'm in. I'm still going to have the same power as I had at any weight class I'm in.
+- You can't overlook anybody in this sport.
+- I'm really not too big on MMA.
+- What am I gonna do to be successful and provide for my family? I was like, I want to play basketball, I love basketball, but I'm too short. I'm not gonna cooperate in school... Boxing. I always found boxing, it always came back to boxing, boxing, boxing. Boxing, this is it, this is gonna be the thing gonna take me over the the top.
+- In Colorado Springs there's nothing to do but look at the mountains and box.
+- Al Haymon, one thing I can say about him, is he is a very honest guy. Very honest. He don't sell dreams, he makes dreams come true. And that's what he did for me.
+- You can sometimes get the big head and overlook things.
+- Any given Sunday you'll catch me rapping and joking.
+- I don't try to knock out people.
+- I love all Mexicans.
+- Just because I get in trouble or into a situation outside of boxing, don't let that make your statement on my boxing.
+- When you match my body size with my talent and my work ethic and my IQ as a boxer inside that ring, I really have it all, and I'm flexible enough to really jump up to any weight - '40, '47 or '54, for the right opponent.
+- I've got to do what I've got to do, for me, my family and my kids.
+- Nobody works harder than me.
+- I'm a competitor.
+- I train like I never had nothing 'cause I ain't never had nothing.
+- I think a lot of the media and reporters, they let what I get into and my outside life interfere with my boxing life, and they let that cross, and that should never cross.
+- I'm fresh, I'm fly, I'm flashy.
+- I want everybody to love me because I want to love back.
+- I'm really not worrying about jumping weight classes. For me, the weight is not a problem.
+- I'm a four-time world champion, so I don't want to hear anything about my losses.
+- God doesn't make mistakes.
+- When it comes to boxing, I'm a four-time champion in four different weight classes. I did it at the age of 26. You can't down talk that.
+- I am trying to be better than anybody who ever laced up a pair of boxing gloves, and I think that pretty much sums up everything.

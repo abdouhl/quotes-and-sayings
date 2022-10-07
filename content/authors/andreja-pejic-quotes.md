@@ -1,0 +1,116 @@
++++
+author = "Andreja Pejic"
+title = "Andreja Pejic Quotes"
+quotes_len = "110"
+description = "the best110 Andreja Pejic Quotes"
++++
+- Australia was a very different world and culture from the one I left in Europe. Life was much more spread out. People drove everywhere. They built higher fences. Neighbours didn't interact so much.
+- I thought about being gay, but it didn't fit.
+- I definitely did look back into the past when I was a teenager for transgender icons, like a famous model called Tula in the 1970s-'80s who starred as a 'Bond' girl.
+- Fashion is quite inclusive and good at embracing different things and different forms of beauty. It's a very liberal industry. You can be yourself. Just not overweight.
+- To demand that people find their assigned narrow corridors of culture or ethnicity or gender, expecting people to forevermore stay in that lane, is to limit our human potential. It's oppressive.
+- I love Amanda Lear, Michelle Pfeiffer, Sharon Stone.
+- I was scouted working at the register at McDonald's in Melbourne, Australia. I worked there as my first job, and a guy walked in and gave me his card. I was 16. I was skeptical, but I looked it up when I got home, and it was legitimate.
+- The fact that my body is presented as an unrealistic ideal of 'beauty' to the world doesn't stop me - or most other models - from feeling unsure about ourselves.
+- When I was 12, I thought I wanted to be a witch.
+- I do have to thank my mother for my eyebrows.
+- I think a life of a human being is not something you can explain in a few interview questions. The stuff you do in the media is sometimes a great reflection and sometimes not a great reflection of who you are as a person.
+- When I'm sitting in a casting room in Paris, I'm not the thinnest model. Sometimes I'm not the most flat-chested, either.
+- Most female models don't have any muscle mass.
+- I just want to prove that I can do anything any other female model can do.
+- I would go through my mother's makeup kit, and I think she thought it was really cute. I was only three or four years old.
+- I'm not a big fan of identity politics and sort of picking one thing and defining yourself with it.
+- The way I need to look, it's a very personal thing. When I started experimenting, it was to make myself feel happy, to look in the mirror and be satisfied. I never did drag or anything like that. It was always that I wanted to be pretty, to look beautiful, as a girl would want to.
+- The best songs/films/collections expose truths about life and make them universally accessible; they progress humanity.
+- My mum would say sometimes, 'Do you think you might be gay?' But it wasn't that. When I imagined myself in a romantic setting, it was heterosexual, but I was just always a girl.
+- It's good to be noticed.
+- A lot of people, when they look at the whole trans thing, they think,'Oh, you're transgender, and in the fashion industry, which is very pro-LGBT, so you don't have any problems because it's a progressive place.' But that's not the reality.
+- Growing up, I was quite self-conscious about getting too tall, but then I realized, 'You know what? I can use it to my advantage. Big is beautiful.'
+- People would be surprised by me if they knew I was humble.
+- I've been getting chatted up by men ever since I was 14.
+- Being a bride for Gaultier was a very special moment for me.
+- I love costume jewelry, the stuff Givenchy/Riccardo Tisci do, and old school rock n' roll jewelry, too.
+- Perhaps if I was in a different profession, I wouldn't have worn 'trans' on my forehead. But there's a difference between not wanting to make a big deal out of something and fearing the effect it will have on my life.
+- I am 6 foot 2 inches, and one of the benefits of that is having long legs.
+- I think we all evolve as we get older, and that's normal, but I like to think that my recent transition hasn't made me into a different individual. Same person - no difference at all, just a different sex.
+- I figured out who I was very early on - actually, at the age of 13, with the help of the Internet - so I knew that a transition, becoming a woman, was always something I needed to do.
+- Don't do things just to impress others or just because you're scared you won't have any friends.
+- If I could talk to my younger self, I would tell her that you will grow into the woman you've always wanted to be. You will find love. You will be successful. You will be happy.
+- I was born a girl; it just took me a little while to become one fully.
+- Instead of trying to be the queen of cool, it feels like more of an achievement to work with mainstream brands and reach as many people as possible. It's more unexpected for someone like me.
+- I read 'The Original Beauty Bible' when I was 16, and it changed my life.
+- If I wasn't modeling, I'd be studying economics or international politics.
+- My dream was, start young, take hormones, live as a woman, try and become as passable as possible, bury your past, change your friends. Now I've realised that I don't have to be ashamed of my past.
+- Makeup contracts are the Oscars of the modeling world.
+- I want to see creativity that breaks boundaries and isn't just about money.
+- Other women don't go around saying, 'Wow, I'm female.' They have room in their lives for other things. That's my goal. One day, I would like to be just another girl.
+- I came out to my mom at the age of 14. She didn't understand it at first, but she's been very supportive since.
+- When I first went to Milan, my agent said you have to give off a strong, masculine energy. They don't like campiness. They like boys to appear straight and to appear masculine. I quickly learned the game of it and how to navigate around it.
+- I achieved my personal dream and completed my transition to be able to live life as a woman.
+- Weirdly enough, I'm a macroeconomics enthusiast.
+- When childhood ended, I had to suppress feminine characteristics and try and be a boy. I didn't want to grow up at all because it meant becoming someone else.
+- My first passion is politics.
+- The beauty of my journey is that it's always been pretty unpredictable, so stay tuned.
+- Makeup is a very delicate thing for me - I've got sort of defined features, so I don't like to do too much contour, as it can be a bit severe.
+- I guess professionally I've left my gender open to artistic interpretation.
+- Fashion is quite inclusive and good at embracing different things and different forms of beauty. It's a very liberal industry. You can be yourself.
+- I wanted to be a good kid, and I wanted to please my parents.
+- Gender dysphoria is never an easy thing to live with, mainly because people don't understand it.
+- I didn't know if I could have a career in fashion; I didn't fit in an obvious box.
+- It used to be so important to choose what you were. Gay or straight. Male or female. I think the new generation is more fluid.
+- It would be lovely to live in a world where trans-female models were treated as female models, and trans-male models were treated the same as male models rather than being a niche commodity.
+- I was planning to transition right after high school and attend university as a girl, but then the modeling thing came up. It was an opportunity to see the world. My family knew I identified as a girl, but I didn't tell people in fashion.
+- I want to be the most eligible bachelor in New York City.
+- I don't believe that the fight for trans rights or African American rights is different from the fight against war, or the fight for refugees.
+- I was lucky to grow up in a family where your parents loved you no matter what you were or what you came out as, and a lot of kids don't have that ride.
+- My whole life is controversy. What can I do? I'm like Britney Spears!
+- For a long time after childhood ended and before I expressed my femininity through androgyny, I really didn't like looking in the mirror much because I just felt like I wasn't attractive.
+- During the day, I really don't wear much makeup.
+- I want to keep sharing my story in the hope that young trans people or just people who feel different or ostracized have something to look up to.
+- I love to work with people who are great at what they do.
+- With fashion, it's all about timing and holding out for the right thing.
+- Love has no boundaries.
+- I always dreamt of being a girl. One of my earliest memories is spinning around in my mom's skirt trying to look like a ballerina.
+- We should give people the freedom to express who they are.
+- I like to dress up but I'm not so concerned with looking very sexy, it's really more the art of dressing.
+- Women are not baby machines. There's a lot more to being a woman, so reducing them to that is quite disgusting.
+- I identify as a woman first, but I am also proudly trans.
+- The first time I came to New York - and the first time I saw the movie 'Paris Is Burning' - I learned about the homeless LGBT culture in New York City that goes back to the '80s. I found that very interesting, and it's definitely something that I care about.
+- All human beings deserve equal treatment, no matter their gender identity or sexuality.
+- You can wax on so much about your figure and your skin and your face and all of those really important, and I'm all about skin and keeping it healthy, but if you don't have confidence, none of it matters.
+- I usually go with the 'less is more' approach.
+- I wasn't always confident; it took me awhile to kind of assume my role in fashion and feel attractive and be able to walk into a room.
+- I take biotin and silica for my hair to grow faster, but it's good for your skin, too.
+- There are so many male models who are working in high fashion, and they are broke. It's good to be a woman.
+- Mum's very proud. She finds every picture of me and has them on every wall.
+- I would love to bring my mum to see me in shows and travel Europe with me because she has done so, so much for me.
+- I remember as a kid, my mom had to trade canned food to buy my brother and me chocolate because we were living in Serbia at the time, and there were sanctions. If I catch myself complaining about going to a red carpet event, I say, 'Shut up.'
+- I have a very angular face, so my makeup routine is focused around softening my features, and I've finally learned how to contour to my advantage.
+- It's not like, 'Okay, today I want to look like a man, or today I want to look like a woman.' I want to look like me. It just so happens that some of the things I like are feminine.
+- I feel that for a lot of my career, I had success, I was adored, but I was also this alien creature. I want to show that I have the skill like any other female model, and I'm asking for the same equal treatment and equal respect as any other female model.
+- I know people want me to sort of defend myself, to sit here and be like, 'I'm a boy, but I wear make-up sometimes.' But, you know, to me, it doesn't really matter.
+- Sometimes I've seen comments about my knees or about my jawline, or people write things like, 'She still has signs of being a boy,' and then I realized that these are beautiful features. I've grown to love them.
+- I was prom queen, and the year before, I was prom king. It was kind of the same; you just got a differently shaped crown.
+- Ever since Donald Trump's victory in the U.S. election, I've been trying to expand my scope to understand the thought processes of people who don't see the world, or humanity, as I do.
+- As a kid, you get to the stage where you realise the gender barriers that exist in society and what you're supposed to do and not supposed to do.
+- When I was little, the idea of waking up as a girl was like a fairytale. I had this idea that I'd meet a witch who would transform me. From the moment I found out that it was actually possible, I went to bed each night feeling that when it happens, it will be the best day of my life. And it was!
+- I struggled to find an agency in London because no one knew whether they should put me in the men's board or the women's board. There was a lot of uncertainty about my commercial viability.
+- Stepping outside of my personal bubble, or that of fashion or beauty, is pretty important to me.
+- In this society, if a man is called a woman, that's the biggest insult he could get. Is that because women are considered something less?
+- It just so happens that some of the things I like are feminine.
+- I've definitely had my struggles with the male species, as I'm sure most girls have.
+- I find myself to be quite sarcastic, and I wouldn't want to be with someone who didn't get that.
+- Society doesn't tell you that you can be trans.
+- I kick off my metabolism with a glass of O.J. and a pretty big smoothie. I put in chia seeds, flax seeds, raw organic honey, fresh spinach, hemp seeds, avocado, matcha, spirulina, raw almond butter, almond milk, berries, sunflower seeds, and pumpkin seeds.
+- Radical feminists are often highly conservative in many areas except for women's rights, and LGBT activists can be the same.
+- When I'm nervous, I can't eat or sleep.
+- My favourite author is Leon Trotsky - the political philosophy and the way he writes is beautiful, and really relevant, too.
+- I think, at the end of the day, you have to live a truthful life and be true to yourself. You have one life, and everything has to fall into place around that.
+- I've given up trying to convince the world about the authenticity of my femininity.
+- To all trans youth out there, I would like to say respect yourself and be proud of who you are.
+- I usually wake up around 9, and the first thing I do is make myself a cup of tea. I drink a lot of tea - green tea, white tea, and all kinds of herbal teas.
+- In the beginning, I was worried there are too many shots of me as a boy out there. Now I'm at a point where I know my past doesn't make me any less of a woman today. I can be proud of it. I don't have to bury it.
+- On a personal level, my mom is my biggest inspiration. She's always been an idol for me. I used to dream about growing up and being like her.
+- If you live your life on your own terms, you might find that people actually give you more respect.
+- I'm comfortable in my skin, and for my look to be celebrated is great.
+- The Internet gave me the sense that there were words to describe my feelings and medical terms.

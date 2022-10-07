@@ -1,0 +1,62 @@
++++
+author = "Ally Brooke"
+title = "Ally Brooke Quotes"
+quotes_len = "56"
+description = "the best56 Ally Brooke Quotes"
++++
+- Paris just exudes love and romance and, for me personally, hope and joy and faith, too; it just means so much to me. That place made me feel so happy and so safe, and my spirit was just so full of joy.
+- I very well could not be here right now. So I'm so grateful for every day I have, especially in living out my dreams.
+- We get asked all the time if we're getting a fifth member, and we wanted to show the world in an artistic way that, 'Hey the four of us are Fifth Harmony,' and we're stronger and better than we've ever been.
+- All of us sing, all are equal, all bring something different to the group.
+- For me, my style is very versatile.
+- I was blessed enough to talk to my grandfather the night before he passed, and he told me that everything was going to be okay, and I know he wanted me continue and do my best, be happy, and that's what keeps me going.
+- Selena is my angel. She is my biggest inspiration. Being from San Antonio, Texas, I really feel that connection to her because she had a lot of performances and a lot of her most iconic performances in San Antonio. Back in my hometown, we love her. We all, as a community, celebrate her and adore her. We keep her memory alive.
+- I would do these performances around town at different places, and that's when I really fell in love with performing, and I knew this was something that stood me up and filled me in a way that nothing had and nothing could. I really just fell in love with it.
+- Working with people who are kind and who are good people really means a lot to me.
+- Say no to circuses that exploit and abuse animals.
+- When I'm home, my family makes Mexican food, and we listen to a lot of Spanish music together. We love dancing to it.
+- I'm working with the March of Dimes to help make sure more babies have the chance of tomorrow.
+- 'Can You See' is a beautiful song that follows a story of the star. It's a very inspirational song.
+- Definitely love yourself.
+- Nicki Minaj is definitely somebody that we love. She is such a powerful, strong woman, and she's so talented.
+- Life is amazing!
+- We worked with Max Martin's team, MXM, who are the best in the business as well. We worked with Stargate, which was phenomenal, and Victoria Monet.
+- Coming off 'Reflection,' what we really wanted to do was be more vulnerable.
+- Before every show, we pray together, and after, we talk and have fun and laugh. We make sure to keep each other sane and happy.
+- When I was 9 years old, I started performing around my hometown of San Antonio, Texas.
+- I used to be really scared to voice my opinion, whether it was with the other girls or just about an outfit I didn't like. I kept worrying what other people would think of me if they didn't agree. But I learned that I was just hurting myself.
+- You can't change people.
+- It's so important for us to be able to talk about body positivity and accepting yourself and loving yourself because we've all been in a place where we're insecure.
+- I came into the world weighing one pound, 14 ounces. My family knows what it's like to go through the struggle of not knowing if your baby is going to be OK.
+- Just having my mom be healthy is, like, so overwhelming enough. Like, my heart's just full of gratitude.
+- There's so many things you can do to make your community and help the world.
+- I love Doritos - the nacho flavor. The Cool Ranch is good; it's a good second.
+- I know that I have this platform with our fans and with social media and all of that good stuff. I really hope that people become more aware of premature birth, and I hope there's more that can be done to prevent this.
+- I encourage my fans to get involved, whether it's just educating yourself on premature birth, or you can donate or volunteer.
+- As much as we adore what we do and we're eternally grateful, everyone needs a break sometimes. Everyone needs a few days just to breathe.
+- I scroll through Instagram and Twitter, and whenever I see something that speaks to me, I take a screenshot to save it for red carpet inspiration. Sometimes, if I see an outfit I like on the street, I'll take a picture, too. References are so important.
+- Someone who just has a really good heart - it's so attractive: someone who makes you feel beautiful and encourages you - makes you better.
+- It starts with you in your own community. Just being kind to one another, being supportive of one another, and being loving and respectful. I can't tell you how far that will get you in life, just being able to do that.
+- It's such a big dream of mine to be singing in front of my friends and family in my hometown.
+- The four of us are really in sync with each other. We're pretty open about most things. We try to respect each other as much as we can. For us, communication is really important.
+- There's going to be people that try to sway you to do things that you shouldn't do.
+- My Barbie doll is definitely a reflection of me and my personality. My doll is so detailed, she even has my same beauty marks.
+- On social media, we have a lot of fans. It's so important to me to spread awareness of premature babies and premature birth.
+- We were in New York, and we were performing at a morning show. This fan literally ran from that studio in the middle of New York City to our airport, which was very far away. That fan ran all the way there to see us, and we were so in awe of that guy.
+- As a premature baby myself, my family faced many challenges in ensuring that I had a healthy start at life. There are so many obstacles for these babies and their families that each new day is a milestone.
+- You can be whoever you want to be. Don't let those voices or noises, whether they're inside or outside, distract you.
+- If we were all kind, if we were all loving and respectful to one another, this world would be so different. So it starts with you, and you can do it. Don't let anything hold you back!
+- Focus on you - your soul, spirit, blessing people with who you are, and following your heart's passions.
+- We have all these ideas and visions, and they're able to come to life, and our voices are being heard, which is really amazing.
+- It's good to unpeel layers of yourself, and we're unpeeling layers of the group. We are growing and evolving. It'll reflect in the music.
+- Usually when you put five girls together, especially when they've been solo artists, it doesn't turn out very well.
+- Fight for what you believe in, speak your mind, and don't be afraid.
+- The fans are our fifth member.
+- The main thing for all of us was having a ballad, a slower song. Finally, they get to hear more of a vulnerable side to us! We didn't really have that in 'Reflection,' and that's something we all fought for.
+- We're really, like, big fans of Destiny's Child.
+- Jennifer Lopez, she opened so many doors for Latinas such as myself.
+- I'm literally obsessed with Christmas, and it's been my dream ever since I was a little girl to make a Christmas album.
+- My mom and I shopped for my 'X Factor' outfits at La Cantera. We went to Forever 21 and Urban Outfitters. I live really close to the mall, so I'd always go there to shop.
+- Take in every moment. Don't try to grow up too quickly.
+- I might not be here if it wasn't for the research and the technology that March of Dimes provided for my family and me.
+- As we grow, our music grows, and it's very natural and organic, and it's nothing that's forced, which is really, really important to us because we don't want to just do something drastic just to do it.

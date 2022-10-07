@@ -1,0 +1,129 @@
++++
+author = "Aretha Franklin"
+title = "Aretha Franklin Quotes"
+quotes_len = "123"
+description = "the best123 Aretha Franklin Quotes"
++++
+- The love of my life? I'm much too young to answer that question.
+- I've never recorded anything I didn't like.
+- I think the hardest thing is losing weight. That's the hardest thing more than anything else.
+- Well, Babyface brings his savoir faire to every project. He's a very easy producer to work with, very detailed in listening to everything.
+- There is no way in the world anyone else could do my wedding other than myself, along with whomever I select to do various things.
+- I don't do crazy things - I just don't.
+- For many years, I've wanted to do one, and I've always mentioned it to the chieftains, and they would say things like, 'Oh well. Christmas albums don't sell,' and things like that. But that's not the point. Christmas albums are important. The music is important. The season is important.
+- I like Beyonce's music - some of it, not all of it.
+- Most of what I wear, I select myself. You can't please everybody, and as long as I'm comfortable with what I wear, I think that's what's important.
+- Music does a lot of things for a lot of people. It's transporting, for sure. It can take you right back, years back, to the very moment certain things happened in your life. It's uplifting, it's encouraging, it's strengthening.
+- I like being married. It's an institution that I like.
+- Art Tatum was a genius.
+- People are not as nice as they used to be. There used to be a time when we conversed. You don't get a lot of real responses now. They used to be more polite and well-mannered people, generally. It's minimal now.
+- Men have always been gentlemen to me - responsible people with healthy attitudes.
+- Politics are not my arena. Music is.
+- Being the Queen is not all about singing, and being a diva is not all about singing. It has much to do with your service to people. And your social contributions to your community and your civic contributions as well.
+- I sing, and the musicians kind of fit things around me.
+- I think you have a lot of really good artists today. You have your Beyonce, Usher, Nicki Minaj and the like. But our generation, the artists were stronger. You're talking about myself, Ray Charles, Stevie Wonder, Roberta Flack, Gladys Knight, The Temptations, The Four Tops.
+- I'm the lady next door when I'm not on stage.
+- I love the Ritz.
+- I always felt rock and roll was very, very wholesome music.
+- Yes, I've always been fashion conscious.
+- I love Wal-Mart, and not just because my record is there. You can get some things there that you cannot find at Saks or Bergdorf's or other upscale stores.
+- What is auto-tune? I don't even know what auto-tune is.
+- As long as it's good music. I love all music. It's got to be constructed properly.
+- I love 'Anne of Green Gables.' I have for years. That's one of my favourite things. She's such a can-do kind of girl; that's why I'm crazy about her.
+- I've been around long enough for people to know who I am and what my contributions are. They know me as more than just an artist. I think they know me as a woman as well.
+- Be your own artist, and always be confident in what you're doing. If you're not going to be confident, you might as well not be doing it.
+- When I first started, I wore Ceil Chapman gowns. I've been wondering for years what happened to the Ceil Chapman line of clothing.
+- And I was booked once to go on 'Ed Sullivan' and I got bumped and ran out the back door crying.
+- Gospel goes with me wherever I go. Gospel is a constant with me.
+- I'm not ever going to retire. That's - that wouldn't be good, for one, just to go somewhere and sit down and do nothing. Please. No, that's not moi.
+- I've probably cried with a lot of songs - in teenage crushes, adult crushes.
+- I've met my share of guys who have insulted and assaulted my intelligence with their stories and games. I say hello and goodbye!
+- Beyonce is a very hard-working woman. Astrologically, for whatever it's worth, she's a Virgo - like Michael Jackson, a hard worker.
+- There's a lot of great singers out here.
+- Now, occasionally I will still have that quarter pounder because I love fast food, but you have to keep it to a minimum.
+- As a very small girl, I listened to Charlie Parker and loved him and Max Roach and people like that.
+- Certainly, gospel was my background - is my background.
+- Intermittently in my concert format, I sing a little jazz, a little scatting.
+- I wanted to design a line based on Hollywood's Golden Era. I talked with Stephen Burrows and with Willi Smith and with one or two other people, but it just seems like such a hard field to break into. I need someone like Calvin Klein's manager to get behind me!
+- I just loved working with George Benson, whom I very much enjoy musically and as a person.
+- It really is an honor if I can be inspirational to a younger singer or person. It means I've done my job.
+- The duet with Frank Sinatra, 'What Now My Love,' is one of my favorites.
+- I had not been in the jazz environment, having been brought up in the church. But once I got to New York, and I was signed to perform at The Village Gate and the Vanguard and clubs like that, and these - the Vanguard was one of the most elite, if not the most elite, jazz club out there.
+- Men don't like eating out of cans. And I don't like eating out of cans too much, either.
+- You could call my piano my trademark, or one of my trademarks.
+- President Bush bestowed the Congressional Medal on myself.
+- I know people I feel are extremely talented, but I don't know that I've ever heard any geniuses.
+- I've done the Kennedy Center many times. I've sang for Marian Anderson. I've sang for Marion Williams. I've sang for Lionel Hampton.
+- I remember singing around the house to records that were playing. All kinds of music. And the great James Cleveland was often in our house, and I grew up with his sound as well.
+- I like writing and don't confine myself to just the words or just the music. But I don't particularly write songs with myself in mind.
+- I am doing what I love to do, and you cannot beat that, especially when the audience appreciates what you prepare for them. It's very, very gratifying.
+- I didn't really want to sing at first, but my dad insisted that I do.
+- If a song's about something I've experienced or that could've happened to me it's good. But if it's alien to me, I couldn't lend anything to it. Because that's what soul is all about.
+- I picked up some wonderful things just listening to other pianists that I appreciate, and that would be Herbie Hancock, Oscar Peterson, Vladimir Horowitz, and Art Tatum. Those are the pianists I really enjoy and admire.
+- Sam Cooke had a huge influence on me. He left the gospel field at one point and went into the secular, and he had this huge hit, 'You Send Me.' Irma, my older sister, and I heard 'You Send Me' on the radio while we were driving through the South one night. We had to stop the car. We got out and danced around the car out on the highway.
+- The term 'Sock it to me!' was a big, big thing in our neighborhood - all the kids were saying it.
+- I go to the healthier foods that are less chemically treated. I am drinking lots of water to get rid of the toxins in my body. It's a natural flushing. Water flushes your system and is also very good for your skin.
+- I used to have hamburgers coming and going, especially when I was on the road. Now, occasionally I will still have that quarter pounder because I love fast food, but you have to keep it to a minimum. I am now opting for salads and just healthier lunches.
+- Yeah, I want a job in Barack's Cabinet. How about a job, Mr. Obama? Please? Please?
+- My upbringing was in the church. We had to attend regularly. And, of course, the church provided a training ground for me, so to speak, as a young vocalist and certainly gave me all of the spiritual values that I needed as a young lady.
+- My faith always has been and always will be important to me.
+- It's very satisfying. To perform the way you want to. And the way you know that you can.
+- My mentor was Clara Ward of the famous Ward gospel singers of Philadelphia. And my dad was my coach. He coached me. And just my natural love for music is what drove me.
+- I like 'Bootylicious,' 'Survivor' - my little granddaughter loves 'Survivor.'
+- My American audiences are pretty mixed. I get all sorts of people, old and young. It's nice.
+- Every birthday is a gift. Every day is a gift.
+- It's easy for a singer to sometimes pick up on another singer's sound, but that's just copying.
+- I was in my dad's church, his Baptist church, and I think the first song I ever performed was 'Jesus Be a Fence Around Me.'
+- I guess I could've been a prima ballerina. Or a nurse. Aretha Nightingale!
+- Who hasn't had a weight issue? If not the body, certainly the big head!
+- I sing to the realists; people who accept it like it is.
+- I don't think I was a catalyst for the women's movement.
+- You have singers that are trained, and then you have natural singers: people that, in my opinion, were just born to sing. And hopefully, I am one of them.
+- Music changes, and I'm gonna change right along with it.
+- John Legend is, in my opinion, classic. He is one of the best finds that has come along in a long time.
+- He was definitely an original and a one-of-a-kind. Truly there was only one Prince.
+- When God loves you, what can be better than that?
+- Everybody wants respect. In their own way, three-year-olds would like respect, and acknowledgment, in their terms.
+- I don't feel one's personal medical condition is everybody's business. It just isn't something you advertise, and it's not open to discussion.
+- Sometimes, what you're looking for is already there.
+- We all require and want respect, man or woman, black or white. It's our basic human right.
+- Many of my friends were there at Motown. The studio was only a few blocks from where my dad's home was, where we lived.
+- We didn't have music videos. You weren't an overnight sensation. You had to work at it and learn your craft: how to take care of your voice, how to pace your concerts, all that trial and error.
+- Falling out of love is like losing weight. It's a lot easier putting it on than taking it off.
+- Don't say Aretha is making a comeback, because I've never been away!
+- Let's start with the church. As you know, it's my background, it's a natural setting for me and it's definitely my roots.
+- My generation, we came along, we had to really know our craft.
+- I think it would be a far greater world if people were kinder and more respectful to each other.
+- I'm really an old-fashioned girl - I like to be romanced.
+- I think women and children and older people are the three least-respected groups in our society.
+- I love producing, writing. I rarely write with other writers unless I have a real great respect for them. Like Burt Bacharach, or Carole Sager, or Stevie Wonder. Somebody like Smokey - like that. Otherwise, I choose to write alone.
+- I just got into Mike Tyson. My security people kept saying, 'Haven't you seen him yet?' Well, I finally did, and he's got a real knockout punch.
+- I certainly enjoy Usher, Beyonce, Chris Brown, and there is Fantasia; these people will be around a while. They've got it. They've got the 'it' factor.
+- I paid my dues; I certainly did.
+- I wouldn't be without Google, and I love Facebook.
+- In terms of helping people understand and know each other a little better, music is universal - universal and transporting.
+- Columbia was a wonderful label for me. Wonderful. The records I made there garnered me an audience. I won a number of polls during the years that I was at Columbia. The Downbeat Jazz Poll. Leonard Feather, who was a huge critic back in the day, different polls that he had. The Playboy poll, a number of polls. So the music was great.
+- I still have perfect diction!
+- Parents have to really talk to their children before they leave home.
+- I saw the Supremes when they were still singing in little black skirts and white blouses.
+- Prince is gone. But the music will go on.
+- I came up in gospel.
+- I'm never tired of going to the studio. I enjoy recording and documenting everything and trying new things.
+- Christmases past, my sister Carolyn and I - we'd been waiting for Santa all night. Nothing! Where is this man?
+- I love all music.
+- I loved going to church. I enjoyed being a part of the choir and just doing things in and around the church. But as a young girl, I certainly enjoyed watching and listening to my dad.
+- I can say that my big records and my success have been due to the backing which Atlantic have put behind me.
+- President Clinton, I sang at his post-inauguration party out in Maryland.
+- I'm a big woman. I need big hair.
+- Women absolutely deserve respect.
+- We've come a long way, but there is still a lot of discrimination.
+- Beyonce is very outspoken on feminist issues. So I think that's good. That could be brought to the forefront more.
+- You cannot define a person on just one thing. You can't just forget all these wonderful and good things that a person has done because one thing didn't come off the way you thought it should come off.
+- Being a singer is a natural gift. It means I'm using to the highest degree possible the gift that God gave me to use. I'm happy with that.
+- People really don't have to give you anything, so appreciate what people give you.
+- Ariana Grande - I like her a lot.
+- I really don't have any shelf music.
+- 'Rocking With Leroy' used to come on when I would come in from school. It was a very, very big R&B broadcast of the day when I was a young girl. And I would come in and put my books down, lie down on the floor, and listen to 'Rocking With Leroy.'
+- I donate heavily to the church and various churches in the Detroit community and food banks.
+- Well, 20 Grammys is not bad.
+- I haven't had the occasion to meet Adele. She lives in England. So when I'm flying, or when she comes over here, perhaps we'll have a chance. I think she's a very fine singer, a very strong writer and performer.

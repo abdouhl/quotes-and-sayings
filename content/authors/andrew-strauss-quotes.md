@@ -1,0 +1,80 @@
++++
+author = "Andrew Strauss"
+title = "Andrew Strauss Quotes"
+quotes_len = "74"
+description = "the best74 Andrew Strauss Quotes"
++++
+- We should be far more flexible about the way we play our cricket away from home. We can't just presume that what works at home will work away. We need to be more flexible and creative both in the way we play and the way we select.
+- Cricket is 90-95 per cent mental. To score runs, you've got to feel good about yourself.
+- This whole quest to win the 2019 World Cup, that was my job when I was director of England cricket.
+- I'm happy unless I'm not happy. And I think this is the thing with grief, there is no rhyme or reason to it and it's been completely different to how I thought it was going to be.
+- I tie my wedding ring around my neck with an old shoelace. It's to remind me of why I play cricket: for my family - my wife Ruth and my boys Sam and Luca.
+- I played a very background role in terms of trying to get the environment together but Eoin Morgan and Trevor Bayliss have done a great job.
+- Grief is a bit of a journey, and it is evolving all the time but I am very functional.
+- But there are definitely times when I just need to write to clarify my thoughts and put any doubts to bed.
+- I think you grieve different elements, you grieve your wife who's gone, you grieve the fact she had cancer and you had to watch her die, you grieve the fact the life you built isn't going to be the same as the one going forward. All these different elements hit you at different times.
+- A cricket team is always made up of 11 different individuals and you want to give them enough flexibility to be themselves.
+- You either back your instincts or you hold off - and you're more likely to back your instincts if you're confident.
+- I've known Nick Compton a long time. He's a fully-formed cricketer and he's scored lots of runs.
+- I think it's hard for one coach to do all the formats all the time, and there are a limited number of coaches who have done the hard yards already. You can have head and assistant coaches for each squad.
+- We've always got to look for opportunities for our English coaches to get more experience than just doing county coaching gigs. They need to do more than that if they're going to be viable candidates for England jobs going forward.
+- The only thing I'd say about Darrell Hair is that he is a very good umpire. He's very firm and he obviously sticks to his guns. I wouldn't have any qualms about him coming back into Test cricket.
+- I really believe that every game of international cricket should have some sort of meaning and some sort of context to it - so the World Test Championship, the World One-Day League are all really, really important opportunities to the game.
+- When I came back into the side in 2009 I had to play more aggressively, and did. But I should never have played 127 times for England in one day cricket.
+- I've always felt that, in the past, there has been a teacher-pupil relationship between the management and the players. But the best teams are run in such a way that the players have a voice.
+- It's always frustrated me when I've seen other players able to smack balls over the bowler's head and stuff like that. I can't, though. When I've tried I've let myself down.
+- When I arrived at Middlesex I was the only guy who'd been to public school and I got plenty of stick. But it wasn't held against me for long.
+- Peter Moores has been very popular in the England dressing room. He's got a very good record of developing players but I felt that in some areas of international cricket he is a little bit exposed, around tactics and strategy.
+- You can rule by fear but it's not a great motivation for people.
+- We are going to try and turn Lord's red for the day as a testament to my wife Ruth, but more importantly as a way of increasing awareness and raising funds for the Ruth Strauss Foundation.
+- I still remember my quote from the 2007 World Cup, when I said scoring two threes was as good as hitting a six. That was me trying to justify what you couldn't. To me, and this was before I became director of cricket, we just couldn't do that again.
+- Some people get on better with some than others but what is absolutely crucial is that everyone knows their roles and responsibilities and trust that your team-mate is going to do their best for the team.
+- My life experience has made me realise what's important and what is not.
+- It's incredible to watch how our cricket clubs depend on volunteers.
+- I don't want to overplay the diary's significance, but it's a really helpful batting aid. It's not an obsession because I don't spend more than 10 or 20 minutes writing a day - and not necessarily every day. I might write in it three days in a row and then not the next four. It depends on the situation.
+- The only two times we have peaked above world average is when we got to No. 1 in the world in 2011 and when we got to No. 2 in the world in 2004 under Michael Vaughan.
+- Peter Moores has been very popular in the England dressing room. He's got a very good record of developing players, but I felt that there are some areas in international cricket where he is a little bit exposed, for me personally around tactics and strategy.
+- And my job is to look at the future of English cricket and develop a side that is capable of winning important series and tournaments in the next four years. And that is what I am going to concentrate on doing.
+- No one has ever doubted Kevin Pietersen's abilities as a player, he has been a phenomenal player for England for a long period of time, his record stacks up to anyone's in English cricket and he should be very proud of his record.
+- We know the Victorian way of dealing with death, which was not dealing with it. You'll never get over it but having the support of a counsellor who has been there hundreds of times is so important, to help you develop strategies to cope.
+- We are a high-performance environment and guys being professional about how they prepare for games is not something that should be frowned upon. It should be expected of players.
+- I've definitely grown into the job after that difficult first Test against Pakistan. I'd been captain for the Sri Lanka one-dayers, which hadn't gone well, and all the talk was that I only had that one Test as captain.
+- There is no reason why cricket shouldn't be the number one alternative to football. And at a time when there are obvious divisions in society, cricket has a great role to play in bringing people together from all sorts of diverse backgrounds and faiths.
+- T20 has become a longer and longer format of the game. It is more than four hours in a lot of parts of the world.
+- I loved captaining and trying to win games - but I wasn't enjoying batting any more.
+- That's what sport can do to you: it gives you a lot of heartache and pain, and sometimes the ultimate rewards.
+- People much prefer to feel part of something and that they're appreciated and wanted, that their voice actually holds some sway, rather than just having someone barking orders at them.
+- I have to accept that my role is to gather the runs slowly. Kevin Pietersen is flamboyant, but that style doesn't work for me.
+- As a group of players, and as a set-up, you need to set your stall out as to what is acceptable and what is not.
+- If we broaden the audience for cricket, more people will be interested in all forms, then TV rights and sponsors and crowds will follow.
+- In 50over cricket there are different ways of playing. It's not all about smacking it over the top. It's important someone bats through the innings. That would be one of the options for me.
+- My biggest concern is that Test cricket and Twenty20 cricket are competing too much. They should be complementing each other and the more they clash the more damaging it will be for cricket.
+- This perception that a good captain is someone who beats his chest and roars like a lion and gives big Churchillian speeches, that's just not what leadership is about for me.
+- The execution of strategy is over to the captain and coach, as it always has been. It's the right way to go. We need clear role allocations, the coach and the captain go and execute and my job is to plan for the future.
+- We have to find a way to get the two forms of the game co-existing - and that involves administrators sitting down and banging their heads together and working out a framework. I understand the politics but I'm more interested in what's best for the game.
+- I wouldn't rule out the idea of four-day Test cricket, if we can get the playing conditions right and the right circumstances it might be a good thing in some parts of the world.
+- I think there will be one overarching coach for Tests and one-day cricket. I think you need one person in control and in charge of that environment. Also it's important for people to know I am not going to be playing a tracksuited role. The execution of strategy is over to the captain and coach as it always has been.
+- Winston Churchill inspired my leadership philosophy. I've read a huge number of his writings, especially his diaries from the Second World War. His thoughts on leadership and duty have helped me as England captain.
+- In the cricket world, with a lot of little issues that people are getting in a tizz around, I'm just like: Don't worry about it.
+- If someone has cancer, it's not just them who has cancer - it's everyone around them as well and it's tough.
+- Cricket is not rocket science. Bowlers often get wickets through perseverance, accuracy and being patient rather than trying to blast opposition teams out.
+- I always thought we ought to recognise the blood, sweat and tears - and the sacrifices in being away from home - of former England players, and that current players should know what has come before.
+- Until you go through a bereavement, you don't know how you will cope. What we have found out is that life is completely different. The foundations that you have been building all your life are knocked down.
+- There is a real danger that kids won't engage with cricket when there are so many other opportunities to use their time in other sports, not to mention video-gaming, and generally long-form cricket doesn't turn them on.
+- If you think about the practical difficulties of having a relationship with somebody on the other side of the world, it defies all logic.
+- You can't compartmentalise everything but the more you do that the easier it is. Keeping a notebook is a good way of dealing with it. You can rest from any thoughts if you put them down on paper.
+- So I never forget how lucky I am. That's the reason above all else why I'm determined to keep enjoying cricket, whatever the wins or the losses. As long as I do that then the runs will come.
+- I can understand the argument that the captain should always be there to lead from the front.
+- I still have ambition to captain England into the 2011 World Cup. I'm very keen to do that job.
+- Some really good players are coming out of county cricket. Better preparation, and looking after yourself physically are things that counties should still have to strive for. Also, the volume of county cricket is still far too high. I'd definitely like less county cricket.
+- If you look at English cricketers since the turn of the century, less than a handful have better records away from home than at home. So if everyone in our team is significantly worse away from home, the likelihood is the team as a whole will be significantly worse.
+- When you're managing a team the key is, I guess, to find where those boundaries are, where you're prepared to let people go, to what extent you're allowing them to be a free spirit because ultimately it's all got to be in the greater cause which is making sure the team wins cricket games.
+- I have to watch my language. I think a lot about the words I use in both the public environment and the dressing room. The language you use is a direct insight into how you are feeling.
+- I had to stop being a student idiot and become more sensible and organised and that definitely improved my batting. I also reacted far more quickly to situations in Test cricket because I'd been a county captain. It made a huge difference.
+- Captaincy is a confidence game. When the team is winning and your decisions go well that breeds confidence.
+- The way you speak to a team is very important - both before a Test and during the game itself. If you try and do things on the run then people will quickly see through you. You're also never going to say anything that profound and so it's important to come up with new angles.
+- After time away it always makes you realise how special it is to play for England and what an honour it is.
+- We all live in this little bubble that we just expect to live forever and I think those of us that have been with people battling cancer, you realise, actually, this surrounds us everywhere we go.
+- I learnt that as soon as you have a negative thought, just push it to the back of your mind. The question is, when it's you versus 11 others; can you be positive under pressure? That's what defines winners.
+- I was forced to learn a lot about psychology as a player, and as a captain to get the best out of others. There's still a lot of scepticism about it in sport and the workplace, but dealing with fluctuations of form, and pressure, and being away from home are more important than your cover-drive.
+- I'm most proud of a couple of things. Firstly what we managed to do with the team from 2009 to get them to win the Ashes in Australia. That was remarkable. And secondly moving England forward in white-ball cricket because that is where the game is going and we need to be at the vanguard.

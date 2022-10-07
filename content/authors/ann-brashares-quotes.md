@@ -1,0 +1,19 @@
++++
+author = "Ann Brashares"
+title = "Ann Brashares Quotes"
+quotes_len = "13"
+description = "the best13 Ann Brashares Quotes"
++++
+- I agree that a love of reading is a great gift for a parent to pass on to his or her child.
+- I look back on my 20s. It's supposed to be the prime of your life, the most vital, the most beautiful. But you're making your critical decisions and sometimes your most critical mistakes.
+- Gestating characters feels something like the mental equivalent of gestating a baby. In both cases, to create them you lose yourself. Or at least you reshape yourself to encompass them.
+- The distinction has blurred between young adult and adult books. Some of the teen books have become more sophisticated.
+- As a writer, you live in such isolation. It's hard to imagine your book has a life beyond you.
+- It's so much easier to have no expectations than to have big ones.
+- When I turned fifteen, I remember my father gave me a credit card which I was allowed to use for two things: emergencies and books.
+- A tree is such a rich metaphor in a million beautiful ways. You can consider a tree growing and consider its connectedness to all things above and under the ground.
+- As much as I'm drawn to writing about teenage girls, I like the idea of having the freedom to branch out and write about different ages, for different ages.
+- Developing characters is a strange thing. In the beginning they are abstract and I wonder how to move on from there.
+- To write a story, I think you really have to open yourself up to the world.
+- My household is, in a nice way, very busy.
+- I don't have the life of a famous person. But I do feel like I've been able to connect with a lot of people.

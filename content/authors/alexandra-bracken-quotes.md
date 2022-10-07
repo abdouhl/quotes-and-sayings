@@ -1,0 +1,35 @@
++++
+author = "Alexandra Bracken"
+title = "Alexandra Bracken Quotes"
+quotes_len = "29"
+description = "the best29 Alexandra Bracken Quotes"
++++
+- After I finished 'The Darkest Minds' series, I knew I wanted to take a risk and work on something completely different - lighter in tone, with a little bit more romance, and a completely different set of characters - that would also, um, finally justify my liberal arts degree.
+- Being a very tall person, I have always felt a kinship with giraffes.
+- I absolutely love Johnny Depp, and I genuinely think he's one of the best actors of our time.
+- We are all protective over the things we love.
+- Everything in New York is a fight. It's a fight to get on the subway. It's a fight to go to CVS. It's a fight to get a cab. And eventually, it wears you down.
+- It might be the history major in me, but I look to the past when I try to construct my fictional futures.
+- I always try to have my supernatural or fantasy elements feel grounded in reality so they're easier for the reader to accept and digest.
+- One of the things I noticed while I lived in New York City was how different the kids and teens were that grew up there versus, you know, my suburban upbringing. They have this innate resilience and toughness to them, and they're incredibly self-sufficient, usually from a pretty young age.
+- Between the ages of 8 and 12, all I wanted to read were 'Star Wars' books.
+- From the time I was in first grade or so, my dad collected 'Star Wars' toy figures from the 1970s and '80s, and we'd take weekend family trips to antique shops and to toy stores. My father collected a crazy amount of 'Star Wars' stuff over the years, and he and I traveled to many conventions.
+- I would be honored if someone reads my books and it inspires them to write their own work.
+- Familial betrayal is, to me, the most heartbreaking kind - because if you can't trust your family to love you and protect you, who can you really trust?
+- I think history is just so cyclical.
+- When I first read 'Outlander' a few years ago, I was shocked to find that Jamie was the complete package: incredibly smart, incredibly witty, strong but emotionally vulnerable, passionate to a fault - and, well, the Scottish accent doesn't hurt! I actually stopped reading at several points to swoon over something he said... he's really that good.
+- I didn't get to experience proper autumn until I was eighteen and heading off to college on the East Coast!
+- I was genuinely lucky to have the professors I did, many of whom took a very humanist approach in teaching history that went beyond memorizing dates and battles and all of that - basically, looking at the life of individuals throughout history, aided by fascinating primary sources.
+- In 'The Darkest Minds,' Zu's trauma manifests in her choosing to remain silent. It's her one small way she can feel in control of her otherwise uncontrollable situation.
+- The powers of the teenagers in 'The Darkest Minds' were always meant to represent that inherent drive that young people have to make change, and how the world pushes back against it.
+- I had this almost secret life of going to 'Star Wars' conventions because,' when I was younger, Star Wars' had phased into the uncool part of its life and had yet to become cool again for everybody else.
+- When I was trying to figure out how the government might go about creating the camps in 'The Darkest Minds,' I researched the Japanese internment camps here in the United States, specifically propaganda the government used, and how they capitalized on people's fears.
+- There's so much standing around and waiting with moviemaking!
+- Much like dystopian and post-apocalyptic books are a way to explore the worst-case scenarios lurking around the corner, fantasy can serve as a wonderful tool for showing kids that they have an inherent power in them to create change, both in themselves and in their community.
+- I think when we lose somebody, when we interact with those things that they also loved - like, you listen to their favorite music, or you read their favorite books - it's just a way to get in touch with them and your memories of them.
+- Fear makes us do things we would otherwise never agree to do, and people can be emotionally manipulated into believing something during times of great stress and tragedy.
+- In the years between 'Afterlight' and 'Legacy,' we see a Zu who has watched all of her older friends head out into the world to do meaningful work while she's made to wait and hang back because of her age. It reinforces a feeling in her that she's falling further and further behind and won't ever catch up to them.
+- 'The Darkest Minds' came from a period in my life where I felt my most powerless, when I was a teenager.
+- I've learned to really love revision over the years and worked hard to build up my craft muscle to make my revisions less and less painful with each book.
+- For those of you looking for your action-packed read, check out 'Red Queen' by Victoria Aveyard and 'Vengeance Road' by Erin Bowman. One's a fantasy and one's a Western, but they both feature strong leading ladies and some harrowing twists!
+- The truth is, I love history and studied it in college, with a particular focus on early American history. My love is so deep, in fact, I went to school at The College of William & Mary in Colonial Williamsburg.

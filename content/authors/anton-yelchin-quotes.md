@@ -1,0 +1,34 @@
++++
+author = "Anton Yelchin"
+title = "Anton Yelchin Quotes"
+quotes_len = "28"
+description = "the best28 Anton Yelchin Quotes"
++++
+- I don't hang out at trendy Hollywood bars.
+- Every relationship I've been in becomes long-distance because of work. It's never worked out. It puts an intense strain on the relationship, and at a certain point, it becomes too difficult.
+- I've been lucky to be able to work with great people and on interesting material.
+- My playing music is strictly for fun. When I was in a band, I was really excited to talk about it since I had never really played music to that extent. It was never meant as something I would consider as anything more than having fun with my friends. But I think I would enjoy writing music for the movies that I'm working on.
+- I want things to be characters and not me. Why would I want to play me?
+- Teenagers are like atoms when they're moving at hundreds of miles an hour and bouncing off each other. Everybody's got such a crazy hormonal drive and reacting to each other differently and getting upset over little things. High school puts all these potential explosions in one place.
+- I'm actually embarrassed to tell people I'm Russian these days, because it's become such an awful place.
+- There's only a handful of people I trust completely, and I know who they are. Other than that, I pretty much don't trust people.
+- I don't feel any connection to Russia.
+- The ability to have a choice in what you do is a privilege.
+- One of my favorite vampire movies is 'Nosferatu,' which has a palpable sense of dread that's a pre-war dread.
+- I feel lucky to be in whatever I'm in. I feel lucky to be working.
+- Maybe silence is something we're uncomfortable with as a culture, I don't know.
+- When you don't understand the fashion world you're just grateful you get to wear good clothes.
+- I think you can always find interesting, complex and fascinating characters to play in different kinds of movies. It's in your hands.
+- In a relationship when things are really great you don't need to say anything and just enjoy the other person. Sometimes with a couple, it gets dark and you don't know what to say and that silence can last all day. Other times you don't want to stop talking because you don't want to lose one another.
+- It would be nice to live off the land and fix cars.
+- I'm not passive aggressive. If something bothers me, I think about it, then I act on it. I express it.
+- I'm fascinated by how ethnic communities have assimilated into massive capitalist environments.
+- My parents were of the opinion, because they had started skating very young, that you should have something that you do that you care about, because it structures your life as you're growing up.
+- I've been lucky to play characters that are really broad.
+- I tried ice-skating and wasn't very good at it.
+- If you want to make movies you need to think on a micro-micro level and figure out how to make them for nothing with people who really care about your movie and really want to make it.
+- Russia itself is an extremely complex country, and sometimes I feel like all of that comes back to haunt me. I can see why so many Russian writers were so tortured.
+- I love movies.
+- I prefer when movies target my heart instead of my mind.
+- I love academics, theory and all that. I love and admire that and try to do as much reading as I can.
+- I love Andy Warhol!

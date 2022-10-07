@@ -1,0 +1,46 @@
++++
+author = "Alice Eve"
+title = "Alice Eve Quotes"
+quotes_len = "40"
+description = "the best40 Alice Eve Quotes"
++++
+- I think I'm probably quite geeky in a lot of ways. I'm pretty into books, kind of obsessive about that.
+- I really don't mind what people assume about me. I really think that my brain is my private thing. I don't need the approval of people. I don't need people to think I'm intelligent. And I'm not that intelligent.
+- In film, the camera can get an array of shots so the audience can see the emotion the character is giving off. Using close-ups on the character's face really helps get the message across. On stage, you can't do that. But the stage has that live feeling that you can't get anywhere else because the audience is right there.
+- Our body awareness in the West is ridiculous.
+- Theater's wonderful because it's visceral, and it's happening in front of you, but you never get that close. So the close-up is a great privilege of film.
+- I can't say that I know the lexicon as intimately as a lot of people, so I may be unworthy of being called a Trekkie. That would be doing a disservice to the people who really are Trekkies.
+- I'm an actress, so I hope I'm good at it.
+- My thesis at school was on Wordsworth.
+- If I feel vulnerable, I get angry.
+- I do get a lot of facials because I think that when you don't extract, your pores inevitably fill up more. I believe that facials keep your pores smaller.
+- I'm a bookworm.
+- I can't play a 65-year-old grandfather, as much as I'd like to.
+- It's no secret that beauty starts with water. It's just a basic thing - you look better if you drink loads of water. When I'm working, that's definitely the main thing I do.
+- You go on Instagram, and it's just not a real reflection of what people do and how much pain people are in every day.
+- Working with the likes of Joseph Fiennes was just an incredible experience.
+- The roles I used to be cast for were typically objectified women, so I was always being shown or spoken about through the lens of the guy.
+- My dad, in particular, was adamant that I should finish my education. He encouraged me to go to Oxford, for instance, and I rather doubt I'd have gone if he hadn't. I would have gone straight back to L.A. and tried to start my career.
+- I think we really need a government that tells us what to do.
+- I grew up on romantic comedies and love watching those films. They were, like, a real joy and a source of great pleasure and an escape.
+- I thought that I had a really healthy relationship with food, and I went home to my parents' house for a week because I cut my foot, and was recovering. I just ate loads, ate family meals, went along with group activities. And I realized how unhealthy my relationship actually is with food.
+- Acting is a great luxury, a joy, and a pleasure.
+- Our deep desires define us, really.
+- I think that after divorce, I took my life a little bit more seriously, because you have to face endings in a way that you maybe never - death in one thing, but an ending in your own chapter. It's so clearly placed there for you with divorce.
+- My dad says that when I was two or three I used to go out dressed as a different character every day. I remember thinking it was perfectly normal to wear different coloured shoes and carry a pink umbrella. But now I've got a goddaughter of that age; I realise it's not normal at all.
+- This has become a bugbear of mine: the difference between geek and nerd.
+- The Chinese say that having two homes is the way to madness. I'm not mad, but I definitely wish Hollywood would move to Trafalgar Square. But the life of an actor is a life of movement, isn't it?
+- American culture is very good at interpersonal relationships and people skills, whereas we're incredibly adept at academics and straightforward 19th-century Victorian education.
+- China's a big tea culture.
+- Rarely do you meet an American who knows his Wordsworth.
+- I support equal rights and equal dignity for all.
+- I think that there have definitely been points when I've had to fight to move my career in a different direction. I think, 2012, I did a few movies that touched on a darker side, and those are movies I'd been wanting to make and stories I'd been wanting to tell for a while. So I think it definitely takes work to move genres.
+- I did literature at university, so I had a real relationship with poetry, but they don't make many films about the world of a poet.
+- I wish that I wasn't such an odd mixture. I wish I was serious, but I do love high heels and romantic comedies: being in them and watching them.
+- Both my parents are actors.
+- I have deep compassion and support for Bruce Jenner.
+- I sort of lived half my life in California, half in England, so I am, I suppose, a little bit American.
+- Everyone's parents were famous actors at my school, pretty much! I think I went to school with Paris Hilton when I was three. That's what L.A. is, though - it's an industry town. You go to school with kids and you think, 'Well that's normal, they make movies.'
+- All through my life, I didn't really consider my eyes at all, and then I became an actress. It's great, I guess. They're just in my face, and one is green and one is blue. It's different, and I'm definitely a proponent of being different in any way you can in life, so I guess if you're born a bit different that's a good thing.
+- My dad's always been a famous actor, so I've grown up with that, and with the lifestyle. In a way, I think I thrive on the insecurity that comes with it. Not in my private life - I like to believe that my friendships and my relationships are strong.
+- I love to hang out with boys - I've got brothers - but I'm a girl's girl, in all the ways you can be girlie. Nails and chats and gossip magazines and reality TV and pop culture.

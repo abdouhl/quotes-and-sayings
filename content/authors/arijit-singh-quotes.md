@@ -1,0 +1,31 @@
++++
+author = "Arijit Singh"
+title = "Arijit Singh Quotes"
+quotes_len = "25"
+description = "the best25 Arijit Singh Quotes"
++++
+- I like to compose, but only for myself. I write my own lyrics and compose the music around them.
+- If someone is trying to skip the struggle - which is the creative job - our machines today, the technology that we have, can help the person, but it is only momentary. On the other hand, if you are creative, you have the skill, and you are hardworking, technology can only make you superior.
+- More people are asking me to come and sing for them, so obviously I am getting more work. But apart from singing, I have been parallely programming and producing music tracks and assisting music directors. That is my bread and butter, which is how I survived in Mumbai. Now I can't leave it.
+- I still don't have a car. I still travel by public transport. I take autos to travel to and fro for recordings.
+- At times, when I reach my saturation point, I go to some random place and throw my phone away.
+- I have always wanted to become a musician and a singer.
+- I'm bad in front of the camera. However, if someone gave me a small role in a film with two dialogues and one scene, I'd do it.
+- I have always liked to live my life in a quiet and peaceful manner. I used to lead my life that way. But the rise in social media has certainly affected me. Now I am always noticed.
+- Reality shows give a great platform to young singers, but kids shouldn't be exposed to showbiz at a very young age.
+- I am a simple man who comes from a village, and villagers like us speak our mind. Now, in the process, if unknowingly my words came across as disrespectful or insulting, then I am deeply sorry. I don't want to hurt anyone.
+- I've done a couple of songs which are not up to the mark. So, mentally, I've set a goal that I should be more dynamic and try and push myself as much as I can.
+- When I'm not singing, I'm a lot of persons: I'm a producer. I'm a badminton player. I'm a writer. I'm a movie freak. I'm a documentary maker.
+- Singing for a documentary that benefits the underprivileged remains one of my biggest dreams.
+- My grandma's into music. My mom is a singer. Even my sister is a much better singer than I am. So you could say music runs in the family.
+- I've been singing one kind of genre for a long time but have always tried to push to new auras about picking new songs or the same kind of genre but trying to sing it differently, treating it differently.
+- Apart from work, whatever pending things I have to do, I do it in Murshidabad.
+- When my voice breaks, it recovers automatically. I don't do anything special to maintain my voice. I have a natural voice and don't have to take care of it.
+- I would not understand when people will tell me that 'Tum hi ho' has got more than 1 million views on YouTube. I was like, 'How does it make a difference?' Later, I would go to YouTube and see songs of Rihanna, Enrique etc. and would see their hits. Then I came to know the importance. Nowadays, you can judge from these sites how big is a sing.
+- I like to read Bengali novels and short stories. I am not that fond of reading English books, as I don't have a connect with it.
+- When I joined the music scene, a lot of big-ticket singers were not getting good work... It was a lean phase.
+- In reality shows, you have to perform once and prove yourself, and after that, it is a process to prove yourself every day.
+- I've always tried to avoid electronic music in India because whatever songs I got in the genre I didn't really enjoy singing them - I didn't like the arrangements.
+- I wanted to be someone who wanted to produce music, and here I am, and I'm happy about it.
+- I have one favourite song, and that's 'Aayat' from 'Bajirao Mastani.'
+- I am songwriter. I do compose the music of songs that I write in Bengali. But I've never thought of composing for a film. That's a different art altogether.

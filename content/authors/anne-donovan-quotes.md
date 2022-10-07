@@ -1,0 +1,49 @@
++++
+author = "Anne Donovan"
+title = "Anne Donovan Quotes"
+quotes_len = "43"
+description = "the best43 Anne Donovan Quotes"
++++
+- The prospect of coaching two of the game's most exciting and decorated players in Sue Bird and Lauren Jackson was incredibly appealing to me, and I look forward to beginning this new chapter in my career.
+- I'm not used to being on the bench.
+- I will miss the ladies and the passion of the Sun fans. I was proud to serve as their head coach.
+- My heart is with the WNBA. I've had success in the league, I've loved the league. I'm a true fan of the league.
+- I think it's imperative to keep your focus on why you're in school. You're in school to get an education.
+- When my playing career stopped and Old Dominion asked me to be an assistant, I was reluctant about it because I didn't aspire to be a coach, and I didn't know if I had the qualities to be a coach.
+- There are times I'd like to be incognito, be someplace where I might not stand out.
+- Usually, when you're taking over a team, you're restructuring, you're tearing it down, you're building it up again.
+- You don't just go and pick up a gold medal anymore.
+- Yep, I jumped from college to the ABL, just in time for the league to go under.
+- There are some real memorable highlights in my history that, in my mind, are such milestones. Winning a national championship in college and being on the Olympic platform getting a gold medal. Visiting the Hall of Fame and going into the Hall of Fame.
+- Players need to come in and not take the opportunity for granted and really work hard at the game and make sure it's a team game, it's not a selfish thing. If players have those qualities - they work hard, they're selfless, they put the team before them - I have no issues with them.
+- No coach wants to sit back and not have control of the team.
+- My time at Seton Hall has been extremely rewarding. I commend the staff for their tireless and successful efforts in recruiting and elevating the program.
+- I have been with some great organizations, crossed paths with special people, and made numerous lasting relationships.
+- I don't know that I ever could've imagined just how blessed my life would be.
+- Women play a finesse game: a real pattern game as opposed to flash and dash, power and strength.
+- Probably the biggest problem I had was I didn't understand the importance of scheduling.
+- I think that the significance of the WNBA is that it has given women a different platform and a different level of respect as professionals, both as players and also in our coaching.
+- When I was coming up through the programs with the Amateur Basketball Association, it was height: they looked for the tall players, and they looked to develop us. I was 15 when they first got me.
+- The draft not being exceptionally deep, you basically take the best player available.
+- When it does not click offensively, it is very easy to get down defensively.
+- I'm the youngest of eight kids in my family. All tall, we all played basketball, so at my earliest memory, I was bouncing a ball in the backyard.
+- A lot of players were going to Europe, but there were always stories of teams not being able to pay, and the players and girls were stuck with no money for airfare to come home. So I got a nice contract from Japan and decided to play there.
+- Your highs can't be too high, and your lows can't be too low, because you have to pick back up and move on.
+- There's a beautiful thing about experience. There's a beautiful thing about veteran smarts, but there's also a beautiful thing about youth and the potential that creates down the road.
+- The contention is if you don't do it in the first quarter, if you don't box out and control the glass in the first quarter, you are not going to do it in the fourth quarter and overtime.
+- I thank God every night for David Stern.
+- I'd like to be a three-time Olympian.
+- It is very exciting to have the opportunity to return to the East Coast and join the Liberty family.
+- If you play in this country, live in this country, and you grow up in the heartland - and you put on a Russian uniform - you are not a patriotic person.
+- I don't think I understood how deep the Big East was. That was probably something I wasn't prepared for. It's not easy to part rank and make the first step into the middle of the pack.
+- At the end of the game, coaches always talk about what could have been done differently with the game plan.
+- I've been around the coaching circuit far too much.
+- I guess I concentrated exclusively on basketball because of my height. If I was shorter, I don't think I would play.
+- If I had to compete against someone almost two feet taller than me, I wouldn't want to play.
+- My parents thought I was crazy. When I graduated, you didn't hear of basketball players going to Japan. Everyone went to Europe somewhere.
+- I don't think a lot of the younger players know the extent of my background.
+- I am really excited to join the Connecticut Sun.
+- I am grateful to have had the opportunity to play for and work under the best, Pat Summitt.
+- It's in all of our interests to keep pushing athletes to see the big picture, and that's sometimes very difficult.
+- I am so thrilled about the opportunity to coach the Storm for years to come.
+- I've been playing as early as I can recall. I don't even remember the first time I picked up a basketball.
