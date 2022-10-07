@@ -1,0 +1,106 @@
++++
+author = "Sandi Toksvig"
+title = "Sandi Toksvig Quotes"
+quotes_len = "100"
+description = "the best 100 Sandi Toksvig Quotes"
++++
+- I know we don't all follow in the family footsteps, but you are, I suppose, more likely to consider becoming a butcher if you have spent your childhood watching a parent debone a pig.
+- I'd love to be a joiner or a wood turner.
+- I can't live without Radio 4. It's worth the entire licence fee. I'm an obsessive listener; I get up, and Radio 4 goes on, but it goes off when 'Thought for the Day' starts, as that's a step too far.
+- It was actually having a son made me think about feminism.
+- I have a son and two daughters, and I care equally about all three of them, and I want the world to be a better place for all of them.
+- People say, 'When did you decide you were gay?' and you think, 'When did you decide you were heterosexual?' It's not a decision: it's something you gradually begin to realise about yourself.
+- I am keen on a spiritual life and have struggled to find a place for my heart in a religious community.
+- There are panel shows that struggle to get women on, and that's because the women feel marginalised and stupid and in the edit are often seen just laughing at the boys and not saying anything at all even though I know for a fact in the recording they were clever. I'm not shy at speaking up, but even I, on those shows, am silenced.
+- I've met Theresa May, and I think she's a good person. I'm not someone who goes, 'Ooooh, boooo, the Tories,' or 'Ooooh, boo' anyone, actually. You sit down and have a sensible conversation, and she is really, really capable of having a sensible conversation.
+- 'QI' is exactly what the best TV ought to be - you learn something, but you are also crying with laughter.
+- Noel Fielding is one of the nicest guys in show business. The first time I met him, I felt like I had met a rather wayward cousin whose take on the world made me laugh.
+- 'The News Quiz' is one of the things I am proudest of in my professional life.
+- I will try anything that doesn't involve a leotard.
+- Although I'm sure she's completely charming and delightful, I'm not sure if Kate Middleton might be the best role model. This is a person who has got where she is by marriage, a person whose weight, clothing, hair we worry about - we don't worry about what she's thinking.
+- The problem with money issued by any government is that its only value is what those in charge decree.
+- Women are not allowed to be polymaths; we're only allowed to do single maths.
+- I cannot lie on the beach or by a swimming pool. I think I'm too Nordic to like a lot of relentless sun.
+- Because of my fighting for LGBT rights, I have seen the possibility of change. And that gives me heart to believe that it is possible to effect change.
+- I'm ashamed to say, I've done hideous pen portraits of people I don't like in my novels. And they'll say, 'Oh, that person was hideous,' and I'm nodding, and I'm thinking, 'It's you, you fool!'
+- You want a kitchen put in, I'm your girl. I'm very handy, and I love a practical challenge. I fit all the stereotypes of the lesbian with power tools.
+- I wish I was fitter.
+- I've always liked being able to go around incognito in Copenhagen.
+- I'm political in the sense that there's much to be done, but I'm apolitical in the sense that I don't think there's a party that represents anything I believe in.
+- I decided that instead of making jokes about politics, I need to take part in it, and therefore, I can't make jokes and participate.
+- I was born gay, OK? I've always known. I don't think my family were the least bit surprised.
+- What I think is if the world is in some difficulty - about climate change, about economics - then we had better make sure that 100 per cent of every brain available on the planet is working at full pelt to try to sort these things out.
+- I don't think secrets are a good thing. I think they are a cancer of the soul. So I decided to come out.
+- I am passionate about higher education and am hugely impressed by Portsmouth's mission to encourage students from every walk of life to excel.
+- The fact is, there is not now, nor has there ever been in the whole of history, a single country in the world where women have equality with men.
+- I dislike hatred, offence, unkindness.
+- With my daughters, it didn't matter how much it was not my thing, we went through two truly horrible pink phases. I bought an awful lot of Barbie rubbish, and it was a great day when I was allowed to send Barbie's house to the skip. That was one of the best days of my life.
+- Mostly, I'm totally happy in my own space at home with the door closed with my family and friends.
+- When we laugh out loud and we realize that there are others who think the same as us, then we feel better.
+- I've had a surprising number of near-death experiences: I was nearly blown up by a landmine in Sudan; I was stranded on the Zambezi river at night; I was bucked off a rodeo horse in Arizona and had to be airlifted to hospital; and, worst of all, I once ate a Pot Noodle.
+- English is full of Scandinavian words. Margate, Ramsgate, Billingsgate, any town with a 'gate' on it takes their suffix from the Danish word 'gade' which simply means 'street.'
+- Endless books claim that the brains of men and women are wired differently. They have titles such as 'Why Men Don't Iron' and set out to convince us that women are somehow biologically suited to getting the creases out of clothes while men peruse maps.
+- Too often, there are complaints in the British papers about the BBC. It's too left wing, too right wing, too pro-Brexit, too anti, and so on. It's only when you go abroad and try to find out what is going on in the world that everyone falls with gratitude before the BBC News.
+- I'm trying to get my kids - in particular, my step-daughter Mary, who's 12 - to recommend music to me. You reach a certain age and realise you haven't kept up, but I don't want to fall behind.
+- I was never interested in how I look.
+- I'm absolutely obsessed with boxing.
+- For three months, when I was 23 years old, I worked as a clerk at Wandsworth Sewer.
+- I've downloaded the BBC's 'Cranford' with Judi Dench because I like a bit of bonnet acting, and I can turn it on and off without worrying about whether I can follow what's happening.
+- I had tried every diet out there - I would lose weight for a bit, then put it back on again.
+- My earliest memory is my parents forgetting my fourth birthday. My dad looked up from reading the paper and went, 'Oh my God!' So we went out, and I chose a red scooter.
+- When people say, 'There aren't enough women on panel shows,' the answer is to make the host a woman.
+- I am 5 ft. tall myself, and it is rare that I meet someone new who doesn't comment on my height.
+- Cheryl Cole is one of the few incredibly famous people who still seems to say what they think. I really like that; plus, I do fancy her quite a bit.
+- Is raising boys different from raising girls? Oh my goodness, yes! It's a different species, and I love them for that.
+- The truth is I have never been any good at sport, OK?
+- The number one thing in my whole life is my children, and I want to be there for them.
+- I think kids are in your temporary care, and that they probably arrive with pretty much the personalities they're going to have. I grew up in a perfectly traditional family and turned out how I did. I'm not sure there's much that the family can do except lots of love and lots of care and lots of chances for them to develop the best they can.
+- Like most women, my weight goes up and down.
+- The other day, I was taking part in an audience Q&A when I was roundly scolded by a woman for 'allowing the BBC to ruin the English language.' Naturally I felt terrible, as I had no idea either that it was happening or that I was responsible.
+- Language is ever on the move, and most days, I check out the 'Urban Dictionary' where anyone can invent a new and useful word or phrase.
+- Social media, to me, has got out of hand. Why can't we all be nice to each other?
+- My dad died of a massive heart attack when he was 59, as he didn't look after himself.
+- Us Danes have amazing pastries, but we're not a fat nation.
+- I am always slightly mystified by the whole 'Snow White' story. What are the chances of coming across that many diminutive men living in one house in the woods?
+- I'm quite a shy person, and I dislike narcissism intensely.
+- The truth is I don't really like the world of plastic money: the great chip-and-pin double act of modern payment. I prefer cash. I don't like the idea of some distant clerk nodding each time I make a card purchase and quietly adding to my 'consumer profile.' I'm anti all cards.
+- If you play-act for a living, it's better not to carry on doing it when you get home.
+- My ambition is to stop showing off. I'd love to be a tweedy academic. I'd be happy living in a croft. I like making jam. So why am I a semi-public figure?
+- The secret to my success is to work seven days a week. It's as disappointing an answer as the one about how to lose weight. Eat less. Sleep less. Very boring.
+- I have to say, I have to tell you that my kids had a most marvelous time having two moms. When my daughter was at university, she got flu. And both mums rushed to be with her. And we were both looking after her and making soup and tidying up. And one of her friends came in and went, 'Two mums? Not fair.'
+- When I came out in September 1994, I was, as far as I know, the only out lesbian in British public life.
+- Don't climb into a fridge. That's my advice.
+- I would not be able to keep going at the pace that I do if I had continued at the weight that I was. I feel so much better; I eat better. I sleep better. I actually enjoy exercise.
+- Food is an international language, an expression of love.
+- I'm slightly obsessed with women's history, so I'd love to talk to Emily Dickinson or Louisa May Alcott.
+- A lot of what we think of as history is actually just a version of events which may or may not be true.
+- At my worst, I was a size 22, and at that size, you can't go down the high street and buy yourself things that make you feel good. Your shopping options are limited in a way they aren't when you are a size 12.
+- I hope I don't have an ego.
+- I don't know a lot about mountaineering. I once went walking in the Lake District with the legendary climber Chris Bonington and had to have emergency physio afterwards to regain sensation in my thighs.
+- You can go anywhere in the world, and people's faces light up when they put delicious food in their mouths.
+- I haven't the energy to despise anyone.
+- I haven't got the patience for small talk, although I once saw a woman standing on her own in the corner, and I realised it was Monica Lewinsky, and I had the nicest evening with her - she was charming.
+- My wife and I drove across America following the Oregon Trail, which the pioneers once passed along.
+- You can't complain or have a say if you don't vote.
+- I worry that every time I lay down my credit card of choice, it says something about me. About my social standing or how I see myself. The very colour of your card is an indication of where you stand in the wealth stakes.
+- Do you know there were two pilots made for 'Have I Got News For You' before the series started two decades ago: one hosted by Angus Deayton and one hosted by me. But I was told that they couldn't have a woman in charge of the news.
+- I get in a temper with inanimate objects. I can't bear plastic. I do get in a complete rage with something that's been shrink-wrapped.
+- Sitting on a plastic chair at night listening to the sea lapping below while sipping a cold beer is about as good as life gets.
+- One of my life's watchwords is 'hyggelig.' It's an untranslatable Danish term for getting together with friends and family and sitting around in a cosy atmosphere with nice food and wine and candles.
+- I always wanted to get married. I was very drawn to the idea of a partner with whom you went through life, a mate who was always in your corner.
+- I went to a physiotherapist, and she said something to me no one has ever said: 'Sandi, you have plantar fasciitis, because you're fat.' I left and sat in my car shaking. She'd told me the truth, which no one else had. It was painful, but I needed to hear it.
+- You have to stand for the things that you believe in. You have to stay strong inside.
+- I don't care if you're from the right or left of politics - there are core objectives we can all agree on: equal pay, equal representation on the media, equal representation at board level, politics, an end to domestic violence.
+- Oh my God, don't ever start a political party. It's exhausting.
+- Being attracted to my own sex was as much part of who I was as being short or blonde or drawn to the library, but I was made to grow up feeling 'other.' Most books, films - even advertisements - didn't reflect how I felt, and I often watched the world from the outside.
+- No matter how far I travel from Denmark, I still miss the food, so ScandiKitchen in Great Titchfield Street in central London is an essential part of my life.
+- I was once very unpleasantly groped while I was broadcasting by a famous individual who shall remain nameless. When I told the staff afterwards what had happened, everybody thought it was amusing. There was a shrugged shoulder approach to the whole thing.
+- I'm 57 years old, and I host a quiz show every single day. I got asked in a recent interview, did I feel that hosting a quiz show helps keep my brain sharp? And I asked - would you ask Stephen Fry that question, who is exactly the same age as me? Somehow, I'm managing to stand up and stay cogent despite my incredible age.
+- I've played the Royal Albert Hall to 8,500 people, and there wasn't a nerve in my body.
+- I love 'Teach Yourself' books. I bought an old weaving loom and had no time for classes, but one 'Teach Yourself' later, and my bobbin is flying.
+- I certainly wouldn't want to be a Mini Me of any of the people whose footsteps I've followed in.
+- I think communication should be fun and that we should all worry less about how we say things and more about what we say.
+- There was a really long period of time when, if the newspapers ever referred to me, even if I was talking about, I don't know, cake making, they would put 'lesbian Sandi Toksvig.'
+- My life won't have full quality until we achieve equality for all.
+- I'd love to retire in terms of not having to go to work anymore and earn a living.
+- When my three children were little, I took them to Rome. On our way to our destination, we went to see the Colosseum and returned to the car to find everything had been stolen. Trying to buy everything for a week, including clothing for three small, very tired children, was a low point in my life.

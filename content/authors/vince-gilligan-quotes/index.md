@@ -1,0 +1,39 @@
++++
+author = "Vince Gilligan"
+title = "Vince Gilligan Quotes"
+quotes_len = "33"
+description = "the best 33 Vince Gilligan Quotes"
++++
+- It's amazing, the quality of good work that happened in the fifties when a series would have to turn out 30-some episodes a season - it's amazing that 'I Love Lucy' was as good as it was!
+- You don't make a movie by yourself; you certainly don't make a TV show by yourself. You invest people in their work. You make people feel comfortable in their jobs; you keep people talking.
+- We all put on faces, as Walter White does. We put on faces when we meet our friends, when we meet new people, when we present ourselves in interviews. We try to be who the people we meet want us to be, or who we want to truly be.
+- Sometimes when you're creating something, it takes on a life of its own, and you can be surprised at how sad or dramatic it might get.
+- The thing that intrigued me about 'Breaking Bad' from day one was the idea of taking a character and transforming him.
+- If you look closely at 'Breaking Bad' and any given episode of 'The X Files,' you will realise the structure is exactly the same.
+- How do you find a better actor than Michael McKean? How do you find someone who's just that good? They don't grow on trees. Plus, he's a pleasure to work with, pleasure to be around.
+- I was always the kid who wanted Christmas to not come, because I realized at a pretty early age that no matter what you got, there's always a little bit of a letdown. It's like, 'Oh, gee, I wanted two ponies, not one.'
+- Sometimes confidence can lead you to accept the first decent idea instead of to really strive to even discard that and go for the ultimate great idea. So in a weird way, I think confidence is overrated sometimes.
+- A big part of the job of being a showrunner is, in my way of thinking, being a good communicator because there's really no other way to have hope for getting what you want, at the end of the day.
+- 'SpongeBob SquarePants' is a great show, and it centers on a character that is courageously nice. Why is SpongeBob interesting? It's because he has passion. He has a passion for chasing jellyfish.
+- The very design of 'Breaking Bad' was that it was a finite, close-ended series.
+- The sad truth is, there's more Walter White in me than I'd care to admit, because if I truly was as kind as people think I am, I wouldn't be able to write Walter White.
+- Finding yourself on a show that's appreciated by its intended audience is a very rare and lucky thing, so when you win the lottery like that, you don't want to rush its conclusion; you want to keep it going as long as you can.
+- I never thought anyone would come up to me and say, 'I like 'Better Call Saul' better than 'Breaking Bad.'' If you had asked me before we started, 'Would that bother you if someone said that?' First of all, I would have said, 'That's never gonna happen. And yeah, it probably would bother me.' It doesn't bother me a bit. It tickles me. I love it.
+- My brain- the older I get, it holds even less. There's not the capacity I would wish there to be.
+- I'm very glad people love 'Breaking Bad,' but the harder character to write is the good character that's as interesting and as engaging as the bad guy.
+- There are two ways of knowing if something ends badly: If you're honest with yourself, you just kind of know it. And then there's other people's reaction to it.
+- A typical TV show is always about protecting the franchise - it's all about stretching it out as long as you can take it. And it's about taking the characters in any given hour as far as you can take them, but then resetting them more or less back to zero so at the beginning of the next week, so they're still the character you know and love.
+- People want what they want, for as long as they want it, then tastes change and something else works.
+- For many decades - and this was reinforced by the broadcast networks' standards-and-practices department - bad guys on TV had to get their comeuppance, and good guys had to be brave and true and unconflicted. Those were the laws of the business.
+- I'm not big into spoilers. Just personally, I don't want anything spoiled.
+- TV is designed to keep characters in place for years on end. The best example is 'M*A*S*H:' You have a three-year police action in Korea, and they stretched that out to eleven seasons. It was a great show, but when you think about it, a weird unreality overtakes a television series. You see the actors age, and yet the characters don't.
+- You can cheat in solitaire, but there's nothing satisfying about cheating in solitaire.
+- Our rational, realistic goals for 'Better Call Saul' were simply that it wouldn't suck, and it wouldn't embarrass us. It didn't rise much higher than that, to be honest.
+- 'Breaking Bad'... the beauty of it is, some people are always going to love 'Breaking Bad' more. But I run into people every day now who say 'Better Call Saul' is their favorite of the two. I love hearing that. I don't know where I fall personally on that scale, that continuum - I try not to choose.
+- I think one of the reasons for the success of 'Breaking Bad,' and now for 'Better Call Saul,' is that we have been blessed by AMC and Sony with enough time to figure things out.
+- I do see the world in pretty dark terms. I find it colder and scarier the older I get.
+- There's nothing more powerful to a showrunner than a truly invested writer.
+- The older I get, the more nervous and anxiety-ridden I get. I don't know how to fix that.
+- 'Better Call Saul' gets surprisingly dark.
+- We shot 'Breaking Bad' on film; we capture 'Better Call Saul' digitally. In the shooting of 'Breaking Bad,' we would have this steady, handheld, cinema verite sort of look, so we purposely went the opposite way with 'Better Call Saul' - locked in the cameras and made the movements smoother and more mechanical.
+- Theater is a wonderful medium - I love theater myself, and there are exceptions to every rule - but the thing that motion pictures can do that theater cannot is that in movies, you don't have to rely on dialogue.

@@ -1,0 +1,17 @@
++++
+author = "Daniel H. Hill"
+title = "Daniel H. Hill Quotes"
+quotes_len = "11"
+description = "the best 11 Daniel H. Hill Quotes"
++++
+- Let our children be taught love love love.
+- There was a nuisance in the service known as the army correspondent.
+- Our gloomy Presbyterian ideas encourage fear of God, not love for him.
+- Faculty met, and after the usual business, some conversation was had about certain students being addicted to drinking, and it was reported that a citizen of the village had informed a member of the Faculty that there was a good deal of drinking this term among the students.
+- Jackson, however, persevered. He joined the Franklin Debating Society, an institution that had been in existence over fifty years, and had enrolled in its membership some of the ablest men in Virginia.
+- Those who have happy homes seldom turn out badly.
+- But the admiration for Jackson was by no means confined to his own soldiers and to his own section.
+- Train our children to love God.
+- Jackson went from the professor's chair to the officer's saddle. He carried with him the very elements of character which made him odious as a teacher; but I never saw him in an arbitrary mood.
+- Jackson was not a religious man when he came to Lexington.
+- As the knight of the quill never ventured into the fight, and only snuffed the battle afar, he knew nothing accurately of battles, but managed to pick up a few real or supposed incidents from the wounded and from stragglers.

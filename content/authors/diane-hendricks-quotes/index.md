@@ -1,0 +1,21 @@
++++
+author = "Diane Hendricks"
+title = "Diane Hendricks Quotes"
+quotes_len = "15"
+description = "the best 15 Diane Hendricks Quotes"
++++
+- It's sad that we vote for and elect officials to run our state, run our country, over social issues. I don't believe they belong in politics.
+- Of our seven children, five are at ABC Supply. The three older daughters went to college. The boys went into construction, and I wasn't disappointed they didn't go to college.
+- I became pregnant by my first love at 17 and did what my parents thought was the right thing. I married him. My first husband and I moved to Janesville, Wis., where he worked in a Chrysler plant.
+- I don't have heroes, exactly, but I do have people I hold in high respect. Ronald Reagan, for example, stood for ideals that I value: integrity, patriotism and a fundamental belief in goodness and capabilities of mankind.
+- I'm one of nine sisters. My parents were dairy farmers in Wisconsin. My father didn't believe in girls doing farm work. Girls did housework, and he hired young men to do farm work. I would have preferred to be outside.
+- I don't think I have ever taken any 'offbeat' advice. Actually, I don't know I take any advice very often. I trust my own instincts and seek out information so I can make fully informed decisions. That's what's worked for me.
+- Did we ever plan on being billionaires? No, but we wanted to be millionaires.
+- When I was 9, we moved to Osseo, Wis., where we owned a couple of hundred acres. My father was well respected in town.
+- People have lost what this nation was built on. I think our core values have been set aside... I believe in the Constitution, the Bill of Rights.
+- I've always been very driven and knew that to get where I wanted to go, I could never give up.
+- If we just go back to the basics... I do not want to give up our republic and become a socialistic ideological nation. That's not who we are.
+- We need to get out of the way of the small business owner - and big business owners - and allow them to do what government can only dream of doing: creating jobs and thereby creating wealth.
+- Talk to successful entrepreneurs. Learn about what they've experienced so you can avoid some of the pitfalls that come with wealth.
+- I'm in a male-dominated industry.
+- I'm not a meek lady who stays at home and cooks.

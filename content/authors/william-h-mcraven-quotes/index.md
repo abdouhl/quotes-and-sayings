@@ -1,0 +1,31 @@
++++
+author = "William H. Mcraven"
+title = "William H. Mcraven Quotes"
+quotes_len = "25"
+description = "the best 25 William H. Mcraven Quotes"
++++
+- To be a good leader, you have to be a good communicator. As a leader, you have to communicate your intent every chance you get, and if you fail to do that, you will pay the consequences.
+- The purpose of the mission must be thoroughly understood beforehand, and the men must be inspired with a sense of personal dedication that knows no limitations... In an age of high technology and Jedi Knights, we often overlook the need for personal involvement, but we do so at our own risk.
+- Keep your cool, even when those around you can't.
+- If you start focusing on the next job, then you're probably not going to do the one you have very well.
+- If you want to change the world, find someone to help you paddle.
+- I am not running with Hillary.
+- My wife and I make the bed every morning, but it's a queen size bed today, as opposed to a rack, you know, a small single bed, which I had in basic SEAL training.
+- Nighttime frequently increases alertness, and each mission should consider the ramifications of a night assault. Several of the most successful special operations were conducted in daytime and achieved a high degree of surprise.
+- I'm not a political guy.
+- To me, basic SEAL training was a lifetime of challenges crammed into six months.
+- You can't change the world alone - you will need some help - and to truly get from your starting point to your destination takes friends, colleagues, the good will of strangers and a strong coxswain to guide them.
+- Basic SEAL training is six months of long, torturous runs in the soft sand, midnight swims in the cold water off San Diego, obstacles courses, unending calisthenics, days without sleep and always being cold, wet and miserable.
+- We're trying to get the SEAL community back to where we think it should be - quiet professionalism.
+- We must challenge this statement and this sentiment that the news media is the enemy of the American people. This sentiment may be the greatest threat to democracy in my lifetime.
+- I think the best way to get a good night sleep is to work hard throughout the day. If you work hard and, of course, work out.
+- SEALs aren't the only heroes out there. Everyone who puts on a uniform meets that threshold.
+- If you want to change the world, start off by making your bed.
+- I think ninjas are probably quieter than SEALs, but we are better swimmers, and also better with guns and blowing things up.
+- Flaws and all, I believe the free press is our country's most important institution - one I am more than happy to defend. One I did, in fact, defend for 37 years.
+- SEAL training was a great equalizer. Nothing mattered but your will to succeed. Not your color, not your ethnic background, not your education and not your social status.
+- Petraeus is the finest general I have ever worked for; Holly Petraeus is a great American hero.
+- As ISIS begins to gain momentum beyond where they already are, it really does create - but you see the surge of refugees and immigrants into Europe, and this is a major problem for the Europeans... But the United States is going to have to take the lead.
+- If you can't do the little things right, you will never do the big things right.
+- In a special operations mission, the concept of speed is simple. Get to your objective as fast as possible. Any delay will expand your area of vulnerability.
+- There is nothing more important to a democracy than an active and engaged press.

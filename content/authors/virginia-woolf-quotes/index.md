@@ -1,0 +1,92 @@
++++
+author = "Virginia Woolf"
+title = "Virginia Woolf Quotes"
+quotes_len = "86"
+description = "the best 86 Virginia Woolf Quotes"
++++
+- Almost any biographer, if he respects facts, can give us much more than another fact to add to our collection. He can give us the creative fact; the fertile fact; the fact that suggests and engenders.
+- Odd how the creative power at once brings the whole universe to order.
+- Indeed, I would venture to guess that Anon, who wrote so many poems without signing them, was often a woman.
+- Language is wine upon the lips.
+- If one could be friendly with women, what a pleasure - the relationship so secret and private compared with relations with men. Why not write about it truthfully?
+- This soul, or life within us, by no means agrees with the life outside us. If one has the courage to ask her what she thinks, she is always saying the very opposite to what other people say.
+- I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in.
+- Arrange whatever pieces come your way.
+- I want the concentration and the romance, and the worlds all glued together, fused, glowing: have no time to waste any more on prose.
+- If you do not tell the truth about yourself you cannot tell it about other people.
+- The eyes of others our prisons; their thoughts our cages.
+- If we help an educated man's daughter to go to Cambridge are we not forcing her to think not about education but about war? - not how she can learn, but how she can fight in order that she might win the same advantages as her brothers?
+- Every secret of a writer's soul, every experience of his life, every quality of his mind is written large in his works.
+- It is fatal to be a man or woman pure and simple: one must be a woman manly, or a man womanly.
+- The history of men's opposition to women's emancipation is more interesting perhaps than the story of that emancipation itself.
+- It seems as if an age of genius must be succeeded by an age of endeavour; riot and extravagance by cleanliness and hard work.
+- Women have served all these centuries as looking glasses possessing the power of reflecting the figure of man at twice its natural size.
+- On the outskirts of every agony sits some observant fellow who points.
+- We are nauseated by the sight of trivial personalities decomposing in the eternity of print.
+- This is not writing at all. Indeed, I could say that Shakespeare surpasses literature altogether, if I knew what I meant.
+- Once conform, once do what other people do because they do it, and a lethargy steals over all the finer nerves and faculties of the soul. She becomes all outer show and inward emptiness; dull, callous, and indifferent.
+- The poet gives us his essence, but prose takes the mold of the body and mind.
+- I can only note that the past is beautiful because one never realises an emotion at the time. It expands later, and thus we don't have complete emotions about the present, only about the past.
+- I read the book of Job last night, I don't think God comes out well in it.
+- If you insist upon fighting to protect me, or 'our' country, let it be understood soberly and rationally between us that you are fighting to gratify a sex instinct which I cannot share; to procure benefits where I have not shared and probably will not share.
+- Some people go to priests; others to poetry; I to my friends.
+- One has to secrete a jelly in which to slip quotations down people's throats - and one always secretes too much jelly.
+- It's not catastrophes, murders, deaths, diseases, that age and kill us; it's the way people look and laugh, and run up the steps of omnibuses.
+- There can be no two opinions as to what a highbrow is. He is the man or woman of thoroughbred intelligence who rides his mind at a gallop across country in pursuit of an idea.
+- Humor is the first of the gifts to perish in a foreign tongue.
+- It is in our idleness, in our dreams, that the submerged truth sometimes comes to the top.
+- We can best help you to prevent war not by repeating your words and following your methods but by finding new words and creating new methods.
+- For what Harley Street specialist has time to understand the body, let alone the mind or both in combination, when he is a slave to thirteen thousand a year?
+- The beauty of the world, which is so soon to perish, has two edges, one of laughter, one of anguish, cutting the heart asunder.
+- It is the nature of the artist to mind excessively what is said about him. Literature is strewn with the wreckage of men who have minded beyond reason the opinions of others.
+- Mental fight means thinking against the current, not with it. It is our business to puncture gas bags and discover the seeds of truth.
+- Let a man get up and say, Behold, this is the truth, and instantly I perceive a sandy cat filching a piece of fish in the background. Look, you have forgotten the cat, I say.
+- It is curious how instinctively one protects the image of oneself from idolatry or any other handling that could make it ridiculous, or too unlike the original to be believed any longer.
+- When the shriveled skin of the ordinary is stuffed out with meaning, it satisfies the senses amazingly.
+- Great bodies of people are never responsible for what they do.
+- For most of history, Anonymous was a woman.
+- I was in a queer mood, thinking myself very old: but now I am a woman again - as I always am when I write.
+- The connection between dress and war is not far to seek; your finest clothes are those you wear as soldiers.
+- You send a boy to school in order to make friends - the right sort.
+- You cannot find peace by avoiding life.
+- It is far harder to kill a phantom than a reality.
+- Fiction is like a spider's web, attached ever so slightly perhaps, but still attached to life at all four corners. Often the attachment is scarcely perceptible.
+- Where the Mind is biggest, the Heart, the Senses, Magnanimity, Charity, Tolerance, Kindliness, and the rest of them scarcely have room to breathe.
+- Life is not a series of gig lamps symmetrically arranged; life is a luminous halo, a semi-transparent envelope surrounding us from the beginning of consciousness to the end.
+- Somewhere, everywhere, now hidden, now apparent in what ever is written down, is the form of a human being. If we seek to know him, are we idly occupied?
+- Masterpieces are not single and solitary births; they are the outcome of many years of thinking in common, of thinking by the body of the people, so that the experience of the mass is behind the single voice.
+- To depend upon a profession is a less odious form of slavery than to depend upon a father.
+- That great Cathedral space which was childhood.
+- One cannot think well, love well, sleep well, if one has not dined well.
+- A woman must have money and a room of her own if she is to write fiction.
+- One likes people much better when they're battered down by a prodigious siege of misfortune than when they triumph.
+- Someone has to die in order that the rest of us should value life more.
+- The beautiful seems right by force of beauty, and the feeble wrong because of weakness.
+- The older one grows, the more one likes indecency.
+- Rigid, the skeleton of habit alone upholds the human frame.
+- My own brain is to me the most unaccountable of machinery - always buzzing, humming, soaring roaring diving, and then buried in mud. And why? What's this passion for?
+- The man who is aware of himself is henceforward independent; and he is never bored, and life is only too short, and he is steeped through and through with a profound yet temperate happiness.
+- Who shall measure the hat and violence of the poet's heart when caught and tangled in a woman's body?
+- As a woman I have no country. As a woman my country is the whole world.
+- Boredom is the legitimate kingdom of the philanthropic.
+- Literature is strewn with the wreckage of men who have minded beyond reason the opinions of others.
+- Each has his past shut in him like the leaves of a book known to him by his heart, and his friends can only read the title.
+- This is an important book, the critic assumes, because it deals with war. This is an insignificant book because it deals with the feelings of women in a drawing-room.
+- I would venture to guess that Anon, who wrote so many poems without signing them, was often a woman.
+- Nothing has really happened until it has been recorded.
+- Thought and theory must precede all salutary action; yet action is nobler in itself than either thought or theory.
+- These are the soul's changes. I don't believe in ageing. I believe in forever altering one's aspect to the sun. Hence my optimism.
+- A good essay must have this permanent quality about it; it must draw its curtain round us, but it must be a curtain that shuts us in not out.
+- Yet, it is true, poetry is delicious; the best prose is that which is most full of poetry.
+- It is far more difficult to murder a phantom than a reality.
+- Sleep, that deplorable curtailment of the joy of life.
+- Nothing induces me to read a novel except when I have to make money by writing about it. I detest them.
+- The truth is, I often like women. I like their unconventionality. I like their completeness. I like their anonymity.
+- Yet it is in our idleness, in our dreams, that the submerged truth sometimes comes to the top.
+- Why are women... so much more interesting to men than men are to women?
+- The telephone, which interrupts the most serious conversations and cuts short the most weighty observations, has a romance of its own.
+- One of the signs of passing youth is the birth of a sense of fellowship with other human beings as we take our place among them.
+- Really I don't like human nature unless all candied over with art.
+- A masterpiece is something said once and for all, stated, finished, so that it's there complete in the mind, if only at the back.
+- There is much to support the view that it is clothes that wear us, and not we, them; we may make them take the mould of arm or breast, but they mould our hearts, our brains, our tongues to their liking.
+- To enjoy freedom we have to control ourselves.

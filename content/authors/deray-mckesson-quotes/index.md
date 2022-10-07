@@ -1,0 +1,106 @@
++++
+author = "Deray Mckesson"
+title = "Deray Mckesson Quotes"
+quotes_len = "100"
+description = "the best 100 Deray Mckesson Quotes"
++++
+- I was a teacher. I also worked at Harlem Children's Zone. I moved back to Baltimore and opened up an after-school, out-of-school program on the west side and then worked in two public school districts, in Baltimore and Minneapolis.
+- The difference between equity and equality is that equality is everyone get the same thing and equity is everyone get the things they deserve.
+- The activism of marginalized people often comes with visibility and being heard. Which can lead people to believe that recognition and awareness is the actual end point. And it is not.
+- People are more afraid of black unity than black rage.
+- You are enough to start a movement. Individual people can come together around things that they know are unjust. And they can spark change.
+- We question these issues of race and struggle and white privilege because we know that those issues are real and because those issues have real implications in black communities. And white supremacy is not only dangerous, but it is deadly.
+- I think about freedom and the urgency around our imagination. If you can't imagine it, you can't fight for it.
+- What we choose to do today and tomorrow will shape our future and build our reality.
+- I love Baltimore. This city has made me the man that I am.
+- Everybody has told the story of black people in struggle except black people. The black people in the struggle haven't had the means to tell the story historically. There were a million slaves, but you see very few slave narratives. And that is intentional.
+- It is not a new tactic for people to use any avenue they can to silence black activists.
+- I'm a black, gay man, and I should be able to live in a world where I'm able to live in the complexity of my identity in a way that is safe and secure, like everyone else.
+- Sometimes, the hate that I endure is not necessarily about me but about the space I'm in.
+- Expressing and loving myself is often so much more complex than 'out' affords me.
+- I think that I, because of student government and because of working in Baltimore, knew how to be creative with very little resources.
+- Activism in the street is truth-telling, and organizing is talking to people for a specific goal.
+- I will never forget the first time I was teargassed or the night I hid under my steering wheel as the SWAT vehicle drove down a residential street. I will never forget that it was illegal - in St Louis, in the fall of 2014 - to stand still.
+- When I tweet, I'm mostly preaching to the choir.
+- A cacophony of whispers is also noise. There are many ways to be heard, and there are many ways to be visible. There are many ways to be seen.
+- When I reflect on the Colbert interview, it moved so quickly that what we didn't do was define white privilege, and I wish we had done that. White privilege is the benefit resulting from white being seen as the standard, regardless of gender and income.
+- I think about Twitter as the friend that's always awake. It's why I tweet so much.
+- Bowdoin was the first place that I fell in love with. When I visited, I just had never been to a place with that many resources and that much access to information. That was stuff that you saw in movies. I didn't know that existed in real life.
+- My father and mother deeply loved me and my sister.
+- Protest is political. It is as political as what our conception of America is.
+- The history of blackness is also a history of erasure.
+- We have to create a world where people can show up as whole people every single time.
+- Social media allowed us to become our own storytellers. With it, we seized the power of our truth.
+- I think about all of my students who were math-phobic, who didn't believe they could learn math, who didn't understand, who didn't think they were smart enough, and by the end, they understood that they already had the gifts, and my job was to help them access them, and I believe that.
+- I think that Silicon Valley and technology can play a huge role in redefining what community looks like and how people come together and what authentic relationships look like, but that is not only their burden.
+- When Trump says, 'Make America great again,' he is referencing an era when people were singled out and harmed because of their race and religious beliefs, and when violent enforcement of Jim Crow masqueraded as the will of the people.
+- There are very few things that I don't talk about - even my relationships.
+- If anything, any success that I have ever experienced has been because people who didn't have to care about me did, and they pushed me to see things in myself that I did not see in myself at the time.
+- Baltimore is a city of possibility, and we've got to challenge the traditional pathways of politics and politicians who lay those paths.
+- There are people who have demonstrated their willingness to challenge systems and structures, and then when it comes to elections, some of those same people - I don't know where their fight went. What's interesting to me is to see people lose the revolution when it comes to elections.
+- I just couldn't believe that the police would fire tear gas into what had been a peaceful protest. I was running around, face burning, and nothing I saw looked like America to me.
+- If City Hall started projecting swastikas, no one would say 'You know what? Free speech.' People would say that is wrong.
+- Twitter is half me trying to live in the world and half me processing and sharing the world. I share a lot, and some of that is to keep me honest.
+- If Trump is president, I think that his administration will do real structural damage that will take years or decades for us to undo.
+- The student newspapers are as important to me as the 'New York Times.'
+- Laws on hate speech and hate crimes do important work in a world that has been rooted in racism and bigotry since the inception of this country, which was not founded on ideals of justice.
+- The first time I was ever impressed with Patagonia as a brand was when they released the 'Don't Buy This Jacket' campaign. That campaign highlighted their understanding of their role in a larger environmental justice space.
+- So many of us don't know what we want; we just know we don't want what we have. We spend 99% of the time talking about how bad it is, but only 1% of the time talking about how we can do something about it.
+- Some people are more interested in fighting than winning.
+- Trump wants to take us back to a time when people like him could abuse others with little to no consequence, when people like him could exploit the labor of others to build vast amounts of wealth, when people like him could create public policy that specifically benefited them while suppressing the rights and social mobility of others.
+- Find an issue that's important to you, and be as curious and close to it as possible.
+- When I think about protest, I worry so much that people think about it only as standing in the streets. And I say that as someone who has been standing in the streets of cities across the country - but at the root of it is this idea of telling the truth in public.
+- I think hope is the belief that tomorrow can be better than today, and I don't lose hope.
+- What we know to be true is that comfort isn't always freedom. People confuse the two.
+- The police, at their best, do three things; they prevent crime, they respond to crime, and they solve crime. In all three of those buckets, they need the trust of the community to do it, so I believe that if we restore the trust that we will change the way police are experiencing communities and ways that will preserve life and make everyone safer.
+- I've worked in two public school districts, Minneapolis and Baltimore, one as a senior leader. And while we might not always have agreed with the union, and we might have had deep differences, they came to the table.
+- I think people who are not from here think the Inner Harbor is the only center for culture or fun in the city, and there's so much more to Baltimore. The Harbor's a beautiful place, but there are so many gems embedded in other communities that don't get as much visibility.
+- I think the reality is that there's a role for everybody to play in the work of social justice and that we have to organize everybody. That means that Silicon Valley has to be organized, the fashion industry has to be organized, the formerly incarcerated have to be organized, the teachers.
+- There will always be a rule. There will be people who break the rules. There will be consequences. We fundamentally think these things will be true for a time. The question becomes, What are the consequences? Who enforces the consequences? What are the worst consequences?
+- People are not as imaginative as they think they are.
+- I think of protest as confrontation and disruption, as the end of silence.
+- Most of my life's information is public. I got a text one day from a hacker who texted me all of my credit card information.
+- People like to act like we don't have a legacy of racism here. I think people get really uncomfortable with it. We know that we can't change it unless we address that.
+- The arts scene in Baltimore is really rich and very vibrant. It's one of the untold stories of the city.
+- I'm not ashamed to be gay.
+- Being mayor is about offering a vision for the city, putting the right people in the right place, and executing that vision.
+- I am excited to return to city schools... and to continue doing the work to ensure that every child in Baltimore City receives a world-class education.
+- As a gay black man, it's important to me to show up - that I'm able to show up as my whole self, in every space that I'm in, because that's how I'm able to be the most true to who I am.
+- I'm not convinced that stealing an iPhone is a felony or stealing a bike is a felony.
+- I actually get very little phone calls. I get way more tweets and texts. My phone rarely rings.
+- I think Twitter is an incredible platform. I want to see it succeed.
+- I am running to be the 50th mayor of Baltimore in order to usher our city into an era where the government is accountable to its people and is aggressively innovative in how it identifies and solves its problems.
+- It is one thing to talk about fundraising and another to do it as a candidate, and I have learned so much about how much money it costs to run a campaign and what it means to raise money.
+- I am mindful that the goal of protest is not more protest, but the goal of protest is change.
+- There is nothing romantic about teargas. Or smoke bombs or rubber bullets or sound cannons.
+- A lot of organizers are trying to figure out how do we create entrances for people so they can be involved in the work in a way that makes them feel is aligned to the things they're interested in and not the things the organizer is interested in?
+- Systemic change rarely comes overnight.
+- Skills acquisition is really at the heart of what it means to learn.
+- I take statements that portray untrue statements about me seriously.
+- I've never been a surrogate for Bernie, Hillary, or the DNC.
+- Justice that is not rooted in equity, in social welfare, and in community is not justice at all.
+- Music helps shape the way people think about the world and act in the world.
+- I grew up in a world of Officer Friendly. It was just the image I had.
+- Asking people for money is really different than asking people for their support.
+- You're not born woke. Something wakes you up.
+- It's important to acknowledge the danger when we provide an academic venue for racism. It's interesting to hear people push the, quote, 'free speech' narrative in this way. They deny the speech of the people who disagree.
+- I think people are uncomfortable talking about the racist history of this country and what we need to do to undo the impact of racism.
+- I have a platform, and I can help. I can be in spaces that reporters will never be in because I'm a protester.
+- People often confuse visibility with a lot of other things. Sometimes I become a proxy for things that just aren't true about me. People will say, 'DeRay got millions of dollars in grants.' That's just not true... I'm broke.
+- Baltimore is a beautiful city. I started doing a lot of community organizing back in 1999 and met so many great people in neighborhoods all across the city. And that was an invaluable experience.
+- I think my imagination about jobs was pretty limited. There were so few jobs that I actually saw people who looked like me in, that I imagined myself in, that I think I just stopped imagining.
+- I'm not desensitized to death.
+- I am often asked what it is like to be on the 'front line.' But I do not use the term 'front line' to describe us, the protesters. Because everywhere in America, wherever we are, our blackness puts us in close proximity to police violence.
+- I wasn't a very good writer before college. I don't think I was a very good reader.
+- I am not naive enough to believe that voting is the only way to bring about transformational change, just as I know that protest alone is not the sole solution to the challenges we face.
+- People in power make the path to power. It means that we will always get the same system, and it's one that is not necessarily in the interest of people's lives.
+- Too often, the elected individuals we put our public trust in disappoint us.
+- For our kids to go to school, they must be alive, and for adults to work, they must not be in jail.
+- Politics is compromise, by its very nature. But we never compromise on our values and beliefs.
+- I think about freedom as not only as the absence of oppression but also the presence of justice and joy.
+- If you close your eyes and think about where you feel the most safe, you're probably not going to tell me it's in a room full of police. You feel safe where you're around people that love you, when you have food and shelter, when you're being pushed to be your best self and learn.
+- It will always be important that people continue to push on the system from the outside. It will also be important that people make the changes that we know are necessary on the inside.
+- I have a big following on Twitter, and Twitter has been invaluable for mobilizing and quickly sharing information. But I'm not really sure that people are learning deep content on Twitter.
+- As a protester, I protested because I had to, not because it was exciting. I don't want to get tear-gassed again.
+- Black people have always been more than our pain. The joy is so much a part of how we have survived and thrived.
+- I'm not a politician. I'm somebody who knows the world can be better, and I'm willing to fight for it.

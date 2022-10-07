@@ -1,0 +1,88 @@
++++
+author = "Dhanush"
+title = "Dhanush Quotes"
+quotes_len = "82"
+description = "the best 82 Dhanush Quotes"
++++
+- Trust me, it has been anything but easy to make it as an actor.
+- I would love to act, but I seriously do not know anything about it.
+- Music is my breath, blood and food - without music I would perish; the actor in me would die.
+- I have played so many romantic roles that I don't know if I am really a romantic in real life. I get confused about the real me.
+- I had to fight; I had to fall, and I had to get hurt to be where I am.
+- I would be lying if I said no. I have an idea for 'Pa. Pandi 2', but I don't know when it will happen or if it will happen at all.
+- Ilaiyaraaja is my most favourite music director. His music was my lullaby, his music was my food, his music was my childhood, his music was my first love, his music was my failure, his music was my first kiss, my first love failure, my success... he is in my blood.
+- Revathi madam is a legend, and I have seen young actresses set her performance as a benchmark.
+- It all started with my father's directorial debut, 'En Raasavin Manasile,' which starred Raj Kiran sir as the lead.
+- As an actor, I do not want to stick to a particular route.
+- I haven't experienced college life. It's the phase that my character in 'Raanjhana' is set in. But it isn't that bad, either. I have nearly 30 films behind me and a National Award to boot.
+- When I joined films in 2002, there were all kinds of rash and unkind comments that were made about my looks in the reviews.
+- I think it is not easy to impress a girl, especially with the looks that I have. It is quite tough.
+- I am far more confident now because of the love people have showered on me. Their acceptance is what keeps me going.
+- I don't mind acting in Hindi films, but the script has to suit me. It has to be a boy-next-door role because that's the image I have in Tamil cinema.
+- What I didn't expect was 'VIP' becoming something of a cult and one of my biggest hits.
+- Your stage presence is as good as your screen presence.
+- Few years ago, it was completely different. Now you go to any country, city, or continent and just say 'Bollywood,' and they will know. So, it means everybody is watching everything.
+- In Tamil and Telugu, I have to do mainstream commercial films. Irrespective of what I want to do, the audience wants to see me in that 'mass' space.
+- To be honest, more than what I prepare, it's the directors who do the bulk of the work, researching, collecting data and all that. I like to see myself as a processor: they feed me with the data, I give the output.
+- If there is no music, I will perish. While I have not learnt music, I can play the tune that comes into my head on the keyboard.
+- I never wanted to let go of the opportunity, and so I hit upon 'VIP 2'.
+- I suffer from stage fright, so I blabber on stage and stop midway through my performances. I cannot even write a cheque, as it makes me nervous. Being around people makes me nervous. But I'm very comfortable in front of the camera, and this I realised many films later.
+- I'm going to be quite choosy about singing. If I connect to a tune and like what I am offered to sing, I'll do it. I am an actor by profession, not a singer.
+- I have wanted to direct for quite some time, but I wanted to be ready and know what I am doing. I wanted to know the basics.
+- In the beginning, I was riddled with major complexes about my looks. Even now, here and there, these complexes crop up. But as the days progressed, I learnt to handle them much better.
+- Both Aishwaryaa and Soundarya are talented and ambitious. They are both daughters of the Superstar and have great command over their craft.
+- When I hear senior actors discuss their experiences, I can relate to them.
+- I come from a very humble background. My father had to work really hard to become an assistant director. For a large part of his youth, he worked in a mill and took up odd jobs to make ends meet. We lived in a small room and could only afford a meal a day.
+- I've improved as an actor, thanks to my wonderful directors. As a person, I've changed, too; I was 16 when I did 'Thullavatho Ilamai,' and I'm 32 now. With age, I've sobered down. I'm calmer; I can see things more clearly now.
+- I learned so much, and I feel I have grown as an actor and as a person.
+- I am not answerable to what happens with my personal life.
+- My dream is to become a director. I want to direct a Hindi film. I have two scripts ready. One of them is a fantasy-adventure, while the other is a thriller. I've assisted my brother Selvaraghavan, who's a well-known director in Tamil cinema. I've also made short films.
+- Unfortunately, I can only act; I do not have the looks, but I am very happy with what God has given me.
+- I prefer being called director Aishwarya Dhanush's husband. She and I share our passion for cinema, but at home, we hardly talk about it. Instead, we share other interests.
+- While shooting for 'Kodi' at Pollachi, I got this new idea for 'VIP 2'.
+- I don't know why, but rain comes into my head the minute I think of my childhood.
+- In my personal life, if you ask me something which I feel is important, I will talk about it. Like, if you ask me about my sons, I will talk.
+- I'm happy that the kind of films I'm doing right now is reaching a wider audience, and I'm looking forward to direct Hindi films as well.
+- My mother is most attached to my brother because she has the feeling that she could not provide him anything. By the time I was born, at least I got a meal and a half a day, but he sometimes got only water.
+- Apart from 'VIP' being a blockbuster movie, the various characters such as mine, the Luna bike I use in the movie, the lovable amma and appa, a pet dog named Harry Potter, the innocent brother, etc., had a huge reach among the audiences.
+- As a child, I used to see legends holding the 'black lady' and would think that I would get it someday.
+- I would be lying if I said I did not feel bad when 'Shamitabh' failed, but I was proud to be associated with a film like this. If it were easy to know the pulse of the audience, then all movies would be blockbusters.
+- I took up acting upon the insistence of my filmmaker father, Kasthuri Raja. But I am glad for it: sometimes one identifies one's calling; sometimes it singles one out.
+- While I do not believe in idol worship, I believe in energy.
+- In life, there is good, evil, love, and hatred. What we desire, choose, and need to pursue is in our hands.
+- If I was not an actor, I would have been working in a five star hotel as a chef.
+- 'Ranjhana' and 'Shamitabh' really gave me a wider exposure to Hindi-speaking audience.
+- I made shorts films, learning the dos and don'ts. Most importantly, I've been editing all these short films. Nothing can teach you filmmaking like editing can.
+- People find pleasure in hating someone. I think it's the beginning of kali. If someone has betrayed you, it's understandable that you hate them. But hating someone you don't even know... that's something I will never understand.
+- I have no clue as to where my interest and love for music came from. In fact, I have never learnt any music either, though I wish that I could just close my eyes and play the piano - that is my most cherished desire.
+- Kajol as Vasundhara is a tough cookie. Raghu and her world collides, and they have different ideologies. The plot revolves around their core beliefs and their disagreement with each other.
+- The world is shrinking, and everyone is majorly interested in Indian films now.
+- I wanted to master the art of cooking. Maybe, when I slow down and do one or two films a year, I will learn how to cook and pursue it as my hobby.
+- My energy is undoubtedly my two sons Yatra and Linga, and they are my all-time inspirations.
+- Kajol ma'am is full of energy. Her energy is so infectious that it motivated people to work with the same enthusiasm. She is a very friendly and warm person. We had a great time working with her.
+- Since childhood, I have been watching the Filmfare Awards, and it has always been very special to anyone who works in the film industry.
+- I don't know if I am a good, average, or bad writer, but I write fast. Everything I observe, my experiences and imagination come together while writing.
+- It is so nice to get so many compliments from fans and people from within the industry.
+- There is no such thing as a Bollywood hero or Hollywood hero. All you see on the screen is the lead actor's interpretation of the role that has been conceived by the writer.
+- You can't always expect to work with a director who guarantees success.
+- I get emotionally attached with every film I do, and that stops me from being critical. I can't fight my emotions.
+- My mother's prayers protect me. Negativity, nothing reaches me.
+- Many people find their calling very early in their lives. These are the kind of people we read about in school books and newspapers. Then there are some who don't have a clue of what they want to do in their lives; I am belong to the latter category.
+- I've always known that I'm very, very ordinary looking. But I'm not alien looking. I am an artist here to play characters.
+- I never wanted to be a part of the industry, as I had no knowledge about it. I am one of those rare and really lucky people for whom the calling identified me and not the other way around.
+- Once I finished writing the script, I couldn't find my Pandi. It was actually little difficult to cast for the role. One fine day, when I was shooting for 'Vada Chennai', Raj Kiran's name just popped into my head.
+- When 'stuff' hits the fan, it has a way of making you stronger.
+- The screenplay has to be gripping. That's when the film will work. Then, I see how much I can relate to the character I'm playing.
+- It's a huge burden to be known as Mr. Rajinikanth's son-in-law. Once I married his daughter Aishwarya in 2004, I lost my identity.
+- 'Power Paandi' is about the outcome of embracing love, peacefulness, and positivity around us.
+- My dream is to become a director. I want to direct a Hindi film.
+- It has been great journey from where I have started to where I am today. I am really blessed with God's grace.
+- Definition of love differs for different humans. If I will talk about me then its something that makes you forget about everything else.
+- Wherever I went, I became a son-in-law. It was a terrible phase for me. I had to work double hard to get back my identity. Whenever I gave an interview, the first question would invariably be, 'What is it like to be his son-in-law?' Now that question comes somewhere in the middle of the interview. Hopefully, soon, it won't be asked at all.
+- A villain can be stylish, and his actions don't have to be explained. Heroes are boring in comparison, even anti-heroes, as there's always a justification for their bad actions.
+- I am a very positive person in real life.
+- Every man plays many roles. So far, I have played father the best.
+- After a few years, I understood that this is what I was meant to do.
+- I entered the film industry because my family forced me into it.
+- Working with Kajol was a delight, as we complemented each other. She is a seasoned actor, and there is so much to learn from her.
+- I've seen poverty up close until I was four or five.

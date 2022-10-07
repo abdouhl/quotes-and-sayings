@@ -1,0 +1,106 @@
++++
+author = "Uddhav Thackeray"
+title = "Uddhav Thackeray Quotes"
+quotes_len = "100"
+description = "the best 100 Uddhav Thackeray Quotes"
++++
+- Some people derive pleasure in constructive work while some are happy in destruction.
+- During elections, if one says I do not promise anything to the voter, then he won't give his valuable vote. But while promising the voters, things that cannot be fulfilled should not be promised.
+- If one cannot use technology then it is really unfortunate.
+- You can't just think about economy or health. There needs to be a balance between the two.
+- Shiv Sena and BJP have the same ideology of Hindutva.
+- Acts and laws are for people. People are not for Acts and laws. Acts and laws should be simple.
+- I do not want to come in between anybody's happiness.
+- There is hardly any coordination between the Centre's Make In India and Start-Up India schemes and demonetization.
+- I am not Donald Trump. I cannot see my people suffer in front of my eyes.
+- There is no end to vendetta politics.
+- I was never under pressure of power.
+- Covid is not dying because of overcrowding. In fact, is going to grow.
+- Politicization of Sushant Singh Rajput's death was cheap politics... worse than perversity.
+- Modi is country's PM, not BJP's PM only.
+- I can't be seen as someone who lies.
+- If the administration is going to be run according to the PM whims, one wonders if there is democracy left in the country.
+- I follow the Hindutva of my father and grandfather.
+- To prevent division of Hindu votes, Balasaheb decided that Shiv Sena will take care of Maharashtra and BJP can take care of whole country. But things have changed now.
+- The future of my government is not in the hands of the opposition. The steering wheel is in my hands.
+- I would like a bullet train which connects my state capital and the second capital.
+- I am proud of my government. Like China, we also built hospitals within 15-20 days.
+- If you cannot fulfill the aspirations of people, what is the difference between you and the previous government?
+- I had a soft corner about 'the' original BJP of Atal Bihari Vajpayee and L.K. Advani's... It also had leaders like Pramod Mahajan, Gopinath Munde. The leaders had some ideology and thoughts.
+- I do not think so that it is possible for anybody to remove the saffron flag.
+- This pandemic is a global war. It has affected the entire world. Those countries which had lifted the lockdown in haste thinking that it was over, were again forced to impose it to curb the spread.
+- Rather than politics of 'love jihad,' why shouldn't the concept of Love Jihad be applicable in politics?
+- There should be a policy on whether Chinese companies should be allowed to do business in the country.
+- It seems the BJP desperately needs to win Mumbai to stand on its feet once again. After all, the greed to win Mumbai will continue to remain, no matter how many States you win.
+- I just want to say, those who want to bring down my government, do it right away.
+- Shivsainiks have a different makeup. If they are asked to fight, they fight like anything but when they love, they love from the heart.
+- Even though the party or ideology of government is important, after the formation of the government it's the duty of the government either at the Centre or at the state to work impartially without any discrimination.
+- My focus is just to defeat the Congress-NCP combine, nothing else. We will do everything to keep them out of power.
+- All the issues the Shiv Sena took up were for the people.
+- Whenever I or the Sena make our views known, we are dubbed anti-government.
+- The Shiv Sena will fight alone and win.
+- Our policies related to China should not be deviating as they differ in case of Pakistan. During times of trouble, we boycott these countries and after a few days extend an olive branch before them.
+- The Shiv Sena manifesto had promised concession in power bills. It was a poll promise which will be fulfilled.
+- It is true that the Thackerays have never fought elections. But we have never backed out from responsibilities.
+- I had never dreamed of leading the state.
+- I am not bothered what critics say till people trust me. I am honest with my work.
+- It is not important to have a big chest. But you should have a heart in your chest.
+- I went to Ayodhya, offered my prayers, I got respect even when I was not the Chief Minister.
+- Sharad Pawar has taught us how to raise farm productivity and also how to form a government with less number of MLAs in the legislative assembly.
+- The manner in which people's families and children are targeted does not suit Maharashtra's culture. The ones targeting families and children must remember that even they have families.
+- The Congress doesn't have the leadership. What exactly is Rahul Gandhi doing is the question... sometimes he says something good, at times he makes a mess.
+- Maharashtra knows what Thackeray family is. Devendra Fadnavis has accused me of lying. Even if Amit Shah and company accuses me of lying, people knows who is lying and who tells the truth.
+- If I am quiet or I am restrained it doesn't mean that I am unmanly.
+- Like my father Bal Thackeray, those Muslims who consider India their motherland, respect the laws of this country, don't ignite riots and live amicably, we have nothing against them - as far as the others, they have no right to live in India.
+- Vallabhbhai Patel was known as the Iron Man of India, and it is said that if he was the Prime Minister then the issue of Kashmir wouldn't have come about. And if Savarkar was the Prime Minister, Pakistan wouldn't have come into existence.
+- During Lok Sabha elections, Amit Shah and Fadnavis came to me. During talks, I was given offer of deputy CM post. I said I am not so helpless. I have given a promise to Balasaheb that a Maharashtra CM will be from Shiv Sena. So I did not agree and stayed firm.
+- I am still with the ideology of Hindutva which cannot be separated from me.
+- The government did not wait for any court order on the issue of Triple Talaq or demonetization. So, why wait for the court's order for the Ram Mandir?
+- I never said finish the Congress, because the opposition is needed... I do not have such petty imaginations.
+- Government should show the list of farmers, who have got benefitted from loan waiver. Farmers' loan of Rs 39 lakh crore was waived off. So, why is government hiding their names?
+- My belief is that if there are any lacunas in the GST, it should be fixed quickly to make it a foolproof system.
+- When I am challenged, I am encouraged. Don't misjudge my demeanor of composure and patience.
+- We have always pointed out discrepancies in the government. It was not for my personal benefit but for the people.
+- I will never run away from my responsibilities.
+- Balasaheb Thackeray's teachings have been that defeat is better than false promises.
+- I am not against the state government. I am pro-people... Whenever the government goes wrong, I will speak up for the people of the state.
+- I will not tolerate killing of trees in the dead of the night.
+- I'm happy that people trust me and co-operate with me. This gives me strength.
+- I am not going to quit politics until I fulfill the promise made to Balasaheb of making a Shiv Sainik the chief minister of Maharashtra. I will do it.
+- No decision by Balasaheb went wrong. He was the first to demand reservation on financial grounds. But then a few did not agree with him. If his views were agreed then, the clashes between the castes would not have arrived.
+- Ram Mandir is a matter of faith. How can you stop people from going there?
+- I am not chowkidar. I was born a Shiv Sainik, so I am sainik.
+- Governments change but the system doesn't. One needs to believe in the system.
+- No one should do politics in the guise of Hindutva and teach us what Hindutva is.
+- I am leading this government but this is a three-party government and even the independents are with us. More importantly, the public is with us. So it is everyone's government.
+- People have seen the Shiv Sena and the BJP for the past 30 years. For 25 years, we stood united, there was confusion for five years. But like Chief Minister Devendra Fadnavis said, I still provided guidance to government from time to time.
+- Photography is like oxygen for me. My hobby is my oxygen.
+- The Shiv Sena is the only voice of the people of Maharashtra.
+- One knows their capacity to fulfill promises. It should be taken into account before promising the voters.
+- There was never a need to call the Army in Mumbai. I am proud of the administration which rose to the challenge and set up jumbo field hospitals for treatment of coronavirus patients in the city.
+- If the state requires a bullet train, I would demand a bullet train to connect Mumbai and Nagpur.
+- I always believe in team work.
+- Living with coronavirus is a tightrope walk.
+- I know this government is running in a three-wheeler like an autorickshaw, but for the poor people the steering is in my hand and the other two are sitting behind supporting.
+- I am finding out how parties with different ideologies forged alliances with the BJP. I want to question BJP on ideology - how they came together with Nitish Kumar, Paswan, PDP and Naidu.
+- If you are going to misuse power then one must remember that power does not remain forever.
+- BJP are opposed to a Muslim boy marrying a Hindu girl. Then how did BJP have an alliance with Mehbooba Mufti or Nitish Kumar or Chandrababu Naidu?
+- The people do not want Congress and BJP too.
+- Our handling of Covid-19 pandemic, especially in Dharavi, has been applauded at the international level.
+- We will always miss Balasaheb, but I will work hard to ensure that his absence is not felt politically.
+- Shiv Sena is taking on the government for people's issues and not for self- interest. We will continue to fight with the government on the issues concerning common people.
+- The CAA is not a law to remove someone from the country. Union home minister Amit Shah has said that it is to give citizenship. And I agree with it to that extent. It is to give citizenship to persecuted minorities from neighbouring countries and not to remove anyone from the country.
+- An e-bhoomi pujan can be done. The ground-breaking ceremony can be held through video-conference.
+- If Narendra Modi can hug Nawaz Sharif then what is wrong in Hardik Patel meeting me?
+- Power is not just about the chair. The public is power.
+- There is no need to fear or have confusion about the Covid-19 vaccine.
+- We suffered a lot by mixing religion with the politics.
+- If it is the choice between a bullet train and a three-wheeler, I will choose the latter as it is the traveling mode of the poor people.
+- I take guidance regularly from NCP chief Sharad Pawar Saheb and occasionally speak Soniaji Gandhi.
+- Making personal attacks or speaking with malicious intention is something that I have always refrained from.
+- Does the Centre not have confidence in the state's investigative agencies? It leads to strained relations between the Centre and state.
+- Making a promise and honoring the word given is Hindutva for me.
+- I have learnt a lot of things from Devendra Fadvanis and I will always be friends with him.
+- The BJP broke its alliance with us as they were hungry for power. They wanted to rule the state like they are ruling the country, after getting a majority in Lok Sabha elections. They thought they can divide Maharashtra if they are in power with a majority here. But the Sena will never let that happen.
+- If people don't want a bullet train, then it will not happen.
+- I never said that demonetization is a wrong decision, I am not an economist, but I said that the way it was implemented was not right.

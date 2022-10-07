@@ -1,0 +1,163 @@
++++
+author = "Pierce Brosnan"
+title = "Pierce Brosnan Quotes"
+quotes_len = "157"
+description = "the best 157 Pierce Brosnan Quotes"
++++
+- I think Indian women are very beautiful. They have a sense of elegance and innocence.
+- I have had a singing teacher in L.A. for many, many years just to work on my voice as an actor.
+- Clive Owen would be a fantastic James Bond. Any man who does it will have to weigh his odds - whether he can get in and get out.
+- In 1981, I borrowed 2,000 pounds - a lot of money back then - paid 50 quid for a seat, packed my own sandwich, and hopped on a plane to America. It was a mighty leap, but one that paid off. A week later, I got a job called 'Remington Steele.'
+- Being an actor in Hollywood involves lots of things beyond acting. Charm really helps.
+- I'm one of those guys who believes that you need a strong woman in your life.
+- I had to have some balls to be Irish Catholic in South London. Most of that time I spent fighting.
+- It's good to like yourself, and that only comes from hard work, from doing. But vanity is dangerous; it can trip you badly.
+- The spy genre is something which, as a fan of movies, a movie geek myself, I just love that cinematic joy that they bring.
+- I should like to think that we'll find peace on this Earth at some point and come to a collective consciousness of compassion for each other, where we say, 'Enough! Let us live as one!'
+- Love means that everything is right with the world. Love and only love. Love means that you are content within your own heart and in the presence of the person that you love, who fills your day and makes you stronger and wiser, and gives you the confidence to go out into the world. Love is just the most beautiful, joyous feeling.
+- I love New York City. The energy, the theatre, the art, the food, the people, the parks and streets. But I could say the same of London or Paris, too.
+- God has been good to me. My faith has been good to me in the moments of deepest suffering, doubt and fear.
+- I live a pretty domestic and normal life. I make my kids breakfast most mornings, but nothing too elaborate - soft-boiled eggs and oatmeal.
+- We owe it to our children to be better stewards of the environment. The alternative? - a world without whales. It's too terrible to imagine.
+- I just find that you can become a very boring person living in L.A. I tell you, living there on a day-to-day basis is vacuous: terribly fake.
+- It always helps to have a bit of prayer in your back pocket. At the end of the day, you have to have something, and for me, that is God, Jesus, my Catholic upbringing, my faith.
+- My mother was the prettiest woman in the town. He was a bit older than her. They made me. And he split.
+- I've been a married man most of my life; that's the way I like it.
+- If I hadn't been an actor, I probably would have been a social worker.
+- There's always been product placement in Bond movies.
+- The fin whale is the second largest whale species on Earth, weighing up to 80 tons.
+- Action films can be like watching paint dry. You can just die in the trailer waiting for them to set up a shot, then you go out for a few minutes or an hour of endurance testing.
+- The Danish filmmakers are a unique breed of filmmakers, with the Dogme films and Lars von Trier.
+- Cancer is a very sad thing, but you can always take something from every experience.
+- Movies are somewhat diminished by blockbusters, which are great, but there's not enough choice.
+- I like dressing in all seasons. Every season has its own character and charm.
+- There was a beautiful church where I lived in Navan, taught by the Christian brothers: fierce, angry men, repressed.
+- My mother gave me boxing gloves; I wanted boxing gloves. I liked to box. So I still have them. They're still in my bookcase, very old, tattered, and they were cherished.
+- I love George Clooney; I think George is brilliant.
+- You always bump into politics in life, and as a man, I'm party to a number of environmental issues that concern me first and foremost, as a man, as a father.
+- It never felt real to me. I never felt I had complete ownership over Bond. Because you'd have these stupid one-liners - which I loathed - and I always felt phony doing them.
+- Must whales and dolphins be subjected to deafening noise that will cause more than 3.5 million instances of temporary and/or permanent hearing loss? For species that depend on hearing for survival - to find food, migrate, and communicate - any hearing loss could be catastrophic. As one scientist noted, a deaf whale is a dead whale.
+- He's a fantastic actor, Kelsey Grammer. You don't have that kind of career without having a talent, without having something to say and to give to an audience.
+- That's it. I've said all I've got to say on the world of James Bond.
+- I've had my face sliced open one day. Stunt man went one way, and I went the same way and had a few stitches.
+- I'm pretty tried-and-tested in the world of 'suit acting.'
+- I've been identified with James Bond or Thomas Crown for so long; suave, elegant, sophisticated men in suits. it's like you've been giving the same performance for 20 years.
+- I love the intimacy and the passion and the danger that go into independent filmmaking. Because it comes out of a creative necessity. It comes from people who really want to make a movie and want to make a difference and want to grab an audience by the gullet and show them something different.
+- Acting for the Indian audience is surely on my bucket list; it may take some time, though.
+- As you get older, there's a loosening of the ties to the ego and the posturing of who you are and how you behave.
+- I have no desire to look at myself.
+- If I got into a fight in a bar, I'd miss the dude by miles. I wouldn't know how to connect. It would be a comedy.
+- I ride horses, I love horses, I've owned horses.
+- The films that I've made with my company Irish DreamTime are close to my heart. 'The Greatest' being one of them, and 'Evelyn' being another.
+- If I knew I could never come back to Ireland, to England, I think I'd fall off the tree.
+- I was lucky enough to make four Bond films. It finished in rather shambolic fashion, but I have no bitterness, no resentment.
+- Being some country lad from the banks of the River Boyne, I never wanted to be wealthy. I was driven by artistic intention.
+- I have said to my agents, 'I want to work. I want to play character roles.'
+- I think Buddhism is a wonderful philosophy. I've had the good fortune to meet many wonderful teachers from that society.
+- When people don't believe in you, you have to believe in yourself.
+- I had a theatre company years ago when I was a young man, and we would do street theater. This guy did a workshop one day on fire eating, and I participated, and it was just one of those party tricks that you learn. My last endeavor doing that was with the Muppets, back in 1995 or something like that. And I haven't done it since.
+- People should be allowed to marry, and gay marriage should be out there. If a man or a woman has a good partner and they love each other with their heart and soul, let them marry. I am very much for gay marriage.
+- Some people have a tendency to get knocked down in this business and sulk and whine, and they just create a rod for their back, really. You have to have broad shoulders and get through it.
+- If you want to do a female version of 'The Expendables,' I'll be in that one.
+- I'm first and foremost an Irishman, by birth, by nature, by soul, but an American citizen through and through as well.
+- I will forever be a Bond. It's a small group of men who've made this role. Someone said, More men have walked on the moon than have played James Bond.'
+- The scripts don't come pouring in; I have to fight for every part.
+- You want to believe in leaders, really believe in leaders. You want what they are saying to be truthful, and you want to trust them.
+- No one can escape life's pain. That's life.
+- I realise how precious life is, probably because I've seen how it can be taken away.
+- I am the actor that I am. I do what I do. I've been a 'leading man' playing romantic leads for a long time now.
+- I hold Bond dear to my heart. I've traveled the world as an ambassador for that character, and I had a bloody great time doing it.
+- I think you make the best with what you've got, you know? Sometimes you have very little. And you just always try to rise to higher ground, because you're going to suffer one way or the other, so you just hope that you have strength and perseverance and good friends and faith, some kind of faith, to endure and move on to greener pastures.
+- You can get totally messed up trying to please everyone with what you do, but ultimately, you have to please yourself.
+- I don't see myself as the Hunk of the Month.
+- When you go through a long illness, certainly one of cancer, there's a certain release from it and relief that it has come to an end, because the suffering can be unbearable, as opposed to an abrupt stop to life when they go out the door and there's a loved one who never comes home because of some accident.
+- I'm not a politician or political animal.
+- To be a young Irishman in London and go to the theater to see 'Rosemary's Baby'... it scared the crap out of me.
+- Indian cinema is entertaining, and what I love most about it is the songs and dances in the films.
+- Dark comedy is very difficult. You have to bring the audience in and push them away at the same time.
+- Someone like Roman Polanski comes with a lifetime of achievement, cinematically.
+- To my eye, women get sexier around 35. They know a thing or two, and knowledge is always alluring.
+- I always see myself as a character actor, but Remington Steele was me. I gave up on trying to be any character. I just put myself as me in this world of Remington Steele and the grand pretender.
+- Daniel Craig is brilliant as Bond: there is no question about that. But it's a different Bond. It's the cross pollination of 'The Bourne Identity' and 'James Bond;' that kind of style of filmmaking.
+- Intrinsically, I'm the same person I was as a young lad, and I think I still have the optimism of life, still the same wants and desires to be good and great about what I do.
+- I try to be as disciplined as I possibly can. I try to live a fairly kind of clean life. I do yoga; I cycle and do weights and swim. I do whatever it takes.
+- Being a widower is not that groovy when you lose someone you really love, and you have to go out and date again.
+- I love the finer things.
+- I thought 'Moulin Rouge' was inspirational, and 'Jesus Christ Superstar' I loved.
+- Barbara Broccoli was a great friend of my late wife's and continues to be someone who is very gracious with me, my family, and our life.
+- Cancer is the most pernicious, insidious, disgusting disease of life.
+- As I've gotten older and I've watched people in productions, I go to the theater when I go back to London and see friends in Broadway, I think maybe there might come a time here to get back up there and prove oneself. It's just an itch; it's a nagging itch to go back there.
+- I'm an actor first and foremost. My producing credentials are just to say, 'Yeah, I love this story and now let's bring the people, the ensemble together,' and I get out of the way. I have no desire to check on schedules and shooting schedules and money and stuff like that.
+- When I went to America, I spoke so much about who I was and gave so much away in a confessional, Irish, story-telling way that I suddenly realised I had given up a lot of myself. I had to shut up.
+- Oh, humiliation is poisonous. It's one of the deepest pains of being human.
+- Acting allows me to explore new worlds, to discover characters by delving into their lives, and ultimately to become someone else entirely.
+- I always wanted to do a Western.
+- I've been very fortunate that I've worked since I left drama school in 1976.
+- My religious philosophy is kindness. Try to be kind. That's something worth achieving.
+- I can still run in a straight line, and I can still throw a punch.
+- I always keep thinking, 'The next role - that's going to be the one that's really going to define me and show them all. I'll transform and disappear, and it will be a revelation.'
+- Love is hard.
+- I'm a journeyman actor.
+- Be good to people, be kind to people, show up, read the lines, hit the mark, and go home.
+- The forties are very cool and very pastoral. The fifties look like they're pastoral, and then you get a bit more turbulence.
+- I went to a Radiohead concert with Mr. Aaron Paul and became instantly hip. He's a great tweeter and took a photograph of the two of us. He said, 'Man, look at this! We've already got 800 hits in five minutes!' So this old dog became hip.
+- I have some wonderful suits in my closet, a lovely car, some refined watches.
+- I'm very confident that Nick Hornby always gets it right as a writer. He has the vernacular and passion. He is adroit and dry, and balances humor with the humanity of life.
+- Turning 60 had an impact on my heart and soul, I must say, because you're dealing with time: past, present, and future. You suddenly realize you've come down the road quite a ways.
+- Together we are stronger, our voices louder, and the synergy of our actions more powerful. Together we can prevail on the Navy to put commonsense safeguards in place, like requiring its ships to avoid the most sensitive marine mammal habitats and to stop their training exercises during peak migrations.
+- My wife loves Roger Moore.
+- Actors have an innate sense of self and humanity, the good ones do, and of being generous of heart and generous of spirit.
+- I'd love to do 'The Expendables.' It's just a kick in the pants.
+- When I got the invitation to be part of 'The Ghost' or 'The Ghost Writer,' as it's now known, from Mr. Roman Polanski, my interest level was very piqued. I was very excited and pleased to get such an offer from Mr. Roman Polanski.
+- I paint landscapes, figuratives. I painted all my life. In fact, I started as a commercial artist.
+- I've been accused of my publicist of being too confessional... it's probably my Celtic upbringing.
+- For me, acting is doing.
+- You get tangled up in your own ego of how you're perceived. You can lose your way.
+- Some people think my singing is superb. But they're mainly on strong medication and not allowed out much.
+- There will be time enough some day to work less.
+- The Danes and the Irish have a great simpatico, that's for sure.
+- Certain projects find you at the right time.
+- There's nothing like working with the best actors possible, and if you have a piece of material like, 'Long Way Down' or 'Love Punch,' which allows you to play, then it's just a joy to go to work.
+- It's the ultimate goal every day you wake up, to be happy. At the end of the week, you want to be happy. Happy in love, happy in work, happy in life, happy with yourself. It's pretty simple.
+- Being a father is a huge responsibility but a satisfying one.
+- When it comes to whaling, Iceland is an international outlaw. Years of global negotiations and declarations have failed utterly to end its illegal slaughter of whales. It's time to send Iceland a message it can't ignore: trade sanctions.
+- I visit London several times a year. It is my home away from home.
+- Sometimes, I wonder where my place in this town called 'Hollywood' is - and that can give you a really dull headache.
+- I went and met with Tim Burton for the role of Batman. But I just couldn't really take it seriously; any man who wears his underpants outside his pants just cannot be taken seriously.
+- I was aware that I was not getting the good acting roles because I was either too handsome, too pretty or whatever. I was being judged in ways that left me nowhere to go. You have to be patient.
+- My life started on the banks of the Boyne in County Meath. Navan is the name of the town; only me, Mom, Dad.
+- The life of an actor lends itself to emotion, and yet you have to be tough as old boots to stay at the table.
+- There's a wonderful stable of directors I've worked with, and work I've done that has dignity and meaningfulness.
+- I'd my own insecurities while portraying the role of James Bond.
+- I love color. When I paint, I use a lot of color. I love art that has a vibrancy of color and compositions. I adore the Impressionists, and I'm influenced strongly by them as a self-taught artist.
+- Once I found acting and found that I could get away with it and make a living out of it, I was thrilled.
+- I was trained as an actor and taught to believe at a very young age that I could be anything and do anything, and then you find yourself painted into a corner by your own image or persona.
+- The word 'star' doesn't mean an awful lot to me. 'Good actor' and having the respect of one's peers means more.
+- I'm an artist, so I love the graphic design of Instagram.
+- Dealing with death is there forever, really, you know, because we all have to face it.
+- I think if Roman Polanski had asked me to do the phone book, I would have said, 'Yes.'
+- I found a great woman in Keely Shaye. Not if I searched a million times over would I find one as good.
+- A man becomes what he dreams. And I dreamed of being in the movies. I was brought up on Steve McQueen, Clint Eastwood, Warren Beatty, and Cary Grant.
+- My family is my sanctuary.
+- I use so much of myself in everything I do. I think every actor does because you have no one else to go to but yourself and your own imagination.
+- I know what it's like to be famous. It's good money and it's great fun. A real kick in the pants. People wave at you and smile at you. You get great tables in restaurants. They send you gifts - beautiful clothes and cars.
+- I know something about life and being a father and the worries and the fears of bringing up children.
+- I have not had any plastic surgery in any shape or form. No implants. And my hair is not dyed.
+- I held the generous, strong, beautiful hand of my first wife Cassie as ovarian cancer took her life much too soon.
+- I enjoy the company of my fellow man and woman, and I do not wish to be sequestered away in any type of bubble.
+- I'd been brought up on... American TV: 'Lou Grant,' 'Starsky & Hutch;' 'Gilligan's Island.'
+- Love cannot burn constantly.
+- I think that genetically we're programmed to battle each other.
+- I like playing thieves.
+- I like Chekov a lot.
+- You're always going to have to prove yourself, because acting is such a capricious game.
+- There are a lot of funny things that happen in one's life.
+- I love 'Maxim,' actually. It's very cool.
+- There's too many people in seats of power who just haven't got a clue what they're doing. They're bean counters, and it just pisses me off because consequently our kids go to see crap movies.
+- This man called President Bush has a lot to answer for. I don't know if this man is really taking care of America. This government has been shameful.
+- James Bond is one of those heroes that all guys feel they could actually be like.
+- I love the ukulele. It's got a beautiful, melodic tone to it. There's something innocent and romantic, and it's just a grand instrument to play.
+- Fame is like a big piece of meringue - it's beautiful, and you keep eating it, but it doesn't really fill you up.
+- With such riches as I have in life, you're always nervous. Being Irish, you're waiting for something to knock it sideways.
+- Susanne Bier's work I've always really enjoyed. She's just such a great filmmaker; she's very cool and very sexy - that always helps, too.
+- I left school at 15 feeling fairly useless and not really up to scratch in my education. And I still suffer sometimes from that lack of education.

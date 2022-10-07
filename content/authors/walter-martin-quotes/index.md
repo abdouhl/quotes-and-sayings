@@ -1,0 +1,24 @@
++++
+author = "Walter Martin"
+title = "Walter Martin Quotes"
+quotes_len = "18"
+description = "the best 18 Walter Martin Quotes"
++++
+- A biblical false prophet was a servant of the devil attempting to lead people away from the truth.
+- I am a friend of Adventist people and a lover of truth.
+- Christ imparts the capacity of conquest to our lives every single day that we are willing to believe Him.
+- However, the Bible is called the Word of God because the whole transcript is an inspired, faithful, and infallible record of what God determined essential for us to know about Himself, the cosmos in which we live, our spiritual allies and adversaries, and our fellow man.
+- You see, 30 years ago I didn't have near the audience I have now. My tapes on the cults have reached a circulation of 15 million. those are not my figures but the figures of the people who distribute them.
+- I am not saying we are categorizing Ellen White in the biblical context of a false prophet.
+- A key to strengthening spiritual muscles and enduring hardship is finding strength in the Word of God.
+- God does say He will graciously entertain our prayers. He says that if we exercise faith, and if our request is in accordance with His will, He will hear us.
+- And yet, you do not throw out some of the great minds of the Church - and people in Church history - and say they have no credibility because they committed a sin or made a mistake.
+- The moment you enlist in the army of God, you personally become a target. You need to remember that if you're living for and walking with Jesus Christ, the powers of darkness are aligned against you.
+- The Doctrine of the Trinity teaches that within the unity of the one Godhead there are three separate persons who are coequal in power, nature, and eternity.
+- Who knows the minds of men and how they reason and what their methodology is? But I am not going to extrapolate from the General Conference backing out on my book and make it a personal issue.
+- I am not an enemy of Adventism.
+- What makes you a Christian is whether or not you really are in accord with biblical theology and whether you know Jesus Christ as your Saviour.
+- I thought some of Mrs. White's material was prophetic. I felt some of her insights were extremely helpful and I regarded her as a sister in the Lord. I wasn't out to attack Ellen White's character.
+- The very success of medicine in a material way may now threaten the soul of medicine.
+- Mrs. White, in my opinion, made false statements. She misused what she claimed was the prophetic gift she had.
+- What I did was, I went and collected every bit of information from Adventist publishing houses in the basic areas of doctrine covered in the book Questions on Doctrine.

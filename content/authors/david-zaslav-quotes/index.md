@@ -1,0 +1,14 @@
++++
+author = "David Zaslav"
+title = "David Zaslav Quotes"
+quotes_len = "8"
+description = "the best 8 David Zaslav Quotes"
++++
+- We're lucky in that channels like Science, Animal Planet and Discovery are essentially universal in terms of their appeal. If you wake up in Moscow and put on the Science channel, it doesn't feel like an American channel, it feels like their channel.
+- To this day, I'm a slave to CNBC.
+- If you look at the heritage of the cable business, if you can own a niche, you have a good chance of succeeding.
+- If you could position the best platform media company around the world with the best content, we could get explosive growth.
+- Cable is a niche business. If you can own a niche, that can be a very strong business.
+- I talk to Oprah several times a week, and I see the side of Oprah that's having the time of her life. What she's getting to do with OWN is build a team to create a brand from nothing.
+- People only watch six to eight to 10 channels, so if you want to be one of those channels, then you have to create content so strong that people have to come not once, not twice but enough that, behaviorally, they start to feel like, 'That's my channel.'
+- One of the hardest things to do when you launch a channel is find a voice.

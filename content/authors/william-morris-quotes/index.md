@@ -1,0 +1,31 @@
++++
+author = "William Morris"
+title = "William Morris Quotes"
+quotes_len = "25"
+description = "the best 25 William Morris Quotes"
++++
+- We are living in a epoch where there is combat between commercialism, or the system of reckless waste, and communism, or the system of neighbourly common sense.
+- History has remembered the kings and warriors, because they destroyed; art has remembered the people, because they created.
+- It is right and necessary that all should have work to do which shall be worth doing and be of itself pleasant to do, and which should be done under such conditions as would make it neither over-wearisome nor over-anxious.
+- It took me years to understand that words are often as important as experience, because words make experience last.
+- We shall not be happy unless we live like good animals, unless we enjoy the exercise of the ordinary functions of life: eating, sleeping, loving, walking, running, swimming, riding, sailing.
+- I do not want art for a few any more than education for a few, or freedom for a few.
+- If you cannot learn to love real art, at least learn to hate sham art and reject it.
+- Happy as we are, times may alter; we may be bitten with some impulse towards change, and many things may seem too wonderful for us to resist, too exciting not to catch at, if we do not know that they are but phases of what has been before and withal ruinous, deceitful, and sordid.
+- How often it consoles me to think of barbarism once more flooding the world, and real feelings and passions, however rudimentary, taking the place of our wretched hypocrisies.
+- Have nothing in your house that you do not know to be useful, or believe to be beautiful.
+- Give me love and work - these two only.
+- The reward of labour is life. Is that not enough?
+- No man is good enough to be another's master.
+- So long as the system of competition in the production and exchange of the means of life goes on, the degradation of the arts will go on; and if that system is to last for ever, then art is doomed, and will surely die; that is to say, civilization will die.
+- I pondered all these things, and how men fight and lose the battle, and the thing that they fought for comes about in spite of their defeat, and when it comes turns out not to be what they meant, and other men have to fight for what they meant under another name.
+- I want a real revolution, a real change in society: society, a great organic mass of well-regulated forces used for the bringing-about a happy life for all.
+- I don't remember being taught to read, and by the time I was seven years old, I had read a very great many books, good, bad, and indifferent.
+- To do nothing but grumble and not to act - that is throwing away one's life.
+- A man at work, making something which he feels will exist because he is working at it and wills it, is exercising the energies of his mind and soul as well as of his body. Memory and imagination help him as he works.
+- The true secret of happiness lies in taking a genuine interest in all the details of daily life.
+- I can't enter into politico-social subjects with any interest, for on the whole, I see that things are in a muddle, and I have no power or vocation to set them right in ever so little a degree.
+- Not on one strand are all life's jewels strung.
+- I am going, if I can, to be an architect, and I am too old already, and there is no time to lose.
+- The past is not dead, it is living in us, and will be alive in the future which we are now helping to make.
+- Apart from the desire to produce beautiful things, the leading passion of my life has been and is hatred of modern civilization.

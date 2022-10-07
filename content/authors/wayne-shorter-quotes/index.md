@@ -1,0 +1,33 @@
++++
+author = "Wayne Shorter"
+title = "Wayne Shorter Quotes"
+quotes_len = "27"
+description = "the best 27 Wayne Shorter Quotes"
++++
+- A lot of people don't know that Beethoven, when he wrote the Fifth Symphony, that second movement, he took eight years to figure that out!
+- There's a certain road in life most people walk on, because it's familiar, and they can jostle to get in front place. I prefer to take a different road that's less crowded, with many forks, where you get a wider view of life. I call it 'the road less travelled'. That's where I want to be.
+- There are colors we can't see, but they're connected to the ones we can, There's a connection between everything.
+- My perspective on life is now to try to play music that reflects that life and death are part of the same coin. And to know about life, we must really examine the function - like death. Life tells you a lot about what death is, not what people say it is.
+- When they say 'jazz,' I'm thinking of a word called 'the creative process.' It intersects every vein and tributary, avenue, path, that everyone's living. It crosses through there, but it's been contained.
+- When John Coltrane passed, we were in the church for the memorial. Albert Ayler came walking in playing, real out there. He was actually mourning through his horn. Mourning, but it was also like a call to wake up. Wake up!
+- I believe in everyone staying as they are, and when you meld together, you get something more accurate and democratic.
+- It's up to the person who's being creative to find ways to emerge and shake up the world of wealth.
+- To me, the definition of faith is to fear nothing.
+- When you play with Miles, you are on your own, and then it's you who decides what to contribute.
+- I'm the kind of person who jumps around when he talks because everything is connected.
+- I'm trying to do music which inspires the desire to transcend politics, which has a limited and selfish and egoist and unknowledgable end about what anyone knows about existence.
+- I always say that music is a small drop in the ocean of life. I was told a long time ago that your horn, or whatever instrument you play, is a means to be in the world.
+- I think the music that's called 'future stuff' is the soundtrack to the few people who have the nerve and the courage to continue, to go to the end of the line and not be deterred.
+- I know Ornette was playing violin sometimes - that was his bridge into the classical world, to break up that whole pecking order.
+- Jazz at Lincoln Center is something that is very necessary for the creative process. There's a couple of brothers running around New York, trying to buy up the cultural places, who shall remain nameless. Well, there's a lot of brothers - pick any two. Pin the tail on the... they want to buy up stuff and steer the country a certain way.
+- There's a steady forward march of a creative process that some of us stay with and don't give up - that should be an admirable thing - from Louis Armstrong to Charlie Parker to Miles to Ornette and some people who are not even known today - some kids coming up - people who are out to change the world.
+- Music is just sound - what's more important to me is behavior. I'm watching these play-offs - basketball - it's interesting to watch behavior, underneath all the movements and everything like that. They go into the audience and show some of the parents of the players and all that.
+- You're like the girl who left her shadow in the drawer, but when she went to get it, it wasn't there.
+- To me, a song is not finished. To me, there's no such thing as a finished anything. All of Beethoven's nine symphonies, to me, are one. I think of it as having no beginning and no end.
+- I would pass this music store on the way to school, and there was a clarinet in the window, a second-hand one. And I kept asking my parents to buy it, and eventually they did. I still have it now.
+- Movies would be like a broad painted canvas... or a mystical process which cannot really be explained, like, 'What is electricity?' Along with the images that go on the screen, there's a corridor of dialogue that can happen through motion pictures, whether you're aware of it or not.
+- I think that music opens portals and doorways into unknown sectors that it takes courage to leap into. I always think that there's a potential that we all have, and we can emerge, rise up to this potential, when necessary. We have to be fearless, courageous, and draw upon wisdom that we think we don't have.
+- You know the actor John Garfield? In one movie he walked up to this train station, the ticket booth, and the guy says, 'Yes, where are you going?' And he says, 'I want a ticket to nowhere.' I thought: that's it. The freedom to do that. I want a ticket to nowhere.
+- When we were kids, our parents would let us play outside all day, and there was a horse-drawn milk wagon that could become anything in my mind, like a spaceship or something.
+- I'm making strides to have dialogue with life. I'm walking down a garden path, something like that. And you're looking at the trees, and then you start to look at them through your inner eye.
+- Jazz is a fighter. The word 'jazz' means to me, 'I dare you. Let's jump into the unknown!'

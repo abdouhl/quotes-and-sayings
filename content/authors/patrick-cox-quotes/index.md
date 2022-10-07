@@ -1,0 +1,46 @@
++++
+author = "Patrick Cox"
+title = "Patrick Cox Quotes"
+quotes_len = "40"
+description = "the best 40 Patrick Cox Quotes"
++++
+- I'm not a shoe snob.
+- I love talking in lira because, suddenly, everything is in billions.
+- I'm kind of the shoe guy.
+- Rock stars love Cuban heels because a lot of them tend to be diminutive. And I've never met a man who doesn't mind having an extra inch or two anywhere on his body.
+- After selling the business, and the Patrick Cox brand in 2007, I had a three-year non-compete, where I just spent a lot of time hanging all over the world on beaches and having fun.
+- As a designer, you are not only a designer, you are also a celebrity, an entertainer, and a spokesperson that speaks on behalf of the company. So you need to realize that you have to embrace all those sides.
+- I don't eat at home, ever.
+- I'm addicted to chinos the second weather gets warm enough.
+- Elizabeth Hurley rocks. She really rocks.
+- I've stayed in enough hotels so I really know what works and what doesn't design-wise.
+- I like to be playful; I want people to look at what I do and smile.
+- The word 'modern' is a cliche.
+- I used to sock hop to 'Crocodile Rock' and stare at those platform boots on the album cover.
+- Now, I'm older. I don't follow the vagaries of fashion: my look tends to be skinny flat-front trousers with a long-sleeve American Apparel T-shirt and a V-neck cashmere jumper - preferably Loro Piana.
+- Show some originality and never wear one designer head to toe.
+- I am a magpie. My eye collects details.
+- Archives can be inspiring but overwhelming. You have to forget them - especially when the whole world has been knocking them off. Everyone shops the same flea markets.
+- Shoe design is like architecture - with the finest structure and tight, precise seams, it suits my obsessive neatness.
+- I was never a fashion snob.
+- There is nothing worse than bright lighting - it isn't flattering and makes the glamorous women want to leave.
+- I finished college by July 15th, 1985, and by October 1985, I had a little stand during the trade show which was London Fashion week at the time. My stand was tiny - just 6 square meters in total - and I had my 12 shoes that I designed while in college.
+- I have a pop sensibility, which I think comes from all those weekends spent in nightclubs.
+- By the time I came out of college, I was fabulous.
+- I love Italy, and that's where I make my own shoes. But the French really do respect designers. Italy is totally different; footwear is an industry. The shoes are all about craft and luxury. French shoes are more about straight lines, and they are way more geometric.
+- I lived in Nigeria, Chad, and Cameroon when I was very young, until my mother divorced my father.
+- If you use your own name as your business brand, keep in mind that if you lose that brand, you have lost your name. And that is a bit of a problem going forward in life. If you decide to make up a name, and if you have lost that name, then who cares. But when it is your name on the products, and you lose it, that is the game changer.
+- I think a house should reflect the interests and personality of the occupant, but it takes time to gather together the objects one likes around oneself.
+- Most of my holidays are with wonderfully generous friends with houses in the country or the South of France.
+- My inspiration for interior design is more historical than traditional.
+- Copying is a form of self-validation.
+- I've learnt a lot about construction and flexibility from my time at Geox.
+- In fashion, my inspiration comes from pop culture - the 1960s and the following years. Whereas in interior design, my influences are much broader.
+- I was wondering if the best was behind me, had the high point of my career already happened. Then I saw what Manolo had done, and some of his best work happened after he turned 40.
+- I am like a sponge: I adore reading, watching films, and visiting museums and exhibitions. I am always in search of new things in many spheres.
+- I couldn't have asked for a better testimonial than Bob Dylan parting with his own cash for a pair of my shoes.
+- I'm a huge monarchist.
+- Wannabe was so huge. So big. So unexpected.
+- It is all about quality of life and being proud of what I do. I need me to be me.
+- I came to London during what was called the second British invasion. The music was from Britain, the fashion was from Britain, everything was from Britain, so I knew I had to be in Britain.
+- Do I miss shoes? I miss the designing, but I don't miss the fashion industry. Those people eat their children.

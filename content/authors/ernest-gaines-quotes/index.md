@@ -1,0 +1,30 @@
++++
+author = "Ernest Gaines"
+title = "Ernest Gaines Quotes"
+quotes_len = "24"
+description = "the best 24 Ernest Gaines Quotes"
++++
+- I think I'm a very religious person. I think I believe in God as much as any man does. I don't only believe in God, I know there's God.
+- Today I must write a paragraph or a page better than I did yesterday.
+- Sometimes you got to hurt something to help something. Sometimes you have to plow under one thing in order for something else to grow.
+- The mark of fear is not easily removed.
+- I had to see and feel and be with the thing that I wanted to write about.
+- Words mean nothing. Action is the only thing. Doing. That's the only thing.
+- The sharecropper may lower his eyes, but not because he's less of a man. That's just a condition of society that such things exist.
+- I write to try to find out who I am. One of my main themes is manliness. I think I'm trying to figure out what manliness really is.
+- What I miss today more than anything else - I don't go to church as much anymore - but that old-time religion, that old singing, that old praying which I love so much. That is the great strength of my being, of my writing.
+- I try to write something that would interest anybody and keep them turning the page. You must have a plot and good storyline.
+- I write with as much objectivity as I can.
+- I knew I wanted to be a writer and I knew if I had a wife and family, I would neglect something, and I was afraid it wouldn't be the writing.
+- In the beginning, I tried to be a more cosmopolitan writer, but I realized that I was a country boy, and I had to deal with things I knew about and where I came from.
+- When I'm sitting in the church alone, I can hear singing of the old people. I can hear their singing and I can hear their praying, and sometimes I hum one of their songs.
+- There will always be men struggling to change, and there will always be those who are controlled by the past.
+- I suppose I started writing seriously at 16 years old. I thought I wrote a novel at 16 and sent it to New York! They sent it back because it wasn't novel.
+- Why is it that, as a culture, we are more comfortable seeing two men holding guns than holding hands?
+- All writers write about the past, and I try to make it come alive so you can see what happened.
+- A myth is an old lie that people believe in. White people believe that they're better than anyone else on earth - and that's a myth.
+- Question everything. Every stripe, every star, every word spoken. Everything.
+- Grace under pressure isn't just about bullfighters and men at war. It's about getting up every day to face a job or a white boss you don't like but have to face to feed your children so they'll grow up to be a better generation.
+- I believe that the writer should tell a story. I believe in plot. I believe in creating characters and suspense.
+- I wanted to be a writer. I wanted to say something about home.
+- I was raised by a lady that was crippled all her life but she did everything for me and she raised me. She washed our clothes, cooked our food, she did everything for us. I don't think I ever heard her complain a day in her life. She taught me responsibility towards my brother and sisters and the community.

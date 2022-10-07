@@ -1,0 +1,61 @@
++++
+author = "Emraan Hashmi"
+title = "Emraan Hashmi Quotes"
+quotes_len = "55"
+description = "the best 55 Emraan Hashmi Quotes"
++++
+- I am not good at first or second impressions, and you have to spend some time with me to know me. Also, I don't want to put my best foot forward and prove something, as that is not me. I would rather be me and have you like me for who I am, instead of being someone else.
+- When in college, I would hardly attend classes. In fact, we would go to other colleges and hang out there. Every six months, my friends and I would hit the roads and go to Goa. We weren't rich kids, and our trips were on shoestring budgets. But, we hardly cut down on the fun.
+- My films have a bold interpretation. They are unapologetic about showing intimacy. Going by the number of people who come to watch my films, this is what our target audience yearns for.
+- Everyone who means well gives advice based on his or her perception. I have realized that while it's important to hear the suggestions, one should only listen to oneself.
+- As for my looks, if I didn't look the way I do, I would probably be one of those many faces doing a romcom, which I detest. The way I look has somewhere defined the characters I played. My weakness has become my strength.
+- Every married man who wants peace in the relationship, should learn the trick to avoid that one question - 'How is the food?'
+- I don't know which other actor has done as many hot scenes as I have. I pretty much have the monopoly in the bed scene market in Bollywood.
+- In my career, I have played a gangster, an ex cop, a journalist and a film director. Yet, the label of a serial kisser refuses to leave me.
+- I was an assistant director for a year, and I realized, 'God, this is a lot of hard work. This is going to take time. So what's the shortcut? What's the better option?' Then thankfully, someone said, 'Why don't you become an actor?'
+- I've always been into visual effects. It was something I took keen interest in before films happened. Ironically, I am a part of 'Raaz 3,' a film that is shot entirely on 3D. It has encouraged me to pursue my dream. Hopefully, if time permits, I will travel to the United States and attend a crash course in visual graphics and animation.
+- I was never really interested in studies and was hot-headed and rebellious in college, as I was totally confused and insecure but was not coming to terms with it.
+- I used to do films for money earlier. I never knew what perception meant. I didn't give too much attention to scripts. It was either to buy a house or to buy a car. There was a certain frivolity to the way I used to pick up things. I wasn't taking my career seriously.
+- I wanted to make money very fast, and I was completely confused after college. I didn't know what career options I had. And then I had this entry point in the film industry, and I thought, 'If this is where the fast money is going to come from, let's see how it goes.'
+- I did B com but realised that it was not my cup of tea. I was always fascinated by animation, and after I completed my course, I wanted to go abroad and pursue it. I used to sketch a lot and was rather serious about it. But all this was until I joined films.
+- I don't want awards. I am not saying this like it's a case of sour grapes. It isn't. I have been to a couple of award functions, and I soon realised that it doesn't give me the kick that it does to others.
+- Just be yourself. Be honest, work towards a goal, and you'll achieve it.
+- I used to believe that the number eight is unlucky for me and would even avoid anything that would add up to 8 - like 17, 26 and so on. I would religiously visit astrologers and wear different stones to bring in good luck.
+- I go for a couple of parties; you won't find me at every film party and never at award ceremonies. I tried attending for the first three to four years, and I've performed at award shows. I sat in them, and I've also exited pretty fast from them. It's just not my place. I'd rather get their adulation in a cinema hall.
+- The 'serial kisser' tag that has been thrust on to me is a lame stereotype. It irritates me. Yes, there is sexual content in my movies, and I have never been apologetic about doing bold scenes. But it's not fair to tag me this way because that can be very stifling.
+- I find awards frivolous. When I began my career, I was told that I deserved an award for a certain performance, but then I couldn't turn up on the day of the show. Then I was told that the award went to someone else. That's when I realised the truth behind it all.
+- Somewhere after you have few successful films, there is a fear of losing what you have got. It is very easy in the beginning, as you are a risk taker, have nothing to lose, and there is no perception about you.
+- I burned down my backyard as a seven-year-old. I poured kerosene over dried leaves and set the whole place on fire, just for fun. Yeah, not a very normal thing to do.
+- I respect the Bible and offer namaz regularly. But I am ritualistic only up to a certain extent. I believe only in those rituals that I can understand and connect with, and conduct them my own way.
+- If someone pulls me down, I pull them down, as I don't feel I should live my life in the way other people want me to. If they have a problem with my films, I can rip off their films, be it comedy or their family dramas, which are low on content and have over-theatrical acting.
+- Sometimes I know a film might not pull the audience to the theatres and have a great collection at the box office. But I need to do these films for creative satisfaction and give something different to the audience.
+- Boldness, sensuality and an unapologetic way of showing things, that is part of my films.
+- I generally like grey roles. My interpretation of drama is different from the popular perception. Acting, for me, is not about overplaying, it is about concealing. I like flawed characters that people relate to. I would never do a romcom.
+- My hectic work schedule does not often permit me time to visit temples, but my conversations with God don't depend on idol worship. Inside my heart, I have developed and sustained a direct communication with Him.
+- The effort always remains that my new film outdoes my last in terms of performance and gets better box office success. Box office is the sole reason why I do films.
+- As an actor, I was not accepted for the longest time. But it did not deter me, as the audience had accepted me. I never compared myself with any other actors. I never had any game plan and took whatever came my way.
+- I am tired of kissing on screen. I have to do it because it is synonymous with me. Also, the producers and directors want to add that element. I don't give it too much importance.
+- I'm not meant to run around trees. I can't throw my arms in the air and sing, I find that boring and irritating. Sweet romcoms are not my cup of tea. The film has to be a little twisted and quirky.
+- I think it is rather 'unsexy' to go under the knife and modify your appearance.
+- I don't know the definition of a star; I am just an actor. I prefer doing hard work, as I feel luck can't do much in absence of hard work. I am a lazy person - when I entered into this industry, I thought it was a cakewalk, but I have realised it needs a lot of patience and hard work.
+- I have kissed in almost all the films except in 'Once Upon A Time In Mumbaai.' I'm not sure if my kissing on screen has anything to do with the success of a film, but producers make sure to put a kissing scene or two. They feel my kissing scenes are my lucky streak.
+- I've always been a huge fan of thrillers like David Fincher's 'Se7en.' I am fascinated by the disturbing, dark underbelly of life. I find such films deeply engrossing. They delve deep into the human psyche, and that's a place worth exploring.
+- After I tasted success with erotic thrillers, a time came when I was being offered only films belonging to that genre. The industry loves repeating a success formula, and the audience had formed a certain image of mine in their minds.
+- When a film is successful, you don't need to shout about it from the rooftops. I don't believe in going into overdrive. There's no desperation to be acknowledged as the reason for a film's success.
+- I never wanted to be in the show business. I wanted to do special effects.
+- With my physicality and my face, I don't think I could pull off a completely righteous guy. There's something devious about my eyes. I like characters with flaws and to see how they overcome those flaws. I want to play real people, and they're flawed, not perfect.
+- My faith in God is unshakeable, even though till date, I have not experienced any miraculous incident that makes me feel the presence of a higher power. But the trust in God has been engrained into my psyche since my childhood.
+- Somehow, I always knew I would get married by the time I was 27. Even in college, I had this weird thing in my head that I would get married when I was 27, and hopefully my career would be stable, and I'll have kids by 30. And that's exactly what has happened.
+- An Emraan Hashmi film has come to guarantee certain ingredients: An intense, grey central character, a beautiful girl - if he gets lucky, then two - couple of kisses, a few bold scenes, fabulous music and a climatic twist.
+- You never compete with the people in your crew; you have your own team. Competition is only with those people whose film is releasing alongside on Friday and never with one's own team.
+- A person like me who has grown up in a mixed culture ought to be spiritual. My mother is a Catholic, my father is a Muslim, and my wife is a Hindu. Personally, I feel spirituality is about being clear-hearted. It involves a sense of connection with the divine.
+- I am a bit difficult to be around sometimes. I can be stubborn on a lot of things, and I'm set, but I can also adapt in a conflict situation and don't hold on to an ego. I end up seeing the larger good and adapt to it, provided it benefits me. I may come across as a cold person, but I am extremely sentimental.
+- I tried to dance in my earlier films, but it was more like struggling to stay afloat once you are thrown into the water.
+- If I am told to be at a shoot at 10 A.M., I am ready on time. By 11:30, I lose my patience. After that, I keep threatening to leave the sets if they don't begin soon. It works sometimes.
+- Even as a child, when kids my age would watch cartoons, I preferred watching horror flicks. I had watched some Hollywood horror flicks and even films made by the Ramsay brothers by the time I was six! I have always been biased towards that genre.
+- I am not doing comedy because the genre is successful. If that was the case, I would have done a run-of-the-mill comedy film. I set my own trends. I like to give something new and different to my audiences. I want to do the kind of comedy that has been missing till now.
+- My victory is when the audience buys a ticket to watch my film. I am extremely thrilled when they give it a thumbs-up.
+- I don't want to belong to any league. I am in a league of my own. I don't want any tags associated with me because I know when the media associates tags with you, they also have the power to remove those tags tomorrow.
+- I feel I should never do passive characters. They don't work for me.
+- Sometimes, I feel promoting a film is a more difficult task than acting!
+- It is fun to see girls going mad about me or dancing around to get one glimpse of me. These are major perks of being an actor. But you need to be cautious and respectful.

@@ -1,0 +1,69 @@
++++
+author = "Deeyah Khan"
+title = "Deeyah Khan Quotes"
+quotes_len = "63"
+description = "the best 63 Deeyah Khan Quotes"
++++
+- Speech, not violence, is how we will bridge the divides between us.
+- The thing is, what most people don't understand is that there are so many of us growing up in Europe who are not free to be ourselves. We're not allowed to be who we are. We are not free to marry or to be in relationships with people that we choose. We can't even pick our own career. This is the norm in the Muslim heartlands of Europe.
+- Censorship in all its forms must be challenged.
+- Our society constantly promotes role models for masculinity, from superheroes to politicians, where the concept of being a 'man' is based in their ability to be tough, dominant - and even violent when required.
+- The proportion of women attracted to the Islamic State is likely to be less than that in other militant organisations, such as the Tamil Tigers, the PKK, and the IRA. Undoubtedly, their roles within the Islamic State are much more confined by the rigid gender divisions under their ultraconservative rulings.
+- If we value human rights, they should be at the core of the project against violent extremism, and women a key part of our imagined future.
+- The state has a duty to protect all its citizens.
+- Freedom of speech is a human right and the foundation upon which democracy is built. Any restriction of freedom of speech is a restriction upon democracy.
+- Jihadis want to watch the world burn, to bring everything crashing down, to destroy the establishment and rebuild it after their own pitiless vision. This misguided utopianism is what makes them such effective bogeymen.
+- Women with education, skills, and independent sources of income are more able to withstand the pressures of the patriarchal family and more able to express their opinions and to move freely within their communities.
+- I'm just trying to stretch the public space wider and make it more open so that a wider variety of people and faces and stories and perspectives and also expertise can come through. So everything that I do rests on that, trying to support on other voices.
+- Women's empowerment, whether through legal, financial, or cultural routes, will tend to increase their agency and their ability to take part in activism.
+- Political and economic insecurity inevitably translates into insecurity in people's everyday lives, from lack of access to welfare to the increasing lack of security in the workplace.
+- We need a broader perspective on what counter-radicalisation means.
+- If our values are worth anything, we should stand up for them and live by them, both within Britain and across the world.
+- Some Muslim children, both male and female, have little choice in who to marry, what to study, what their careers will be, and who they can socialise with. Their lives are constrained under the expectations of family 'honour.'
+- Muslim women can save the world from ISIS.
+- Old, deeply engrained systems take time to change, but we can't leave it to time.
+- For many young men, joining in a radical movement is a way of feeling powerful, which is particularly intoxicating for men who feel their masculinity has been called into question, whether through victimisation or a failure to achieve the status that they feel they are entitled to.
+- People at risk of 'honour'-based violence require long-term support, often years past the closure of a case, for continuing culturally-sensitive psychological support and the development of long-term protection plans.
+- Our media provides a continuing message that for men, heroism is defined through association with control, independence, and the ability to commit violence, from superheroes to crime dramas.
+- While religious fundamentalism is treated as a serious social problem because it has the potential to lead to rare but devastating acts of terrorism against the public, with a variety of programmes and interventions to address it, everyday violence against women occurring in the name of fundamentalism has long been neglected.
+- The self-proclaimed Islamic State cannot tolerate diversity, which is why we must celebrate it.
+- Making people fear the expression of their own power is a very effective way of disempowering them. It is not just those who feel the frustration of being silenced: it also encompasses every person who has no idea of their own power to realise their visions because they have not seen this in action in their communities.
+- Music, performance, and a woman is very rarely accepted within Muslim communities.
+- The Trump phenomenon shows us how much fear of Muslims there is out there and how easily it can be exploited.
+- Freedom of expression is essential for feminists and dissidents in the Muslim world.
+- Extremism is a complicated issue, but without addressing how it appeals to men and boys, we may be missing an important motivation and a way to address the problems in our towns and cities.
+- Within a life that seems uncomfortably scripted by family and community pressures, hyper-religiosity can provide a way to break with parental expectations and flee from parental control.
+- We need to be able to guarantee the safety of all artists and activists for human rights so that it no longer takes extraordinary courage to call for a better world - so that every person with the ability to imagine peace, equality, progress, and justice can express their dreams and hopes without fear.
+- Rather than shutting down free speech, we need to broaden it, to make it possible for young people to say even the things we dislike so we can talk them down. And we need politicians to articulate a picture of the future that includes all of us. Not British values but shared human values.
+- We need more courageous individuals who will defy the structures of power, whether political, economic, or intimate, but we also need it to be safe for people to feel their power and to be able to express their ideas and imagine without fear.
+- The Islamic State does not want us to open our doors to their refugees. It wants them to be hopeless and desperate. It does not want us to enjoy ourselves with our families and friends in bars and concert halls, stadiums and restaurants. It wants us to huddle in our houses, within our own social groups, and close our doors in fear.
+- Our freedoms are shared freedoms: they are bound up in each other. The ability to confront oppression in the guise of religion is linked to our ability to worship as we choose: both are acts of expression.
+- There is no psychiatric pattern which can predict who becomes an extremist - but they are all frustrated with their reality.
+- We ignore the similarities between the religious extremism and ethno-nationalism at our peril.
+- I come from a Muslim family. The label 'Muslim' is one aspect of me, but it's not the only part of me.
+- A hedonistic lifestyle contrary to all the rules and expectations of Islam is not an unusual precursor to radicalisation: in fact, some young radicals see joining in the jihad as a way of achieving redemption for past sins.
+- Left to the mercies of their communities, Muslim women and children remain in abusive households and face losing their financial security over issues like child maintenance and inheritance through the judgments of 'sharia' courts.
+- We need to defend principles like democracy, freedom of speech, gender equality, and the rule of law through exemplifying these on a global scale, not through the same cynical, isolationist policies which have eroded these so-called 'British' values across the rest of the world.
+- Living through the intersections of cultural diversity has given me an intimate understanding of the dynamics of living between the dimensions of East and West, traditional and modern, and political and spiritual.
+- As a girl, I abandoned a promising singing career due to violent harassment by Islamists.
+- Britain has supported theocrats and dictators as long as it served British business interests, whether under Tory or Labour rule.
+- People do the most remarkable things in the most difficult of circumstances.
+- As someone who grew up between two cultures, I have been fascinated with the question of why men and women with similar backgrounds to mine were drawn towards radical messages of hate and violence.
+- Many Muslim parents are authoritarian, which leaves young men and women with limited spaces to express themselves. Self-expression and autonomy are regarded as symptoms of 'Westernisation.'
+- Some women facing 'honour' crimes require relocation far outside the reaches of their extended families and changes of identity to escape detection.
+- The problem with Muslim women is less that we cannot speak the language, but that no one listens to us.
+- We cannot leave vulnerable young men open to the exploitation of extremists, both for our own security and their own wellbeing.
+- I have watched the spread of violent extremism and jihadism across Europe and the U.K. with dismay, particularly given my history of experiencing threats, abuse, and harassment by Muslim fanatics.
+- I'm a woman of colour. I am the daughter of immigrants. I am a Muslim. I am a feminist. I am a lefty liberal.
+- I know some women's rights activists have seen so much abuse that they can't stand men, but I have a sense of empathy with the men. Without excusing the abuse they are capable of, many of them are trapped within these communities and bound by expectations they didn't necessarily ask for.
+- Through adopting radical extremism, some young men who previously felt humiliated and emasculated by their peers can now feel powerful and intimidating - and gain status, attention from young women, and the comradeship and solidarity of other young men like themselves.
+- Britain has been responsible for the undermining of democracy, turning a blind eye to abuses by its allies, using extraordinary rendition to get around the rule of law, passing over the denial of individual liberties to dissidents, and the evasion of the dismal situation for religious minorities.
+- Like Theresa May, I regularly find myself infuriated by the rantings of Anjem Choudary and other hate preachers.
+- Having more than one legal system running is not a sign of a healthy or inclusive society. It is just one less thing that people have in common.
+- Attacking racism and discrimination is a very important way to work against radicalisation.
+- Ability to speak the majority language is not just important for inclusion; it is important for minorities to be able to claim their rights and entitlements.
+- 'Honour'-based violence is a form of domestic violence. Domestic violence is a broad category.
+- Self-expression should not be a challenge that demands extraordinary talent but should be a right accessible to all.
+- Extremist movements are driven by their inability to tolerate the basic human fact of pluralism. They refuse to accept the natural cultural and religious diversity of our world, seeking to impose their own beliefs and behaviours as a universal pattern for humanity.
+- We must defend democracy using its own mechanisms, through explaining and exemplifying its merits rather than through the heavy-handed and arbitrary silencing of its critics. This is how we will build a sustainable alternative to the contorted worldview of extremists.
+- No one is born a terrorist, but the route to become one is surprisingly easy. We need to listen to those who have been there, and those who have made their way back, if we want to stop others from taking their first steps down this same path into darkness.

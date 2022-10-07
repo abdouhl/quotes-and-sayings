@@ -1,0 +1,114 @@
++++
+author = "Wole Soyinka"
+title = "Wole Soyinka Quotes"
+quotes_len = "108"
+description = "the best 108 Wole Soyinka Quotes"
++++
+- I take friendship very seriously.
+- I began writing early - very, very early... I was already writing short stories for the radio and selling poems to poetry and art festivals; I was involved in school plays; I wrote essays, so there was no definite moment when I said, 'Now I'm a writer.' I've always been a writer.
+- England is the breeding ground of fundamentalist Muslims. Its social logic is to allow all religions to preach openly. But this is illogic, because none of the other religions preach apocalyptic violence. And yet England allows it.
+- You always assume for some strange reason that you need three meals a day.
+- The blatant aggressiveness of theocracies I find distressing, because I grew up when Christians, Muslim and animists lived peacefully together.
+- There is not a special imposition on writers to be activists. All that does is encourage writers to write propaganda. Propaganda can be written by anybody, including dictators.
+- There is only one home to the life of a river-mussel; there is only one home to the life of a tortoise; there is only one shell to the soul of man: there is only one world to the spirit of our race. If that world leaves its course and smashes on boulders of the great void, whose world will give us shelter?
+- Those nations that say it's a crime to preach your religion are making a terrible mistake. All they're doing is driving underground other forms of spiritual intuitions and practices.
+- The greatest threat to freedom is the absence of criticism.
+- In the world of literature, I see prizes as more of a duty to the craft itself, rather than as something for the individual.
+- And gradually they're beginning to recognize the fact that there's nothing more secure than a democratic, accountable, and participatory form of government. But it's sunk in only theoretically, it has not yet sunk in completely in practical terms.
+- I'm not one of those writers I learned about who get up in the morning, put a piece of paper in their typewriter machine and start writing. That I've never understood.
+- The problem with literature, with writing, is that it works sometimes in terms of correction of social ills. Other times, it just does not suffice.
+- One, a mass movement from within, which, as you know, is constantly being put down brutally but which, again, regroups and moves forward as is happening right now as we are speaking.
+- Looking at faces of people, one gets the feeling there's a lot of work to be done.
+- I think that feeling that if one believed absolutely in any cause, then one must have the confidence, the self-certainty, to go through with that particular course of action.
+- I don't really consider myself a novelist, it just came out purely by accident.
+- I don't know any other way to live but to wake up every day armed with my convictions, not yielding them to the threat of danger and to the power and force of people who might despise me.
+- When I write plays, I'm already seeing the shapes on stage, of the actors and their interaction, and so on and so forth. I don't think I've ever written one play as an abstract piece, as a literary piece, floating in the air somewhere, to be flushed out later on.
+- You go to conferences, and your fellow African intellectuals - and even heads of state - they all say: 'Nigeria is a big disappointment. It is the shame of the African continent.'
+- The Nation of Islam provides an antidote in the United States to fundamentalist Islam - which is why individuals from America have to go abroad to find radical teachings.
+- You cannot live a normal existence if you haven't taken care of a problem that affects your life and affects the lives of others, values that you hold which in fact define your very existence.
+- All religions accept that there is something called 'criminality.' And criminality cannot be excused by religious fervour.
+- I consider the process of gestation just as important as when you're actually sitting down putting words to the paper.
+- I've done a lot of guerrilla theater in my time.
+- An idyllic period of my existence was when I had a den attached to my home... a writing den, and no one had access to that unless they had their own special visa, applied for weeks in advance.
+- There's a kind of dynamic quality about theater and that dynamic quality expresses itself in relation to, first of all, the environment in which it's being staged; then the audience, the nature of the audience, the quality of the audience.
+- But the ultimate lesson is just sit down and write. That's all.
+- I've always written plays for the purpose of getting something out of my system.
+- Books and all forms of writing are terror to those who wish to suppress the truth.
+- A tiger does not shout its tigritude, it acts.
+- There's something about the theater which makes my fingertips tingle.
+- An excessive amount of my time is taken with political involvement. It's unavoidable; that's my temperament.
+- The novel, for me, was an accident. I really don't consider myself a novelist.
+- My horizon on humanity is enlarged by reading the writers of poems, seeing a painting, listening to some music, some opera, which has nothing at all to do with a volatile human condition or struggle or whatever. It enriches me as a human being.
+- I grew up in an atmosphere where words were an integral part of culture.
+- There's no way to escape the culture that has evolved, from which we ourselves have evolved. Naturally, we stress it, break it up, reassemble it to suit our own needs. But it is there - a source of vital strength.
+- I am a glutton for tranquility.
+- I like my peace and quiet whenever I can grab it.
+- Trading and religion have always been aligned together in the history of the world, and especially on the African continent.
+- My understanding of the creative process is simply that all cultures and all concerns meet at a certain point, the human point in which everything is related to one another. That has been my creative experience. I never know who's influencing me at any time.
+- Just like birds, hunters know no borders.
+- But when you're deprived of it for a lengthy period then you value human companionship. But you have to survive and so you devise all kinds of mental exercises and it's amazing.
+- I'm an Afro-realist. I take what comes, and I do my best to affect what is unacceptable in society.
+- Some African leaders actually dare to suggest that democracy is a concept alien to traditional African society. This is one of the most impudent political blasphemies I can think of.
+- Given the scale of trauma caused by the genocide, Rwanda has indicated that however thin the hope of a community can be, a hero always emerges. Although no one can dare claim that it is now a perfect state, and that no more work is needed, Rwanda has risen from the ashes as a model or truth and reconciliation.
+- I cannot belong to a nation which permits such barbarities as stoning to death and amputation - I don't care what religion it is.
+- I don't have the sort of temperament that submits to Christianity or Islam.
+- Power is domination, control, and therefore a very selective form of truth which is a lie.
+- Some of the greatest uprisings and consequent civil wars in Mexico have centered squarely on the ownership of land.
+- Seven is the magic figure, because that's a symbolic figure of my favorite deity, Ogun.
+- Each time I think I've created time for myself, along comes a throwback to disrupt my private space.
+- And I believe that the best learning process of any kind of craft is just to look at the work of others.
+- I ceased using words like optimism and pessimism a long time ago.
+- Rwanda, which is one of the younger independent states in Africa, must be regarded as a model of how great human trauma can be transformed to commence true reconstruction of people. Human trauma can lead to stunted growth and mass withdrawal.
+- Even when I'm writing plays I enjoy having company and mentally I think of that company as the company I'm writing for.
+- But theater, because of its nature, both text, images, multimedia effects, has a wider base of communication with an audience. That's why I call it the most social of the various art forms.
+- The phenomenon of creativity, we know, is closely related to the ability to yoke together separate, and even seemingly incompatible, matrices.
+- Being the first black Nobel laureate, and the first African, the African world considered me personal property. I lost the remaining shreds of my anonymity, even to walk a few yards in London, Paris or Frankfurt without being stopped.
+- Colonialism bred an innate arrogance, but when you undertake that sort of imperial adventure, that arrogance gives way to a feeling of accommodativeness. You take pride in your openness.
+- Politics, I believe, is a full-time occupation.
+- Under a dictatorship, a nation ceases to exist. All that remains is a fiefdom, a planet of slaves regimented by aliens from outer space.
+- No writer has a right to make that much money. Indeed, without diabolical assistance, no writer can.
+- A war, with its attendant human suffering, must, when that evil is unavoidable, be made to fragment more than buildings: It must shatter the foundations of thought and re-create. Only in this way does every individual share in the cataclysm and understand the purpose of sacrifice.
+- I have a kind of magnetic attraction to situations of violence.
+- Very conscious of the fact that an effort was being made to destroy my mind, because I was deprived of books, deprived of any means of writing, deprived of human companionship. You never know how much you need it until you're deprived of it.
+- I like to say, 'I spend one-third of my time in Nigeria, one-third in Europe or America, and one-third on a plane.'
+- Education is lacking in most of those who pontificate.
+- There is something really horrific for any human being who feels he is being consumed by other people. I'm talking about a writer's critics, who don't address what you've written, but want to probe into your existence and magnify the trivia of your life without any sense of humor, without any sense of context.
+- One has a responsibility to clean up one's space and make it livable as far as one's own resources go. That includes not only material resources, but psychological resources: the commitment of time and a portion of your mind to something when you'd rather be doing something else.
+- Art is solace; art is vision, and when I pick up a literary work, I am a consumer of literature for its own sake.
+- No human is completely fearless.
+- My father was a schoolteacher, and so I had the advantage of both western educational instruction in the school, as well as what you might call the process of imbibing the traditional processes of education instruction around me.
+- Probably to me the greatest singer, female voice, is Billie Holiday. And one of the most moving for me, I don't know why - maybe it's nostalgia, maybe because my life is one of constant partying, whatever.
+- I'm not fond of biographies. I don't like writing about myself.
+- Well, first of all I'll say that I come alive best in theater.
+- We Nigerians must reclaim our sovereignty, our civic entitlements.
+- I am convinced that Nigeria would have been a more highly developed country without the oil. I wished we'd never smelled the fumes of petroleum.
+- We live in a materialist world, and materialism appeals so strongly to humanity, no matter where.
+- Well, the first thing is that truth and power for me form an antithesis, an antagonism, which will hardly ever be resolved. I can define in fact, can simplify the history of human society, the evolution of human society, as a contest between power and freedom.
+- Human life has meaning only to that degree and as long as it is lived in the service of humanity.
+- One thing I can tell you is this, that I am not a methodical writer.
+- The Lagos of my childhood was a well-laid-out maritime city.
+- I'm not sure I'm trying to communicate a message. I'm just trying to be part of the movement away from the unacceptable present.
+- In Africa, those who have money - businessmen and banks - do not believe in film.
+- I found, when I left, that there were others who felt the same way. We'd meet, they'd come and seek me out, we'd talk about the future. And I found that their depression and pessimism was every bit as acute as mine.
+- History teaches us to beware of the excitation of the liberated and the injustices that often accompany their righteous thirst for justice.
+- I love beauty. But I like the beauty accidentally, not dished up, served up on a platter.
+- See, even despite pious statements to the contrary, much of the industrialized world has not yet come to terms with the recognition of the fallacy of what I call the strong man syndrome.
+- African film makers are scraping by on a mere pittance.
+- Books and all forms of writing have always been objects of terror to those who seek to suppress the truth.
+- Military dictatorship, you can focus on it, you can fight it directly. It's a band of power-driven people.
+- Some people think the Nobel Prize makes you bullet-proof. I never had that illusion.
+- After the death of the sadistic dictator Gen. Sanni Abacha in 1998, Nigeria underwent a one-year transitional military administration headed by Gen. Abdulsalami Abubakar, who uncharacteristically bowed out precisely on the promised date for military disengagement. Did the military truly disengage, however? No.
+- The scales of reckoning with mortality are never evenly weighted, alas, and thus it is on the shoulders of the living that the burden of justice must continue to rest.
+- Writing in certain environments carries with it an occupational risk.
+- There are different kinds of artists and very often, I'll be very frank with you, I wish I were a different kind.
+- Nigeria has had the misfortune - no, the fortune - of seeing the worst face of capitalism anywhere in Africa. The masses have seen it, they are disgusted, and they want an alternative.
+- The Sudanese government has been playing games with the world, with the Africa Union, in particular, have been playing for time in order to conclude its mission of ethnic cleansing in the Sudan.
+- The man dies in all who keep silent in the face of tyranny.
+- One's own self-worth is tied to the worth of the community to which one belongs, which is intimately connected to humanity in general. What happens in Darfur becomes an assault on my own community, and on me as an individual. That's what the human family is all about.
+- For me, justice is the prime condition of humanity.
+- If African film makers had one-tenth the amount commanded by film makers the world over - even the amount used by so-called shoestring film makers - I think we would see quite an explosion of African films on the world scene.
+- One has to confront history honestly.
+- Writers and intellectuals have a duty to humanity. It is to insist that the human entity remains the primary asset in overall development; thus, it must be safeguarded.
+- Before you're a writer, you're a citizen, a human being, and therefore the weapons of the citizen are at your disposal to use or not use.
+- The hand that dips into the bottom of the pot will eat the biggest snail.
+- The writer is the visionary of his people... He anticipates, he warns.

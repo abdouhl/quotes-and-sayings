@@ -1,0 +1,102 @@
++++
+author = "Warren Spector"
+title = "Warren Spector Quotes"
+quotes_len = "96"
+description = "the best 96 Warren Spector Quotes"
++++
+- My first encounter with video games was pretty conventional. I was travelling with my parents - we used to take long cross country trips in the United States every summer - and we went into a restaurant where there happened to be a Pong machine, and I was... a lot of quarters went into that Pong machine, let's just say.
+- My greatest joy is seeing parents and kids playing Disney 'Epic Mickey' together, handing the controllers back and forth, helping each other out.
+- Let me tell you, writing comics is as hard as anything I've ever done - for me, at least. I'm now officially in awe of guys who can crank out multiple books a month and maintain a high level of quality. Comics are completely different than any other medium I've dabbled in.
+- I don't care much about hardware. Nintendo games are some of the best games in the world, and from a more graphical standpoint, the Wii can't do what a PS3 or 360 can do.
+- I'm a huge fan of e-books, but the more I buy and download, the more I worry that someone could just take them all away from me.
+- I was lucky enough to go to an all-boys prep school in upstate New York that had a film program, so we had access to 16mm Bolex cameras, Nagra sound recorders, Arriflex cameras. We even had an Oxberry animation stand!
+- Here's the thing: I left Ion Storm and Eidos in the spring of 2004 frankly because I felt out of place at that company.
+- Third-person camera is way harder than I even imagined it could be. It is the hardest problem in video game development. Everybody gets it wrong. It's just a question of how close to right do you get it.
+- The reason our games generate so much revenue is because we're stupid enough to charge $60 for a box or $50 for a download or something. You need used games because most people can't afford those prices.
+- I want content that is relevant to my life, that is relevant to me, that is set in the real world.
+- The only morality I'm interested in is the morality between your ears, between each player's ears, because that's the interesting thing to me.
+- I have never made a game that wasn't explicitly about empowering players to tell their own story.
+- In papergaming, players can look at a character sheet of their own creation and see all of their skills, right there, in black and white.
+- I've always said - I've been making games for twenty years, and from the first day I got in this business, I've been saying, 'All I have to do is sell one more copy than I have to, to get somebody to fund my next one.'
+- I've done a pretty good job of hitting 18-34-year-old males, and not such a good job of reaching kids. Disney has done a great job of reaching kids, but maybe not the 18-34-year-olds. I figure I can learn a lot from Disney, and maybe, I don't know, they can learn a lot from me.
+- We set up a situation and let you interact with it and see the consequences of your choice. That's what gaming does.
+- People perceive games as being for kids, and I think that perception is going to change. Time is going to take care of that. I mean, we've already won. Games have won; it's inevitable.
+- Ray Harryhausen's 'Sinbad' picture was the first film I remember seeing. I was two years old when it came out, and it changed my life forever. I had nightmares about dragons and stuff for years - and loved it!
+- I've got a PowerPoint deck that I use for internal presentations, and there's a slide on it that asks, 'What percentage of your game is combat versus exploration versus puzzle solving versus platforming,' and I refuse to answer that question.
+- If anything, game development is even more of a team effort than making a movie, so for individuals to get credit for making a game is absolutely insane.
+- Anyone who says they want to make a game that becomes a cult classic is kinda screwy, right? I mean, you want to reach the largest audience you can.
+- The Wii U is pretty cool, and the thing that I'm most intrigued about it is it's the first gaming platform that actually is exploiting the second screen.
+- For most developers, that kind of situation - a player figuring out how to do something that the designer didn't intend - to most developers, that's a bug. For me, that's a celebration.
+- I don't even make multiplayer games much, so dealing with multiple characters is something new for me - or, rather, something I've had to recall from my days as a roleplaying adventure designer where the party was everything!
+- I would love to take 'Ultimata Underworld' and literally update the graphics.
+- I have got no problem with used games. I've bought plenty of used games.
+- I gotta do what I think is right, and if enough people like it, I'm a winner. And if they don't, I'll open a bookstore.
+- On the small scale, 'Ico,' I think, actually delivered a small new thing: holding a character's hand and really feeling like your job is to rescue this person, and establishing a personal connection.
+- I conceived the original 'Deus Ex' and was the project director on the game.
+- Gamers both demand and deserve novelty. They need something new. As a game developer, one of my rules is there will be at least one thing in every game that I worked on that no one on the planet has seen before.
+- The transition from the original Xbox to the Wii wasn't a big deal for my team. The business hadn't changed fundamentally.
+- Ideas are nothing. They're irrelevant. If you think your idea is so important, you're doomed. The reality is if you don't like one idea, I've got 299 more. If I tell you my idea, and you can execute better against that idea than I can - great; I get to play a terrific game.
+- I said to myself as Junction Point embarked on the Epic Mickey journey that, worst case, we'd be 'a footnote in Disney history.' Looking back on it, I think we did far better than that.
+- If we're going to reach a broader audience, we have to stop thinking about that audience strictly in terms of teenage boys or even teenage girls. We need to think about things that are relevant to normal humans and not just the geeks we used to be.
+- As far as the timing, well, I'd write that off to luck as much as anything - I happened to be out looking for a development deal, and Disney happened to think my team and I might be the right people to make a Mickey Mouse game.
+- I was an independent developer and started Junction Point in January of 2005.
+- The reality, for me at least, is that the finest recreation of a paper game, played on computer, pales in comparison with the actual, face-to-face experience.
+- It's about players making choices as they play, and then dealing with the consequences of those choices. It's about you telling your story, not me telling mine. It's about you.
+- Kids, adults, men, women, everybody has a relationship with Mickey Mouse.
+- I often get painted as the guy who's trying to tell other people what to make and what to like, and that's really not my goal, but I believe so passionately that games can be more than a lot of people think they can.
+- Whatever adults don't understand, because they didn't grow up with it, is the thing they're going to be afraid of and try to legislate out of existence. It happened with videogames, it happened with television, it happened with pinball parlours and rock and roll.
+- I have no interest in guys who wear armor and swing big swords.
+- I kind of get a next-gen game machine, but competing for the home entertainment business? We'll see how that goes.
+- Once we can do Pixar-quality graphics rendered in real time with interactivity, I could see games costing $200 million to make, and all of a sudden you have to sell a lot of games just to break even, so I'm a little worried someone's going to do that.
+- I have never been assigned a game, I have never made a game I didn't want to make. I've never done anything just to make somebody some money.
+- I think there's always room for more innovation and new things.
+- I think the power of the platforms is outstripping the size of the audience. We can't charge $150 for a game. And when the best-selling game of all time has sold only 20 million copies at $60, do the math!
+- Everyone at Junction Point has been inspired by the creative folks at Pixar and Disney Feature Animation to make 'entertainment for everyone.'
+- The more people who game, the better for everyone.
+- In the electronic game world, I know I have a reputation for doing the cyberpunk thing, and for doing the serious epic fantasy thing, but if you go back to when I was a kid, I've been a Disney fan all my life.
+- In cartoons, in movies, time passes differently. There are flashbacks and flashfowards.
+- I will not support any game that doesn't express what I think is worthwhile.
+- Used games allow more people, specifically younger people, to become game fans because of the lower price point.
+- I wrote my master's thesis on cartoons!
+- I remember on Deus Ex there was one programmer - Alex Durand, a guy who still works for us - he decided he was going to get through the game without ever using a weapon. I would never think to do that. And that's fine.
+- I've loved cartoons all along. Most people outgrow that when they hit 10 or 12, I guess, but I never did. I'm not sure why.
+- I was amazed at how the life of a freelancer differed from running a remote studio for another company. I thought I knew what I was doing in 2004 when I left Eidos because I had run Ion Storm Austin, which was my own independent studio. I had run a business unit inside Origin, but being part of a startup is crazy.
+- When you're dealing with a new platform, the real trick is just getting the game running.
+- From a gameplay standpoint, I've said for years that hero, fiction, and tone have nothing to do with the idea that choices have consequences. And that's really what I'm interested in. I care about you showing how clever and creative you are.
+- Before I got into electronic games, I was making table-top games.
+- I want my little corner of the world where I get to make games where you're not trying to win or lose; you're not trying to get a higher score - you are having unbelievable amounts of fun as you learn about yourself and the world. That's what games can do!
+- $200, 300 million games, I'm a little scared about that; there aren't a lot of companies that have the resources or the courage to spend that much.
+- Oswald is an interesting character. Disney lost the rights to him in 1928 to Universal, who was distributing the cartoons and basically handed him over to Walter Lantz.
+- I've got friends who are literally working alone on indie games that have no prospect of profit or commercial success. I've got guys working on iPhone games.
+- The Disney archives, it's 84 years of history. The one way in which I feel I'm a kindred spirit with Walt Disney is that neither one of us ever throws anything away. He never threw anything away.
+- The Junction Point journey is over. To all those who've asked, or want to ask, I'm sad but excited for the future.
+- I started playing video games, and in 1978 I discovered Dungeons & Dragons and started game-mastering and writing my own adventures and creating my own worlds.
+- We live in a world of virtual goods where none of us own the 0s and 1s. What are you going to do?
+- I'm a big believer in pushing things too far and forcing people to pull you back.
+- For me, the cool thing is doing things that could only be done in gaming.
+- Honestly, there have been some pretty good Marvel games, but I don't think there's ever been a great one.
+- We're not going to do a Facebook game aimed at 35-year old women about farming.
+- I think plenty of games - from 'Thief' to 'Zelda' - have shown that sneaking around can be fun.
+- I like Disney stuff. No-one looks at 'Toy Story' and says,' Oh, that's just for kids.' Why is it that games can only appeal to a certain audience, but movies and books - I mean, how many adults read 'Harry Potter?'
+- Every game has to teach you how to walk, run, talk, use.
+- The basic idea for what became 'Epic Mickey' began at the Disney Think Tank.
+- I'm a Nintendo geek, so I'm a pretty big Nintendo fan.
+- The concept of emergent gameplay is really exciting. That's when players are really crafting their own experience. So if you're clever and creative, you can do things that even developers of the game didn't know were possible.
+- The 'DuckTales' ensemble is clearly critical. There's the core set of characters - Scrooge, Webby, Launchpad, Huey, Dewey and Louie... Plus there's Gyro and Duckworth and Mrs. Beakley and so on. The cast is huge.
+- My wife, Caroline Spector, and I pitched some comic ideas to various publishers back in the '80s, but nothing ever came of it.
+- I don't want to make games for 12-year-olds. I have no interest in that. I haven't been 12 in a long time.
+- The only thing I insist that everybody do is there has to be a basketball court in every game I do, and - with one exception, I let them get away with it once - you can actually shoot a ball through the basket in every game I've made.
+- I have been the last space marine between earth and an alien invasion. I really just don't need to go there anymore.
+- Seriously, I don't know if people would really tell you this. But in my dream world, the people who work for you would say, 'Wow, I didn't know I could do that until I started working with that guy.'
+- Finney is about the best writer of time travel stories ever, and I adore time travel stories - have to make a time travel game someday!
+- The heart of the gameplay is still about choice and consequence, which is what I've been doing since the '80s.
+- The fact is most computer roleplaying games that offer a zillion highly specialized skills end up with nine-tenths of a zillion skills that every player quickly realizes aren't worth the experience points to buy.
+- I used to teach animation history classes at the University of Texas, and I wrote my master's thesis on cartoons. I just love cartoons.
+- Hey, if we didn't overcharge for our product - guess what - people wouldn't have to buy used games.
+- Dude, I turn into a six-year-old when I come to Disneyland. It's amazing. My eyes glass over and my blood pressure goes down. I'm just like everybody else. I turn into a big kid when I come here. It's the happiest place on earth, right?
+- I've made plenty of violent games in my life. I play violent games. They don't affect people in the way that a lot of people think they do. They just don't. It's demonstrably true that they don't, and anybody who thinks they do is just not thinking.
+- I make M-rated games for adults, you know, with guys wearing sunglasses at night and trench coats.
+- I do not believe in the concept of good and evil in my personal life, in the real world. I just don't believe it. I never try to judge.
+- Unfortunately, the rights to 'System Shock' trademark and copyright are both up in the air.
+- Gamers are everywhere, coming in all ages and genders, and developers have grown up, too.
+- Whether it's as the hero of an adventure story, as teacher and friend, as icon on watch, shirt or hat - everyone knows Mickey Mouse.

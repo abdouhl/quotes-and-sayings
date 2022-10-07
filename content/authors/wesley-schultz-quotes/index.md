@@ -1,0 +1,14 @@
++++
+author = "Wesley Schultz"
+title = "Wesley Schultz Quotes"
+quotes_len = "8"
+description = "the best 8 Wesley Schultz Quotes"
++++
+- I thought music could take you to a place where you didn't even feel ownership of it, you just felt lucky you were there. It's like church without God, or something. It's about feeling, hope and catharsis and things that are nurturing.
+- I was born in New Jersey, but it doesn't sound like I'm from a certain region.
+- When I was a kid, award shows were super-interesting for me. But when I started making music, it was kind of hard to watch because I believed in what I was doing and yet knew I didn't really have a shot.
+- The basic idea is always constructed around piano or guitar and a voice, that's what we live and die by, because if you build up from that foundation, it's going to be strong.
+- I think the death knell for any musician is getting a job that you like and pays enough that you just stay there forever.
+- I've always had service-industry jobs, because those were the easiest to quit or take time off from.
+- There are a lot of obligations when you put out a record and it does well. People want to talk to you, which is nice. So then you make sure you do that.
+- But the Grammys is just not something I can take too seriously. It would be a mistake to hinge my happiness on something so completely out of my control.

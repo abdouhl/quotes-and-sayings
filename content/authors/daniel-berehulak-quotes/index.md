@@ -1,0 +1,20 @@
++++
+author = "Daniel Berehulak"
+title = "Daniel Berehulak Quotes"
+quotes_len = "14"
+description = "the best 14 Daniel Berehulak Quotes"
++++
+- I have worked in 60 countries, covered wars in Iraq and Afghanistan, and spent much of 2014 living inside West Africa's Ebola zone, a place gripped by fear and death.
+- When you're in the field, you just focus on the task at hand.
+- I'm trying to grow more as a journalist and understand the story I'm photographing in order to communicate it in a better way.
+- I had no idea how I wanted to get into photography, but I just knew I wanted to do it.
+- My first assignment was 12 weeks in Afghanistan. After that, I covered the Indian election for two months. Then I got a phone call saying, 'Hey, we want you in Brazil,' and the same happened for Somalia.
+- I suppose there is nothing regular about my life.
+- I have to force myself to remember that if I can't do my job, people's stories won't get told, and that helps me to focus on the task at hand.
+- The photographers I worked alongside loved the news cycle and the hustle and getting that front page of the newspaper. But I wanted to be out in the field in conflict areas, documenting real life rather than political theater.
+- I'm still learning and I'm still growing as a photographer.
+- We don't do this kind of work for awards or to be recognised. We do this to share stories with the world.
+- The Japanese people have a strong connection with nature and the ocean and a huge respect for them.
+- It doesn't matter whether you're guilty or not in Rodrigo Duterte's Philippines.
+- For us, there is no such thing as failure. You can't miss a deadline; you can't come up short on an assignment. You have to perform, period.
+- At Getty, I would have 20 different options for the same kind of event rather than focusing on the one image that will summarize the story.

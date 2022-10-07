@@ -1,0 +1,18 @@
++++
+author = "Dontrelle Willis"
+title = "Dontrelle Willis Quotes"
+quotes_len = "12"
+description = "the best 12 Dontrelle Willis Quotes"
++++
+- Win or lose, I've been fortunate to be able to pitch deep enough into games to get decisions.
+- I feel I let my team down today. My heart is bleeding for everybody else. I felt like I should have gotten it done today. That's how it is. Sometimes you do, sometimes you don't.
+- As far as the anxiety, I have no idea about it. I don't feel like I have any nervousness out there. I'm just a guy who really cares about being competitive and that's the bottom line.
+- It's not about the money for me.
+- Whatever I can do to win, I'll do it, even if I have to get hit by a pitch, whatever it takes.
+- I was nervous batting eighth, and I was nervous batting seventh.
+- I just want to say I owe the whole reds organization a great deal. Great staff top to bottom and I wish those guys all the best.
+- I'm not a conventional guy. I've never been a conventional guy.
+- I want to be a traveling circus in that big-league uniform, like everybody else.
+- I love what I do. I'm appreciative and I'm still competitive. I still love baseball, but it doesn't consume me. If I can't do it anymore, then I go home and do something else. It's not the end of the world. It's just the end of your career.
+- The sun shines on everybody. You've got to keep believing.
+- I know about having days off. They can be helpful sometimes, especially late in the year. It's just key to go out there and establish early, especially in this park where they can put up some crooked numbers early.

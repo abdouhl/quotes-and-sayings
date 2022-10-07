@@ -1,0 +1,18 @@
++++
+author = "Steve Daines"
+title = "Steve Daines Quotes"
+quotes_len = "12"
+description = "the best 12 Steve Daines Quotes"
++++
+- We have had a chance to travel to all 56 counties in this state, and I have had the chance to sit around with cups of coffee and having conversations about what matters to Montanans.
+- I was a big fan of Ronald Reagan. He was the first president I got to vote for.
+- I've met so many people of my son's generation who think a sacrifice is when their satellite or Internet is out for a day and that the country owes them something. That old J.F.K. quote about 'what you can do for your country,' doesn't even seem to apply to so many people.
+- Twenty-eight years in business and you understand the importance of problem solving and the importance of efficiency, because if you don't become efficient, you don't run a business well, and you are out of business. And I think some of those principles could be applied to leadership in Washington.
+- I had the interesting experience of having lived and worked for six years in China with Procter & Gamble, and that just changes, I think, your whole perspective in living overseas and living in a country like China.
+- You talk to the farmers, the ranchers, our small community bankers, and boy, one of the No. 1 issues is the regulations coming out of Washington.
+- There's huge opportunities to continue to improve efficiency in the way the government operates and improve the way government provides services to its citizens.
+- I ran for Congress not because I was having a mid-life crisis. I left the private sector because I saw a looming financial crisis that was coming to this country. It's unsustainable.
+- One of our ancestors came over on the Mayflower, and we had family in Jamestown as well... I was raised where service was a part of the fabric of life. It wasn't one-upmanship. No one bragged about their medals, but you could see the look in the eyes, the tip of the hat. You served your country first, then you went to work and had a family.
+- I had the chance to visit all 56 counties in Montana in my pickup. You can put Washington, D.C., in one corner of our state and put Chicago in the other corner, and that's the size of my congressional district.
+- I'm very proud that our country still produces people like my son, who choose the path less traveled; that knowingly step up to serve, even though our country is tearing itself apart with things like political machinations.
+- I grew up climbing mountains in Montana and Wyoming and my wife and I were engaged on top of a mountain peak: Hyalite Peak in Montana. It was a 15-mile hike to get to the top of that, round-trip - thankfully, she said yes.

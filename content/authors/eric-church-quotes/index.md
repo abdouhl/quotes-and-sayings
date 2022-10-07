@@ -1,0 +1,62 @@
++++
+author = "Eric Church"
+title = "Eric Church Quotes"
+quotes_len = "56"
+description = "the best 56 Eric Church Quotes"
++++
+- Many people have come to think they can just wake up and have things handed to them.
+- I don't use the big video screens that a lot of other artists use because personally, I think it's kind of a crutch. I think sometimes it's like watching television as opposed to really getting involved with what is happening onstage and the people in your section.
+- Music's cyclical. There's always that next generation that always comes along.
+- I have a huge chip on my shoulder.
+- When I feel like every day when I get up I'm writing songs, that's the time to make a record.
+- I want to be the guy out there on the edge.
+- Maybe it's oldest-child syndrome, but I have always been competitive, even as a kid with sports. It spills into my career.
+- I was in Iowa one time, and I kept trying to fire up the crowd, and I kept saying, 'How's Ohio doing?' For some reason, they just weren't coming around!
+- To me, the most powerful people in this country, politically, are mayors. If you took all the mayors of the 25 biggest cities and you got them together, you could do more on that level than you ever could through the bureaucracy in Washington.
+- I went to Appalachian State University, which was very bluegrass- and folk-oriented.
+- Coming up in bars and clubs, I would play anything that had a $20 bill attached to it. I did 'Like a Virgin' in a bar one time for a hundred bucks.
+- Everybody always tells you what an awesome and unique experience being a parent is. Words can never do the feeling justice.
+- There are some commercial artists that have number one after number one, and you go to their show, and the show's one-note. Yeah, they're all hit songs. But there's no emotion, because they're the same kind of hit songs, because they're what works at radio. That kills live shows for me.
+- The Wall Street Dow Jones up and down thing that's moving when the stock market's open? That thing freaks me out. It's up, it's down, it's just maddening to me. I guess I'm such a super-focused kind of person that I get distracted really easy. I'll watch that thing, and it's like I'm losing money, I'm getting money. It's just crazy.
+- When I'm cutting a tree, if I'm thinking about anything other than that 40-foot oak tree... I'm a dead man. It's a therapy thing for me.
+- I think right now, you've seen these artists pop up over the last decade who've flirted with branching together a lot of different kinds of music. Some of them have been huge, and sold millions of records. And I think over time it's become a little bit of what the industry can be.
+- I think we make too many records. One record a year is crazy to me. But some people have to sell tickets. The label has to meet their quarterly number: 'We need a record a year.' All of a sudden, the tail's wagging the dog. It's not the music; it's everything else making the music. That's just backwards. It's wrong.
+- I don't really get into that whole red-blue-conservative-liberal because I can't tell them apart. They all seem inept. So, for me, it's not something I focus on at all. I probably should be more political than I am. I just don't care.
+- My favorite artists are the ones that I can take their eight or ten albums, and I can see the arc of their life.
+- I would be on the 'anti-reality' show. I can't stand reality TV. I can tell you one that I absolutely would not be on, and that's 'Dancing With the Stars.' If you ever see me on that show, just please understand my family is starving to death, and things are really bad in the Church household.
+- Looking back on my career, some of the hardest times - eight people at a show, 12 people on a bus - were some of the most fun.
+- My favorite thing is to go out in the arenas, like, an hour before doors, and run the concourse. And you get that anticipation. You smell the popcorn. You see the people tapping the kegs. And nobody is in there yet but you, but you feel it. It's my favorite thing on tour.
+- Bob Seger was a huge inspiration.
+- With bullying and all the stuff going on, words are very important. Words can be more hurtful than anything physically. I got little kids, and it's common sense when you're raising them that the main thing is how you talk to people, and how you treat people. Sometimes I think the world forgets that as we get older.
+- The town I came from really had one industry, and that was furniture.
+- I grew up in North Carolina, and they have a soft drink called Sun Drop. I love the diet version of it. It's the greatest thing on the face of the earth. I always have it in my fridge - bus fridge and home fridge.
+- I'm not an early riser; I'm a crack-of-noon guy.
+- I grew up listening to The Band. I love Lowell George. I love Little Feat, and I was listening to some Springsteen, some of the deep album cuts. I just like the looseness of that kind of music. It all feels like they did it in one take. They let whatever happened happen. If it felt good, they kept it.
+- The most important thing for me as an artist is having an identity.
+- I have a new hobby and it's pretty much logging.
+- I signed a baby's head one time, which I thought was an odd situation. I had a guy show me a tattoo one time, and he wanted me to sign the tattoo. So I signed the tattoo, and he went across the street and had the signature tattooed.
+- I'm going to do everything I can to keep from being mainstream.
+- I really love pizza after midnight.
+- I'm not a big TV guy, but I love either 'Auction Hunters' or those repo shows on truTV. It's really just glorified 'Jerry Springer' is all it is. Every now and then, it's just mindless entertainment. We'll be on the bus, and we'll laugh at it. Those are my guilty pleasures.
+- Country music is the song that speaks to the American condition. It's middle America. Eight out of 10 people. Maybe it's not the No. 1 choice, but they listen to country.
+- I'm not a trust-fund type.
+- You're not gonna write a hundred songs and have a hundred entirely different ideas. It's a matter of finding the ones that are the freshest and most unique.
+- Once your career becomes about something other than the music, then that's what it is. I'll never make that mistake.
+- I don't care if I starve.
+- I've played shows with injuries before but unfortunately cannot overcome having no voice.
+- My dad was in furniture for 35 years. He got run out of furniture when everything went to China, went overseas. Manufacturing in the country broke down. Everything left.
+- The key to songwriting is just to be able to observe, and put yourself in situations to be around people, and let those ideas come to you.
+- The stigma with country is it's not cool. That's wrong. Country is very cool. I look at award shows, I look at how country is represented. Country is represented with an asterisk. We have to perform collaborations. We have to perform a tribute. We can't perform by ourselves.
+- I've always believed that you put everything into making the best record you can make, regardless of how you release it and regardless of the press and the hype - that the music wins.
+- There's a roots nature to Appalachia - the origins of folk and bluegrass. I know guys there who are some of the best players I've ever heard but are playing on their porch tonight because they've never chased success. There's simplicity to how they live and what they care about.
+- I can't stand making records.
+- If I wanted the ticket to be a $200 ticket, I'd have made it a $200 ticket, but I don't want it to be that.
+- As far as writing, it's grown because I've really grown comfortable with who I am.
+- I've always made music that was representative of real life.
+- When we go out there, I want to be the act that, no matter who's in that crowd, they've never seen a better act than me. I'm gonna empty the tank.
+- Country has become too homogenized and too commercial. It has lost what makes it special. It's great that it's popular, but then it starts to become watered down.
+- I'd still stand in line all day to get into an AC/DC show, because that was the one show when I was younger that kind of changed my life. Because it was a little wrong. I think I was 14 or 15, first concert without the parents, you know, and they were all worried because we were going to an AC/DC show, and it was an amphitheater.
+- Music is universal; it speaks to people's souls on the deepest level.
+- I went to my dad when I was 17 and said, 'I want to be a country music star.' Which every dad loves to hear. And he said, 'I want you to go to college.' So we had a discussion. And I'm pretty stubborn. I'm a lot like him. And he said, 'If you go to college and graduate, I'll pay your first six months of rent in Nashville.' So he bribed me.
+- Life doesn't get more real than having a newborn at home.
+- I am very thankful and blessed to have a healthy and happy baby boy and baby mama.

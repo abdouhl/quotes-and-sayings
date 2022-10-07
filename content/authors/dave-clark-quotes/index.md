@@ -1,0 +1,72 @@
++++
+author = "Dave Clark"
+title = "Dave Clark Quotes"
+quotes_len = "66"
+description = "the best 66 Dave Clark Quotes"
++++
+- Anyone can look good if you have 500-flash bulbs exploding in your face.
+- I wanted to stop while we were still getting big hits. The only thing I miss is the actual performing.
+- What makes it all worth-while is what I've been able to do for my parents. They were poor and worked all their lives. Like all boys in London, I dreamed of winning the football pool and doing for them. Well, this is better than any football pool. Now they don't have to work. I've given them a nice home and a car. It's a good feeling.
+- No, I don't think rock 'n' roll will ever fade.
+- As for the way we play, we are as much like the Beatles as any American Jazz group is like any other.
+- We were a very popular live band in London, packing in 6,000 people a night, and the record companies that came after us wanted us to be the flavor of the month.
+- To think I thought you could lose your place in history.
+- If you're starting a group, don't think about being a star or you're in for heartbreak. It you enjoy singing, that's enough.
+- Who wants to be a 40-year-old rock and roller? You cannot live in the past.
+- We've got an electric organ, a sax, drums, guitar and bass guitar. We sound less like the Beatles than most of the groups.
+- We got our grounding by playing live. You had to fall flat on your face, pay your dues and grow.
+- What I couldn't have dreamed of is that the fame would last for the rest of our lives without me having to play another note.
+- I believe you have to be honest with yourself. If you believe that the direction you want to go is the right direction, then you should do it.
+- We couldn't get enough of American rock 'n' roll. We'd hear it when we played American air bases in the U.K.
+- I love the music business, but I have no ambition to keep on playing.
+- You can't go on being a 19-year-old rock-and-roller all your life.
+- I never professed to be a great drummer but I was a very heavy drummer.
+- I sort of disbanded the DC5 in 1970. I decided to call it a day when we were still selling records.
+- Nobody thought that the music boom of the Sixties was going to last.
+- I made records purely for fun - songs that made you feel good. I left the message songs to people like John Lennon.
+- That was the ultimate high, playing live. You feel like the Pied Piper, or a conductor, knowing how to take an audience up or bring them down.
+- Success doesn't scare us. I think we have staying power.
+- I've always had a philosophy: it doesn't matter who you love or how you love, the most important thing in life is that you love.
+- When you're touring, you only see the auditorium and the hotel room. You can't go out because you get mobbed. You're tired, edgy and under pressure. The fun had gone out of it, so we decided to walk away from it all.
+- The '60s were a time of great optimism and hope. There was a buzz - everybody could be successful.
+- Elvis is great and so is anybody who lasts like he does.
+- I don't think you'd say we'd be rivals because we've got a completely different line-up to The Beatles.
+- I was very, very lucky to spend my youth during the '60s.
+- The Dave Clark Five was basically a live band. During '63 we got the Gold Cup for being the best live band in Britain.
+- People annoy me when they say, 'Oh, you made a fortune.'
+- People make assumptions when you're not married. I've been best man at five weddings and I said I'd never do it again 'cos everyone got divorced.
+- I knew The Beatles before because we did our first television with them, 'Thank Your Lucky Stars.'
+- Rick was a real gentleman. He was very kind and had an amazing sense of humour - he was the funny one in the group, and a very talented musician.
+- I'd like to make documentaries. Way-out documentaries. I'd like to do one on a tour of the U.S.
+- Freddie Mercury said years later that he got the idea for 'We Will Rock You' from 'Bits and Pieces.' I never knew that.
+- We were the first group where the drummer was the front man.
+- Not that we've got anything against America, mind. But let's face it, you make a lousy cup of tea over here.
+- It was always the singer that was the front man, but Mike stood there and played piano and keyboards. He had a great voice and he was the Sixties' Rod Stewart, and he contributed a tremendous amount to the Dave Clark Five.
+- When we first went to L.A., Howard Koch, who was the head of Paramount Pictures and later President of the Oscars, threw a welcome lunch for us at his house. There were all these stars there - Frank Sinatra, Dean Martin, Lucille Ball, Natalie Wood, Henry Mancini.
+- Elvis Presley invited me to Las Vegas for one night but we got on so well that I stayed for three.
+- I own a series called 'Ready, Steady, Go!' that I bought in the Seventies. I purposely didn't do anything with it, and wouldn't sell off any clips. My accountant went crazy when I said I wanted to wait until the 20-year cycle, then put it out so the new generation could experience it.
+- Ready, Steady, Go!' was the show of the '60s in London, where the Beatles, the Stones and the DC5, and every other major act started.
+- I always believed that the bubble could burst tomorrow. You're only as good as your last record.
+- I miss physically going out on stage and performing. That's the ultimate high.
+- I enjoyed every moment, but we'd been everywhere, done everything. I wanted to get back to being just Dave Clark, not Dave Clark Celebrity.
+- We'd play the American bases and found all these wonderful records by Elvis, Jerry Lee Lewis, Fats Domino, Sam Cooke. Without American music, there would not have been a British Invasion.
+- We have our hair cut, but the idea is to look like we didn't.
+- There will never be another Freddie Mercury, one of the greatest rock and roll singers.
+- I bought the rights to 'Ready, Steady, Go!' several years ago because I didn't want the segments to be chopped up and sold off. I thought the shows should be left intact.
+- Our band was different. We were still playing rock 'n' roll, but we had an entirely different sound: just one guitar, but an organ and a saxophone.
+- Early CDs, I found, flattened out the sound - it took away all the highs.
+- You've got two sets of teenagers in England - the mods and the rockers. The rockers are motorcycle addicts. The mods dress like we do. We wear four-button jackets, cuban heel boots, shirts of our own design, with high collars and a tab underneath the collar.
+- I date fairly often, but my work is much more important.
+- You can't recreate the '60s.
+- I was at a party in Alexandra Palace tobogganing on the ski slope, got whiplashed at 40mph, put my hands out to balance myself, and three fingers got caught in the artificial snow. I broke four knuckles. I have not drummed since.
+- My big thrill in life is my Jaguar XKE.
+- I never wanted to do a documentary or write a book.
+- The '80s have been so much doom and gloom. We've become very pessimistic.
+- You hear many things, take a little from each experience, and tune your imagination to create believable characters and situations.
+- I thought I should have a Rolls, for prestige, so I ordered one. But when it came, I realized that I didn't really need it.
+- We copied our hairstyle from Prince Charles, not the Beatles.
+- After two world tours where we played every state but Greenland, I only saw the inside of a hotel. I wouldn't have missed it for the world, but it did get tiring.
+- Classical music is for listening but rock and roll is to have fun with.
+- I was raised Church of England but I love the Buddhist philosophy, it's very powerful, non-violent.
+- One of the reasons I wanted a sax in the band was that I loved Fats Domino's 'Blueberry Hill.'
+- They say if you remember the '60s, you weren't there. Well I remember the '60s, I was there and I wouldn't have missed it for the world.

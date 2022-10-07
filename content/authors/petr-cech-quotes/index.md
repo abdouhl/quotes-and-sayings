@@ -1,0 +1,106 @@
++++
+author = "Petr Cech"
+title = "Petr Cech Quotes"
+quotes_len = "100"
+description = "the best 100 Petr Cech Quotes"
++++
+- It's the life of the manager: when you make a decision, and the team doesn't win, the pressure comes. But that's part of the life of a manager and footballers as well.
+- It was my dream to have an opportunity to become a professional player.
+- As a player, it's better to wait a moment for the correct call than be let down by an incorrect call.
+- Unfortunately, money is very important in this world we live in, but it is up to every individual to deal with it.
+- Every summer is important. If you have a bad summer, it can have consequences for the whole season. If you don't get people to rest and to have a very good pre-season, you can start the season chasing.
+- Sometimes you need to make sure that, no matter how you do it, you win the games.
+- When you are going for every trophy, it is always good to have as many points as early as possible in the Champions League, and then you can concentrate on the league and the Carling Cup.
+- Football is a collective sport, but goalkeeping is an individual sport.
+- I gave my first interview when I arrived at Chelsea in 2004, and I had said that it had been my dream to play for one of the best clubs in the world and in the best league in the world - this came true, and I am very pleased my dream will last.
+- Show me a team of the stature of Chelsea, Manchester United, Real Madrid, or Barcelona who is not obsessed with winning the Champions League. If they are not, I'd be surprised why they play in it.
+- One day, if I feel the fear of putting my head in the middle of some battle or scrum, then I stop.
+- Football is played by 11 players, and unfortunately, every time, it happens that some do well, and some do worse.
+- Chelsea has grown in my heart, not just because of my team-mates and all the people that work for the club but also because of their fantastic fans.
+- Do I want to play every game? Yes, I want to play every game. But I also understand it's impossible.
+- Sometimes, when you have a young team full of enthusiasm, they don't feel any pressure; they just play.
+- Sometimes, if a striker is not scoring as many goals, they can still be in good form.
+- I'm so focused on the game that I hardly understand what the people sing or shout or what they do.
+- When I was in high school, I started learning English as my second foreign language, but my level of English at that time was very average.
+- All managers have a different playing style and football philosophy. What's important for players is being able adapt to those different styles.
+- The connection between the Soviet Union and Czech people - or Czech politicians - was very big. It was like a model country for us. But it wasn't the best model, so a lot of Czechs don't like to speak about Russia or the Soviet Union.
+- I know I could be a goalkeeper coach - I feel I am better suited to be a manager.
+- Obviously, you have the physicality and the way the game is played in the Premier League. The goalkeeper is not as protected as in Europe or different leagues.
+- My father has a book where, ever since I started playing games... he wrote down the games that I played in. And then, when I did my website, we thought that was a really good idea, that people can keep track of my games.
+- If a team concedes a goal, then the first question is always of the goalkeeper.
+- I think once you understand a language, you understand the culture surrounding it as well.
+- It is a great challenge to be playing against the best players in the world, and I always wanted to play in the Premier League and be a part of this league.
+- Who is the best goalkeeper in the world? It's always hard to choose because there are so many great goalkeepers.
+- Wenger and Mourinho are different, but there is one thing they have in common, and that is that they do not like defeats. And I think this is the driving force behind the success of both of them.
+- It's always good to have the right call in the end.
+- I play football, not to only enjoy it - and I love the challenge of playing and competing with the best players - but I want to have the chance to win games.
+- His ball technique is superb, but most importantly, he can react to how the game develops. At the last possible moment in any situation, he can find the ideal solution. There are a lot of ways that Messi can finish an attack.
+- Every summer at a club is important because you have some changes in the squad.
+- Once you're on the pitch, you play for your team, and you want to win. During the year, you can play against friends - you can play against big friends and close friends - but once you are on the pitch, this friendship goes away, and you just focus on winning the game.
+- Football is a wonderful game which can be cruel at times.
+- When you bring in a player with a big reputation for a big fee, and he's coming from a different championship, and it starts badly, then you can be worried - we had an example of that with Andriy Shevchenko.
+- Iker Casillas is one of those keepers who always seems to be at his best in the really difficult games when he has hardly got anything to do but reacts when needed in those emergency situations.
+- Sometimes I think it is best if, after a big game, you play another big game.
+- It is always great to be a position like this, where you play for everything because it is so exciting.
+- True fans will appreciate what I've done and the legacy I've left.
+- Jose Mourinho doesn't have a magic wand, and you wave the wand, and everything goes the way you want.
+- As a goalkeeper, Van der Sar can do everything. He is very good at coming off his line, and he is also effective as a libero - what they call in England a 'sweeper keeper.'
+- There is always a lot of pressure at Chelsea, but we are used to this and have to make sure we keep winning games.
+- Obviously, every player wants to keep their spot in the starting line-up, and I'm the same.
+- I want to be playing, I want to have a chance to compete for my position in the team, and I want to be useful for the team and do the usual stuff on the pitch week in, week out.
+- Every time you can score more goals you should try to do so.
+- With goal-line technology, there are plenty of results that could be changed.
+- I've played under different managers, different styles, and most of my career, I was asked to play long.
+- Every team needs people who guide you through the difficult moments.
+- I think it's very useful when you want to be the team who create. You need to create this superiority at the back when you build up using the goalkeepers.
+- The big teams are about the Champions League.
+- I don't do nervous, really. You always have to respect your opponent, respect the game of football, and be 100 per cent focused.
+- You always have years when you go through transition and the side needs to be rebuilt. Or you have changes in terms of managers.
+- I'm amazed people talk about my helmet - saying it makes me feel psychologically better. I would love to play without it, but I'm not allowed to by the doctor. As long as I'm told by the doctor I'm running too much risk to play without it, I'll play with it. There's no other way for me.
+- You have to be consistent in your work, consistent in your performances, because, if not, then you might not have as many games as you would like. Less games you play, then less chances to have a clean sheet.
+- Managers come and go, and first-team coaches and players can leave suddenly.
+- I speak all my languages basically every day with the people in the dressing room, and it's a pleasure to be able to do so. On the pitch, if it's a group of players I'm trying to communicate with, then I use English because you need to make sure everyone understands what you are saying.
+- I like people who tell you what they think straight away instead of going around in circles.
+- Every time Luis Suarez is close, he pushes defenders around.
+- Young Petr Cech was sports mad, football mad.
+- In football, you only work for the things you can control. You cannot control the outside world: you can only control your preparation; you can only control your performances.
+- Even if you have won it before, you just want to keep winning the Champions League. Every season, the ambition is to win the competition.
+- Arsenal is a team who challenge for the top and definitely match my ambitions and personal motivation.
+- Unfortunately, the manager is always the one who gets under pressure the most.
+- There are so many things that a goalkeeper coming to the Premier League has not experienced in a different league.
+- It's always better if you have one manager for a long period because then you can build the team.
+- I speak five languages, which actually makes it easier when you join a new team. You can settle much quicker because you can help team-mates much faster and better. People need to be careful around me, though - I can understand everything.
+- You need to defend as a team to defend well.
+- Money has never won anything. You can spend as much as you want, but you must build a team first.
+- It's normal in a top club that people change.
+- There are some people who have left me negative messages, but they aren't true Chelsea fans.
+- Buffon may be a bit smaller, but he has everything that you want from a great goalkeeper. He relays his confidence to his defence, and they feel that they have a great keeper behind them. Everybody can make mistakes, but his consistency level is amazing. You never see him have a bad game.
+- When you make a mistake, you have to admit it.
+- I had a depressed skull fracture. A few pieces of bone went in quite deep; that was the biggest danger.
+- We won back-to-back titles in 2005 and 2006, and it was a fantastic achievement, a fantastic feeling. Once you experience that, you want to have it again.
+- People always use the word 'obsession' in a negative way, which I'm always amazed by. We are not obsessed in the way that, if we don't win it, we'll just go and shoot ourselves. That's not the case. We are obsessed with the Champions League because this is a great competition to win. In a positive way, we try to search for the victory.
+- In big clubs, you always have competitions for places.
+- I think, in football, everything goes fast, and as fast as you can go up, you can go down. So basically, every day you work to be ready.
+- I always like to do things the right way.
+- Obviously, as long as I enjoy it, I'm fit, and have the desire to work 100 per cent every day with the same motivation, then I want to play.
+- Buffon is fearless and has no obvious weaknesses. He has been outstanding for Juventus and was one of Italy's most important players at the 2006 World Cup finals in Germany, where they were victorious, but what is amazing is that he has been playing like that for years. He never seems to make a mistake.
+- Once the surgeon said the skull is strong enough with the helmet on, I decided to return to training with the team.
+- Everybody makes mistakes, and I am a human being.
+- It's always difficult to say if anyone is in the best form of their career.
+- I would like to be a manager, to organize everything in training, see if my philosophy could work, and give it to the team.
+- You can't control games for 90 minutes; there will be moments where the opponents will show their quality.
+- As a player, you try your best to make things happen, and the rest is up to others.
+- You have to have respect for money, but sometimes you get people who stop thinking about their career, and for them, it is just a case of saying, 'Look at me. I have a lot of money now, and I can do whatever I want.' I wouldn't do that.
+- My favourite language, actually, is Czech, just because it's so colourful. We have so many combinations, words, and expressions. I have to say there are a lot of things which you can say in Czech, but you cannot really translate, because the meaning would make no sense.
+- I don't like running that much, and during the off-season, I have to do it, but if I can replace it with tennis, it is better.
+- Now the ambulance is always ready; the paramedics are always ready. People in the crowd can get help without risk. If you look at the Fabrice Muamba case, this is what helped save his life - the paramedics are there.
+- Sometimes in the Premier League, you are in a game where you can't play nice football because you just wouldn't win it.
+- I believe that the Premier League is the best league in the world, and having played in the Premier League for such a long time, it is to my advantage, and I know what to expect.
+- For a big club, you can accept that the team does not win the league because it is in transition, but you cannot afford to slip out of the Champions League spot.
+- In a way, the manager plays as big part, but you, as a player, are on the pitch. He cannot make you run if you don't want to; he cannot make you make the right decision in the heat of the moment.
+- If you take the autobiographies of great sports people, they are almost always the same. They start with zero; they are always ambitious, know what they want to do in life, and have the confidence to do it.
+- You win the way you have to.
+- You can be the best manager in the world, but if the players don't trust you, it will never work.
+- I understood I had to be good at school so I could play football in my free time. Usually, by the time I came home from school, I already had all my things ready for the next day, so I could put my bag on the side and go straight out to play football with my friends!
+- If you're not right, you can make a mistake that will cost your team-mates a game.
+- I played tennis a lot when I had the skull injury. For the first two months of my preparation, it was all I could do. It is a great sport for me because it helps my hand-eye coordination, and you need quick feet, which is a good exercise for a keeper.

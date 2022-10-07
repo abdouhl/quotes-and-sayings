@@ -1,0 +1,106 @@
++++
+author = "Prateik Babbar"
+title = "Prateik Babbar Quotes"
+quotes_len = "100"
+description = "the best 100 Prateik Babbar Quotes"
++++
+- I have no choice but give my best, even if it is a small role. There are a lot of expectations from the family and industry.
+- I wanted my own rock band and stuff like that, but things didn't work out. I didn't have the patience to write my own songs and learn it and everything.
+- A lot of things have hurt me about the industry. I don't want to be very vocal about this but it's an everyday fight with Bollywood. It's like a love hate relationship.
+- Dad is very hard working. I want to be like that. I just want him to be happy with my work.
+- I just stumbled into acting; my first choice indeed was music and sports.
+- Both my parents have done considerable work in theatre and I have grown up with that culture, but I still felt that I needed formal training.
+- I've grown up in Mumbai, did college from Mumbai, many colleges, actually - Jai Hind, Ruia, Andrews, Wilson, Whistling Woods... Then I worked as a production assistant with Prahlad Kakar, and then I started acting.
+- Love is everything.
+- I try and work out every day if possible, or as many times as possible in a week. I concentrate on one body part at a time, and spend at least two to two-and-a-half hours on really intense weight training.
+- No, I don't regret any of the films that I did.
+- I am not averse to the idea of being in a relationship. In fact, I think everything in this world can be solved through love.
+- I like being adventurous in my choice of roles. It may not be the prescribed way, but it is mine and I have enjoyed giving my best to all directors.
+- People celebrating Ganpati should look into the environment as well. One should opt for a clay Ganpati, as it melts in the water.
+- I am proud to be their child. It is very inspiring for me. I am inspired by my mom and dad.
+- We all celebrate Ganpati festival with a lot of love and care for the deity, but we also need to take care of the environment.
+- I want to love myself and love my life.
+- Vidyut Jammwal is like an older brother; I will love him for the rest of my life.
+- My favorite destinations include places in south of France, including Cannes.
+- I am learning to be more humble and giving as a person.
+- With time, the one thing that I have learnt is, never taking the opportunity for granted.
+- I want to work on projects that I can connect with and those that establish a connectivity with the audience too.
+- I really do look up to Salman bhai. To maintain that kind of physique for so many years is not easy.
+- Sometimes it is beneficial to you and sometimes it is not. So, you should not pay too much attention to controversies. You should just focus on working hard on your film and your character. Leave the rest to god.
+- I am passionate about my work.
+- Whoever you are, you have to prove your worth.
+- Working with Aamir Khan was awesome. There's so much one can learn from him.
+- I'm a health and fitness freak. I love it.
+- Everyone has some sort of struggle.
+- People say that they can't leave their homes without their phones; well, I can.
+- As an actor, it's your job to switch on and off from the character.
+- There are too many different kinds of people in this world. Not just drags or gays, everybody is different from each other. We should proudly own our individuality.
+- At 19, I got signed up for commercials, it was easy money.
+- My grandparents and my aunts tell me that I need to make a name for myself like my mother. Their thoughts really motivate me.
+- I think I have grown as a better actor, I have learnt more about people and professionalism.
+- It's a full time job - trying to be at peace in my life, trying to be a better person and be best in every way I can be, be a good brother, be a good actor and a good human being.
+- I don't think anyone can replace the brand 'Bachchan.' You can call him a brand. But for me, he defines Indian cinema when it comes to actors.
+- Some of my films were worth it and some were not. Like every actor, I had my share of ups and downs but I took it in my stride and tried to learn from it.
+- I feel that a film or a play presenting homosexuality does not necessarily have to come with a message for the audience. It is a way of life, everyone should be treated equally.
+- Yes, I mean, I can't match up to my mother's acting skills, actually both my parents. I just cannot match up to them. My mother was such a powerful and a respectable performer. They are actually overshadowing me and yes, I cannot be as good as them.
+- The funniest rumour that I've heard about myself is that I am gay.
+- I like feeling fit and strong.
+- Yes, I love the movie business. In fact, there's no business like show business.
+- Maldives has a fun, relaxed and approachable vibe. I think I have a similar personality.
+- I have come to terms with all the complications of my life.
+- I do enjoy a lot of good will in the industry and feel very fortunate about it.
+- Getting to work with good filmmakers and getting to play good characters in films is so special.
+- I am interested in doing anything that makes for a good watch.
+- Basically, whenever I watch my mother on screen, I never judge her as a performer; I always see her as my mother and I become emotional.
+- I am proud of whatever my parents have achieved. In fact, it drives me to excel in life, to perform even better and explore myself.
+- I was always aware Mom was someone who was recognised, admired and loved.
+- I spend about two hours every time when I'm in the gym.
+- I was disappointed with 'My Friend Pinto.' Everyone put a lot of effort into it but the final product was something no one was ready for. The story was altered and a lot of scenes were edited. I got a lot of flak for my performance.
+- I know that if I want to be respected, I have to show respect.
+- One needs to know what is right and what is wrong.
+- Now for me, acting is all I want to do for the rest of my life. So I am going to give 100 per cent to it. Whether I am becoming poor or rich, famous or unknown, it does not matter. This is what I am here for.
+- Umrika' was one of the most wonderful collaborations I had the privilege of being a part of.
+- I don't know if I am like her, but I am told that my eyes and my smile are like mom's.
+- I don't want to limit myself as an actor.
+- Obviously I am Prateik Babbar but I would like to be called Prateik. I am superstitious; there is a spiritual reason why.
+- I want to take up anything that excites me. It can be a drama, action or a comedy.
+- I have learnt to respect others opinion more.
+- I love music - anything that catches my ears - but it's more about lots of rock 'n' roll and really funky electronic music.
+- I was just 19 years old when I did my first film and had no plan to act, or to become an actor. It was like a paid holiday so that I could earn good pocket money and then party more with my friends.
+- My diet consists of low carbs, zero sugar, zero fat, zero dairy product, lots of fish, chicken, red meat, protein shake and lots of vegetables like spinach and mushrooms.
+- I never dropped my surname.
+- I get very lazy when I come to Delhi. My visits here are all about sitting and eating and it is very dangerous.
+- I have been watching Hollywood films from childhood.
+- People have talked about a biopic on my mother. And I am excited about it. In such a short span, it was one hell of a life lived. It is special. I would love to have a biopic made on her.
+- Relationships have been a way of life and I don't regret being in one ever.
+- We, as a society, need to be open-minded.
+- I think I have very strong bones.
+- I know I must be true to myself.
+- It is not about being a hero or a villain; I want to be a solid and passionate actor.
+- You win some, you lose some. You get hit you don't get hit, but it's not about how hard you get hit. I think it's about how hard you get hit, then still get up and deliver an even harder punch. I think that's what it is all about.
+- My mother wanted to be a mother. That's the only thing she wanted from the bottom of her heart. She didn't want to be the number one actress - which she was - and she didn't want to be this great legend. All she wanted to be was a mother and she did but God took her away. So I always will empathise and sympathise with women.
+- Be honest to your work and do quality work.
+- Most pretty girls are hard to please, aren't they?
+- Hard work is the only way to success. You have to be tough, stay tough.
+- I agree to do a film if I like the subject.
+- Doing the same thing over and over again can be boring, I want to explore as much as I can.
+- The biases in our society stems from the orthodox mentality. It is very deep-rooted in our country but we need to wake up.
+- No one needs to treat you like a star kid in the industry, but you do get pointed at... people assume you get everything on a silver platter, but that's not true.
+- Life is nothing without ups and downs.
+- Do things close to heart, and work hard with passion and dedication.
+- My father is my hero and that's never going to change.
+- I am a fan of cinema. The genre has never mattered much to me.
+- I wanted to be a cricketer.
+- I'm a very laidback sort of guy, but people assume I am a serious actor and a serious person. That is not true.
+- I never wanted my fans to think I'm perfect.
+- Mumbai is the kind of place where you learn how to be street smart... unless you're way too overprotected.
+- I just wish that I am always true to my work and myself and value the respect that my parents have earned.
+- I have realised acting is my heartbeat and my lifeline.
+- No, I never planned my life.
+- As an actor, I try to work in as many films as I can.
+- I make it a point to have my meals after every two hour gap and am very particular about it.
+- If an actor can emotionally bond with the viewer, then it does not matter if he is handsome or ordinary looking.
+- The fact is, when you are young, if you are mingling with wrong people, you tend to be misguided. You tend to be brainwashed easily.
+- Prateik means symbol so I symbolise certain things in my life.
+- I love travelling.
+- My biggest problem areas are my stomach and face. If I indulge too much, I gain weight at these wrong places. So, I stick to a very strict diet in order to avoid that.

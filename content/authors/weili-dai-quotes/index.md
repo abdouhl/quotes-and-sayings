@@ -1,0 +1,19 @@
++++
+author = "Weili Dai"
+title = "Weili Dai Quotes"
+quotes_len = "13"
+description = "the best 13 Weili Dai Quotes"
++++
+- I believe women are the glue of everything.
+- Technology is one of the key drivers of female economic empowerment, but the fields that women choose to participate in are still decidedly gendered.
+- Let students use technologies in the classroom.
+- I grew up in a Chinese family where the parents' No. 1 priority is the kids' education.
+- In science, technology, engineering and mathematics, men far outnumber women in the classroom and the boardroom.
+- In terms of achievement, the pride is very important to me. It keeps me going every day. The money is always second to me.
+- I believe it is in the world's interest to develop environments that fully engage women and leverage their natural talents.
+- I was very fortunate when I was little - I played basketball. You really absolutely learn how to be a team player, how to win a game, to accomplish things, not just for yourself.
+- Technology is a nerdy field. That's why I called myself a 'geek.' It requires a lot of training and encouragement at a very young age.
+- A lot of people believe women can't do tech-y stuff. Becoming nerdy doesn't have to mean the short-haired guy, but can be the woman with very long, beautiful hair.
+- Women have their own strengths, like fashion. In technology, we can contribute in a big way in terms of the design of the user interface.
+- It is pure mythology that women cannot perform as well as men in science, engineering and mathematics. In my experience, the opposite is true: Women are often more adept and patient at untangling complex problems, multitasking, seeing the possibilities in new solutions and winning team support for collaborative action.
+- I believe in order to make a friend, you have to be a friend.

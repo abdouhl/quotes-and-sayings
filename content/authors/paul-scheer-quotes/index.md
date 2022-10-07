@@ -1,0 +1,18 @@
++++
+author = "Paul Scheer"
+title = "Paul Scheer Quotes"
+quotes_len = "12"
+description = "the best 12 Paul Scheer Quotes"
++++
+- Adult Swim has cornered this really cool market, especially for comedy shows.
+- It's funny to think of Dave Chappelle's show and how popular it was and he was before YouTube. I would imagine 'Chappelle's Show' would be even more giant if there was a chance to put his stuff online and pass it around.
+- I love that experience of seeing a bad movie or a movie that you don't even know, and then experiencing it with your friend.
+- Summer movies are all about things blowing up and you going, 'Yeah!'
+- My background is in improv and writing.
+- The most frustrating part of working in TV and film is that you have to convince someone to let you make what you want; in comics you can do whatever you want and for 1% of the budget of TV and film.
+- I'm married, and my wife has set out very limited Xbox limits. But if I had my druthers, I'd be playing all the time and never see any of my friends or do any work.
+- You're only as good as your body of work.
+- The Internet is just a chance to do something. Nowhere else can you go, 'I have an idea, I can write this idea, and I can execute this idea.'
+- I saw every single movie when I was a kid.
+- Kiefer Sutherland is a crazy jerk on '24,' but you love him because he gets the job done. And I think that that goes for a lot of action stars, I mean Steven Segal is a jerk, but you want to watch him because, eventually, he's a jerk who can beat up bad people.
+- FX does a great thing with its comedies where they give them a slow push out there.

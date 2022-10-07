@@ -1,0 +1,103 @@
++++
+author = "Yuval Noah Harari"
+title = "Yuval Noah Harari Quotes"
+quotes_len = "97"
+description = "the best 97 Yuval Noah Harari Quotes"
++++
+- We are living in a global world - but most schools and books still tell us only parochial histories of one particular country or culture. The truth is that there are no longer any independent countries in the world.
+- For thousands of years, until about 1850, you see humans accumulating more and more power by the invention of new technologies and by new systems of organization in the economy and in politics, but you don't see any real improvement in the well-being of the average person.
+- You go to a Japanese restaurant and have a wonderful dish, and the thing to do is take a picture with your phone, put it on Facebook, and see how many likes you get. If you don't share your experiences, they don't become part of the data processing system, and they have no meaning.
+- Animals are the main victims of history, and the treatment of domesticated animals in industrial farms is perhaps the worst crime in history.
+- Humans are extremely good in acquiring new power, but they are not very good in translating this power into greater happiness, which is why we are far more powerful than ever before but we don't seem to be much happier.
+- How do you cause people to believe in an imagined order such as Christianity, democracy, or capitalism? First, you never admit that the order is imagined.
+- Dataism is a new ethical system that says, yes, humans were special and important because up until now they were the most sophisticated data processing system in the universe, but this is no longer the case.
+- As a historian, I'm sceptical about conspiracy theories because the world is far too complicated to be managed by a few billionaires drinking scotch behind some closed doors. But I do think that the voters are correct in sensing that they're really losing power. And in reaction, they give the system an angry kick.
+- Until about 30,000 years ago, there were at least five other species of humans on the planet. Homo Sapiens, our ancestors, lived mainly in East Africa, and you had the Neanderthal in Europe, Homo Erectus in part of Asia, and so forth.
+- People already have bionic arms and legs that work by the power of thought. And we increasingly outsource mental and communicative activities to computers. We are merging with our smartphones. Very soon, they will just be part of the body.
+- The notion of superhumans is using bioengineering and artificial intelligence to upgrade human abilities. If they use the power to change themselves, to change their own minds, their own desires, then we have no idea what they will want to do.
+- Just as divine authority was legitimised by religious mythologies and human authority was legitimised by humanist ideologies, so high-tech gurus and Silicon Valley prophets are creating a new universal narrative that legitimises the authority of algorithms and Big Data.
+- All the major problems of the world today are global in essence, and they cannot be solved unless through some kind of global cooperation. It's not just climate change, which is, like, the most obvious example people give. I think more in terms of technological disruption.
+- Most people, they get overwhelmed by the religious stories, the nationalist stories, by the economic stories of the day, and take these stories to be the reality.
+- Buddhism maintains that the common reaction of the human mind to pleasure and to achievement is not satisfaction; it's craving for more.
+- There is a saying that if you get something for free, you should know that you're the product. It was never more true than in the case of Facebook and Gmail and YouTube. You get free social-media services, and you get free funny cat videos. In exchange, you give up the most valuable asset you have, which is your personal data.
+- What I try to focus on is not to try to stop the march of technological progress. Instead, I try to run faster. If Amazon knows you better than you know yourself, then the game is up.
+- We control the world basically because we are the only animals that can cooperate flexibly in very large numbers. And if you examine any large-scale human cooperation, you will always find that it is based on some fiction like the nation, like money, like human rights.
+- Dollar bills have absolutely no value except in our collective imagination, but everybody believes in the dollar bill.
+- Increasingly, our decisions will be made by the algorithms that surround us. Whenever there is a big dilemma, you just ask Google what to do. And what kind of life is that?
+- Every day, I absorb countless data bits through emails, phone calls, and articles; process the data; and transmit back new bits through more emails, phone calls, and articles. I don't really know where I fit into the great scheme of things and how my bits of data connect with the bits produced by billions of other humans and computers.
+- I think the basic thing that happened is we have lost our story. Humans think in stories, and we try to make sense of the world by telling stories.
+- If you take 10,000 chimpanzees and cram them together into Wembley Stadium or the Houses of Parliament, you will get chaos. But if you take 10,000 people who have never met before, they can co-operate and create amazing things.
+- The truly unique trait of 'Sapiens' is our ability to create and believe fiction. All other animals use their communication system to describe reality. We use our communication system to create new realities. Of course, not all fictions are shared by all humans, but at least one has become universal in our world, and this is money.
+- Fundamentally, mankind was unimportant in the ecological system. Then, in one fell swoop, an evolutionary blink of an eye, the human race is transformed from something unimportant to the most important thing in the world.
+- What's more valuable - intelligence or consciousness?
+- The widespread assumption is that somehow, the brain produces the mind; somehow millions of neurons fire signals at one another create or produce consciousness... but we have no idea how or why this happens. I'm afraid that in many cases, people in the tech world fail to understand that.
+- I grew up in a small industrial suburb of Haifa in Israel. As far back as I remember, I was interested in big questions. Who are we? What are we doing here? But the chances to discuss philosophy were quite thin on the ground.
+- It's very, very difficult to reinvent yourself when you're 40 or 50, whether you are a taxi driver who now needs to become a web designer, or anything else. It just becomes more difficult and more scary.
+- I titled the book 'Homo Deus' because we really are becoming gods in the most literal sense possible. We are acquiring abilities that have always been thought to be divine abilities - in particular, the ability to create life. And we can do with that whatever we want.
+- Humans have two kinds of abilities: physical and cognitive.
+- We did not domesticate wheat; wheat domesticated us.
+- When you look at the growth of the human economy and its expected growth in the twenty-first century, I expect health will be the most important market of all. Especially as we move from a concept of health which focuses on healing the sick to a concept of upgrading the healthy.
+- The domesticated chicken is probably the most widespread bird in the annals of planet Earth. If you measure success in terms of numbers, chickens, cows and pigs are the most successful animals ever.
+- The key to victory lies more in manipulation and cooperation than in exceptional personal skills.
+- Many people in their teens wonder about these big questions - what's the meaning of life, what are we doing here - then somewhere in their 20s, they seem to say, 'I'll just get married. I'll just have kids. I'll get back to that later.' But they never do. For me, it kept boiling.
+- Humans think in stories, and we try to make sense of the world by telling stories.
+- I think, in general, medicine in the 21st century will switch from healing the sick to upgrading the healthy... If you find ways to repair the memory damaged by Alzheimer's disease or dementia and so forth, it is very likely that the same methods could be used to upgrade the memory of completely healthy people.
+- Humanist thinkers such as Rousseau convinced us that our own feelings and desires were the ultimate source of meaning and that our free will was, therefore, the highest authority of all.
+- We are probably one of the last generations of Homo sapiens.
+- Traditionally, life has been divided into two main parts: a period of learning followed by a period of working. Very soon, this traditional model will become utterly obsolete, and the only way for humans to stay in the game will be to keep learning throughout their lives and to reinvent themselves repeatedly.
+- Intelligence is the ability to solve problems, and consciousness is the ability to feel things and have subjective experiences.
+- I'm a historian. I really like the past. But most people seem far more interested in what you can tell them about the future.
+- Everybody since the '60s has been saying the nation is a fiction - the nation is an imaginary unity - but people didn't connect the dots and say all human endeavours sprang from the same principle.
+- All animals communicate. What's special about gossip is that it's not about the here and now. You don't gossip about lions. You don't gossip about clouds. You only gossip about other people. And once you do, you can keep track of many more people - this is the basis for forming larger communities.
+- For thousands of years, humans believed that authority came from the gods. Then, during the modern era, humanism gradually shifted authority from deities to people.
+- In Judaism or Christianity and so forth, you invent rules that don't exist anywhere except in your imagination. You spend your life trying to gain points and to avoid all kinds of things that detract from your points. And if by the time you die you gather enough points, then you pass on to the next level, in Heaven.
+- Humans have an amazing capacity to believe in contradictory things. For example, to believe in an omnipotent and benevolent God but somehow excuse Him from all the suffering in the world. Or our ability to believe from the standpoint of law that humans are equal and have free will and from biology that humans are just organic machines.
+- The most dangerous thing about terrorism is the over-reaction to it.
+- I don't like the word 'abstractions' very much because most people don't think in abstractions. That is too difficult for them. They think in stories. And the best stories are not abstract; they are concrete.
+- Science is telling us that the reason people die is not because some god said so or because the laws of nature mandate it. People always die because of technical problems. And every technical problem has, in principle, a technical solution.
+- We are all living together on a single planet, which is threatened by our own actions. And if you don't have some kind of global cooperation, nationalism is just not on the right level to tackle the problems, whether it's climate change or whether it's technological disruption.
+- For thousands of years, we have gained the power to control the world outside us but not to control the world inside. You could stop a river from flowing, but you could not stop your body from becoming old. You could kill mosquitoes, but you could not kill annoying thoughts buzzing inside your head.
+- Having raised humanity above the beastly level of survival struggles, we will now aim to upgrade humans into gods and turn Homo sapiens into Homo deus.
+- The most important question in 21st-century economics may well be, 'What should we do with all the superfluous people, once we have highly intelligent non-conscious algorithms that can do almost everything better than humans?'
+- Our bodies and minds evolved and were adapted for hundreds of thousands of years for tasks like climbing a tree and picking apples, or hunting rabbits, or looking for mushrooms in the forest. They were not adapted to the very gruelling work that is involved in field work - ploughing, harvesting, bringing water, digging weeds - things like that.
+- For many centuries, even thousands of years, patriotism worked quite well. Of course, it led to wars an so forth, but we shouldn't focus too much on the bad.
+- I was taught that if you're going to study something, you must understand it deeply and be familiar with primary sources. But if you write a history of the whole world, you can't do this. That's the trade-off.
+- If we are allowed to do experiments on monkeys because we are superior to them in a certain way, then someone who is superior to me is allowed to do experiments on me.
+- We can suspend disbelief about Harry Potter, and we do the same thing with God, and we do the same thing with human rights, and we do the same thing with money.
+- People have long feared that mechanization might cause mass unemployment. This never happened because, as old professions became obsolete, new professions evolved, and there was always something humans could do better than machines. Yet this is not a law of nature, and nothing guarantees it will continue to be like that in the future.
+- Those who refuse to liberalise and globalise are doomed to failure.
+- Homo sapiens does its best to forget the fact, but it is an animal.
+- Even what people take to be their most personal desires are usually programmed by the imagined order.
+- The feelings of the individual are the prime authority in ethics. 'If it feels good, do it' is the basic ethical ideal of humanism.
+- Intelligence is the ability to solve problems, whereas consciousness is the ability to feel things such as pain, joy, love, and anger. Throughout history, intelligence always went hand in hand with consciousness.
+- The old 20th-century political model of Left vs. Right is now basically irrelevant, and the real divide today is between global and national, global or local. All over the world, this is not the main struggle.
+- Ignorance is not too dangerous. If you combine it with power, then this is a toxic mix.
+- Modernity is a deal. The entire contract can be summarised in a single phrase: humans agree to give up meaning in exchange for power.
+- The basic human reaction to pleasure is not satisfaction, but rather craving for more. Hence, no matter what we achieve, it only increases our craving, not our satisfaction.
+- As beavers build dams and bees build hives, human beings have spears. Or take the high intelligence of human beings, the ability to make plans, to transmit information - that was also there before, but that, together with the tools, was not enough to make man special.
+- Money is the probably the most successful story ever told. It has no objective value... but then you have these master storytellers: the big bankers, the finance ministers... and they come, and they tell a very convincing story.
+- About 15,000 years ago, humans colonised America, wiping out in the process about 75% of its large mammals. Numerous other species disappeared from Africa, from Eurasia, and from the myriad islands around their coasts. The archaeological record of country after country tells the same sad story.
+- Censorship no longer works by hiding information from you; censorship works by flooding you with immense amounts of misinformation, of irrelevant information, of funny cat videos, until you're just unable to focus.
+- Nothing should be taken for granted, even if everybody believes it.
+- You have to know how to co-operate with other people if you want to stay alive and raise children. And to do that, you need to know something about them. You need to know who loves whom, who hates whom, who is sleeping with whom. Who is honest, who is a cheat.
+- Take Google Maps or Waze. On the one hand, they amplify human ability - you are able to reach your destination faster and more easily. But at the same time, you are shifting the authority to the algorithm and losing your ability to find your own way.
+- Homo sapiens is a social being, and our well-being depends to a large extent on the quality and depth of our social and family relations - and in the last 200 years, they have been disintegrating.
+- As algorithms push humans out of the job market, wealth and power might become concentrated in the hands of the tiny elite that owns the all-powerful algorithms, creating unprecedented social and political inequality. Alternatively, the algorithms might themselves become the owners.
+- When the first humans reached Australia about 45,000 years ago, they quickly drove to extinction 90% of its large animals. This was the first significant impact that Homo sapiens had on the planet's ecosystem. It was not the last.
+- There is no limit to how much health you can provide people.
+- In 1989, with the end of the Cold War and the collapse of communism, it seemed that the liberal story had won. The liberal story says that humankind is inevitably marching towards a global society of free markets and democratic politics.
+- You take fantasies, which for thousands of years belonged to the religious realm - overcoming death or our merging with the universe - and you suddenly start talking about them in a more technical perspective as something that can be achieved, not after you die with the help of supernatural beings, but in this very life with the help of technology.
+- If you think about the great religions that have united large parts of humankind, people believe gods are very concrete - there is an angry old man in the sky, and if I do something wrong, he will punish me.
+- The idea that humans will always have a unique ability beyond the reach of non-conscious algorithms is just wishful thinking.
+- In order to survive in a very small tribe, you needed to know how to do lots of things for yourself: how to make your tools, how to get food, and how to make your clothes - things most of us today don't need to know. The only thing I need to survive is to know history.
+- Since the beginning of the computer age, there has been immense development in computer intelligence but exactly zero development in computer consciousness.
+- In the 1990s and 2000s, the liberal story shaped not only the foreign policy of the United States and its allies, but also the domestic policies of governments across the world, from South Africa to Indonesia.
+- If you don't like the word 'religion,' you can replace it with 'ideology' - it's largely the same thing. At the heart of both religion and ideology is the question of authority and where authority is coming from.
+- Homo sapiens, you and me, we are basically the same as people 10,000 years ago. The next revolution will change that.
+- Techno-humanism aims to amplify the power of humans, creating cyborgs and connecting humans to computers, but it still sees human interests and desires as the highest authority in the universe.
+- My main ambition as a historian is to figure out what's really happening in the world, instead of the fictions that humans have been creating for thousands of years in order to explain or control what's happening in the world.
+- I met my husband Itzik when I got back home to Israel from Oxford in 2002. He is my Internet-of-all-Things.
+- I'm not a very glamorous person. I like to just sit alone in a room and read a book or meditate.
+- I try to be a realist and not a pessimist or an optimist.
+- You need to constantly remind yourself what is the most important thing that is happening in the world - what is the most important thing that is happening in history. The discipline to have this focus is something I gained from meditation.
+- I'm vegan, though not completely religious about it. While writing 'Sapiens,' I became familiar with how we treat animals in the meat and dairy industries. I was so horrified that I didn't want to be a part of it anymore.

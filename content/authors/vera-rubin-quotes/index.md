@@ -1,0 +1,32 @@
++++
+author = "Vera Rubin"
+title = "Vera Rubin Quotes"
+quotes_len = "26"
+description = "the best 26 Vera Rubin Quotes"
++++
+- Don't let anyone keep you down for silly reasons such as who you are.
+- Fame is fleeting. My numbers mean more to me than my name.
+- I knew there was a school where women could study astronomy. So... it never occurred to me that I couldn't be an astronomer.
+- I think the question is, are there women and have there been women who want to do science and could be doing great science, but they never really got the opportunity?
+- The conclusion is inescapable that non-luminous matter exists beyond the optical galaxy.
+- Does Sex Matter? Of course it does. But does it matter enough to Matter? That's a different question.
+- My father was an electrical engineer. He's presently 92 and still could be holding down a job. He had a very analytical way of looking at things, and I enjoyed that very much. I think that was a very large influence.
+- No observational problem will not be solved by more data.
+- There is no problem in science that can be solved by a man that cannot be solved by a woman.
+- So important is this dark matter to our understanding of the size, shape, and ultimate fate of the universe that the search for it will very likely dominate astronomy for the next few decades.
+- I had the usual friends who pointed out constellations of stars. But it really was watching the stars. It was getting some sense of the motion of the earth. I found it a remarkable thing.
+- Worldwide, half of all brains are in women.
+- I'm Jewish, and so religion, to me, is a kind of moral code and a kind of history.
+- I would prefer to stay up and watch the stars than sleep.
+- We need senators who have studied physics and representatives who understand ecology.
+- My childhood bedroom - if childhood could be about ten years old - had a bed which was under windows which faced north. At about age 10, I started watching the stars just move through the night.
+- There was just nothing as interesting in my life as watching the stars every night.
+- We know very little about the universe. I personally don't believe it's uniform and the same everywhere. That's like saying the earth is flat.
+- We all need permission to do science, but for reasons that are deeply ingrained in history, this permission is more often given to men than to women.
+- By about age 12, I would prefer to stay up and watch the stars than go to sleep. I started learning. I started going to the library and reading. But it was initially just watching the stars from my bedroom that I really did. There was just nothing as interesting in my life as watching the stars every night.
+- In my own life, my science and my religion are separate.
+- Nobody ever told us all matter radiated. We just assumed it did.
+- The real prize is finding something new out there.
+- I try to do my science in a moral way, and, I believe that, ideally, science should be looked upon as something that helps us understand our role in the universe.
+- In a spiral galaxy, the ratio of dark-to-light matter is about a factor of ten. That's probably a good number for the ratio of our ignorance to knowledge. We're out of kindergarten, but only in about third grade.
+- Science progresses best when observations force us to alter our preconceptions.

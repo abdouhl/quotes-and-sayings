@@ -1,0 +1,13 @@
++++
+author = "Steven Blum"
+title = "Steven Blum Quotes"
+quotes_len = "7"
+description = "the best 7 Steven Blum Quotes"
++++
+- One of my biggest superstitions is to never speak about the future out loud. Let's just say I got a lot out there and I hope to keep on going.
+- Anime has been good to me. I made and continue to make very little money at it, but the undying, feverish loyalty of the fans of the genre has been such a life-changing influence for me that I wanted to do everything I possibly could to help give something back to them.
+- 'Toonami' was a tremendous vehicle, delivering the art of Japanese animation to a massive audience that may have otherwise never experienced it. I feel an immense debt of gratitude to everyone involved with the show and to every fan who supported it.
+- Anime has sent me all over the world, introducing me to people who have touched my life in indescribably profound ways.
+- I started out doing improvised voices when I started working in a program where I read for kids in schools. I had some kids and they asked me if I would mind doing it. I was very happy to do it. That's where I got my training before I went to the public. I did that for several years. It was actually the best vocal training I could have had.
+- I suppose the biggest thing I learned is that I'm in it for the right reasons. I love my job as much now as when I first began. I still feel fully invested in every audition, every job - large or small, every appearance, every meeting with every fan.
+- You know, it's a wonderful thing. I have to say that some of the greatest actors I've ever worked with have been doing anime for years. It's not just because of the popularity, either.

@@ -1,0 +1,25 @@
++++
+author = "Paul Anka"
+title = "Paul Anka Quotes"
+quotes_len = "19"
+description = "the best 19 Paul Anka Quotes"
++++
+- If you're in pop music, you've got to deal with the changing of the guard every few years. By the time the '70s arrived, I was well aware of the cyclical nature of the game. Pop music is a creature of the moment; it thrives on the mood of its time. Either you hook into that or you're not going to be part of it.
+- I respect Jay-Z. I like him.
+- I wrote 'She's a Lady' on the back of a TWA menu, flying back from London after doing Tom Jones's TV show. Jones's manager wanted me to write him a song. If I have an idea and I don't have a pad of paper, I'll write on whatever is available. What's the difference? Paper is paper.
+- My family was a good family, I had a great Canadian education and I came up in a great, little town like Ottawa.
+- I just couldn't get anyone to sing my songs, so I had to sing my own tunes.
+- My father, my mother, and then my father was always on top of me - 'Keep your nose clean. Do you love what you're doing?' 'Yes.' 'Then be aware, or you're going to lose it.'
+- I've always believed that if you don't stay moving, they will throw dirt on you.
+- Once you realize that you're in something that you've always wanted and you don't want to lose it, you behave differently. And that means the integrity, the professionalism, and knowing what's right from wrong and still making choices that you probably wouldn't have made.
+- For what is a man, what has he got? If not himself, then he has naught. To say the things he truly feels, and not the words of one who kneels.
+- I had this talent for these stupid little teenage songs.
+- The thing is to be able to outlast the trends.
+- Things began to pick up for me record-wise when in 1971 I wrote 'She's a Lady' for Tom Jones.
+- The technology is good and it's bad. You know what you're dealing with out there musically, but my head stops at this electronic stuff. I don't quite know what I'm dealing with out there yet.
+- I believe in criticism.
+- When I'm writing, I generally toy with an idea until it manifests itself - meaning a phrase or a tune comes into my head and eventually begins to jell. When something hits me, I write it down immediately. I don't wait, or it's gone.
+- As long as you're growing in your profession and you're respected, you're going to stay as clean as you can, because you've got something that you love that you don't want to lose.
+- Canada is a good country to be from. It has a gentler slower pace - it lends perspective.
+- My demographic of people have been very supportive.
+- I learned a lot about what I do with my craft, how I present my music. A lot of things about him were very much an influence on me and everybody else. Once you get in that fold and you're around it, you get to experience something that I don't think we'll ever see again. There will never be anybody like Frank Sinatra. Ever.

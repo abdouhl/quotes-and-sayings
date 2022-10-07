@@ -1,0 +1,15 @@
++++
+author = "Seung Sahn"
+title = "Seung Sahn Quotes"
+quotes_len = "9"
+description = "the best 9 Seung Sahn Quotes"
++++
+- Correct meditation means correctly understanding your situation moment by moment - what are you doing now? Only do it! Then, each action is complete; each action is enough. Then no thinking, so each moment I can perceive everything just like this.
+- When reading, only read. When eating, only eat. When thinking, only think.
+- Meditation means keeping one mind. You must understand - what is life? What is death? If you keep one mind, there is no life, no death. Then if you die tomorrow, no problem; if you die in five minutes, no problem.
+- American dog say, 'Woof, woof.' Korean dog say, 'Mung, mung.' Polish dog say, 'How, how.' So which dog barking is correct? That is human beings' barking, not 'dog' barking. If dog and you become one hundred percent one, then you know sound of barking. This is Zen teaching. Boom! Become one.
+- Human beings understand too much.
+- Perceiving your own voice means perceiving your true self or nature. When you and the sound become one, you don't hear the sound; you are the sound.
+- You can fix your body, your heart, your diabetes. In Korea, China, and India, there are people who do yoga. They go to the mountains and do breath-in, breath-out meditation. They can live 500 years and not get sick. Keeping their bodies for a long time is possible; even flying in the sky is possible.
+- Don't want anything. Then you get everything.
+- I always try meditation. Meditation means always keeping one mind, not-moving mind.

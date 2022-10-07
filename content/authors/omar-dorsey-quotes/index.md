@@ -1,0 +1,16 @@
++++
+author = "Omar Dorsey"
+title = "Omar Dorsey Quotes"
+quotes_len = "10"
+description = "the best 10 Omar Dorsey Quotes"
++++
+- I work with a group of actors, and whenever one of us has an audition, we all get together, and we all work together on it. I think it takes us back to our film school days, our drama school days, us just working together and figuring it out because somebody else is going to see something in the material that you won't see.
+- When I was a kid, I used to make up all these characters. I love comedy a lot, and I don't get to do it often. Somewhere in the middle, I shifted into doing drama.
+- My kids are in school and in all these clubs - chess club, fashion club, you name it. When my dad came home from work, it was late, and when he left, it was early in the morning. On my days off, I'm still taking my kids to school and picking them up. I do what I have to do to keep that relationship.
+- It takes a while for audiences on film to see you as something different if they've seen you for so long as a specific character. It's up to the actor to be like, 'Look man, let's try something else,' even if it's an ultra-low-budget independent. People who rep you will keep going with whatever they can send you on.
+- Sometimes a time dictates what a film will be. Sometimes a film dictates what the time will be.
+- Ava DuVernay is my personal Phil Jackson. She's a perfect coach.
+- Because I'm a big guy, I was always playing the bad guy or whatever, but after I did 'The Blind Side,' where I played a father who's a really loving, likeable sort of person, a lot of those barriers were broken down. People saw me as something softer, not so much as a heavy anymore.
+- Dontel Benjamin on 'Eastbound' is a loud-mouth, braggadocios, crazy man, while Roy on 'Rake' is a very deliberate, thoughtful man, and he doesn't scream a lot.
+- At the end of the day, I want to be a teacher at a university, teaching film or acting.
+- I worked with James Orange and Hosea Williams as a teenager, and he's portrayed in the movie by Wendell Pierce. So, for me to be able to come in, 20 years after working with them as a teenager, and to portray Reverend James Orange in 'Selma' is mind-blowing.

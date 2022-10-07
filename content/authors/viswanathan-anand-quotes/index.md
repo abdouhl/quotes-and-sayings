@@ -1,0 +1,59 @@
++++
+author = "Viswanathan Anand"
+title = "Viswanathan Anand Quotes"
+quotes_len = "53"
+description = "the best 53 Viswanathan Anand Quotes"
++++
+- There are two aspects to being competitive; one is to do with sports, and the other is about technical skills. Being able to recollect the moves and apply them when necessary is a critical aspect.
+- In the knockout tournaments, it's futile to prepare for a grand finale. You may have worked out many strategies for the final. But you may lose in the first round itself.
+- Each match I play is the most important one yet.
+- I don't bench press, but I use machines to work 10-12 muscle groups. Biceps, triceps, a few things for the back, calves, shoulders and so on - and then I'll go on the running machine, cross-trainer or mountain climber.
+- Sometimes an opponent stops breathing, and you realise something drastic has happened and they are trying not to let on. Or they go quiet, or they get fidgety. After a while you pick these things up and become more alert to them.
+- I attend to my fitness. I go the gym every day and try to maintain my physical fitness; without that, it is tough to take challenges on the chess board.
+- In any match, there are few critical moments where there's no second best decision. The rest of the moves are intuitive.
+- My practice schedule is not constant and changes a lot and depends on my moods also.
+- India has lot of talent. What I am happy with is that the talent keeps on coming. Certainly it could be nice, though I am not terribly keen on seeing my successor yet.
+- It's important, according to me, to train in small doses so as to not lose the joy of playing chess. I personally think too many coaching and training classes may take away a child's interest in the game itself. The essential thing to do is practise often and, in case of a doubt, to consult a trainer.
+- I was reasonably interested in mathematics in school. Typically what happens is... when you start playing chess, it takes up a lot of your attention. But about 10 years ago, I found that the Internet is very good to start learning about a lot of subjects.
+- I feel that schools and corporates should help the government in popularising sports in the country. Blaming the government for every sporting debacle will not be fair.
+- When there's an important tournament going on, I try and stay in a bubble. It's easy that way because then you don't have to worry about anything else.
+- In chess, knowledge is a very transient thing. It changes so fast that even a single mouse-slip sometimes changes the evaluation.
+- Chess has given me a lot more than I could ask for. I have been able to feel special, travel the world and do what I truly enjoy. Moreover, chess players love being their own boss and hate having to wake up early!
+- Sometimes, if you are nervous, it could actually turn out to be a manifestation of your exhaustion. The point is that any setback is bad, but if you see it from a perspective, you'll recover.
+- My job is to play chess, the game that I love. I achieve what I can in chess. That is what I focus on. Basically, I am always focused on playing the game, and this is important to me.
+- You bring to chess facets of your personality and what you are. I have interests other than chess, like music and world and current affairs. I also have many friends around the world with whom I like to keep in touch.
+- There is always the risk of being over-confident when you are preparing to face a weaker player.
+- For me, each game is a new challenge, which has to be dealt with rationally and systematically. At that time, every other thought fades into oblivion.
+- There is technology where you can watch the match live online and also on TV. If people understood the game, I'm sure we would have a lot of chess fans by now.
+- Before a game, I avoid having a heavy meal so that I don't feel sleepy at the board. You eat to be healthy, and that generally takes care of everything. Also, you can't be too finicky, since at tournaments you tend to eat at restaurants here and there. But, as long as you're eating sensibly, it's all good.
+- I like to keep myself physically and mentally fit before any important match. I usually take a short nap just before the game and do not practice immediately before the tournament.
+- There are some aspects of work you need to keep working on and no matter what environment you are in. Continuous learning is very important. It's what I call 'competitive tension', which is about having a competition around.
+- I have a love for astronomy; Aruna, my wife, and I love travelling, so whenever we get an opportunity, we set off to explore places that have tickled our interest. We are also wildlife enthusiasts.
+- I appreciate the support and anyone who takes up a position on my behalf. Especially in matches, this feeling that there are people behind you, gives me a lot of strength.
+- I love travelling and going on wildlife safaris. I have an interest in astronomy. I like reading on current affairs, business and science. I love doing nothing if I can help it.
+- I think an important lesson from the game is that once you have made a move, you cannot take it back. You really have to measure your decisions. You think a lot. You evaluate your choices very carefully. There's never any guarantee about what's going to follow once you have made a decision.
+- I go to the gym every day. That tends to taper off when I'm at a tournament. During tournaments, I'm not trying to build fitness. I'm simply trying to keep away any kind of tension. I go for long walks to clear my head.
+- Of course, you feel good to play in a familiar environment. I enjoyed Delhi 2000 a lot. But the advantage doesn't work during a game. There, only the moves count.
+- The broader the chess player you are, the easier it is to be competitive, and the same seems to be true of mathematics - if you can find links between different branches of mathematics, it can help you resolve problems. In both mathematics and chess, you study existing theory and use that to go forward.
+- Parents, first and foremost, it is important to... understand and recognise the activities your child is naturally gravitating towards. It's important also to ensure that your child likes what he or she is doing. I believe in exposing children to as many hobbies and extracurricular activities as possible.
+- A win is a win, which is about that particular moment.
+- Preparedness for a game that usually lasts four-five hours requires good physical condition and also steady nerves.
+- I keep forcing, I keep learning new things in the game, and so far I have been taking challenges as they come.
+- My parents were very supportive of my chess. When I got home after a game of chess, having missed school or something, they always made me feel very welcome; I didn't feel guilty at all about pursuing chess with such fervour. They never, for instance, perceived sports as a rival to academics.
+- Chess as a sport requires a lot of mental stamina, and this is what that makes it different from a physical sport. Chess players have a unique ability of taking in a lot of information and remembering relevant bits. So, memory and mental stamina are the key attributes.
+- In Gujarat, we had the world record of largest number of chess games in a single venue - 20,500 - and in Tamil Nadu, I have been emphasizing on the positives of chess to the authorities.
+- When you play with the best in the world, it is important that you not lose focus. You must be fully focused. Even a minor error could result in a massive defeat.
+- Each match I approach like a new one. The work is so immense that you don't have time to sit and ponder.
+- We want more women players to take up chess. There are few participants at the national level and hope it will grow.
+- I personally prefer long-distance walking, but we are talking about pre-tournament preparation. During a tournament I make do with walking, mainly to concentrate before a game.
+- When I was about six, I saw my elder siblings play chess and pestered my mother into teaching me. Very soon, I was beating everyone at home, and they thought it would be good to join a club. So my sister would take me to the Tal chess club on Thursdays and weekends.
+- If revenge motivates you, go for it! But the main thing is to set your game in order.
+- Professional players work almost every day, for hours on end, and the emphasis is on the word 'work.' It can be with a partner or it can be alone, but professional chess is always a pursuit of something new and surprising.
+- Things like the financial markets - a proper grounding in mathematics could help the common man. I believe that if people are more familiar with mathematical concepts... it can help deal with modern life, which is increasingly complex.
+- Before a match, I do not follow any chess news except the games.
+- The Internet gives you access to a lot of material, and it's fun to sit and read. I go to something like Wikipedia and look at different topics... I find the subject fascinating. I like to read about concepts and mathematicians.
+- If you have a strong opponent, a competition is stimulating. I am generally most open to ideas when I have had a bad result. In chess, too, players specialise. This specialty then becomes an entry barrier.
+- I don't know how many calories an average chess player burns per game, but it often exceeds that of a player in ball games. It is not only the chess as such: You need to be fit and undergo complicated preparation.
+- I was very lucky that while I was a chess player in a country where chess was not a big deal, I happened to be in the one city where there was a sprouting chess team: Chennai.
+- Grandmasters decline with age. That's a given. There is nothing special about the age of 40, but age eventually takes its toll. That much is clear. Beyond that, it's about how long you can put off the effects and compensate for them. Mistakes will crop in, but you try to compensate for them with experience and hard work.
+- I honestly don't remember when and why I started calling my mom 'Momsi'. These are family things; it starts for some reason. It's not that I just call her Momsi; I call her other things as well!

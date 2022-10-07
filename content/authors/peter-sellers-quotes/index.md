@@ -1,0 +1,31 @@
++++
+author = "Peter Sellers"
+title = "Peter Sellers Quotes"
+quotes_len = "25"
+description = "the best 25 Peter Sellers Quotes"
++++
+- I believe in astrology and the spirits. I'm a Virgo myself.
+- Sometimes I felt glad not to be too close to people. I might have been happier, I suppose. On the other hand, I never had much luck with people over the years.
+- If you ask me to play myself, I will not know what to do. I do not know who or what I am.
+- Conversation like television set on honeymoon... unnecessary.
+- I feel ghostly unreal until I become somebody else again on the screen.
+- I just cannot take mediocrity. I just cannot take it on any level.
+- I didn't always mean to be an actor. I was carried onto the stage when I was two days old, but I never acted as a child. My parents were stage people.
+- Women are more difficult to handle than men. It's their minds.
+- A person can destroy me with two words. It can just be the way they say them, the inflection.
+- I'm a classic example of all humorists - only funny when I'm working.
+- To see me as a person on screen would be one of the dullest experiences you could ever wish to experience.
+- I've had three marriages end in disaster. Lynne knew the score when she married me. It was always just a matter of time before she became the fourth ex-Mrs. Peter Sellers.
+- I look in the mirror, and what I see is someone who has never grown up - a crashing sentimentalist who alternates between great heights and black depths.
+- There is no me. I do not exist. There used to be a me but I had it surgically removed.
+- When I look at myself, I see a person who strangely lacks what I consider the ingredients of a personality.
+- Dad was convinced always that I was going to be a road sweeper.
+- Our relationship was one of the things that helped break up my first marriage. Miss Loren was always phoning me, and I'd go rushing all over Italy to be with her.
+- Finally, in conclusion, let me say just this.
+- When I am searching for a character, I leave myself open, as does a medium. And I think that sometimes you can be inhabited by the spirit of someone who lived at some time or who was a bit like the person you are doing. And maybe they come in and use you as a chance to relive again.
+- I try to hop into a new personality as often as I can.
+- I realise that certain actors project their own image onto the screen - those who are the same on as they are off. But I've never had the necessary statistics to be able to do that sort of thing, and so, anyway, I always wanted to be a character actor.
+- I might have got somewhere with 'The Ladykillers,' but forty minutes were cut. A lot of me was cut with that forty minutes.
+- My ambition in the cinema, since I came across it, was to play Chance... I have realized that ambition, and so I have no more.
+- My mum very much wanted me to go into the theatre.
+- It depends on whom I'm with. Sometimes I start out in my own voice, and no matter who I'm with, I take on their thing.

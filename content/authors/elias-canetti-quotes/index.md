@@ -1,0 +1,38 @@
++++
+author = "Elias Canetti"
+title = "Elias Canetti Quotes"
+quotes_len = "32"
+description = "the best 32 Elias Canetti Quotes"
++++
+- All the things one has forgotten scream for help in dreams.
+- There is no doubt: the study of man is just beginning, at the same time that his end is in sight.
+- Success listens only to applause. To all else it is deaf.
+- There is no such thing as an ugly language. Today I hear every language as if it were the only one, and when I hear of one that is dying, it overwhelms me as though it were the death of the earth.
+- The planet's survival has become so uncertain that any effort, any thought that presupposes an assured future amounts to a mad gamble.
+- People love as self-recognition what they hate as an accusation.
+- It doesn't matter how new an idea is: what matters is how new it becomes.
+- Words are not too old, only people are too old if they use the same words too frequently.
+- Rulers who want to unleash war know very well that they must procure or invent a first victim.
+- The great writers of aphorisms read as if they had all known each other well.
+- There is nothing that man fears more than the touch of the unknown. He wants to see what is reaching towards him, and to be able to recognize or at least classify it. Man always tends to avoid physical contact with anything strange.
+- People's fates are simplified by their names.
+- He who is obsessed by death is made guilty by it.
+- When you write down your life, every page should contain something no one has ever heard about.
+- Every decision is liberating, even if it leads to disaster. Otherwise, why do so many people walk upright and with open eyes into their misfortune?
+- Success is the space one occupies in the newspaper. Success is one day's insolence.
+- The process of writing has something infinite about it. Even though it is interrupted each night, it is one single notation.
+- Whenever you observe an animal closely, you feel as if a human being sitting inside were making fun of you.
+- The fear of burglars is not only the fear of being robbed, but also the fear of a sudden and unexpected clutch out of the darkness.
+- Justice requires that everyone should have enough to eat. But it also requires that everyone should contribute to the production of food.
+- His head is made of stars, but not yet arranged into constellations.
+- Whether or not God is dead: it is impossible to keep silent about him who was there for so long.
+- Someone who always has to lie discovers that every one of his lies is true.
+- As if one could know the good a person is capable of, when one doesn't know the bad he might do.
+- Pessimists are not boring. Pessimists are right. Pessimists are superfluous.
+- Most religions do not make men better, only warier.
+- The paranoiac is the exact image of the ruler. The only difference is their position in the world. One might even think the paranoiac the more impressive of the two because he is sufficient unto himself and cannot be shaken by failure.
+- One should not confuse the craving for life with endorsement of it.
+- One should use praise to recognize what one is not.
+- Adults find pleasure in deceiving a child. They consider it necessary, but they also enjoy it. The children very quickly figure it out and then practice deception themselves.
+- A 'modern' man has nothing to add to modernism, if only because he has nothing to oppose it with. The well-adapted drop off the dead limb of time like lice.
+- The profoundest thoughts of the philosophers have something trickle about them. A lot disappears in order for something to suddenly appear in the palm of the hand.

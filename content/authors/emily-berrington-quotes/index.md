@@ -1,0 +1,47 @@
++++
+author = "Emily Berrington"
+title = "Emily Berrington Quotes"
+quotes_len = "41"
+description = "the best 41 Emily Berrington Quotes"
++++
+- You imagine that, going into such a huge American series, you will come up against a lot of egos, but it was the complete opposite on '24,' a dream team.
+- I love the make-up trailer. It's a great way to start the day, drinking coffee and singing along to Elvis with the make-up artists. They work wonders on a very sleepy face.
+- I'm really rubbish with technology; I'm super backward! I think I got a mobile phone last out of all my friends. I really worried about people being able to get hold of me at any time - I really hated that idea.
+- I'm old and boring in London and get really tired around midnight. But in Berlin, I had this new lease of life because there's something electric about the place.
+- I am more on the side of humans than robots.
+- It's my dream career to do as many different things as possible and for as long as possible, to stretch myself in as many different directions as I can.
+- A standard day usually starts very early - 4.30 A.M. pick-ups and in the make-up chair by 5.30.
+- I've been reading a lot about what the Internet does to our brains.
+- Even things like supermarket self-checkouts, they do mean people's jobs go. It's always worth thinking about the implications of things. Just because something's easier, it doesn't mean that it's the right thing to do.
+- Auditioning for something you already know and love is terrifying.
+- I was really into '24' at university, and it resulted in a lot of lost hours that could have been spent at the library. If you could have told me then I would be in it one day, I'd have hit the roof.
+- You don't want to disappoint, or feel like you're trying to recreate the magic of something.
+- I was not a queen bee, ever.
+- I worry that if you see a row of self-checkouts, you think, 'That all used to be jobs and real people.'
+- 'Humans' would definitely score really well on the Bechdel test - the one that tracks how well represented women are in drama.
+- You meet people and go, 'We're going to be friends forever!' then you get home and can't even remember their name.
+- A family is definitely in my future, but I have no idea when. I don't know how people fit it in with an acting career, but they do. Katherine Parkinson is a great example of that, so I'll have to ask her.
+- I did a geography degree, and if you told me whilst I was ignoring my geography degree revision in order to watch another episode of '24' that one day I wouldn't need that geography degree and I'd actually be in '24,' I'd have been quite pleased, I think.
+- I've taken that with me since working with him; in order to be William Hurt, you have use every moment like he does.
+- My first role was an angel in the nursery nativity. I spotted my mum halfway through and shouted over someone else's lines to ask if she liked my costume. I've learnt not to do that now.
+- I imagine if you're one of those genius people working on AI, the desire to find out what's possible is presumably the driving factor, but I hope there are just as many people who are thinking about what we actually want. Just because something's possible it doesn't mean it's going to be good to us.
+- I definitely, really appreciate that quality that humans like to show constantly, even without saying anything, that they're with you and they're processing something.
+- Luckily, most days filming, for me, have involved a bit of a workout, too.
+- I had a brilliant trip to Mexico with my friend Ellie during my gap year. We thought we were being really cool and going off the beaten track while all our friends went to Thailand and Australia. The first beachside bar we walked into - there were two girls from my sixth form in there.
+- I will be very sad if I ever get to the point where I think, 'Oh no, another dress from Armani.' I want to be still screaming my head off when it arrives.
+- Politics is terrifying, very masculine, and not particularly encouraging to young blonde women - as a career, that is - and it was only when I was working in parliament that I thought to myself, 'Well, this is a tough industry; can an acting career be any more intimidating?' and I applied to drama school.
+- I knew, the second I read 'Humans,' that no matter how successful the show was, the script was superb and like nothing else I'd ever seen.
+- I've never loved a character as much as I do Niska. The way she's been written is so complex, with huge amounts of light and dark. It's a really satisfying challenge to play someone who is superhuman in their intelligence and physical ability but completely naive when it comes to certain aspects of life.
+- There's a fine line between something saving you time and replacing a bit of you that could be useful. I've certainly become more and more aware of that.
+- Little girls as children, I think, are expected to behave better. If a boy's naughty at school, he's a little bit cheeky and mischievous. If a girl's naughty, she's trouble.
+- I do think I have a lesser ability to remember facts and names than I have done previously, because you never have to store them; you just look them up again. I could make the same recipe 15 times, but I'll never, ever remember how to make it because I'll just look it up.
+- I literally can't get anywhere now without the map on my phone. I used to use an A-Z when I first came to London, and now I really struggle because there's no dot to show where I am. And I think that part of my brain doesn't work any more.
+- As far as I'm aware, you can't tell if something is going to be successful. Brilliant scripts often don't get picked up, and terrible ones do all the time!
+- I literally can't talk without moving hands.
+- I really enjoy working with people who have come into this industry for what I think are really admirable reasons. People who really want to tell brilliant stories and do it in the most effective way possible.
+- I never thought I'd end up doing comedy, but actually, it's been something I've really relished the challenge of and ended up doing quite a bit of.
+- When I was little, I was actually really shy. I really enjoyed doing school plays, but I found the whole thing terrifying. I cried myself to sleep once because I thought my teacher was going to give me the lead role. I never imagined acting was a viable career.
+- I always thought that at the very time of your life when you want to be cool and sexy and fascinating, you are none of those things. You are a hormonal muddle in your school uniform sitting in double science looking at a boy who you know will never notice you. That was definitely me; I was so shy at school.
+- I think 'Humans' has massively improved me as an actor.
+- I read recently that someone set up a Society for the Prevention of Cruelty to Robots in America. The idea being that if something robotic can have responsibilities then it should also have rights.
+- If there is an option to use a real human being and to have a chat with somebody and do your shopping that way, I do try and do that.

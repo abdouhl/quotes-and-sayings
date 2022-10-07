@@ -1,0 +1,80 @@
++++
+author = "Vetrimaaran"
+title = "Vetrimaaran Quotes"
+quotes_len = "74"
+description = "the best 74 Vetrimaaran Quotes"
++++
+- If you get the right cast, half your work is done.
+- Dhanush paid my salary in 2015 when I needed it to make 'Visaaranai.'
+- My films are a personal reflection on the impact that the state - the system and the world - has on me.
+- Visaranai' isn't for those with weak hearts. It has a lot of graphic violence, and you need a strong stomach to watch the film.
+- Smaller films that have a great run at the festivals usually result in the audience promoting the film on social media and so on.
+- I always feel that my films ought to teach me something about life.
+- A script writer usually manipulates his characters in accordance to the script.
+- I do films for the common man and identify myself one among them.
+- The psychology of education is all about how the society gets benefited from it.
+- Big-budget movies might have huge marketing budgets, but only some films have the content to stand out.
+- The best part about an actor is that they should firstly be receptive and secondly be expressive.
+- And I don't want people to think that I make movies based on other films.
+- It is much easier to do a film about something that the audience readily knows about - say, cricket. It is much more difficult to write a film based on golf.
+- I wasn't happy the way I completed 'Asuran' or abandoned the film as it isn't complete. People are liking it and it's making money and I'm glad but I'm not happy with how I had to finish it.
+- We'd like to explore the prequel idea. I think it would be best suited as a web series on some digital platform. The prequel will be called 'Rajan Vagaira,' and it will track the rise of Rajan's character in 'Vada Chennai' and how he built his empire.
+- When you're a filmmaker or a scriptwriter, you face a lot of challenges while making a film. And when you produce it, you have to put in an extra effort.
+- The budget of 'Vada Chennai' is nearly Rs 60 crores.
+- Kaaka Muttai' is the expression of an insider. It is a film about globalisation and its effects.
+- Every film that I make is an accident.
+- Film festivals give less of a platform to mainstream films because they already have a market.
+- If a film can't excite me and teach me something about life, then it is not worth pursuing.
+- Visaaranai' reflects a stark reality from which you cannot shut yourself out: that is its success.
+- Dhanush is my biggest shield. Whatever be the situation, he creates a space for me to work. This has been the case since our first film.
+- Cannes Film Festival prefers political films. We have to target certain festivals based on our films.
+- Whatever film it is, the geography has to be right. If I cannot establish it, I'll get lost. I wouldn't even understand it in the first place! I hence visit a place and decide what can be conveyed from where; how that can be incorporated in the story.
+- I don't believe in one slow panning-shot to show a place. It should unfurl in the story itself.
+- For me, every film is a learning process. After each, I take time to unlearn.
+- Vada Chennai' is a proper mainstream film, told in a sensible way.
+- The pressure and hype is created by the media. Of course, expectations are there and we cannot stop that nor change yourself for expectations. We just continue making films.
+- I wrote 'Aadukalam' keeping Dhanush in mind. As an actor, he delivers exactly what I need and sometimes more.
+- It is a challenging task to adapt a book to screen presentation and you will not be able to satisfy those who read the classic novel.
+- Despite strict instructions from my mother not to step out of the house, I cycled all the way to Vellore to watch 'Thevar Magan.' In fact, I grew up watching classic films such as 'Naayakan,' 'Thaalapathi' and 'En Bommukutty Ammavukku.'
+- For the role of 50-year-old Sivasami in 'Asuran,' Dhanush has put in phenomenal effort. With his extreme level of dedication, he pulled off the challenging character effortlessly.
+- There is a huge market ready to accept good Tamil content.
+- I can't write about someone who is unlike me in all senses-physically, emotionally and socially.
+- Once, a man at the customs duty check at the Delhi Airport asked me a question in Hindi, and I told him that I didn't speak the language. He got angry and said, 'How could you not speak in Hindi? Hindi is our mother tongue.' I told him that it wasn't my mother tongue. He got furious, and made me wait for over 45 minutes.
+- Craftsmanship and logic is key to any movie-making.
+- Awards are an encouragement. An award is not something we aim at while making a film.
+- I can't describe how I make a film. It's organic.
+- Vada Chennai 2' needs a big budget.
+- The joy I get while listening to my daughter, Poonthendrel, speak is incomparable. I've listened to several other kids speak but have never enjoyed it as much as I have enjoyed listening to my daughter.
+- The Hindi remake rights for 'Visaranai' have been bought by director Priyadarshan.
+- Rajkumar was the winner of 'Naalaya Iyakkunar Season 2,' and I was impressed with his short film. He joined me as an assistant when I started the pre-production work for 'Vada Chennai.'
+- Anybody with a good smart phone can shoot and edit a film. Distributing it is the hard part.
+- Slum children eat crow's eggs for nutrition yet nobody respects this common bird. It's the exotic birds which fascinate all.
+- One of my staff members told me that after the release of the film, whenever a custodial death is reported, people say - 'Another 'Visaranai.' This is the kind of change that I am looking for; it should hit you hard.
+- I am a serious filmmaker, and I see the whole process of filmmaking more as a piece of art.
+- My films are a reflection of the society I live in, what I see and observe.
+- It's always good to promote a film on a larger scale before it's been put to test.
+- The academy which boasts of 6,000 to 8,000 voting members are most likely to get swayed by the national mood in the US. There is a point person for every movie at the Oscars, who is supposed to promote the film and is trusted by the panel. By keeping all these in mind, Tamil cinema making its way to the final list is quite ambitious.
+- India is a conglomeration of different states with various languages, tradition, and culture for each.
+- I like to keep my films close to reality.
+- I've always said that the more ethnic you become, the more international your film becomes.
+- The violence in 'Visaranai' is based on reality.
+- AJ' is a very special movie to me. I have been watching Dinesh and Rajkumar from their initial days, and have witnessed their evolution. The film talks about the bond shared between a father and a son who wants to fulfil his father's dreams. It's a cross between a comedy of errors and a political satire.
+- I feel you lose your audience when you make movies for others and not for yourself or your people.
+- I've done just three films in nine years.
+- Manikandan is a complete filmmaker and knows his job well.
+- The younger generation of filmmakers is concerned about our roots, rather than making films with characters plucked out of the cloud or some English DVD. Actually since 2000, Tamil cinema is going through some positive changes.
+- The first 40-50 pages of 'Veekai' is what made it film-friendly. I realised the subject would be relevant even after 50 years.
+- Going international is my game. I've always wanted to do it, and after 'Aadukalam,' I got to meet Anurag Kashyap, the face of alternate Indian cinema to the world.
+- I've always been interested in showing our films to international audiences. The easiest way is through the festival circuit, a big marketing platform for films that aren't big enough to be in the mainstream race.
+- When you are adapting a book to a visual medium, you tend to leave a few things and add a few new ones.
+- I don't find anything black and white; I find grey in every person, and that is what excites me.
+- For me, in any story that I take, the antagonist is more interesting and multi-dimensional.
+- When people told me that 'Polladhavan' was a remake of 'Bicycle Thieves,' I wanted to laugh because comparing 'Polladhavan' to 'Bicycle Thieves' is a disgrace to the latter.
+- My mentor is Balu Mahendra.
+- Primarily, a festival is a platform to sell films that are not meant for the mainstream audience. Cultural exchange is also important aspect of a film festival.
+- When we belong to a community and learn things that are no way related to our society, we live as unwanted entities in that society.
+- Actually, after three years, I realised that the opening scenes of 'Polladhavan' were inspired by 'Lolita,' in which the lead character says, 'Why did I meet her? My life would have been different had I not met her.'
+- Characters, conflict and geography are things that must be considered while making movies from adaptations.
+- We all have to consciously make efforts to identify our roots and nurture them.
+- In Toronto, the film festival is like a carnival... entire families come to it.
+- We should protest to ban NEET altogether.

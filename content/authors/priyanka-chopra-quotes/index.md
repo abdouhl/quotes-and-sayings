@@ -1,0 +1,129 @@
++++
+author = "Priyanka Chopra"
+title = "Priyanka Chopra Quotes"
+quotes_len = "123"
+description = "the best 123 Priyanka Chopra Quotes"
++++
+- To be a philanthropist, you don't have to be Nelson Mandela. You just have to look around you and ask, 'What little bit can I do? Whose life can I touch?'
+- My career is the sum of the decisions I have made. Everyone can work hard, but I work on my own terms. I stand my ground, and once I have committed to anything, I give my 150 per cent. I don't take my work for granted, ever. I know that, forget me, no matter where anyone is, everyone is dispensable. Why would I think I am indispensable then?
+- Education has always been very important to me. It means you don't have to depend on anyone else.
+- I have no time to write songs.
+- There are cliques in Bollywood, and people stick together, but I have always tried to stick to my work. As an industry, Bollywood is very competitive, and I'm very competitive as a person, but I've never been a part of any clique, and I've always worked with all actors and directors, all camps.
+- I'm trying to be global and trying to push us, as a society, to becoming colorblind, and so I'm very grateful to ABC for casting me in 'Quantico.' It was based on my merit, not on my ethnicity.
+- Black, brown, white, yellow - why are we always talking about colors? I'm a girl. I believe in a global community.
+- I've always had a glam squad to do my makeup because of Miss India and Miss World, so I never really learned much about doing it myself, unfortunately. I do try to pick up what I can, though! The most incredible product that has ever been discovered in makeup, according to me, is mascara.
+- I was bullied by a freshman named Jeanine. She was black and supremely racist. Jeanine used to say, 'Brownie, go back to your country. You smell of curry,' or 'Do you smell curry coming?'
+- In New York, a 13-year-old Indian girl came up to me crying, saying to everyone nearby, 'This is where I come from.' It's easy to forget that actors have the ability to instill a sense of self in viewers. That's the greatest compliment.
+- I like bad boys, and I like to take them home to my mom.
+- When I won Miss World, I wasn't even 18, and I only remember, like, I thought of it as a day in the races or something. It didn't feel like it was Miss World of the Millennium Year, the change of the century. I didn't understand the magnitude of it for at least a couple of years.
+- I'm pretty sure 'Nutty Professor' will happen to me at some point. And when it does, I will go to the gym.
+- As an entertainer, I try to do projects that reflect a woman having the ability to stand up for herself.
+- It's a terrible thing to say, and I probably shouldn't say it, but I'm a lazy person when it comes to physical exertion. I don't like gyms unless I need to for a movie or a part or a show.
+- I'm not even Indian-American: I'm Indian-Indian. Everybody expected me to have henna and a nose pin and talk in an accent like Apu from 'The Simpsons.' I was nervous because I wasn't sure if America was ready for a lead that looked like me.
+- I believe in myself and my art so much. I've always trusted destiny. Wherever it takes me, I just work damn hard at the opportunity.
+- So many people from the West are coming into India, all the studios have come into India, and they're making films here, whether that's Fox, Warner Bros, Disney, everyone. That stands as testament for us, so why are we afraid of sharing our talent with the world? We must.
+- After every bath, I make sure to moisturize my entire body. I'm obsessed with Diptyque: people love their candles, but their body products are also amazing.
+- I don't come from a film background. I haven't learned anything about films or film-making. But I have a thirst to know everything about my profession. I want to learn about cinematography, about editing, about music recordings, about post-production. So when people in the know talk, I willingly listen.
+- When I became Miss World, movie offers started coming to me in India.
+- In features, we're languid: we shoot one or two scenes over, like, three days. In TV, the pace is so different. You're shooting ten scenes a day, going way into the future or way back into the past. It's complete madness, and I'm just trying to keep up with this really electric pace.
+- When it comes to an everyday situation, I am like an ant. I keep putting money aside because I know that if I want to splurge, there is a big mountain of money that I can use.
+- I don't look at Hollywood as a big break. Indian film stands on its own.
+- I taught myself confidence. When I'd walk into a room and feel scared to death, I'd tell myself, 'I'm not afraid of anybody.' And people believed me. You've got to teach yourself to take over the world.
+- In my 20s, I used to have a lot more energy! I was this skydiving, bungee-jumping adrenaline junkie. I don't know what happened to me! Now that I'm in my early 30s, I've put all that energy into my work, although I'm still a little ridiculous. In your 30s, you're sensible enough to know better, but still stupid enough to do stupid things.
+- When I grew up, I never saw anyone looking like me on TV, you know? I'm so glad to see a lot more of us on television, whether it's Mindy Kaling or it's Irrfan Khan or Freida Pinto. You know, I hope, like, little girls across the world can just look at me and say, 'Ah, I want to be that!' Indian or not, it shouldn't matter.
+- I'm really strict with my skincare regimen. No matter what's happening in my life, I wash my face every single night and I moisturize - even if it's 4 A.M.
+- Generalizing a type of people is really primitive.
+- Stardom should be a discovery. You don't hammer it onto people's heads. You don't demand it. You command it.
+- I have great Indian genes! You know, I'm lazy. I want to take advantage of the fact that I have a great metabolism. When I start getting fat, I'll work on it! I like food, and I don't like the gym, and as long as I look like this without doing anything, why bother?
+- To do anything with someone like Bono or someone would be like, you know, a milestone, I think, as a musician.
+- I think it's great to be flawed. I am hugely flawed, and I like it this way. That's the fun of life. You fall, get up, make mistakes, learn from them, be human and be you.
+- My father is conservative but has always supported my decisions. He lets me take my own decisions. His only condition while allowing me to come to Mumbai was that my mother must accompany me.
+- The acceptance of 'Quantico' so far has been really great. At the moment, I'm just straddling two continents far away from each other, with very active careers in both!
+- There is no way I could have predicted the amazing reception and support that 'Quantico' has received this season or even the way that I have been welcomed into the fold here in America.
+- 'In My City' was my first single. It has a very special place in my heart, and I am beyond excited to bring the amazing energy of the track to the NFL's passionate fans.
+- When I was little, my dad used to call me 'Bandarella,' because I was a mess - a Bandar is a monkey in Hindi. I was not a girly-girl and would always break something and would be running around and didn't really fit in.
+- If two of your films don't do well, people say you're out in the cold and your career is over. One film does well, and you've had the best year of your life! I don't believe in all that's written.
+- Don't try to squeeze into a glass slipper. Instead, shatter the glass ceiling.
+- Justin Timberlake - I'd like to learn a little more about his suit and tie.
+- I like buying drones, hover boards, 360-degree cameras and fabulous cars. I am a little bit like a boy. I also spend a lot on books. I am a voracious reader, and I love vintage stores and first editions.
+- I adore watching movies; movie marathons are my favorite pastime. I can watch up to five movies back to back. I also love music and like reading whenever I get the time.
+- I have never had a plan when it comes to my career: America came to me with an opportunity.
+- Art is collaboration: we are artists all over the world. I believe that people are always going to watch Hindi films... that's never going to die, but I think it's amazing that collaborations like that are happening.
+- Guess girls are normally blonde, blue-eyed bombshells. It was nice to be a brunette one.
+- As a girl, I am this stupid, emotional, very loyal, sort of believe-in-values-and-principals sort of girl.
+- I wasn't the prettiest girl in the room, but I learned to carry myself with confidence - that's how you make the best impression on people.
+- I think because I was Miss World, and I modeled for a little while, I have - I just like heels, actually. I think that's the truth. I'm trying to find an excuse.
+- You can be an absolute woman and also be smart and tough and not lose your femininity.
+- It's almost negligible sleep and insane amounts of plane rides, but I'm doing it. Your body is screaming out to you to not abuse it so much, but I love what I do in my Hindi films as well as with 'Quantico,' and I want to be able to balance both.
+- I can't eradicate poverty, but at least for the people around me, I can help make sure no child is denied a dream.
+- Alex, who I play on 'Quantico' - that part wasn't written for an Indian girl. So they changed her background to make her half Indian and half Caucasian.
+- When there is a ring on my finger, which is actually given to me, then I'll tell the world. Till then, no one can claim me.
+- I am a little - I won't say arrogant - self-assured.
+- I live with romance in my brain. I'm a true-blue Cancerian like that.
+- I owe 90 per cent of my life to people because I am a public figure, but 10 per cent is private to me. And I am not saying it in a defensive way. I feel my life has been made into a TV serial.
+- To convince another part of the world that Bollywood is not just jokers who break into song and dance was very difficult. I'm literally ploughing the ground and making people understand that Indian actors are not a joke.
+- The writers are the backbone in television, like in film, but eventually, as an actress, I can bring something.
+- Production is a lot of work. Nobody sent me that memo when they came to me to do television.
+- Since I came from another part of the world, I expected many differences in the way things worked, but at the end of the day, there actually were more similarities between the American and Indian entertainment industry: the same chaos, creativity, passion, and genius all around.
+- I sang the 'Sunday Night Football' theme song two years in a row - my first part in American culture, although I still don't know anything about American football.
+- I've been used to being my own boss for a really long time, so I don't take to authority very well.
+- When I was in high school in America, I didn't see anyone who looked like me - hardly ever. I just thought that was normal because you don't know any better. So I used to idolize so many other people, like Sarah Michelle Gellar on 'Buffy.'
+- With feature films, it's a one-time judgment once your film is premiered. Reviews, box office, and then you move on to the next project. With TV, you are being rated and judged weekly for an eight-month stretch.
+- I've never dated; I've always been in relationships.
+- Any transition is easier if you believe in yourself and your talent.
+- I love dabbling in different genres, and I like being good at different genres of cinema.
+- The best part of working on 'Baywatch' is to be the villain of the movie. I don't think The Rock, aka Dwayne Johnson, has ever had anyone who's been mean to him.
+- I think it was very important for me to look at starting to build a safety net so that I didn't feel the insecurity of the ups and downs of finances because I might do no film a year, or I might do six commercials, or I might do none.
+- I always get stopped by security and immigration, telling me, 'Tell me who the terrorist is, or we won't stamp your passport!' The last time that somebody did that to me - at LAX, actually - I was like, 'Hey, don't ever ask a brown girl that in an American airport!'
+- My favorite memory about 'Baywatch' is the music. That was my favorite part. It was, like, my calling. And to watch everyone run in slow motion.
+- Who doesn't want to be, like, five inches taller whenever they can be? If boys could, they'd be wearing heels.
+- I think there's a social responsibility that comes with a public platform. Because of the position that I've been put in, I think it's important to use my voice to do as much as I can.
+- I hate the term 'Bollywood,' because we're not a 'me too' of Hollywood. The Indian film industry is prolific.
+- I've been doing a lot of work on female rights, especially adolescent rights. I've been to a lot of schools where the UNICEF had set up villages in India, and it's an eye-opening experience.
+- Bollywood is not a stepping stone to the West. I am extremely picky and in no hurry to sign a Hollywood film. I am only greedy for great roles; language and country is no barrier. And yes, I'll always be a Hindi film star first.
+- I wasn't even prepared to be an actress. I was 17 when I came out of high school, and suddenly became Miss World and then I became an actress.
+- When I grew up in America, I didn't see anyone who looked like me on TV. I feel overwhelmed with the things that people have said to me. When I meet Indian Americans who've lived here all their lives, it's overwhelming people holding me and crying. Someone said to me, 'Thank you for making us relevant.' It's such a big thing.
+- I can never be incognito... but I love it!
+- I am a very private person. No one ever knows anything about me as I don't think it is necessary. I tell people as much as I want them to know about me.
+- Yes, I play this evil, mean character Victoria in 'Baywatch.' It is so much fun. I didn't want my first film in America to be just another role.
+- When I became Miss World, I couldn't believe I had won it. I used to sleep with my crown because I was scared someone would steal it. In a minute, the world changed for me.
+- I think great skin is always important. With lots of makeup, by the end of the night, you look like you're melting!
+- Beauty and fashion are not really local anymore. You really have to be a global citizen to know what trends are. Now, it's pretty much the same designers and the same kind of trends, whether I am in New York, Milan, or Mumbai - it's the same.
+- I was very sure I did not want to be the stereotype of what Indian people are seen as, which is Bollywood and henna. That's all great! It's what we are, and I love it. I love saris; I love music. I love henna; I love dancing, but that's not all we are.
+- In India, people love turmeric. They make turmeric milk, and sometimes I mix it with some cream or yogurt and turn it into a scrub. You'd be amazed at what it can take off your skin.
+- I don't think Bond does too much; he's just suave and sexy. He rolls out with his martini and fancy cars. Wow, it sounds like my life already.
+- One girl used to call me Brownie and tell me to go back to my own country. At lunch, I'd get a bag of chips from the vending machine and eat it in the storage room so I wouldn't have to see her.
+- You need to feel comfortable. When you're comfortable, you feel confident. And when you're confident, the world is your oyster. Most important, you gotta feel what you wear.
+- After I won Miss India, I realised I do not like failing. I just like being the best. I hate being a loser. So I just have to keep winning.
+- You like someone, you court each other, you get into a relationship. You're answerable to each other. Whereas, the non-answerability of dating, my God, I don't know if I would ever be able to.
+- My ambition when I was four years old was to be married.
+- I totally commit and completely give myself to a relationship. Be warned, though - I don't like being taken for granted, so I can be pretty high-maintenance sometimes!
+- If my film does not do well, it really hurts me. But by God's grace, even if some of my films may not have done well, people have still liked my work in it.
+- I believe destiny and hard work go hand in hand. I was studying to be an engineer when my mom and my brother sent my pictures for the Miss India contest. I didn't even know about it. If that isn't destiny, what is?
+- Art should not be bound by barriers or language. The Hindi film industry is a testament to that. We speak only Hindi, but we premiere in Germany and Japan. Our films do phenomenally well there. We transcend the barriers of language and culture. We welcome you in. I think that's what art should be, and I hope America reaches that place.
+- I never thought I am a stylish. For me, style is always a representation of what you want to wear but doing it in a unique way and expressing yourself. Every girl loves to be stylish.
+- I have a very eclectic taste when it comes to music.
+- I never had any awkward situations with Shah Rukh.
+- As a musician, I know that it'll take time for me to get to the ranks of an established artiste. Nevertheless, I'm very happy that people are appreciating my music.
+- When I was 13, I would come visit my aunt and uncle in New York. I decided I wanted to live with them after seeing my cousin's school. Honestly, I just wanted to go to a school where I didn't have to wear uniforms, and my mom said okay.
+- When I'm not shooting, I don't wear much makeup. I just moisturize and maybe put on a berry-colored balm on my lips and cheeks, and then mascara - that's it. My face and hair gets abused every single day, so I try take it easy on off days.
+- I don't believe in being a size 0. I don't believe in starving. Women should totally embrace their curves.
+- America has been so welcoming to me.
+- I wanted to be cast because I'm an actor and not because of how I look or where I'm from. I'm brown. I want to be able to play a Spanish girl some day or a Mexican girl and learn the language. That's what actors do: we act.
+- I think 'Baywatch' will be a summer blockbuster, and I'm not just saying it because I'm in it. I saw a bunch of scenes right now, and it's the funniest movie ever. Dwayne and Zac Efron have the best chemistry, and I come and interrupt their chemistry.
+- I don't like guys who are conventional. I'm an achiever; he has to be an achiever. I admire drive, I admire ambition. I like a guy who keeps my on my toes.
+- I'm different. I don't speak perfect American. I do have a lilt of an Indian accent. I thought, 'Maybe the world's not okay with what I bring, being Indian.'
+- I live cinema and passionately love music, and my efforts in both these crafts are unfolding.
+- I felt so out of place at the Miss India pageant. I had just come back from America, and I was told I needed to lose my American accent and learn the Queen's English, so I had to enunciate my vowels and speak well and eloquently. Giving up a New York accent is pretty hard.
+- I speak, Hindi, English, and American. I'm trilingual.
+- Whenever I pick a script, I make sure I'm choosing something I would want to watch. And 'Quantico' was something I'd definitely want to watch. As soon as I read the pilot - and I read 26 this season - I knew this was it.
+- Financial independence is paramount. My mom always says that when a woman is financially independent, she has the ability to live life on her own terms. I think that was the soundest advice that I ever got. No matter where you go in life or who you get married to, you have to be financially independent - whether you use it or not.
+- I've shot all over the world with crews from all over the world. The work ethic is the same. Bollywood is my career; it's what I do.
+- When I was in school, you never saw anyone who looked like us that was on TV. And that was really weird for me because there's so many people of South Asian descent in America - in the world.
+- I got into the movies by accident. When I got an offer, I thought, 'Let's try this, too.' Everything in my life has happened by trial and error. I didn't even think I would win the Miss India title, so where's the question of thinking I'd come this far.
+- I had a holding deal with ABC to find me a show, and I was very clear about the kind of show I wanted to do, because Indian people have always been seen as - well, we've been put in a box, about who we should be like.
+- I lost my dad two years ago to cancer, and before he died, I asked him to write 'Daddy's Little Girl' on a piece of paper for me. I told him it was for an album. He practiced and practiced and then sent it to me, and I had it tattooed onto my wrist and surprised him with it. He cried when he saw it, happy tears. This way I always carry him with me.
+- People keep speculating about my personal life because I am evasive about it.
+- It is in my nature to give the work I have all the discipline and due diligence that I am capable of.
+- I think art cannot be planned. The audience is too smart to get the dishonesty or 'too much planning' thing. I am not a legend, but I want to be one. I want to be known as an achiever. There is so much more that I can do.
+- I decided a long time ago that if I was going to do anything internationally, it would be mainstream pop entertainment - and that's exactly what 'Quantico' is. The diversity is just reflective of the world today - look around you: this is what America looks like. This is what the world looks like. It's time Hollywood embraced that.

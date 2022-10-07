@@ -1,0 +1,56 @@
++++
+author = "Erica Durance"
+title = "Erica Durance Quotes"
+quotes_len = "50"
+description = "the best 50 Erica Durance Quotes"
++++
+- I learned to laugh at myself a little more, and I realized that beautiful things can be made out of mistakes.
+- I think that all actors just want to continue acting, so if you get the opportunity to go out and do something again, you feel very lucky.
+- I might do my own independent film, that my husband wrote for me, if all the ducks are in a row.
+- I maintain my inner beauty by trying to lead a balanced life in general. I try to eat healthy foods, but... that doesn't mean I won't treat myself now and then! I work out almost every day, which gives me more energy and helps me feel stronger. I also try to be a genuinely good person to the people around me.
+- Often we want to go back to the familiar, go back to where we felt our life pause, but nothing is ever the same.
+- You cannot control another human being, and you just have to learn to go with the flow and laugh at yourself, in whatever capacity.
+- I'm fairly introverted, but when I do stuff like a Maxim shoot, there's a side of me I call Gillian.
+- The best beauty advice I ever received is to keep skin hydrated and limit harsh exposure to the sun. If you are set on the tanned look, there are plenty of great creams that will give you a healthy-looking glow.
+- Vancouver is a very bike-friendly city.
+- I sometimes take leftover food from craft services and give away a bunch of sandwiches on my way home.
+- My worst thing that I have is that I think too much. And so it's better to go with your gut and do your best and trust the creators and the director that you have there and go scene to scene.
+- I'm pretty klutzy and I've always been, so I have to own up to it. It's part of my charm!
+- I'm constantly taking my own blood pressure.
+- I constantly have anxiety about being the lead of the show. I don't talk about it because it scares me. But I've always wanted to be part of something where I could work on a character in such a big manner, and you get offered that with all the trappings of being the lead of the show.
+- In the summertime, it's always hard to introduce new series; everyone's ready for that in the fall.
+- The one thing that I really love about 'Smallville,' people are excited, and they love the characters. I can see their point of view.
+- If you think too much about playing an icon, it will immobilize you. You have to treat it like a fresh character. Sure, there are guidelines so that you don't upset people, but you have to find your own way.
+- One of my goals is to educate myself more as a woman in this business.
+- I constantly have anxiety about being the lead of the show. I don't talk about it because it scares me, but I've always wanted to be a part of something where I could work on a character in such a big manner, and you get offered that with all the trappings of being the lead of the show.
+- Sometimes you revisit things and relationships, and then you get going on in it, and you realized that there is a reason this ended.
+- I just keep looking for things that are interesting and keep calm as possible about it all, not worrying about being in a 'box.'
+- It's fun to get to play a lead character that goes all the way through and drives the storyline and makes the final discovery and catches the bad guy.
+- It's easier to shut yourself off outside than reveal your inner thoughts.
+- I'm a bit of a control freak, and I had to realize you can't control everything in your life.
+- Let's face it: Some of us need our burly men to come rescue us.
+- I'm a bit of a workaholic.
+- Thank goodness for me, 'Smallville''s Lois Lane is younger, so there's a little bit of play with the character.
+- I think there's something really positive about getting to explore a character for a long time on a TV show and live with that character and live with the choices they make, but it's also really great to step in.
+- Actors will, in their mind, want to 'steal the scene,' and the problem is that means the scene didn't work in the first place.
+- What do you do when your world is falling apart? How do you hold onto the real and the rational? I think that's very relatable for people.
+- 'Smallville' was my first love and it is always close to my heart.
+- I look forward to change, but there is a part of me that absolutely dreads it.
+- I am not a particularly aggressive person. That's not Erica.
+- I work on most weekends, so my husband is the executive chef. He is an amazing cook. I love the way he does salmon, and his apple pie for dessert is delicious.
+- You have to squeeze every creative moment and be grateful.
+- Sometimes, someone you thought was your adversary is your ally.
+- I'm a small-town girl, and it'll never be beaten out of me.
+- If it scares me, it means I'm supposed to do it.
+- We all need to make time for a burger once in a while.
+- A lot of actors try to sabotage other actors, and that's sad because then you're never going to get that beautiful scene.
+- I'm learning to embrace who I am and what I look like.
+- There are a ton of medical dramas out there dealing with life and death.
+- I read a lot of comics growing up. My mom used to say, 'Would you please read a book?' She was worried where I was going in my life.
+- I've been lucky enough to do a few roles where you get to be crazy and wild, put on contacts and different wigs and different hairpieces and dresses and outfits and embody the craziness of it all.
+- My home is in West Vancouver, B.C. My husband built it from drawings to design and colour.
+- I went to a tiny little high school... I'd make my foray into Calgary if I wanted to see a movie or do something crazy.
+- I think that you can't help but bring pieces of who you are. No matter what you do, it comes through you as a vessel.
+- Well, I love TV, and I love a good script.
+- Any kind of advice that I've been given to cut out carbs forever, don't do it. It just doesn't work. You do okay for a while and then you just overcarb.
+- I love TV, and I love a good script.

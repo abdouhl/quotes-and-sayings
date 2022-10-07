@@ -1,0 +1,43 @@
++++
+author = "Porter Stansberry"
+title = "Porter Stansberry Quotes"
+quotes_len = "37"
+description = "the best 37 Porter Stansberry Quotes"
++++
+- There's been a dichotomy in the world financial markets over the last 30 years between the developed markets and the developing markets. Brazil, for example, always had to pay a lot more in interest to borrow money than governments in developed nations.
+- Because America is the Saudi Arabia of natural gas. We have the world's largest reserves of natural gas, and the world's most sophisticated production and storage facilities, by a wide margin.
+- Manipulating the bond market is so greatly reducing the cost of capital that so far companies have been able to maintain profit margins without raising prices. As a result, we've been exchanging capital cost for commodity costs but you can only do that for so long.
+- Any country whose currency is used as a reserve enjoys tremendous benefits because those currencies gain a significant discount to financing costs.
+- The yuan is actually a very attractive currency and will prove to be very reliable-much more so than the U.S. dollar.
+- I studied what happened in the bond and the stock markets during previous periods when the Fed stopped manipulating the bond market. In every single case, the moment the Fed announced that there would be a cessation of intervention, stocks declined and interest rates went up.
+- By buying off the bottom in the real estate markets, I'm doing the best I can to protect myself from any future calamity. Time will tell whether it will work.
+- When you're dealing with a bankrupt sovereign - like the U.S. government - you're dealing with a very powerful wounded bear. You have to be very careful because you can't know what the beast is going to do.
+- You see this in the oil industry time and time again. Fears that we've found the last oil, that we're going to run out, pop up constantly. And soon afterward, because the price goes up, huge new reservoirs are discovered.
+- There is a belief, at least on the part of the American people, that they can borrow money forever without consequence.
+- Currency regimes in the past were always destroyed by volatility. So sooner or later, people desire a currency that is stable.
+- There is no doubt in my mind that as central banks begin to abandon the dollar, there will be an enormous amount of monetary demand for silver and the silver ratio will plummet. If you look at all of the monetary crises over the last 100 years, any time that there has been even a whiff of a collapse of the dollar, the silver ratio has soared.
+- It's not hard to generate a paper fortune in a huge inflation. All you have to do is own the most important economic assets: energy, communication, and transportation.
+- The management teams in these royalty and streaming companies have the highest-quality research and the most visibility into all of the producers. So if you really want to know what's going on in the resource space, you should talk to the management team of a royalty company.
+- Relative to oil, however, natural gas is very cheap and very attractive. And I think that natural gas in emerging markets is very attractive. There is very little natural gas infrastructure in places such as China, where there is tremendous demand for natural gas.
+- You can tax the rich to pay for current spending. You can even tax them very heavily. But when the rich look forward for decades and see nothing but increasing taxes, debts, and government control of their businesses and assets - they will leave.
+- You know that Mexico has enormous natural gas reservoirs that have yet to be tapped and the technology for tapping these alternative reservoirs continually needs to get better and better.
+- The Fed's buying is far more important to the market price of U.S. debt than any other economic variable. If the Fed stops buying, it doesn't matter whether unemployment goes up or down. It doesn't matter whether inflation is higher or lower. Its influence on the market is dominant.
+- Stocks actually can be a very good hedge against inflation, and short of hyperinflation, stocks will have the ability to increase their dividends to match the rise in prices.
+- I didn't understand anything about fracking or horizontal drilling until about 2010, when I first learned about the Eagle Ford.
+- The average household income has really stagnated since 1971.
+- You can survive your income falling if it's not dramatic. Your income can decrease for a long time before you start living beyond your means.
+- Historically, bad money always drives out good. Accordingly, if a central bank anywhere in the world sets up its currency to be backed by any kind of hard currency, it would cause people all around the world to desire that currency for their savings, rather than dollars.
+- There is a tremendous amount of oil in Iraq and it's still very, very cheap due to all the political uncertainty. So if you want to be a serious oil investor, I would say get yourself to Iraq in person and look around to find great opportunities.
+- Measuring the oil industry in dollars gives you a very warped view. Pick a sound currency such as Swiss francs or gold grams and look at the oil business through that lens.
+- Stock price multiples are negatively correlated with real interest rates. As interest rates rise, the market multiple will fall.
+- I was very bearish on natural gas for many years, pretty much from 2006 on. There was a tremendous natural gas bubble in the United States.
+- I can tell you what happens to countries that go bankrupt. I've been to Argentina. I'm familiar with the history of Mexico and Great Britain. We'll see the same things here shortly: inflation, huge tax increases, capital flight and, eventually, capital controls.
+- And I don't want my assets to be stuck inside a banana republic in the midst of a huge socialist experiment.
+- I've been buying real estate because it's an asset I can control, that I could finance extremely cheaply if I chose to. I do not choose to; I buy my real estate in cash. I'm not interested in making money on it. I just want to keep my money safe.
+- I'm happy to make returns of 4% to 6% a year on my real estate portfolio. If inflation comes along I'll be able to increase rent and have capital appreciation roughly in line with inflation.
+- I think what's happened to America, in a cultural sense, is we stopped getting richer as a country in the early 1970s, but we haven't adjusted our consumption patterns in any way, shape or form to meet the realities of the new lower income.
+- As you know, the United States has been a net debtor to the world each year since 1976, I believe. We've put a huge amount of dollars out into the world and those dollars have to be recycled in some way.
+- The fear is that if the dollar falls below 50% of the currency basket held by commercial and central banks and insurance companies, there may be a democratization of the way currencies are priced.
+- You wouldn't want to underestimate the perfidy of the government. I have no doubt that the government will need to increase revenues substantially to avoid default on either debt or social welfare promises. How they will increase those revenues, I can't predict.
+- I think the only thing that really can be done - it would be painful, but less painful than the calamity we're heading toward - is to demand that people be responsible for their private obligations. No more bailouts, no more stimulus, no cash for clunkers.
+- Many coal-fired power plants are being decommissioned or switched over to natural gas, but that takes a long time.

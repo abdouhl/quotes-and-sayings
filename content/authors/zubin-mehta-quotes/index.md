@@ -1,0 +1,90 @@
++++
+author = "Zubin Mehta"
+title = "Zubin Mehta Quotes"
+quotes_len = "84"
+description = "the best 84 Zubin Mehta Quotes"
++++
+- All these people who scream about Kashmir being an armed camp are in fact responsible for keeping it that way.
+- I am not only a Parsi, I am a Kashmiri too.
+- I have had bullets flying at concerts, but I don't want to talk about that.
+- Indian hotels are doing well globally because they understand hospitality.
+- I just want to play for Hindus and Muslims that sit together. That's all I want to do.
+- I miss the standard of the New York Philharmonic's playing very much. It has certainly been a high point in my life.
+- The private sector is growing so incredibly in India, in every city you have industries for whom building a concert hall would be nothing financially. But they just don't do it.
+- After conducting Wagner, Beethoven's triple concerto is like taking an Alka Seltzer.
+- My family and relatives alone could fill Shanmukhananda Hall in Bombay.
+- Citizens of India, Pakistan, and Kashmir need to come together and make music.
+- I always look at the work of fashion designers as if they were art.
+- There was an opinion expressed in the newspapers that, after 20 years, maybe the Israel Philharmonic should consider asking me to leave. I thought they might have a point, so I asked my orchestra. They told me overwhelmingly that they wanted me to stay.
+- If North American musicians would only know how uncomfortable life is for European musicians.
+- The amount of culture going on in a small country like Israel is amazing.
+- My father was a trained accountant, a BCom from Sydenham College and a self-taught violinist. In the 1920s, when he was in his teens, he heard a great violinist, Jascha Heifetz, and he was so inspired listening to him that he bought himself a violin, and with a little help from an Italian teacher, he learned to play it.
+- Music is the message of peace, and music only brings peace.
+- I sometimes feel it is to my disadvantage that I have not conducted the Cleveland Orchestra or the Boston or Chicago symphonies, but then I have had to sacrifice something in order to have enough time with my orchestras.
+- I'm very much tied to the state of Israel, but I am against their policy of settlements in Palestine.
+- I believe in music.
+- I'm a pucca Indian. Bombay is my home.
+- My tastes are Viennese.
+- I am an Indian, so I do yoga.
+- In truth, I became a conductor because deep down I wanted to conduct Brahms's four symphonies and Richard Strauss's tone poems.
+- There are certainly talented instrumentalists coming from India. I see them performing all over the world.
+- Israel gives the West Bank water twice a week! One way of promoting good would be not to ration water.
+- It seems always to have been difficult to have been a New York Philharmonic conductor because of the nature of New York. We are in direct competition with the great orchestras in the world who come to play in our hall or in Carnegie, and we are constantly compared. I think that 's a good thing.
+- Most Arab Israelis speak Hebrew, but not the other way around. It's about time that changed.
+- In Chicago, they die for their teams.
+- I would convert to Judaism if the operation didn't hurt so much.
+- There are people who think I am Israeli. That's rubbish.
+- I am often critical of Israel's policies when in the country, but then feel defensive of them when overseas.
+- Bruckner's Eighth is a colossus.
+- I think conductors do spend too little time with their orchestras.
+- We are so indebted to our ancestors, musically speaking, that they have left us 400 years of music.
+- I feel growing up in Mumbai is an advantage, as we grow up speaking so many languages that when we go abroad, it becomes easier to learn new languages.
+- I'm a Persian Jew, and we don't speak Hebrew.
+- You might say that Richard Wagner was the Queen Victoria of Europe. He had musical children everywhere!
+- There is a school in Israel called Hand in Hand which I support. There Arab and Jewish students study together on a daily basis.
+- I love the creativity of New York, but I don't enjoy the city - I don't like living here.
+- My parents had chosen the medical profession for me. I even studied a few semesters at St Xavier's College, but at the back of my mind, I always wanted to be a musician like my father.
+- Let's try to count the number of Nobel prize-winners that have emerged from scientific centres of excellence like the Weizmann Institute and Haifa's technical university, the Technion. There has to be at least 25.
+- Go to the young conductors who are not making it, and you will hear how we shouldn't push ourselves or sell ourselves, how they don't have the right connections and the right opportunities. Well, you can be sure they've had the opportunities.
+- I feel that the critic and music director should have such a good relationship they can pick up the phone and call each other any time.
+- As long as they keep building settlements, the world will be anti-Israeli.
+- In Bombay, we have a fine concert hall. I think it is high time we built venues in Delhi and Calcutta, not only for western music, but also Indian music. It doesn't matter which party is in power; don't you think the capital of India should have a concert hall?
+- Even in music concerts in Mumbai and different parts of the world, seats are reserved for sponsors.
+- American musicians are very giving - they have the highest standard in the world - but they are also very demanding in their conditions.
+- Israel is a piece of real estate that neither Jew or Arab will let go of; neither will leave these shores. And so they will have to learn to live together.
+- I love to conduct opera.
+- I have been to Kashmir many times, especially with my family, in the '70s.
+- I'm hopeful that Israelis can go to Ramallah whenever they want and see how the people are living.
+- Some musical directors have more chutzpah. They pick up the phone and talk people into giving. I prefer to call and say 'thank you' after the money has been contributed.
+- I respect the Indian government for the fact that there are no settlements in Kashmir.
+- I've known Pinchas Zukerman since he was a teenager.
+- Critics do their job, and I take their criticism seriously.
+- I love rap because it talks about pain that comes authentically from the ghetto. It moves me.
+- Just imagine, the thousands and thousands of concerts that take place every single day, all over the world. And the positive effect that they would have on the people listening. Now imagine a world without this. This void... it is unthinkable.
+- I knew at university that medicine was just not for me. I saved many lives by not being a doctor!
+- Wagner's philosophy had absolutely nothing to do with Bruckner. Bruckner hadn't written a single word against Jews. Wagner's book on the Jews was one of the most infamous books of the 19th century.
+- My temples are only in India. When I am in India, I go to the religious ceremonies.
+- Open rehearsals reach people who might not otherwise hear the Philharmonic - people on fixed incomes, people who can't move easily at night, students.
+- I wish that only three residents of Tel Aviv could see what conditions on the West Bank are like. Living in such proximity, most Israelis have no idea about the adversity on the West Bank.
+- New York for a long time was a kind of conductor's graveyard.
+- There are three orchestras in Munich, all world-quality, in a city of one million. Yet every hall is full.
+- It's hard to find an emblem of cultural, national pride that burns as bright as Israel's success in classical music.
+- One shouldn't know the future.
+- I've never said, 'I live for art.'
+- My life is so full of sacrifices.
+- The 'New York Times' reviews of my work have been evenly divided - favourable and unfavourable.
+- Though there is such a rich tradition of culture and arts, I have never been invited to perform at a concert in South India.
+- I endeavor that all orchestras I conduct sound Central European.
+- I'm really not a party person. I'm in the business of working with 100 people every day, so I don't revel in meeting a roomful of people in my leisure time.
+- The New York Philharmonic is a tremendous opportunity, a great orchestra.
+- I love India.
+- Rock music is predictable, unless there's great talent involved.
+- If you can sing together, you can live together.
+- Why does Israel always have to suffer for others to feel bad for it?
+- I am always hearing from Israelis, 'Oh, CNN is anti-Israel,' or 'BBC is against us.' But no, they are reporting facts.
+- New York is really the place to be; to go to New York, you're going to the center of the world, the lion's den.
+- An American orchestra doesn't want to play more than it has to. I respectfully disagree with that attitude.
+- I am jealous of all those people who live on the shore of Dal Lake.
+- One learns how to change gears within a concert repertoire.
+- As soon as, say, Saddam Hussein started bombing Israel with Scuds, everyone was like, 'Poor Israel.' But when Israel retaliates - and most of the time they then win - people turn against them.
+- I have a few homes, and Los Angeles is certainly one of them.

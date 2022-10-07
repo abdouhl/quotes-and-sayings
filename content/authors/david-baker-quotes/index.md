@@ -1,0 +1,16 @@
++++
+author = "David Baker"
+title = "David Baker Quotes"
+quotes_len = "10"
+description = "the best 10 David Baker Quotes"
++++
+- In retrospect I realize that the threat was about ego rather than the validity of the music.
+- That is, the only reason salvation is necessary is to get us back to the garden. The Pentateuch not only presents where we began but also why we are not there any more, and why and how we need to get back.
+- I believe without exception that theory follows practice. Whenever there is a conflict between theory and practice, theory is wrong. As far as I'm concerned, we make theories for what people have done.
+- No one bill will cure the problem of spam. It will take a combined effort of legislation, litigation, enforcement, customer education, and technology solutions.
+- When I look back now, it must have been like Paris was at the time of Le Sacre du Printemps.
+- It is rare that even a jazz musician finds an individual voice.
+- I think we always move from imitation to assimilation to innovation, but I can't name you 20 people outside those we've already recognized who ever got to point three: innovation.
+- The Palestinian Authority refuses on an ongoing basis to take the necessary steps to prevent terrorists from getting into Israel.
+- What that book does for me is give me the tools in the same way that I had the tools when I learned the regular scales or the alphabet. If you give me the tools, the syntax, and the grammar, it still doesn't tell me how to write Ulysses.
+- I think we all realized that we had really been replicating things that had already been happening. I don't know if we were smart enough to realize that we were in a cul-de-sac, but we were curious.

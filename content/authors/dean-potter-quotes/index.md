@@ -1,0 +1,106 @@
++++
+author = "Dean Potter"
+title = "Dean Potter Quotes"
+quotes_len = "100"
+description = "the best 100 Dean Potter Quotes"
++++
+- With everything that I'm doing I'm trying to become more free.
+- I grew up in the 1970s. It was a super open-minded time. I was taught through my parents and TV that everything was possible. You'd see cartoons where superheroes would fly. I always wanted to do these things.
+- The attractive thing about rock climbing: There are no rules.
+- The knowledge that in a split second that I could be dead almost overwhelms me. But it is through constant exposure to that fear that keeps me alive and lets me do what I love.
+- Any time I'm having difficulty, I focus on the breath, on relaxed breathing.
+- If I have a combination of calm and fear, I access mental states way beyond normal consciousness. That's why I choose to do scary things.
+- I practice the art of no rules.
+- This concept of turning dying into flying is a metaphor for my basic life principle.
+- I'm so in tune with rocks and nature. On any rock around the world, if I hurt the rock, I feel like I'm hurting myself.
+- I think everybody has a dream of flying at least once in their life. For me, it's been over and over a recurring dream.
+- I've never had a serious injury.
+- When I was a little boy, my first memory was a flying dream. In my dream, I flew - and I also fell. I always wondered as I got older if it was some premonition of me falling to my death.
+- I'm 43 years old and I've never been injured doing any of my arts.
+- I want to live to be a grandfather, or to be doing this when I'm 80.
+- When I do stuff where death could be a real consequence, it makes me want to live right.
+- I was having all these thoughts, not really sure what I was doing in school. And I just said, 'I'm gonna go out and climb.' I had this great day with a friend, bouldering and rooting each other on, and I came back thinking, 'I don't like the way it feels to be competitive. I don't want to be ruled by it.'
+- Often in normal life I'm just constricted to what I see, maybe, and hear. But when I climb and when I'm out in the wild, other senses come to me and Delicate Arch was a free solo climb, which means I didn't have any protection and often, when I put myself in these situations, it brings out this heightened awareness which I crave so much.
+- The wilderness is infinite in what it offers.
+- I don't have a lot of pressure on myself to be successful.
+- I'm not saying take your dog wingsuit flying. But if we can take Whisper BASE jumping or climbing, maybe you can take your dog places you didn't consider. Just find better ways to take your dog with you. They just love to be with their people and their pack.
+- I know I'm just as mortal as everybody else and I think about that quite a bit, but I really do feel like everyone lives with this - they're just not aware of it.
+- I started free-soloing harder and harder routes, kind of proving to myself that I could take control of this, pretty much the biggest fear I had - falling to my death.
+- I had a unique style, I didn't care about how things were done in the past, and I just did what felt natural, 'No Rules' once again.
+- With my height in high school, I was really thinking basketball. But I guess I wasn't that good, because my sophomore year I didn't make the team. That was a really brutal moment for me.
+- Wingsuit BASE jumping feels safe to me.
+- In 'The Prophet,' Kahlil Gibran says something about perfection only being reached by stripping something to the point of nakedness. That's the ultimate project: the naked climber doing the greatest climb.
+- I've never tried to be the leader. All I focus on is climbing.
+- When I think about doing something, I think: Will I survive a million out of a million times?
+- In climbing, if you injure just one finger you can't do it. But with slacklining as long as you can walk, you can walk the line.
+- I want my health to be perfect when I'm pushing the edge.
+- I got a lot of inspiration and encouragement from my friend and ultra-runner Scott Jurek.
+- I consider myself a rock climber but the definition of rock climbing as has changed.
+- I got Whisper when she was a little puppy and I hated leaving her at home, because I would go on these six-to-eight-hour hikes - I would BASE jump every day, and I'd have to leave her behind.
+- I can calm myself by an intense will, and also by the simple ability to focus in the most dangerous situation on breath and nothing else.
+- On the highline my thoughts are simple and clear. Fundamental needs shine through the mental clutter. I focus completely on my breath, my connection with the line, and making it safely to the other side.
+- There are probably people who think I'm crazy for doing what I'm doing and they're probably right. Compared to them, compared to the way they think and feel and are so bound by norms then I am crazy, but insane or enlightened, it's all pretty close. I would say it's just how you look at it.
+- We jump every day in Yosemite.
+- I had trouble focusing as a child and I still sort of do, but when you climb and you're going to die if you fall, you have 100 percent focus. That's a rarity in life and a gift to have something that brings you that clarity.
+- Climbing for me is about being free. It's just to move and be uninhibited and feel and tap into the connection with nature.
+- I've always been somewhat of a loner. I seem to take more alone time that the average person.
+- I'm addicted to the heightened awareness I get when there's a death consequence. My vision is sharper, and I'm more sensitive to sounds, my sense of balance and the beauty all around me. A lot of my creativity comes from this nearly insane obsession. Something sparkles in my mind, and then nothing else in life matters.
+- In most every other country, 'body flying' more commonly known as BASE jumping is legal and looked upon as a beautiful art. Here in the United States, those of us who pursue human flight are treated as criminals and are forced to travel abroad to seek one of man's most fundamental desires, to fly free.
+- I would never make a movie just for the sake of making a movie.
+- The wingsuit is basically the flying squirrel suit.
+- Thirty guys equals five percent die-off among active wingsuit base jumpers. That means there's a flaw in our system and you're an idiot if you think anything else. I'm smart enough to know that five percent means it could be me.
+- My mom was a yoga teacher back in the 1960s, so I observed a lot of the practice. It's movement of the body with awareness to the breath, which you can do with running, push-ups or walking on a piece of nylon tied between two trees.
+- My dad was in the army for most of my youth. He was very regimented and I learned to train from him.
+- I'm not so good at sitting on the floor and meditating.
+- If you're thousands of feet up with just a thin piece of webbing that you're standing on, it's really a sensation of being at one with the air.
+- Chasing after the unattainable is the fun part.
+- My parents didn't want to believe their son was 200 feet up, free-soloing. They liked to go on long walks and runs, and they would go right by Joe English. Later they'd say, 'Hey, we saw someone climbing up there.' They would describe what they saw, and I'd be wearing the exact same outfit. And I'd say, 'Oh... Nope, wasn't me!'
+- When there's a death consequence, when you are doing things that if you mess up you die, I like the way it causes my senses to peak. I can see more clearly. You can think much faster. You hear at a different level.
+- Doing things with serious consequences, whether it's death or seriously mangling myself, puts me in a hyper-aware state, and has become somewhat of an addiction for me.
+- People think that in order for nature to be sacred, you have to separate yourself from it.
+- Lately I think of myself as more bird than human.
+- I know my family's adventures must scare a lot of you who have rarely or never been into the wild or are afraid of heights and exposure.
+- I've never had a close call.
+- Part of me says it's kind of crazy to think you can fly your human body. Another part of me thinks all of us have had the dream that we can fly. Why not chase after it?
+- I've just always been terrified of having to speak in front of people. When I used to go in school and then I had to do a report in front of the class and speak, I would freeze up, sometimes I would even like tear up almost and start crying and stuff... couldn't deal.
+- I don't have thoughts of an afterlife. I think dying is like when you swat a fly - it's over.
+- We call the rangers 'the tool.' They're just kind of a tool of the government machine. They don't use their own mind.
+- My feet look like hooves-like, fake-leather bottoms and funky toenails - and I scrub them with a big stiff-bristled nylon brush you'd use for scrubbing the side of your house.
+- The deaths of such skilled fliers like my very good friend Sean Leary make me see that if there's ever a question of safety, it's always better to wait or walk down.
+- I hydrate obsessively, limit processed foods, and make a conscious attempt to eat and drink pure things, organic foods. I've noticed that these things stay with me longer than processed foods and that I'm more consistent in my climbing and my life - there aren't so many highs and lows.
+- I also know for a fact of at least two other ascents of the Delicate Arch. But when 'Outside' did their research, the other two climbers wouldn't admit to it, and I admit to it because I don't see anything wrong with a man climbing a rock.
+- Many of my hardest climbs were done with one or both feet barefoot.
+- With the highlining I'm not blocking out the fear, I'm feeling the fear and absorbing everything that's around me, trying to calm my heart, not hyperventilate and keep it together.
+- Whatever I do, I long to be untethered and free.
+- I have this unbeatable move where no matter what happens I can catch the line - it's the number one thing I practice - so my philosophy there is martial arts based, never putting myself in a position where I can receive a lethal blow. I haven't missed catching the line for over fifteen years.
+- I don't want to be an athlete so much. I groove more with artists and deep thinkers.
+- When I go out there untethered, the feelings that I slip I die totally overwhelms me. I am after the feeling of total control. I'm after that in all of life, and for now that's how I find it.
+- 'The Man Who Can Fly' captures my quest for true human flight. This pursuit of the unknown and following dreams that may or may not be attained are the most important principles we portray in the National Geographic Special.
+- My whole life I've always innovated the gear to match my pursuits. I've innovated the best climbing gear, the best slacklining gear, and definitely the most advanced BASE jumping gear.
+- For two summers, I lived up on the Eiger for close to 40 days. It was in a tent under this overhang near the start of Deep Blue Sea. I would drink the water that dripped from the ceiling.
+- The decision to go into the mountains and hike with your dog, and wingsuit with the dog, can bring catastrophe. These are decisions we make because they fulfill us, but they also have danger.
+- Everybody kind of fantasizes about it, flying.
+- Yosemite really brings out my creativity. It's such a powerful place, there's some sort of amazing energy going on that fuels me.
+- I regret the negative press that has come with my climb of the Delicate Arch, but I think that there is a bigger picture. And I would hope that it could open the eyes of the public and the community to the bigger problem of what's going on, which is the mismanagement of our wild lands and the national park.
+- Free soloing is just the most natural way man can climb. It's just using your hands and feet without any use of protection or rope to ascend.
+- It's going to hurt if I fall. I don't want to deal with that, I want to prove that it can be done for a long life, until I'm an old man.
+- Well, I'm a pretty wild guy and I live pretty close to nature - I've often lived in caves or on the edge of cliffs or in forests - so it's just second nature for me to tap into the movings of the weather and the world.
+- I know I'm not a cutting-edge free climber. Free soloing, I'm comfortable to 5.10-plus or 5.11a. But if I was a grade higher I could do some amazing things.
+- None of my friends, or anyone I know, told me not to jump with Whisper. Anyone who knows me knows that I would never put my dog in harm's way.
+- I'm more proud of how many times I haven't jumped than how many times I have jumped. Sometimes walking down, I've saved my life.
+- I want to fly for the rest of a very long life.
+- I think my dad's dream really was just to have a good family, treat them well, to keep them together, and he did everything in his power and it just fell apart on him.
+- My views are not concrete. I'm open to change.
+- Wing-suit flying can be safe if you are highly practiced and skilled and follow the fundamental rules of questioning yourself and waiting or walking down when something doesn't seem 'right.'
+- I know it's kind of a strange thing I'm talking about, but another part of me truly believes I can fly, like somehow my mind can figure it out.
+- I just love any place that I can sit in the sun and feel the warmth of the sun's rays, and feel the connection to the planet, really tapping into how small I am and really how insignificant I am in comparison to the universe.
+- People think I'm a lunatic or adrenaline junkie, but that's not what's going on with me. The beauty is what I'm most concerned with.
+- I spend more time with Whisper than I do with anybody else. I chose her when she was three or four days old, I've had her since she was nine weeks. She's a mini Australian cattle dog; cattle dogs need to have a job, and her job is just walking after me.
+- There are many people who parachute and many people who climb. I'm the only person who does both.
+- I know it's insane to think that I could fly. But to make it possible, you truly have to believe in it - to go to a place that's not accepted.
+- My fear is with the onset of mainstream interest in extreme sports that diversity will be subdued and eventually snubbed out within our great outdoor community. Shouldn't we question when the leaders of our community try to manipulate our culture into a mono crop?
+- When you do things that are different and extreme, some people like it and some people don't. I don't really care if I am liked or not liked.
+- I love the idea that I can change the worst possible thing to the best possible thing: dying to flying.
+- I do yoga. I meditate, and when I'm not climbing, I focus on breathing deeply all day long.
+- I've made the safest slack line ever using Vectran. It's the strongest flexible fabric in the world.
+- Most people in my life who didn't follow their dreams weren't happy. Their lives seem so strange.

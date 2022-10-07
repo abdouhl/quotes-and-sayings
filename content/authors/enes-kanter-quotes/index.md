@@ -1,0 +1,62 @@
++++
+author = "Enes Kanter"
+title = "Enes Kanter Quotes"
+quotes_len = "56"
+description = "the best 56 Enes Kanter Quotes"
++++
+- People often ask me why I continue to speak out if it's hurting my family. But that's exactly why I speak out. The people Erdogan is targeting are my family, my friends, my neighbors, my classmates. I need to speak out, or my country will suffer in silence.
+- I remember during the draft I went to see a lot of organizations. But after you play in New York, you don't really want to go anywhere else. The people around are so cool.
+- But I am a basketball player going out there to compete, I am going to try to win no matter what. That is just in my blood.
+- Before I go to those teams, I say, 'Hey, I'm a Muslim and I have to pray five times a day.' And they respect it so much that they give me a prayer room. So before the game, after the game, before practice, before I fly out, I can go to that room whenever I want and pray.
+- I love my country and I hope when all of the things are done, I want to go back to my country to see my family.
+- Constant pressure by Turkish consulates across the United States, as well as pervasive and continual harassment by the government in Turkey, has so far failed to stifle my dissent. As they increase the pressure, I raise my voice.
+- The players, when we get in the locker room, we talk about what's going on. And the players always see how the management or how ownership treat other players, treat other players around.
+- I have a voice, and I'm trying to use it to be the voice for all the innocent people who don't have one.
+- If you win in New York, you're the king of the world.
+- After my second year in the NBA, my prep years, my college, I hadn't really found myself.
+- Professional athletes have an enormous opportunity to be a source of inspiration for the younger generation, lead by example, and prove to them that as long as you stand up for what you believe in, everything is possible.
+- My father has been targeted for persecution by the Turkish government and its leader, President Recep Tayyip Erdogan, because of his association with me.
+- Steven Adams was a very, very big fan of halal food.
+- Our team security said, even if you go to a supermarket, have someone with you. So everywhere I go - grocery shopping, practice, go to games, go to plays - I always have someone with me because you never know, a lone wolf, one of the crazy Erdogan supporters will do something.
+- After I see in OKC, I see this is how NBA teams are. You know how you're like in a dream and you have a superpower and just don't want to open your eyes and end the dream? Oklahoma City's been like that to me.
+- The Turkish government is very famous for hunting down those who oppose Erdogan... I just didn't really want to risk my life by going to Europe where Erdogan's long arms are everywhere.
+- My friends and family in Turkey could be arrested just for talking to me.
+- I receive many death threats. I used to love walking around New York City alone, but I can't do that anymore.
+- I was a really good student, first, second grade, third grade, and then fourth grade a little bit. And then I don't know what happened. I became a very terrible student. I wish I took it more serious.
+- I have a prominent platform and I want to use it to promote respect for human rights, democracy, and personal freedom. For me, this is bigger than basketball.
+- Some of my teammates and coaches don't understand what I'm doing by speaking out, but they support me, for which I am grateful. They have become part of my surrogate family here in the United States.
+- I've been to playoffs before. That should be everybody's goal is the playoffs.
+- Basketball is my escape, and I cannot bring any of my problems onto the court.
+- When I think about America, I think about freedom. Freedom of speech, freedom of religion. It's a peaceful country.
+- If I'm in America, I'm safe. I feel very safe. But if I step outside of America, it will be a very dangerous situation.
+- I like pressure, the boos didn't mean nothing to me.
+- Because the last time I saw my family was 2015. Sometimes I even forget what they look like, you know? It's so hard to communicate with them. Because Turkish police raided my house. They took electronics away, computers away. They wanted to see if I'm still in contact with my family or not. Any single text, they will all be in jail.
+- It was just a normal family. We were playing basketball, we were playing soccer. It was home-cooked meals, just peaceful and happy times.
+- You still miss Turkish people, talking Turkish, you still miss your culture. That's why New York is the best place to be because everywhere you go there's Turkish people, your friends are here, you can go to eat Turkish food every day.
+- I mean, Turkey is my country. You know, it's my flag. That is where we're raised... My family is born there. So that's why, like, it's tough to see that... your country don't want you.
+- I put out on Twitter that the only thing I terrorize is the rim. People know me, my teammates know me, everybody knows me.
+- I'm definitely happy that I'm part of the Oklahoma City team, a winner team, so I think it's going to go really well in the future.
+- When I look back at my basketball career, I want to say I tried to inspire as much as I could.
+- I'm an NBA player with no shoe deal. No endorsement deal. And I play in New York!
+- I understand my mother and father and sister are in Turkey, but if I stop talking, who is going to speak for the thousands and thousands of innocent people in jail?
+- I am immensely blessed to be in America. This country has given me so much since I came here from Turkey as a teenager, and I feel obliged to give back to the community. I spent the summer crisscrossing the nation, holding 50 basketball camps for kids in 30 states.
+- I think it's so cool to just prove haters wrong. All you have to do is go out there and just fight.
+- The only time I have fun is when I'm on the court.
+- Basketball to me is more than a passion or a paycheck - it is the tool I use to try to have an impact in the world.
+- The N.B.A. provides a big platform to shed light on the human rights violations in Turkey and gives a voice to the thousands of people persecuted.
+- When I say all of this stuff about Turkey, people don't understand. They think I don't like Turkey. I love Turkey. I love my people. I love Turkish food and everything. But my problem is with the government.
+- I want to stay with the Knicks. They have great fans, team, organization, people. I would love to stay here.
+- When I stepped in America outside of the plane, I said, 'I came home.'
+- What am I doing, just playing basketball? It was eating at me. Because basketball, you play, you retire, you're done. I wanted to do something more.
+- It's the Milwaukee Bucks. Unless they give you good, good money, then go, but you don't leave New York for Milwaukee.
+- I'm 26 years old, I'm not some 43-year-old who's just gonna watch TV all day. Of course I want to go out there, hang out with teammates, hang out with people I love, go to the beach, go hang out!
+- My faith in Islam is not unlike my faith in the game of basketball: Both require immense determination, focus, passion and discipline.
+- Over the years, I've become accustomed to the quiet of that morning meal, a time when I devote myself completely to my faith.
+- I'm not a criminal or a radical. I'm not 'dangerous.' I'm a human being with opinions and beliefs that I have a right to express.
+- I'm a successful professional athlete, and whatever I'm going through in my private life would never impact my performance on court.
+- I have the travel documents. I have a green card. I can go anywhere.
+- Turkey was a peaceful county, Turkey was a lovely county.
+- My observance as a practicing Muslim in the NBA is somewhat uncommon. Since joining the league in 2011, my dedication to my faith has aroused the curiosity of teammates, coaches, trainers and fans.
+- Because I play in the NBA, I am lucky enough to have a public platform, so I've used every opportunity to make sure everyone knows about Erdogan's cruelty and disdain for human rights.
+- My job is to go out there and play as hard as I can. Because the fans are paying so much money to come and see the game.
+- May 20, 2017, was one of the scariest days of my life. It was the day I realized I was being hunted by Erdogan.

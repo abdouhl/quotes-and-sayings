@@ -1,0 +1,106 @@
++++
+author = "Devendra Banhart"
+title = "Devendra Banhart Quotes"
+quotes_len = "100"
+description = "the best 100 Devendra Banhart Quotes"
++++
+- I do have very small handwriting.
+- When anyone dies, it's sad.
+- When I came home my parents were listening to Pakistani Qawwali music, like Nusrat Fateh Ali Khan, they're listening to music from Mali, like Ali Farka Toure, they're listening to Brazilian songwriters, like Gilberto Gil, to opera, to Neil Young even, things you don't hear as a kid in Caracas. I love all the music they turned me onto.
+- If you're ever wondering what to wear, just dress like a pumpkin, you're good to go.
+- I'm very lucky my parents were into different kinds of music.
+- Let's take fashion seriously, but not ourselves so seriously. Or reverse that, maybe don't take fashion so seriously, but take yourself seriously. Actually, don't take yourself seriously, that's for sure. So, yeah, take fashion seriously, just not yourself.
+- I've always lived in small places.
+- I live in a total bubble where I assume everyone is super-liberal and democratic.
+- Basho is the great poet of Japan, writing in the second half of the 17th century, but his work is still incredibly fresh.
+- I love 'Star Wars.'
+- Growing up in Caracas, Venezuela, the ubiquitous music is salsa, cumbia, merengue, a little bit of samba.
+- Green is one of my favorite colors.
+- As anthropomorphic and surreal people have said my early writing was, to me it was really stock and almost banal in the sense that it was just description, the poetry of comparing: 'Your feet are like A, and your eyes like B.'
+- Caracas was a crazy place in the early Nineties. For instance, when I was 11 years old, I pierced my ear. No big deal, right? But everyone was so scandalised that they shut down the school.
+- I don't make art to make money, I make art so I can make art.
+- I'm interested in Qawwali and the blues.
+- I love almost every Britpop band.
+- I practice Rasayana Buddhism.
+- I can't tell you how many times I've had a friend tell me, in this tender and discreet voice, 'It's just you and me bro, and I want to tell you the truth: make a record of you and an acoustic guitar. Please. That's what everybody actually likes.' That's so funny to me.
+- It's all about sensitivity. If you have sensitivity then mysticism will be part of your life.
+- I love Oasis.
+- Canada has really grown and grown as this unexplored and very mysterious and exotic place to me.
+- I sometimes think a movement as rich and wild and incredible as Tropicalismo wouldn't have survived without incredibly catchy music.
+- I support things that are very close to my heart: mostly LGBTQ rights.
+- Generally, I can't really do much without music playing - even writing or thinking. Peace and quiet means putting on a song.
+- I don't even know what a hippy is. I mean, hippy is an evolution of the Sixties movement. A time when people were trying to make a difference, trying to write songs that were political. People grow old. The hippy camp kind of breaks off into different sects.
+- I've got a long list of things I consider to be selling out. But amongst that list, one of them is when you make art without putting your guard down.
+- The real hippie is trying to create something inclusive, something holistic, something loving and healthy which isn't in perpetual conflict with authority and actually knows that the only way to disarm the entire game is to step aside and not take any sides.
+- I sit around and try to play along to certain songs that I really love. It helps you explore new territory.
+- I aspire to feel like a child, how about that!
+- As I get older, there's this new realisation and it's almost like a relief, and that is that I can never be who I once was, but only who I want to become.
+- R. Kelly is my favorite singer.
+- The only real moment is now.
+- I was born in Texas, you know. I was born in Houston.
+- I don't think I'm getting better, quote unquote, as a singer or guitar player. But I'm more comfortable in this particular space. I get better at being a bad singer, so to speak.
+- I love Meredith Monk, and with Instagram, I get a chance to see if she has a cat, and what's she reading.
+- With music there's so many limbs and facets. Video and touring and merchandise and all those little things require attention. They're artist things but I tend to joke around too much with those things.
+- I sometimes feel like I should be in the hotel business.
+- Whether I'm on a major or an indie, I don't think this is important, but at the same time I do.
+- I don't ever think of myself as a dark person or a ruined person in any way. I just feel happy to be alive, and to be able to love.
+- Well, love is a difficult thing to hold on to. It's a slippery little beast. It will hold you and then it will elude you at any moment.
+- I've always thought it'd be nice to be seaweed, kind of just floating about.
+- I collect head shots from bands.
+- A soul singer is always singing to their crowd. They're always singing about their woes to you. And I really appreciate that when a singer is making you feel... when they're directing it at me. When they're including me.
+- I can see my songs in a movie as long as it's a movie no one will watch.
+- The first paid show was in Los Angeles at an art opening and I was paid maybe, I don't know, twenty five bucks?
+- I like clothes. I really do. I like going through colors, in a way. I go, 'Greens, man. Greens. Oh, yellow. This yellow feels good.' So it shapes your psyche in a way. But I don't think about it too much, even though I'm interested in it.
+- I grew up around so much new agey stuff. Part of me takes it lightly because I'm so used to it. It was my parents. It wasn't some path I discovered and want to share with people. It's just been a very natural part of my life. There's humor to it and there's seriousness to it, too.
+- I'm getting older and I'm just coming to terms that I'm stuck with me so I better try to like myself.
+- I guess I don't want everyone to know what I'm doing every second.
+- Of all my childhood books, 'The Giving Tree and Hope for the Flowers' really did change my early world, but after reading 'Momo' in my 30s, I thought, Ahhhhhh, this is the one book I wish I had read as a kid! Then reread at every subsequent chapter of my life.
+- I meditate.' That's like saying 'I eat.' Think of all the food there is! And there are almost as many varieties of mediation.
+- Good art doesn't really have an expiration date on it.
+- We all have our vices, you know. One of my vices is ice cream.
+- It's embarrassing to quote Gandhi or something, but being the change you want to see in the world is pretty powerful.
+- In the next life what would my career be? Oh, easy. Dried persimmon dealer.
+- When the Internet came along, the first thing I did was look up Wu-Tang so I could print out their symbol and glue it onto my skateboard.
+- Something I practice everyday is Tonglin. It's Tibetan for taking and receiving.
+- I'm deeply conservative and I'm profoundly boring.
+- I believe we are all dual beings. Some cultures actually believe we have two souls.
+- Am I a pro-cult person? In no way!
+- I'm just trying to make rent and do my work.
+- People love to take sides, but it's not effective. It's not really an effective way of communicating something, because you're either already part of the side or you're going to feel attacked and get defensive.
+- I come from a school of artists, the Mission School in San Francisco, and there are a lot of artists I look up to.
+- One not-to-be-mentioned major said they would sign me if I worked with a team of songwriters to help me finish songs, ha! Of course, in hindsight, I should've done it just to see what that would have been like.
+- I've always said that musicians are the comics of my generations and comedians are the politicians of my generation.
+- I was born with a beard. We're quite hairy down in Latin America. We don't have to use sponges when we wash dishes. We just use our baby beards.
+- I try to listen to as much as possible. I know some people really try to avoid music when they're writing and recording, but I am very inspired by so many different musicians, and I need to learn.
+- As an adolescent I saw the Specials at the Glass House in Pomona, and that was life changing. I dressed the part - except not well, because it was a thrift suit. I looked more like David Byrne than a rudeboy; I still have a hard time finding suits that fit me. But I had my braces and I had my Docs. It was unbelievable.
+- At some point in your life, if you live in Venezuela, you come across or own a cuatro. Either at school, either at camp, either at a friend's house, at a birthday or Christmas or bar mitzvah, you end up with a cuatro. It's like a must.
+- I like California a lot. There's a lot of space, but it's actually the most populated place in the nation.
+- I remember when I was a kid I thought I could either be an athletic water drinker, like an Olympic-level water drinker, or I could invent Windex. Which I thought was really smart, because it already existed.
+- My number-one hero in terms of interdisciplinary art is Laurie Anderson, but I've always admired anyone who can think way beyond any one medium.
+- It's very powerful to shut down your computer and escape into the real world.
+- No one's fearless. We're all full of fear. But can your fear guide you or lean into it, embrace it.
+- This is my definition of selling out: When you change what you do or do what you do as a reaction to someone else's expectations or lack of expectations.
+- My interested in Brazilian music stemmed from wanting to find a musical identity other than the salsa and meringue that I was inundated with in Venezuela as a child.
+- Venezuela is incredible, but Caracas? Oh God, I hate it. The sidewalks get smaller every time I go back.
+- I want to do a record with Adam Green of all German schlager songs.
+- I can't imagine anyone approaching art without the joy of experimentation. The joy of it is inherent... and that is how you flow with the reality of change.
+- I was just a huge fan of Blur, Suede, Elastica and Pulp, of course, even Menswear and Ocean Colour Scene.
+- I look at making records like you make a dish. A culinary experience. The way you throw in a tambourine, it's like spices or herbs. The main part of the song is the stock.
+- Leigh Bowery is a legend. Everybody loves Leigh Bowery. Everybody should love Leigh Bowery.
+- Dad had four world records, and they happened to be Nusrat Fateh Ali Khan and Ali Farka Toure. I tried singing like these people, and it didn't work.
+- Coming to Canada, I'd really like to see Sasquatch.
+- I want to say that Beck is incredible. He is an art machine.
+- In the past, I had this open-door policy where everyone was invited. And that was awesome, but you end up releasing songs that you don't really like and justifying it in your head.
+- I've been doing visual stuff for as long as I've been making records; in fact, for longer.
+- Personally speaking, Canada is becoming more and more beguiling and mysterious and I feel as though I really need to explore it.
+- I know that there are energies that vibrate frequencies that are so subtle you could say that they exist in a different territory or realm or sphere, and people mistake these frequencies for ghosts.
+- I might have some delusions of grandeur.
+- At 15 I discovered girls and '90s ska.
+- Pay attention to your breathing.
+- Well I am a Gemini.
+- For a long time, soul music was maybe one of my favorite kinds of music.
+- Real hippies don't like me at all. They can smell a real hippy.
+- My gadabout days are over.
+- Anne Imhof is a powerful artist from Germany making work that is totally interdisciplinary.
+- John Cage is someone I got into as a visual artist, before I even knew his music. I don't think a lot of people even know that he does visual art.
+- Grizzly Bear's 'Knife' is one of the best videos of all time - everything Encyclopedia Pictura has done is really incredible.

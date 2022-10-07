@@ -1,0 +1,21 @@
++++
+author = "Donald Faison"
+title = "Donald Faison Quotes"
+quotes_len = "15"
+description = "the best 15 Donald Faison Quotes"
++++
+- Any actor that's like, 'I hate the fact that I'm getting all of this attention,' is a liar. Especially when it's from the opposite sex.
+- To be honest with you, girls didn't really start paying attention to me until after 'Clueless' came out. Then, all of a sudden, it was different. And that's the honest-to-goodness truth. I wasn't very popular until that happened. I have zero pickup lines. My game, I guess you could say, is my work.
+- I think origin stories are a great way to get people reinvested in a story. I mean, we originally accepted 'Star Trek' without knowing anything about Kirk or Spock. All we needed to know was that it took place in the future.
+- When you're on, like, NBC, or - I don't want to call out any names. But when you're on bigger networks, they just want to find something that sticks and aren't really necessarily trying to develop anything. On TV Land, they've developed 'The Exes.'
+- Until 'Scrubs,' I didn't have a business manager. I learned everything on my own - and I learned the hard way.
+- I am very much a family man.
+- The movie I've seen a million times - wait, that's not possible - my favorite movie of all times is 'The Empire Strikes Back,' directed by Irvin Kershner, executive-produced by the great George Lucas and stars Harrison Ford, Mark Hamill, Carrie Fisher, Billy Dee Williams, James Earl Jones.
+- I saw 'The Empire Strikes Back' the week that it came out. My father was a huge 'Star Wars' fan. And so when it came out, my dad took me.
+- I like the way I look in a suit, and I wish I owned more. Actually, I wish I owned suits that fit me, I should say. You can buy off the rack and think, 'Oh, this is perfect.' But then you get a tailor-made suit for you, and it's a whole different animal. You don't just look good in a suit, you feel good in a suit.
+- It's weird to make new friends, but we're three seasons in with 'The Exes,' and now it feels a lot like 'Scrubs,' where I'm very lucky because I get to work people like Wayne Knight, who I really like.
+- I don't want to be just considered a breakout comedic supporting actor. I want to be a breakout actor in anything that's a lead.
+- We've been trained to spend money since we were born with all these commercials with toys and G.I. Joes and Transformers. But there's so many things in the supermarket, there's so many things on television that automatically, when you turn it on, are saying, 'Buy! Buy! Buy! Buy! Buy! Buy! Buy!'
+- I did a movie called 'Clueless' when I was first starting out. And with that paycheck, I went and bought a car, which I had no use for, because I lived in New York City, where you can take a train for a dollar anywhere. But instead, I bought a $20,000 car with a $12,000 check.
+- An ideal movie would be, like - to get this to happen, I have to work so much harder - but imagine Denzel Washington, Laurence Fishburne, Jamie Foxx, Eddie Murphy... Who else? Donald Faison. Directed by Steven Spielberg. That would be awesome.
+- Now's the time to teach your 5-year-old kid about financing. If they can add, I suggest that you start teaching them about saving that money. And how their money can add up in the future. I think the more you prepare your children for the future, the better off they'll be.

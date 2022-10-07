@@ -1,0 +1,105 @@
++++
+author = "Sam Heughan"
+title = "Sam Heughan Quotes"
+quotes_len = "99"
+description = "the best 99 Sam Heughan Quotes"
++++
+- You have to trust that the script is right and be comfortable with everything, and then you just have to go for it and disregard anything you've previously heard or felt about it.
+- I auditioned for 'Game of Thrones' seven times! Loads of times.
+- I still do the same things, but it's nice. If people recognize you, generally everyone's very respectful, very lovely, but I wonder what it's like for real celebrities.
+- I've been sent lots of lovely gifts - everything from candy and peanut butter to hand-made quilts, pictures, and clothing. I was once sent a crate of avocados. Fortunately, I love them.
+- I've been in many auditions thinking, 'God, do I have to take my shirt off?'
+- People forget actors can adapt and change their appearance. In this industry, people sometimes cast to type, or as close to type as possible, but actors are a lot more versatile than you think!
+- I'm not into pancake things. I'm into eggs. Lots of eggs.
+- I love sci-fi. Growing up, I was a big fan of the 'Alien' series, 'Star Trek: Deep Space Nine,' etcetera. Plus, anything apocalyptic - 'I Am Legend,' '1984,' 'Battlestar Galactica.'
+- I think that what I'd like to instil is that if you join the youth theatre, it's a gateway into greater career prospects.
+- All actors are insecure. And I've got my insecurities, which is why I go to the gym all the time.
+- I was a big fan of the Tim Burton films. I really liked the character. And I remember thinking the Batmobile was very cool.
+- I used to play the trombone and the trumpet, which I still have, but I haven't picked up for a long time.
+- I'm very lucky. I had a great childhood.
+- This family at Barbour, they've made me feel very welcome.
+- I don't know if anyone knows if they're ever any good, but I went to drama school in Scotland, in a classical acting course, and my first year, I remember one of my tutors telling me that I couldn't act, and I should give up and all this sort of thing, and then, they cast me as Romeo in 'Romeo and Juliet.'
+- I'd always gone to the theater as a child every month to see whatever was on. I think that's where the passion for it came from.
+- If you don't think about or deal with an issue, it gets bigger.
+- It's every boy's dream to play a superhero.
+- Shakespeare language is fantastic, and to be honest, you don't need to do anything to Shakespeare.
+- I am a very loyal man and always keep my promises when I commit to something.
+- I actually got an initial sense of how big 'Outlander' was going to be on Twitter. We're all on there to help promote the show and also interact with the fans.
+- Everyone should just be exactly who they are.
+- I think every job I do, I sort of look for the challenge in. I mean, that's why we do this job. It's not, you know, obviously not for the money or for the fame, it's for, I guess finding out more about yourself.
+- I was traveling a lot as a young actor, and while in a new city, I'd want to see the place, so I would just put on my trainers and go for a jog. And the more I did that, the more I found I was traveling longer and longer distances. I just fell into it.
+- I'm kind of obsessed by Everest and all those men that mountaineer and take themselves to extreme limits.
+- I guess I'm quite practical. Or at least like to think I am.
+- I think, anyone in the arts, you're self-employed; it's so difficult.
+- My accent is... sort of an Edinburgh sort of soft southwest Scottish accent. It could almost be English.
+- My family were pretty big hippies.
+- I was a big 'Battlestar Galactica' fan and 'Star Trek' fan. I grew up watching those.
+- I like to have something to base a role on.
+- You do have to learn how to wear a kilt, and it's certainly very liberating and very freeing, but surprisingly very comfortable to wear, to ride a horse in a kilt. I was surprised by that.
+- I kind of crave loneliness.
+- I tested on a lot of TV shows and films after I finished drama school.
+- Batman is basically an ordinary guy who had something tragic happen to him when he was young.
+- Being on your own sometimes is appealing.
+- I'm still coming to terms with what it's like to have people follow your personal life as well as your public life. It gets amusing.
+- I did grow up in a very small town, and I only had a couple of people in my year at school. There were a lot of kids to play with - maybe not the same age, but there was always someone around.
+- It's always nice when someone comes up to you and tells you they enjoy the show. At least they're not coming up and saying how much they hate it.
+- I worked with a couple of chocolate Labradors, which were a lot of fun. Very excitable. They're cute.
+- Working on 'Outlander' has been a delight, it really has. I had kind of forgotten what Scotland was like, and I'd turned into a bit of a Londoner.
+- I'm looking forward to losing the long locks at some point. But it's been fun, and I do enjoy it.
+- Wherever you go in the world, Batman is known. Everyone has an idea of what he should be like.
+- 'Outlander' is progressive in the way it looks at women.
+- When I was growing up, we had cats, dogs, guinea pigs, rabbits, goats, chickens - a whole menagerie.
+- The classic, 'Romeo and Juliet,' for me, is the iconic story of young love.
+- 'Outlander' is based on a group of books; there's a slight fantasy element to it, but ours is authentic - we try to stick to historical accuracy as possible. Ours is about a small group of people and a core relationship rather than big armies.
+- I find end-of-the-world stuff enthralling - to imagine how life will be in the future on Earth and in space!
+- I love a man bun.
+- I love a burger and fries, but it's not what I crave. I love to eat healthily.
+- I spend so much time in front of mirrors as part of my job that I try to avoid them outside work.
+- Barbour is a brand that I have grown up with and been associated with since I was living near the borders of Scotland.
+- We've got these stereotypes, and I think there can be some trouble when we force these on people.
+- I didn't want to be one of those arty nutcases.
+- I created my own charity called My Peak Challenge. We've been able to raise hundreds of thousands of pounds. It's helping change people's lives, and I've had lots of wonderful letters about it.
+- When anyone recognizes you on the street, they are always very nice and genuine and excited to meet you.
+- I do tend to lose myself in whatever job I'm doing or hobby I'm into.
+- I would be lying if I said Starz doesn't have a reputation.
+- I lived near Arthur's Seat when I lived in Edinburgh. It was the perfect playground as a child. I always have a wee run up there when I'm back.
+- Every actor wants to, in our own sort of weird sort of way, we really want to push ourselves and test ourselves.
+- Female clothing seems to be extremely difficult and almost like a puzzle for a man to take off. But I think if you get there, you win. A kilt is the complete opposite. The kilt is so easy to take off.
+- Youth theatre isn't just about a precocious child that wants to sing and dance in front of people. It's for everyone; it's about a community, it's about being supported by your peer group. You learn skills - not just acting but all the other sides - working in the TV, film, and theatre industry.
+- I wholly promote the omelette as a meal whatever the occasion, especially your last one.
+- I was doing a tour of the 'Batman' live stage production, and I challenged the cast to join me to run. One time, we were running in Switzerland just before Christmas, and it was heavy snow. Another time, we were running down the Seine in Paris on Christmas Day, and we all had Santa hats on.
+- Everything goes with blond. You can wear it with any color, and it's great.
+- I've done a lot of costume dramas and things that are set in the past, and it's great to be able to have things that you can research and material that you can look at.
+- I won't tell anyone where my favourite place in Scotland is... but it might be somewhere on Skye.
+- 'Blue Valentine' was a really sad movie, but I loved the moments when they're discovering each other for the first time.
+- Scotland is about layering. The weather changes every 10 minutes.
+- My mum is an artist. I guess that helps; she's very supportive.
+- I'd love to time travel.
+- Maybe I'm a glutton for punishment, but I enjoy anything where you get to flex your acting muscles, you get to really go for it.
+- Gingers get a bad rep. They get teased at school. So we should feel sorry for them.
+- Honestly, there's so many great benefits of wearing a kilt: It's very free, it's got its own aeration, and they're very comfortable.
+- I'm obsessed with the moon and space travel, so if I could incorporate that, I'd love to go to space.
+- There's something about the silence of people listening to someone or watching someone - I just... I love that.
+- I'm rediscovering Scotland; I'm falling in love with it again.
+- I think trust is the most important thing. If the actors and the director and the crew trust each other and you set up perimeters and boundaries, you give everyone space to do great work.
+- It's something you dream about, working in Scotland, working in Glasgow, walking down the same streets I used to walk down when I was a drama student, daydreaming about being in an American TV show or doing something that was well known. I guess I sort of pinch myself.
+- I'm a notorious late-night texter. I seem to use a lot of lip, heart, and tongue emoji.
+- Glasgow is certainly a place where they will tell you if they don't think you are anything special.
+- I was born and brought up in the countryside. I used to live in a sort of converted stables on the grounds of a castle, and I spent a lot of my childhood running around with a pretend sword pretending to be Robert the Bruce.
+- I grew up in Scotland, and everyone wore Barbour. It's very practical; it's very outdoorsy. It's what the gamekeepers and the fishermen and the farmers would wear.
+- Scotland is undoubtedly the star of 'Outlander.' I'm so proud of the country and all it has to offer.
+- There's definitely an interest in Scotland and what happened here. I think the rest of the world are fascinated by our history, and it's nice to be able to bring Scotland and our culture and music to the screen.
+- Since the show started, Scottish tourism has increased a great deal - there is definitely an 'Outlander' effect.
+- I love hillwalking and have been doing a lot of climbing.
+- My best time is a 3:20 in Paris in 2010, and I trained to try for a 3-hour marathon in New York, but Hurricane Sandy hit, and it was canceled.
+- I was brought up in a very rural area on grounds of a castle. It was a working farm, and I even remember the local shepherd wearing his Barbour jacket.
+- I'm a very boring person.
+- In this job, you're constantly surrounded by people. There are a lot of demands on your time. And I guess those moments when you can switch off and get away from it are really important.
+- You've got to bring yourself to any character you do.
+- I love the outdoors. I love climbing mountains.
+- British women can be slightly more reserved; Scottish are a little more crazy and fun, and American are more forthright, which I really enjoy.
+- A lot of my family are redheads, but I'm a dark blonde.
+- When I was going through school, I joined the Lyceum Youth Theatre, and that kind of cemented it. Through being in and around the building and watching shows, I realised that there was something I really loved about it, so I went into the stage management side.
+- Hiking is a great passion of mine, and I find myself picking up empty bottles.
+- I've done quite a few things based on real events or real people, and I think that's always really interesting that you can read about them or, if you're lucky, you can meet them.
+- I never once dreamed of sort of being able to be in an American TV series, you know? It was all about theater and touring and sort of being an actor around Scottish theater.

@@ -1,0 +1,87 @@
++++
+author = "Douglas Adams"
+title = "Douglas Adams Quotes"
+quotes_len = "81"
+description = "the best 81 Douglas Adams Quotes"
++++
+- If it looks like a duck, and quacks like a duck, we have at least to consider the possibility that we have a small aquatic bird of the family anatidae on our hands.
+- I think the idea of art kills creativity.
+- People wanted me to do a CD-ROM of 'Hitchhiker's,' and I thought, 'No, no.' I didn't want to just sort of reverse-engineer yet another thing from a book I'd already written. I think that the digital media are interesting enough in their own right to be worth originating something in.
+- I don't think anybody would argue now that the Internet isn't becoming a major factor in our lives. However, it's very new to us. Newsreaders still feel it is worth a special and rather worrying mention if, for instance, a crime was planned by people 'over the Internet.'
+- Life is wasted on the living.
+- You live and learn. At any rate, you live.
+- I was the only kid who anybody I knew has ever seen actually walk into a lamppost with his eyes wide open. Everybody assumed that there must be something going on inside, because there sure as hell wasn't anything going on the outside!
+- The major difference between a thing that might go wrong and a thing that cannot possibly go wrong is that when a thing that cannot possibly go wrong goes wrong it usually turns out to be impossible to get at and repair.
+- I seldom end up where I wanted to go, but almost always end up where I need to be.
+- I think fish is nice, but then I think that rain is wet, so who am I to judge?
+- Working out the social politics of who you can trust and why is, quite literally, what a very large part of our brain has evolved to do.
+- I may not have gone where I intended to go, but I think I have ended up where I intended to be.
+- I'm spending a year dead for tax reasons.
+- This must be Thursday. I never could get the hang of Thursdays.
+- Flying is learning how to throw yourself at the ground and miss.
+- The knack of flying is learning how to throw yourself at the ground and miss.
+- Time is bunk.
+- Most of the time spent wrestling with technologies that don't quite work yet is just not worth the effort for end users, however much fun it is for nerds like us.
+- The usual method of finding a little dongly thing that actually matches a gizmo I want to use is to go and buy another one, at a price that can physically drive the air from your body.
+- Look at a book. A book is the right size to be a book. They're solar-powered. If you drop them, they keep on being a book. You can find your place in microseconds. Books are really good at being books, and no matter what happens, books will survive.
+- I was the only kid who anybody I knew has ever seen actually walk into a lamppost with his eyes wide open. Everybody assumed that there must be something going on inside, because there sure as hell wasn't anything going on on the outside!
+- Ever since Newton, we've done science by taking things apart to see how they work. What the computer enables us to do is to put things together to see how they work: we're now synthesized rather than analysed. I find one of the most enthralling aspects of computers is limitless communication.
+- There is a piece of me that likes to fondly imagine my maverick and rebellious nature. But, more accurately, I like to have a nice and cosy institution that I can rub up against a little bit.
+- Isn't it enough to see that a garden is beautiful without having to believe that there are fairies at the bottom of it too?
+- We no longer think of chairs as technology; we just think of them as chairs. But there was a time when we hadn't worked out how many legs chairs should have, how tall they should be, and they would often 'crash' when we tried to use them.
+- Hundreds of people who've never written before send in 'Dr. Who' scripts. They may have good ideas, but what they fail to realise is that writing for TV is incredibly complicated. They have no idea how difficult it is and what the financial commitment is.
+- Any man who can hitch the length and breadth of the galaxy, rough it, slum it, struggle against terrible odds, win through, and still knows where his towel is is clearly a man to be reckoned with.
+- I taught myself to play the guitar by listening to Paul Simon records, working it out note by note. He is an incredibly intelligent musician. He's not someone who has a natural outpouring of melody like McCartney or Dylan, who are just terribly prolific with musical ideas.
+- See first, think later, then test. But always see first. Otherwise, you will only see what you were expecting. Most scientists forget that.
+- I find the difference, for me, between having no money and having quite a bit is that the bills get bigger. And that's it. The lifestyle doesn't change.
+- Books are sharks... because sharks have been around for a very long time. There were sharks before there were dinosaurs, and the reason sharks are still in the ocean is that nothing is better at being a shark than a shark.
+- In order to fly, all one must do is simply miss the ground.
+- I used to be a great fan of doing crosswords. When you're fiddling around with anagrams, you get wonderful jumbles of syllables that become interesting.
+- I find the whole business of religion profoundly interesting. But it does mystify me that otherwise intelligent people take it seriously.
+- Wandering around the web is like living in a world in which every doorway is actually one of those science fiction devices which deposit you in a completely different part of the world when you walk through them. In fact, it isn't like it, it is it.
+- There's nothing worse than sitting down to write a novel and saying, 'Well, okay, I'm going to do something of high artistic worth.'
+- We have normality. I repeat, we have normality. Anything you still can't cope with is therefore your own problem.
+- If somebody thinks they're a hedgehog, presumably you just give 'em a mirror and a few pictures of hedgehogs and tell them to sort it out for themselves.
+- I briefly did therapy, but after a while, I realised it is just like a farmer complaining about the weather. You can't fix the weather - you just have to get on with it.
+- I've been trying to... Having been an English literary graduate, I've been trying to avoid the idea of doing art ever since. I think the idea of art kills creativity.
+- It is a rare mind indeed that can render the hitherto non-existent blindingly obvious. The cry 'I could have thought of that' is a very popular and misleading one, for the fact is that they didn't, and a very significant and revealing fact it is too.
+- I remember very little about writing the first series of 'Hitchhiker's.' It's almost as if someone else wrote it.
+- The Guide is definitive. Reality is frequently inaccurate.
+- When you write your first book aged 25 or so, you have 25 years of experience, albeit much of it juvenile experience. The second book comes after an extra year sitting in bookshops. Pretty soon, you begin to run on empty.
+- Every country is like a particular type of person. America is like a belligerent, adolescent boy; Canada is like an intelligent, 35-year-old woman. Australia is like Jack Nicholson. It comes right up to you and laughs very hard in your face in a highly threatening and engaging manner.
+- Cyberspace is - or can be - a good, friendly and egalitarian place to meet.
+- My absolute favourite piece of information is the fact that young sloths are so inept that they frequently grab their own arms and legs instead of tree limbs, and fall out of trees.
+- In the beginning the Universe was created. This has made a lot of people very angry and been widely regarded as a bad move.
+- Years and years ago, I did a game based on 'Hitchhiker's Guide' with a company called Infocom, which was a great company. They were doing witty, intelligent, literate games based on text.
+- Of course you can't 'trust' what people tell you on the web anymore than you can 'trust' what people tell you on megaphones, postcards or in restaurants. Working out the social politics of who you can trust and why is, quite literally, what a very large part of our brain has evolved to do.
+- It is a well-known fact that those people who must want to rule people are, ipso facto, those least suited to do it... anyone who is capable of getting themselves made President should on no account be allowed to do the job.
+- I think that growing up in a crowded continent like Europe with an awful lot of competing claims, ideas... cultures... and systems of thought, we have, perforce, developed a more sophisticated notion of what the word 'freedom' means than I see much evidence of in America.
+- I think that the digital media are interesting enough in their own right to be worth originating something in.
+- If you try and take a cat apart to see how it works, the first thing you have on your hands is a nonworking cat.
+- After ten years of word processing, I can't even do hand writing anymore.
+- Space is big. You just won't believe how vastly, hugely, mind-bogglingly big it is. I mean, you may think it's a long way down the road to the drug store, but that's just peanuts to space.
+- What the computer in virtual reality enables us to do is to recalibrate ourselves so that we can start seeing those pieces of information that are invisible to us but have become important for us to understand.
+- The mere thought hadn't even begun to speculate about the merest possibility of crossing my mind.
+- One of the most important things you learn from the Internet is that there is no 'them' out there. It's just an awful lot of 'us.'
+- Time is an illusion. Lunchtime doubly so.
+- As a child, I was an active Christian. I used to love the school choir and remember the carol service as always such an emotional thing.
+- To be frank, it sometimes seems that the American idea of freedom has more to do with my freedom to do what I want than your freedom to do what you want. I think that, in Europe, we're probably better at understanding how to balance those competing claims, though not a lot.
+- I wanted to be a writer-performer like the Pythons. In fact, I wanted to be John Cleese, and it took me some time to realise that the job was, in fact, taken.
+- The impossible often has a kind of integrity which the merely improbable lacks.
+- It is a mistake to think you can solve any major problems just with potatoes.
+- For a moment, nothing happened. Then, after a second or so, nothing continued to happen.
+- I love deadlines. I like the whooshing sound they make as they fly by.
+- Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so.
+- Computers are still technology because we are still wrestling with it: it's still being invented; we're still trying to work out how it works. There's a world of game interaction to come that you or I wouldn't recognise. It's time for the machines to disappear. The computer's got to disappear into all of the things we use.
+- He was a dreamer, a thinker, a speculative philosopher... or, as his wife would have it, an idiot.
+- I don't believe it. Prove it to me and I still won't believe it.
+- To give real service you must add something which cannot be bought or measured with money, and that is sincerity and integrity.
+- Anyone who is capable of getting themselves made President should on no account be allowed to do the job.
+- Because the Internet is so new, we still don't really understand what it is. We mistake it for a type of publishing or broadcasting, because that's what we're used to. So people complain that there's a lot of rubbish online, or that it's dominated by Americans, or that you can't necessarily trust what you read on the Web.
+- The difficulty with this conversation is that it's very different from most of the ones I've had of late. Which, as I explained, have mostly been with trees.
+- We think that the world is a solid, vivid place, full of shape and colour and solid objects like this table and this microphone and so on, but we actually create that in our heads out of the bits of information that hit the back of our eyeballs or hit our eardrums or hit our tongues or whatever.
+- There is a theory which states that if ever anyone discovers exactly what the Universe is for and why it is here, it will instantly disappear and be replaced by something even more bizarre and inexplicable. There is another theory which states that this has already happened.
+- I think you get most of the most interesting work done in fields where people don't think they're doing art but are merely practicing a craft and working as good craftsmen. Being literate as a writer is good craft, is knowing your job, is knowing how to use your tools properly and not to damage the tools as you use them.
+- A common mistake that people make when trying to design something completely foolproof is to underestimate the ingenuity of complete fools.
+- He hoped and prayed that there wasn't an afterlife. Then he realized there was a contradiction involved here and merely hoped that there wasn't an afterlife.
+- I have rooms full of little dongly things and don't want any more. Half the little dongly things I've got, I don't even know what gizmo they're for. More importantly, half the gizmos I've got, I don't know where their little dongly thing is.

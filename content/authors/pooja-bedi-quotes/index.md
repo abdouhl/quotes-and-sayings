@@ -1,0 +1,106 @@
++++
+author = "Pooja Bedi"
+title = "Pooja Bedi Quotes"
+quotes_len = "100"
+description = "the best 100 Pooja Bedi Quotes"
++++
+- Having a dog around is a wonderful way to wake up because I get licks all over my face and there are cuddles as soon as I open my eyes.
+- While doing movies, I enjoyed every bit of it - the ambience, my co-stars, my roles, the art of getting under the skin of a character, everything.
+- Religion comes with several diktats but spirituality doesn't have any rules.
+- I have become this country's agony aunt as I am doling out relationship tips through various publications. I spotlight the problems and give solutions. It's wonderful to know that so many people respond, it's a responsibility.
+- I write relationship columns for a couple of publications.
+- But I usually read non-fiction; I love Richard Branson books.
+- When I read books, my life changes.
+- A more holistic view encompassing mental, emotional, financial, social and spiritual wellness is as important as physical health, is now defined, understood, and aspirational.
+- In India, people have narrow-minded views about nudity and boldness.
+- I date men, not boys.
+- I am so energetic and affectionate 24/7 that people around me think I do drugs.
+- A lot of people don't know how to pull themselves out of their rut and how to change realities. In technology, you routinely have an 'upgrade' for your phones and computers. Our personal inner software needs upgrading too.
+- Age-old therapies that Indian households have followed for centuries, like drinking kasha's, mixing turmeric with pepper and honey, planting tulsi for purification and the use of aromatherapy to boost immunity have now become new age therapies.
+- People ask me how can I give them relationship advice when my marriage was a failure. I tell them staying put in a bad relationship is not success, leaving a terrible relationship successfully, is a success.
+- I believe in one energy that is benign, loving, warm and nurturing power.
+- The fact is I've been the kind of parent who has been there at every single sports day, my kids are achievers at school, scoring fantastic grades, they're part of the football and hockey team. In that aspect, people always saw me as a parent whose children have always gone from strength to strength.
+- In fact, when I was voted for the sexiest woman for two years, it was a fabulous feeling.
+- We need to ban this whole culture of shutting down and banning things.
+- Every time you are in a relationship, you hope that this is the one. However, when you meet the person you are destined to be with, you don't hope, you just know that he is the one.
+- I'd be lying if I said that I took it all very calm and cool when my 12-year-old marriage broke up. I did feel angry, bitter, sad, but I didn't let them consume me.
+- My perception is that Mr. Bachchan is very controlled about his image.
+- The wonderful part about me and Manek getting engaged is that it has given so many middle-aged people hope who have suddenly realized that love is possible and future relationships can be strong, vibrant and wonderful.
+- I've been told by people, 'It's strange that you're a celebrity but you've never missed a single occasion to be there for your kids, you're a very hands-on parent.' I'm a very involved parent, actually.
+- My grandfather was a direct descendent of Guru Nanak, which my father also carried forth.
+- Christmas is all about exchanging gifts and I always make an effort to make my Christmas dinner a jolly affair.
+- If you have to ban something, ban products which are actually harmful for us, like cigarettes. Smoking also affects the health of people standing around you. But we won't ban such things. We're told don't eat fish, don't eat meat, don't wear miniskirts and other such things.
+- I grew up in a no man's land. My mother was ultra liberated and she thought I was backward because I didn't smoke or do drugs, yet for the society, I was very modern. Mothers would keep their daughters away from me for fear they would get corrupted.
+- Mr. Bachchan is too used to getting things done his way. I had always thought of him as an elegant, articulate, sophisticated, refined gentleman. What a let-down he was! What a shame!
+- Being a sweet tooth myself, I would say that I never deprive myself of anything. It contributes to my physical and emotional health.
+- I keep getting many offers for TV soap operas, and strangely a lot of them are mythological. None seem to be interesting enough or have the budgets that would convince me to accept them.
+- If I look back at my failed marriage, I feel the loss of a husband, but I prefer considering the gain of two beautiful kids.
+- The idea is to grow. There is a shelf life for every avatar and the nature of roles will change and one just has to keep doing different things.
+- We need laws against rape and such violence; but at the same time, if women are misusing the law, we need to think about how to protect the right of a man as well.
+- I feel life is not about what happens to you, but about your reactions to what has happened to you.
+- I was six months pregnant when my brother died and my daughter was four-months-old when my mother expired. Gradually, I developed an inner resilience as today I believe there is a rainbow at the end of each storm.
+- The only thing that I am going to miss during my stay in 'Bigg Boss' would be my two children.
+- I love food but due to my active lifestyle, have never been fat or flabby.
+- I've been actively doing a lot of courses and research into healing modalities, alternative therapies, science, physics and metaphysics.
+- Single parenting isn't easy, but it's a choice I made and as with everything else in my life it's been a 'give it your 100 per cent or don't do it.'
+- I am a Taurus and my Chinese sign is the dog.
+- I am lucky to be genetically blessed.
+- I was influenced by my mother to a great extent and I came to know about Hindu mythology from her.
+- I have a family which is a mix of all religions, so I worship all gods and follow all religions.
+- I've done multiple diploma courses and have finally amalgamated it all into what is called the 'Happy Soul' workshops.
+- People, who come to 'Bigg Boss' to look for work should not come to the show then... because you don't get work generated out of 'Bigg Boss.' I do not think anyone should use this show as a platform or as a career move because I don't think that out of this show, anyone has been given a career.
+- I have a lot of exciting things to do in life, like 'Happy Soul' workshop; we teach people how to be happy, how to reprogram, how to create happiness.
+- My children have really liked the men in my life and they have liked each one of them.
+- I have always been an active person, in school and even as a mother now.
+- I was born to two rebellious people and it is in my blood to speak my mind.
+- I used to have these frown lines on my forehead and thanks to them, people thought that I was the serious sorts. I used to host a chat show then and it used to look really bad. And so I got botox done and it worked for me.
+- Experiences in life are supposed to make you better, not bitter. If one marriage doesn't work out, it's not necessary that the second one won't.
+- If I want someone, I can go to any extent to get him. My craziness for a man has no limits at all.
+- Now my children also don't have a particular religion as I also didn't have. The only difference is that now they have Muslim and Parsi also in their blood. So they may be called Hindu, Buddhist, Muslim, Sikh, Christian and Parsi!
+- Swimming, trekking, outdoor sports activities have been a part of life right from childhood through youth.
+- It's really nice to know that people can't resist me. I want to be longed. I want people to really like me like nothing else in the world.
+- The lockdown has taught people how to make do with what they have and how to consume responsibly. For the sake of our environment and our very own holistic wellness, I hope this wellness trend of sustainability continues to grow and spread.
+- Today people remember me for 'Jo Jeeta Wohi Sikander.' The film is the most memorable thing for me in my life.
+- Being fit and healthy is all about staying active and, when I say active, I mean in every stage of life.
+- No show is bigger for me than my children.
+- I've ventured into my past life and have experienced it. What I was in the previous life and why I've taken birth in this world, I believe in all of this because I've seen it on my own.
+- People who wear brighter colors are extremely sexy and confident.
+- Cooking at home is a great wellness trend simply because you know exactly what goes into your meal and you can tweak it to your tastes.
+- There is no expiry date on love, there is no age by which you stop loving and there is so much of love out there in the world.
+- I am a very talkative person and enjoy interacting with people.
+- I am a people's person, chatty and enthusiastic. My enthusiasm is infectious.
+- I have never followed fitness or fashion.
+- My marriage ended when I was pregnant with my second child. I lost all the support system with little money left. Then the book 'Who Moved My Cheese' changed my life.
+- Everyone should nurture the ability to laugh at themselves.
+- My mother was a very unconventional kind of a woman.
+- Reality TV is utterly exciting.
+- I have had relationships that have not worked out in the past, my marriage didn't work out technically in the past but I look back at all my relationships with great love and affection.
+- I can bulldoze my way into anything, and I'm hot-headed like a bull.
+- We need to celebrate our lives. One day, we're all going to be dead and gone, and be nothing more than a pile of ashes. This is one life we've got and the only way to live it is to live it up shamelessly and joyously.
+- It felt great to acquire rock-solid, fab abs, toned shoulders and great legs.
+- I hug my kids, staff, dogs; that is the way I show my affection. If people don't understand that, I can't help it.
+- I didn't choose to be a celebrity daughter; that was a gift.
+- I don't discriminate between a boy and girl when it comes to friendship.
+- My philosophy is live life so you won't mind talking about it.
+- It's terrible to be trapped in a bad marriage. It would be nice if your marriage was forever, but why grudge it for what it was not?
+- As long as one uses the SMS facility to keep in touch or for work, it's okay. But, it should never intrude into your personal sphere. There are people I know who use it in relationships and there one has to draw a line.
+- India is abundant in ayurveda, yoga, meditation, holistic wellness, therapists, energy healers, natural and chemical-free skincare, haircare organic foods and more.
+- The beauty & distinction of Happy Soul is that it caters to physical, mental, emotional and spiritual wellness in all forms.
+- I don't think I'm good enough to bring alive the character of my mother, even if it is on screen. Besides, my mother was a classical dancer, and I am very bad at it.
+- I love this planet and I feel that depriving yourself from anything which this planet has to offer is taking you backwards on your road to fitness.
+- What parents need to make clear to their children post-divorce is that whoever comes into their lives is not a threat to the children in any manner because the position that they occupy cannot be occupied by the children.
+- I don't want negativity to be around me, so I stay with a positive outlook.
+- Men who wear thongs have to be absolutely confident and have no qualms in flaunting their body.
+- I love food and I never skip my veggies.
+- Most people are always wondering what to say. With me, life is an open book.
+- I don't want to fill my life with clutter because when the right man comes along, there will be no space for him to fit in.
+- Kamasutra shaped my career in every possible way. It enhanced the whole sexism quotient that I had come with. It made me famous and infamous.
+- I am not the kind to hide the fact that I have used artificial means to hide or correct my features.
+- I've had people only tell me wonderful things about how well I've brought up my children, and how amazing my kids have turned out.
+- More than I wanting to be married, it has been my kids who tell me that I should settle down.
+- Interestingly, Laxmi Narayan Tripathi, who is a transgender, was really close to me. She used to tell me that she was ready to change her sexuality for me. In fact, she would touch me and hug me like a man. Her voice would change when she spoke to me and called me darling and it became rather macho. I think it was really cute and lots of fun.
+- I got divorced on February 14, 2003, and got engaged on February 14, 2019. I have had relationships in between and my kids have liked every person that I have been with. But it is very different with Maneck - they adore him and want him in our lives forever.
+- I love to be known as a sex symbol.
+- I believe immensely in past life regression.
+- I don't know how we existed when there was no SMS. It saves time, as it cuts out all the pleasantries exchanged on the phone.
+- My wardrobe comprises of the world's top designers and is equally filled with shopping from roadside stalls and local shops because I believe 'if it looks good, it looks good!' full stop.

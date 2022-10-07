@@ -1,0 +1,28 @@
++++
+author = "Pete Davidson"
+title = "Pete Davidson Quotes"
+quotes_len = "22"
+description = "the best 22 Pete Davidson Quotes"
++++
+- I always wanted my stand-up to feel like not just a show, but like you're hanging out with someone for an hour. I like to just talk.
+- I really wish that I was, like, strong enough to not go online.
+- I was the class clown in high school, but I always took it too far, so nobody liked me. I was annoying. Like, I would get a laugh and then keep going and keep going.
+- I don't let a lot of people know about my dad dying on 9/11. It's not a way to introduce yourself. So I never told anybody, and then I would do jokes about it... and I think people thought I was lying about it. Which would be crazy!
+- I have to do stand-up. I have to do something comedy-involved every day, or else I will lose my mind.
+- You can't say whatever you want on network television.
+- I got rid of Twitter, and I got rid of Facebook.
+- Things that I feel really sad about, I talk about. That way, if it's funny, it doesn't hurt anymore.
+- I started doing stand-up when I was 16, my junior year in high school. My two friends and I would sit at home watching stand-up. They kept saying I should try it, and so I did.
+- There have been a couple of times when kids that weren't nice to me in high school are like, 'Hey, man!' And I'm just like, 'Yeah. Thank you very much.'
+- I get nervous all the time. The only time I'm not nervous is onstage, which is weird.
+- 'SNL' has changed my career because it gave it a platform to be seen. And I really feel like the Weekend Update desk is where I am given the opportunity to shine on that show.
+- When my dad died, I had to go to therapy.
+- I have no idea how to do sketches, believe it or not.
+- I'm the most awkward person in the world, but onstage, I'm completely fine. I could run around in a thong and not care.
+- There are people for everybody, and luckily, I found mine.
+- My jokes have definitely changed. 'SNL' has helped with that, because when you're on 'SNL,' you have to kind of pay attention to the news. I feel like my material has gotten smarter now.
+- I feel bad for kids growing up that, like, their favorite rapper is Lil Yachty.
+- I'm not the first person to say this, but communication at 'SNL' - I don't want to say it's not good, but unless you ask questions, you will not know what's going on.
+- I don't like going out. I'm more of a watch TV, hang out, Netflix kind of guy. I don't like leaving; I don't like talking to people. It gives me anxiety.
+- I feel like every time I tweet, I lose money.
+- I bombed so much as a standup that messing up doesn't matter to me anymore. I kind of enjoy bombing sometimes - I try and make everybody hate me more. Like, once I know it's not going well, I can just have fun.

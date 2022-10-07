@@ -1,0 +1,44 @@
++++
+author = "Donald Johanson"
+title = "Donald Johanson Quotes"
+quotes_len = "38"
+description = "the best 38 Donald Johanson Quotes"
++++
+- Where we are going as a species is a big question. Human evolution certainly hasn't stopped. Every time individuals produce a new zygote, there's a reshuffling and recombination of genes. And we don't know where all of that is going to take us.
+- As an undergraduate, I had an opportunity to go on a number of archeological digs. So I had experience excavating, digging up remains of ancient Indian villages in the Midwest and in the Southwest.
+- When we look for the origins of all humanity today, let's not just look at Europe, because I think Africa was the cradle, the crucible that created us as Homo sapiens.
+- Journalists often ask me when I go to the field, 'What do you expect to find?' And my answer always is, 'The unexpected,' because we're just looking at the tip of the iceberg; we've just scratched the surface.
+- What makes us human depends on what place on our evolutionary path we're talking about. If you go back six million years ago, what makes us human is that we were walking upright. That's all. If you go to 2.6 million years ago, it's the fact that we're designing and making stone tools.
+- In our case, finding a Lucy is unique. No one will ever find another Lucy. You can't order one from a biological supply house. It's a unique discovery, a unique specimen.
+- I was being groomed as an undergraduate to specialize in Midwestern prehistory, but going back to my teenage days, my interest has always been in our early human ancestors. I wanted to work in Africa.
+- This was the most important discovery I had ever made in my life. It was a discovery which has irrevocably changed my whole life's direction. It immediately elevated me to the status of one of the world's leading anthropologists.
+- One has to take initiative in life to achieve what he or she wants.
+- Lucy brought with her an image of our human ancestors that you don't get when you find a jaw or an arm bone or a leg bone. Here was 40 percent of a single skeleton.
+- It's very hard for all of us, when we've committed ourselves to a particular interpretation, to change our minds.
+- I realized immediately that this was a terribly important discovery, but I didn't realize how important it would be until we had spent a lot of time in the laboratory studying it.
+- And what I wanted to do was, I wanted to explore problems and areas where we didn't have answers. In fact, where we didn't even know the right questions to ask.
+- I was aware of it, but I grew up in a very a-religious family. My mother never went to church, she never had any religious training or background. It was never a part of our social interaction.
+- Scientists are very afraid of being proven wrong.
+- Normally, we are happy to find a fragment of jaw, a few isolated teeth, a bit of an arm, a bit of a skull. But to find associated body parts is extremely rare.
+- But what really excited me was the idea that humans had a tremendous pre-history that went back millions of years. I wanted to go to Africa to find some of these creatures.
+- All mammals undergo a certain degree of diversification. Darwin knew that. When he drew a family tree, it had many branches on it.
+- My real father died when I was two years old, so I never knew him. He was a barber in Chicago.
+- When the first fossils began to be found in eastern Africa, in the late 1950s, I thought, what a wonderful marriage this was, biology and anthropology. I was around 16 years old when I made this particular choice of academic pursuit.
+- What's changed is we now have good anatomical, geological, archaeological evidence that Neanderthals are not our ancestors. When I wrote 'Lucy,' I considered Neanderthals ancestors of modern humans. We have gone back twice the age of Lucy, six million years. And we see that upright bipedal walking goes back that far in time.
+- I find a tremendous receptivity among the public for the subject matter of, 'Where did we come from and how did we get here?' People are thirsty and hungry for information on our origins. I feel a responsibility as a major figure in the area... to convey to the public the knowledge of human origins in a way that is understandable to them.
+- Most achievers I know are people who have made a strong and deep dedication to pursuing a particular goal. That dedication took a tremendous amount of effort.
+- I was very intellectually oriented, very early on.
+- If you were to go to the National Museum in Addis Ababa, you would walk into a huge room filled with literally tens of tons of fossils, and most of them would be elephants and rhinos and hippopotamus and monkeys and giraffes and antelopes and so on. Hominids are very rare in the landscape, and it's very rare to find them.
+- I don't think we interbred with the Neanderthals at all. There are some people who think that there was some level of interbreeding. I think that we look so biologically different, that we looked and we acted so different, and we culturally were so different that we would not have had interbreeding between two species.
+- We are placed in the genus of Homo, which is Latin for man - Homo sapiens: supposedly wise men. I sometimes think - wonder - whether we really are wise men.
+- When I realized, in 1978, that Lucy did represent a new species of human ancestor, and that I had an opportunity to name this new species, I realized this was a revolutionary step in understanding human origins.
+- You don't just magically flip some evolutionary switch somewhere and transmute a quadruped into an upright-walking bipedal human.
+- Evolution explains our biological evolution, but human beings are very unique creatures. As the Dobzhansky said, all animals are unique; humans are the uniquest. And that uniqueness of being human, language, art, culture, our dependency on culture for survival, comes from the combination of traditional biological evolution.
+- Regardless of what we look like on the outside, genetically, on the inside, everyone is an African.
+- There have been some friendships lost over this. That's the most difficult for me. I find it very uncomfortable to know that I was at one time close friends with someone, and because of jealousies and misunderstandings and so on, these friendships have dissolved.
+- The right question to ask from a Darwinian prospective is what was it about bipedalism that was so advantageous? Why did it lead to a - why did that adaptation ultimately lead to a species Homo sapiens that has come to dominate the planet today with six and a half billion people?
+- Evolution is a fact. It is the best explanation of what is known from observations. It's a theory as powerful as the theory of gravity.
+- But it really wasn't until three to four years later, when we had an opportunity in the lab to make very detailed observations, and comparisons with other fossil discoveries, that we realized she was a new species of human ancestor.
+- I think that many of my ideas are correct, but I'll bet you, before my death other discoveries will be made that will prompt me to alter various ideas I have about human evolution.
+- One has to devote oneself to a particular pursuit. To be successful at anything, you have to make a total commitment to it.
+- Commitment, belief and positive attitude are all important if you're going to be a success, whether you're in sports, in business or, as in my case, anthropology.

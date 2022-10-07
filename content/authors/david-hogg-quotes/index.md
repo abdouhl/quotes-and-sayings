@@ -1,0 +1,52 @@
++++
+author = "David Hogg"
+title = "David Hogg Quotes"
+quotes_len = "46"
+description = "the best 46 David Hogg Quotes"
++++
+- We have to ensure that everybody's voice is heard equally, or nobody's will be.
+- We simply want gun legislation in this country that allows law-abiding citizens to still own guns or prevents people with a history of mental illness or a history of a criminal background from owning a firearm.
+- I've become more of a citizen and more of an activist.
+- I get to a certain point where I just get so tired that I keep going. It creates a positive feedback loop in some ways - the more stress and work I put on me, the more stress and work I can deal with.
+- We will change things if people stand up for what they believe in against injustice and death to save themselves and the future of America - and the world.
+- I want to be at least part of the change in Congress.
+- Don't be part of the spectacle; be truthful about what you care about and speak from the heart.
+- We have to get morally just leaders elected.
+- We don't want to repeal the Second Amendment.
+- What a lot the media, and especially Fox News, has messed up with me is they've made it seem like I'm trying to take away people's guns - that I'm against the Second Amendment.
+- My father is a retired FBI agent. I have guns in my house. I'm not against the Second Amendment.
+- I'm trying to push for common-sense gun reform and mental illness reform so we can make sure that these individuals that have a criminal background that are mentally unstable and have a history of domestic violence are no longer able to get a gun.
+- The amount of suffering I've seen is beyond belief. The amount of inequality is beyond belief.
+- My school is about 25 percent black, but the way we're covered doesn't reflect that.
+- President Trump needs to listen to the screams of the children and the screams of this nation.
+- If you look at what these politicians do when they speak, most of the time they are trying to convey a tone... if I make all these points and move my hands this way, I can get re-elected. When in reality, they aren't saying anything.
+- We are millennials, and we love complaining more than any other generation.
+- When you have all these new police officers and resource officers coming into schools, what I'm worried is going to happen is we're going to increase the school-to-prison pipeline, which disproportionately affects students of color and lower social status.
+- I'm not a crisis actor.
+- Honestly, it's alright that people are buying more guns. I just care that they are being safe individuals.
+- People need to realize that people have died for your vote.
+- I support the Second Amendment. But for God's sake - how can we knowingly pass bills and laws that are in direct opposition to saving kids' lives?
+- We can have all the walkouts we want, but if we don't walk to that ballot box and make our voices heard, these politicians aren't going to listen.
+- There's a lot of amazing people that don't get into college.
+- Without the persistence of voters in America getting up to every election, democracy will not flourish.
+- When politicians say your voice does not matter because the NRA owns them, we say, 'No more.'
+- Many students want their privacy.
+- It's a midterm year, and it's time to take action. I don't care if you're a Democrat. I don't care if you're a Republican. Stand up for what you believe in.
+- I think it's important to realize that law enforcement does do a very good job oftentimes of trying to ensure the safety and security of their people. But oftentimes, where they fail is communities of color and in lower socioeconomic status communities where they discriminate against these people.
+- Research who your politicians are, even; know what they do, know who they're supported by legislatively, and know who is supporting them financially for their campaigns. Because ever since Citizens United, we've seen a massive growth in the amount of campaign contributions and corruption in politics as a result, and that has to change.
+- I'm easy to pick on because I'm a string bean.
+- When politicians send their thoughts and prayers with no action, we say, 'No more.'
+- You can't have empathy for somebody that's gone through something you haven't - because, definitionally, you can't. But you can feel for them and have sympathy for them. And that's what this country needs to practice more. It's about realizing that you do come from a different place.
+- We've all lived through something horrific, but the strength and beauty and knowledge that we're going to win eventually is what keeps me going.
+- What we need to create is the NRA - except for the opposite issues.
+- It's the individual effort of everybody working together towards a collective goal that causes real, effective change in America and in the world.
+- We need to vote people out of office that are perpetuating issues affecting young people, like gun violence.
+- We are for reasonable and sensible gun ownership so long as it's responsible in the way that criminals can't get it.
+- Congress needs to get over their political bias with each other and work toward saving children's lives.
+- In the same way we all have a right to bear arms, we all have a right to live.
+- A bully is a bully, and it's important that you stand up to them.
+- I don't think NRA members are bad people at all. I think they're responsible gun owners that want to become politically active and make their voices heard in this democracy.
+- Don't just vote for people because they have a 'D' or an 'R' next to their name - make them have an 'A' next to their name for 'American.'
+- The youth don't vote lawmakers into office, and as a result, they don't work for them.
+- Pretentiousness was probably my substitute for actual confidence.
+- The cold grasp of corruption shackles the District of Columbia.

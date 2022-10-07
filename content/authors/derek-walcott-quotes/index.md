@@ -1,0 +1,125 @@
++++
+author = "Derek Walcott"
+title = "Derek Walcott Quotes"
+quotes_len = "119"
+description = "the best 119 Derek Walcott Quotes"
++++
+- My first book of poems was published privately in 1949. That was my mother. The book was '25 Poems.' It cost 200 dollars.
+- Modesty is not possible in performance in the Caribbean - and that's wonderful.
+- I don't believe that poetry is in danger because nobody wants to read it or appreciate it. There is a tremendous audience for it on any given day or night. You just have to know where to look.
+- I am primarily, absolutely a Caribbean writer.
+- When I went to college - when I read Shakespeare or Dickens or Scott - I just felt that, as a citizen of England, a British citizen, this was as much my heritage as any schoolboy's. That is one of the things the Empire taught, that apart from citizenship, the synonymous inheritance of the citizenship was the literature.
+- You would get some fantastic syntactical phenomena. You would hear people talking in Barbados in the exact melody as a minor character in Shakespeare. Because here you have a thing that was not immured and preserved and mummified, but a voluble language, very active, very swift, very sharp.
+- Poets are always making waves. I mean, you know, in an ideal situation, the ideal republic can't tolerate poets because - it isn't that they mutter and criticize; it is that the poet does not accept the situation called the 'perfect' condition of man - in other words, perfect in the materialistic sense.
+- The Caribbean is an immense ocean that just happens to have a few islands in it. The people have an immense respect for it, awe of it.
+- Look at Allen Ginsberg. In poems like 'Kaddish' and 'Howl,' you can hear a cantor between the lines. It's fully alive, and I think that's what's missing in modern poetry. It's too dry and cerebral.
+- The Caribbean is not an idyll, not to its natives. They draw their working strength from it organically, like trees, like the sea almond or the spice laurel of the heights.
+- I am not in England; I live in the Caribbean. So I am not hungover by prizes and awards because it does not happen very often.
+- My generation produced some terrific writers from all over, and the great thing about it is that they were all mixed in race.
+- Break a vase, and the love that reassembles the fragments is stronger than that love which took its symmetry for granted when it was whole.
+- The headmaster asked to read one of my poems at some celebration or other when I was about 10. When I look back, that is phenomenal encouragement.
+- What I described in 'Another Life' - about being on the hill and feeling the sort of dissolution that happened - is a frequent experience in a younger writer.
+- I go back to St. Lucia, and the exhilaration I feel is not simply the exhilaration of homecoming and of nostalgia. It is almost an irritation of feeling: 'Well, you never got it right. Now you have another chance. Maybe you can try and look harder.'
+- My dedication to trying to be a poet started very, very young, and I was very well encouraged by good teachers and by older friends and so on, so I think it is a benediction, and I also think it is a calling, a duty.
+- What was moving, I think, was the fact that the statue is a woman and not a heroic, manly figure. So for all her scale and immensity, there's something soft about the Statue of Liberty, something tender about her.
+- I am grateful, you know. I have to be grateful in the sense that I feel that what I have is a gift.
+- Miscegenation is not an idea that we would have in the Caribbean. It wouldn't come up because anybody could marry anybody, you know. I'm not saying that there aren't prejudices in the Caribbean, but the idea of the word 'miscegenation' is not something that we think of.
+- I have to live, socially, in an almost unfinished society. Among the almost great, among the almost true, among the almost honest. That allows me to describe the anguish.
+- I grew up in a place in which, if you learned poetry, you shouted it out. Boys would scream it out and perform it and do it and flourish it.
+- I'd rather have just one person who reads and feels my work deeply than hundreds of thousands who read it but don't really care about.
+- I think I would have been a totally different kind of writer if I'd gone to England. I might have developed a cynicism about my origins, a belittling of them, or an excessive nostalgia for them.
+- I have never separated the writing of poetry from prayer. I have grown up believing it is a vocation, a religious vocation.
+- Where I come from, we sing poetry.
+- If you know what you are going to write when you're writing a poem, it's going to be average.
+- I don't know what would have happened to me as a writer if I had gone to England and shaped my life out of England. Of course, I will never know, but I think I prefer what did happen.
+- The thing a writer has to avoid is being the 'voice' of his people and pretending he can speak for them.
+- The poet complains or points out the discontent that lies at the heart of man, the individual man, and how can that be redeemed?
+- The sigh of History rises over ruins, not over landscapes, and in the Antilles there are few ruins to sigh over, apart from the ruins of sugar estates and abandoned forts.
+- I always knew that was what I wanted to do - to write, particularly poetry.
+- I feel blessed that I was gifted.
+- Ted Hughes is dead. That's a fact, OK. Then there's something called the poetry of Ted Hughes. The poetry of Ted Hughes is more real, very soon, than the myth that Ted Hughes existed - because that can't be proven.
+- I knew very early what I wanted to do, and I considered myself lucky to know that's what I wanted, even in a place like Saint Lucia where there was no publishing house and no theatre.
+- I have never felt inhibited in trying to write as well as the greatest English poets.
+- Musical composition, about which I know little, is a complicated art, and some contemporary music may be the equivalent of a complex abstract painting.
+- I was writing from a very, very early age. My father used to write. He died early, and my mother was a schoolteacher, so my academic background from childhood is a strong one, a good one.
+- I don't feel I've arrived home until I get on the beach. All my life, the theater of the sea has been a very strong thing.
+- The myth of Naipaul... has long been a farce.
+- There is a force of exultation, a celebration of luck, when a writer finds himself a witness to the early morning of a culture that is defining itself, branch by branch, leaf by leaf, in that self-defining dawn, which is why, especially at the edge of the sea, it is good to make a ritual of the sunrise.
+- There are certain functions that a writer has to do. In a time of crisis, it is great to have heroic poems, as it was in the Irish Revolution. It's great to have great songs, because people need something to sing when they are marching. That's OK, but it should be on the side. It's not the ultimate thing.
+- Visual surprise is natural in the Caribbean; it comes with the landscape, and faced with its beauty, the sigh of History dissolves.
+- The older I get, the more aware I am of the banality and indifference of a place like Trinidad to any development of the arts.
+- Minor writers think style is all.
+- When you're young, influences count.
+- I think, at the heart of the idea of American democracy, there is something tender.
+- What makes a poem is the discipline inherent in making a poem: trying to fit feelings in the requisite number of syllables and lines, disciplining one's feelings.
+- We make too much of that long groan which underlines the past.
+- I don't want to write poems about the royal wedding. I would have to be moved by the event.
+- Individual writers have different postures, different stances, even different physical attitudes as they stand or sit over their blank paper, and in a sense, without doing it, they are crossing themselves; I mean, it's like the habit of Catholics going into water: you cross yourself before you go in.
+- I didn't pass the scholarship exam for Oxford because of poor mathematics.
+- There is a restless identity in the New World. The New World needs an identity without guilt or blame.
+- The greatest writers have been, at heart, parochial, provincial in their rootedness.
+- My mother, who is nearly ninety now, still talks continually about my father. All my life, I've been aware of her grief about his absence and her strong pride in his conduct.
+- My body's urge is to be in a pair of shorts, working and going down to the beach.
+- My mother was a schoolteacher and very, very encouraging. She understood what it meant when I said I wanted to be a writer; both me and my brother wrote.
+- That's another pompous expression that is out of fashion, to say that poetry is a gift. It sounds pompous because you say, 'Who gave you the gift, and what is this gift?' And the gift is where I am; the gift is what I have come out of, the people around me who, I think, are beautiful people.
+- The fate of poetry is to fall in love with the world.
+- I don't think poetry has a readership anywhere, really, that's that big.
+- Rhyme is an attempt to reassemble and reaffirm the possibility of paradise. There is a wholeness, a serenity, in sounds coupling to form a memory.
+- I'm from the island of St. Lucia in the Caribbean in the Lesser Antilles, the lower part of the archipelago, which is a bilingual island - French, Creole, and English - but my education is in English.
+- I made a vow that I wouldn't be tempted by what could happen to me if I went to Europe. I thought, 'You could be absorbed in it - it's so seductive, you might lose your own search for identity.' Then, when I did finally go to Europe, I was able to resist it because I had established my own identity.
+- I can't tear up a poem and be a sound bite for you. Why is that so hard for anyone to understand?
+- The history of the world - by which, of course, we mean Europe - is a record of intertribal lacerations, of ethnic cleansings.
+- In painting, you don't have to go through a process of opinion; it speaks directly, and either it works, or it doesn't.
+- My relationship to Britain is of no consequence.
+- I'm read in the Caribbean with justice, with fairness. What I expect it to do is to encourage articulacy in the young.
+- The English language is nobody's special property. It is the property of the imagination: it is the property of the language itself.
+- I can be upset by malice. Most critics are very poor poets. Poetry is a craft that takes a lot to appreciate, and there are some critics who have no ear for it. An irresponsible critic can do a lot of psychic damage, but eventually, they don't affect your work.
+- Anybody great, we're all interested in the relics. If you found an unfinished Gauguin, you'd still want to see it.
+- Creating a poem is a continual process of re-creating your ignorance, in the sense of not knowing what's coming next.
+- My delight in things is definitely Caribbean. It has to do with landscape and food. The fact that my language may have a metrical direction is because that's the shape of the language. I didn't make that shape.
+- My mother hid the struggle from us children. She complained about her salary, and she had a tough time. Although she became a headmistress, she still had to do a lot of sewing. The more I think about her, the more remarkable I realise she was. And she understood straight away when I said that I wanted to write.
+- A fisherman, say, working on a beach doing his job, may be photographed by a tourist because it's photogenic to see him working, and the Caribbean is extremely photogenic, so poverty is photogenic, and a lot of people are photographed in their poverty, and sometimes it's kind of exploited.
+- Sometimes what we call tragedy, at least in the theater, are really case histories. They're based on the central figure, and things happen to that person, and they're called tragedy because they're extremely sad. But tragedy always has a glorious thing happen at the end of it. That's what the catharsis is.
+- I come from a place that likes grandeur; it likes large gestures. It is not inhibited by flourish. It is a rhetorical society. It is a society of physical performance. It is a society of style.
+- For so long, the world has viewed West Indian culture as semiliterate and backward, which it is not. In my work, I have tried to give that world an exposure so the world can better understand it.
+- Our artists and writers should not be forced like soldiers to die on foreign soil or to return wounded and crawl famously into a hole.
+- Any serious attempt to try to do something worthwhile is ritualistic.
+- How does a poet teach himself or herself? I think chiefly by imitation, chiefly by practising it as a deliberate technical exercise often. Translation, imitation, those were my methods anyway.
+- I don't feel like a celebrity. Poetry justifies celebrity. It's good to have respect for a poet.
+- The Chinese, the African, and the European - they are all there. So the division of the Caribbean experience into being emphatically only African is absurd.
+- There's a ritualistic element to tragedy that everyone shares; there's something curiously glorious in terms of the most horrible kind of events that happen.
+- I hate all that nonsense about not touching the colonialists' language. All that about it being corrupting and belonging to the master and making you Caliban. That thinking just denies you an outlet. You deny everything that is great from a language, whether it is Conrad or Shakespeare.
+- The country that I was coming from, the island I was in, hadn't been written about, really. So I thought that I virtually had it all to myself, including the language that was spoken there, which was a French Creole, and a landscape that is not recorded, really, and the people.
+- My family background really only consists of my mother. She was a widow. My father died quite young; he must have been thirty-one. Then there was my twin brother and my sister. We had two aunts as well, my father's sisters. But the immediate family consisted of my mother, my brother, my sister, and me.
+- I think young writers ought to be heretical.
+- What is taught in schools generally in the West Indies is that if something is your thing, it's better than anybody else's because it's yours. It's extremely provincial and also damaging. You prevent people from learning things. The biggest absurdity would be, 'Don't read Shakespeare because he was white.'
+- I am only one-eighth the writer I might have been had I contained all the fragmented languages of Trinidad.
+- All of the Antilles, every island, is an effort of memory: every mind, every racial biography culminating in amnesia and fog. Pieces of sunlight through the fog and sudden rainbows, arcs-en-ciel. That is the effort, the labour of the Antillean imagination, rebuilding its gods from bamboo frames, phrase by phrase.
+- The painter I really thought I could learn from was Cezanne - some sort of resemblance to oranges and greens and browns of the dry season in St. Lucia.
+- I have no curiosity. I'm an island boy.
+- When a child's mind develops and is heading in a certain direction, we murder that mentality, we murder that imagination, by saying, 'Now, that is all well and good, but now sit down and start to study.'
+- The number of people who read a poem is not as important as how the poem affects those who read it.
+- You can't read to yourself. It's your inner ear that hears a poem. If you hear a poet read his own work, it becomes very exciting. The melody is a great part of it.
+- A noun is not a name you give something. It is something you watch becoming itself, and you have to have the patience to find out what it is.
+- After a while, when the writer is mature, it doesn't really matter - not because of finances but because of reputation. It doesn't really matter how many awards you get.
+- This is Port of Spain to me, a city ideal in its commercial and human proportions, where a citizen is a walker and not a pedestrian, and this is how Athens may have been before it became a cultural echo.
+- I am not defined as a black writer in the Caribbean, but as soon as I go to America or the U.K., my place becomes black theatre. It's a little ridiculous.
+- The discontent that lies in the human condition is not satisfied simply by material things.
+- If music goes out of language, then you are in bad trouble.
+- I consider the sound of the sea to be part of my body.
+- There are some things people avoid saying in interviews because they sound pompous or sentimental or too mystical.
+- I don't think there is any such thing as a black writer or a white writer. Ultimately, there is someone whom one reads.
+- I write plays and poetry at the same time, and I'm always refining, but I'm not obsessive about it. It's what I like to do, what I've always wanted to do.
+- Because that is what such a city is, in the New World, a writer's heaven.
+- When I come to England, I don't claim England; I don't own it. I feel a great kinship because of the literature and the landscape. I have great affection for Edward Thomas and Philip Larkin, but there's still this distance: looking on at what I'm admiring, separate from what I am. And that's OK.
+- Memory that yearns to join the centre, a limb remembering the body from which it has been severed, like those bamboo thighs of the god.
+- There is no one more deserving of a place in Poets' Corner. Ted Hughes introduced a new kind of landscape into English poetry. The most compelling aspect of his work was his intimacy with nature.
+- Like any art, what is the most imprisoning thing is also the most delivering thing. If an actor knows he only has 12 syllables in a line, the challenge is, 'How can I interpret the meaning and contain it without going one syllable over?'
+- The personal vocabulary, the individual melody whose metre is one's biography, joins in that sound, with any luck, and the body moves like a walking, a waking island.
+- A culture, we all know, is made by its cities.
+- If you talk about language in the Caribbean, you must relate it to history.
+- My mother taught Shakespeare and used to act.
+- As much as I like teaching and students, it's a kind of rigor, a discipline, that's against my body.
+- A long time ago, I thought, as a writer in the Caribbean, 'I don't ever want to have to write 'It was great in Paris.'' Because I don't think, proportionately speaking, that one's experience in a city as opposed to, say, a village in St. Lucia, is superior to the other.
+- I always have difficulty with the Greek tragic plays. I think the difficulty one has - which is a serious problem - is the question of belief. Do you believe in the myth that the play expresses? Do you believe in it as myth or as reality? With any play, you have to believe in it as reality. You can't act a myth.
+- There's always a need at a critical time for poetry.

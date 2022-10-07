@@ -1,0 +1,60 @@
++++
+author = "Eileen Myles"
+title = "Eileen Myles Quotes"
+quotes_len = "54"
+description = "the best 54 Eileen Myles Quotes"
++++
+- Weirdly, the past starts to be about something else. It becomes about style in a way that it wasn't about, and I don't mean writing style, but cultural style.
+- Older men get lovable, and older women get monstrous.
+- As things get worse, poetry gets better because it becomes more necessary.
+- The most exciting thing is to read a poem out loud for the first time.
+- I've grown to love Barack Obama. Hillary is no Bernie Sanders. But she's a politician, and she understands Congress. And I think with that kind of twisted beauty, she could lead our country.
+- Who doesn't want to be famous? I am famous. I'm dying to be on TV.
+- When we have relationships with animals, we often make up who they are.
+- Fred Moten is a poet I really love because he changes who is telling the poem all the time.
+- In my family, I'm the middle of three, and I'm like a lot of middle children. I was one of those kids that floated from group to group. I liked being able to be included in all the groups - the bad kids, the smart kids.
+- Literature is love. I think it went like this: drawings in the cave, sounds in the cave, songs in the cave, songs about us. Later, stories about us.
+- A vote should be generative, not like business as usual, which is what voting feels like for most of us.
+- The first time I voted, I voted for Eugene McCarthy and I knew he wouldn't win, but it felt so great to vote for him, to vote for the right guy - the one who wanted peace.
+- I've had a lifelong waiting-for-the-other-shoe-to-drop feeling when something good happens.
+- The only job that ever really worked for me was teaching because you are your own master once you get into the room. You just have to show up on time and talk about what you care about.
+- Somehow, the whole idea of me writing art reviews was just too much of a complicated thought, but I liked art, and later on I just realized that it would be perhaps a pleasure, and so I decided to do it for 'Art in America' - a lot.
+- I made myself into a poet because it was the first thing I really loved. It was an act of will.
+- I always aimed at being a legend.
+- If you have a dog, and you're a person whose moods are constantly changing, there's a moment when you look at the dog, and you feel bad for them because they're attached to you, and so it's funny for the dog to vocalize those things in some ways.
+- If I had been a good student and an achiever, I might have been excited by a more systematic approach to writing than what I do.
+- Certainly in the arts, in all genres, I think that men should step away. I think men should stop writing books. I think men should stop making movies or television. Say, for 50 to 100 years.
+- I started writing poems, and when I first tried prose, I wrote bad articles and essays and columns, and I didn't have a handle on it. I didn't go to a school that really taught you how to write that stuff.
+- I wasn't afraid of being poor. I didn't want to live in a big house. I'm the perfect size for poetry. I can move around.
+- In Arlington, people would laugh at you if you tried to get people to look at your drawings or listen to your poetry. It was like you thought you were special.
+- I didn't know how to write a novel, so I sort of let it happen in waves. The only way I could write it was to think like scenes in a movie.
+- Poetry from the bottom up is an act of selection: you kind of feel your way through the crowds of poems. The good ones came forward a long time ago, and the bad ones fell away.
+- The thing about not being historically a mainstream writer is that everyone feels like you're theirs: you're their friend.
+- The poet is like the earth's shadow. The sun moves, and the poet writes something down.
+- Having big audiences when you're on a book tour is like Valhalla if you're a person who used to sell Girl Scout cookies on the side. Because you want to give the reading that will sell the most books.
+- I really just love reading. It's my favorite thing, performing my poems live. Reading by reading, I just kind of follow my nose.
+- I thought 'Chelsea Girls' was going to change my life.
+- Everybody loved me running for president in '91 and '92 because they never knew a presidential candidate before.
+- When I'm writing the poem, I feel like I have to close my eyes. I don't mean literally, but you invite a kind of blindness, and that's the birth of the poem.
+- Evolution is not an even process. There are surges, and there are micromoments. Certainly a career as an artist is that way.
+- Living in literature and love is the best thing there is. You're always home.
+- If the poetry world celebrate its female stars at the true level of their productivity and influence, poetry would wind up being a largely female world, and the men would leave.
+- When somebody's in love with you, they think it's amazing you've written them a poem, and when they don't love you anymore, they hate those poems. They wish those poems would go away.
+- I'd like to sit down with Hillary Clinton onstage and ask her about Glass Steagall and all the big banks and her own campaign contributions.
+- I'm the weird poet who has paid her dues in the experimental world for 30 or 40 years.
+- Sunday is a likely day to write a poem. Because poetry is a piece of language flying around: you'll find notebooks, something on your phone. It's about finding them and getting them off that crumpled piece of paper and onto my computer.
+- I'm not against wealth; I just think everybody should have it, same as health.
+- As a human being, I'm kind of a cheery melancholic. I have energy; I'm happy.
+- I wake up with a sense of wonder. I don't dread the future. I like it.
+- I tend to view my life as an accident, almost as a dream.
+- It's a big statement if you use the word 'America' in the title of your poem.
+- Dogs are a companion species. It's about time - you have an animal for about 15, 16 years, a generation. That time holds so much. You might have had five or six relationships with human beings but one dog.
+- With Instagram, you're captioning a moment. Twitter is the caption without the image. Even if it's there, the words come first.
+- I'm using my degree. You know, I studied English and American literature in college, and now I'm an American poet.
+- I love Canada, and I dated someone who was Canadian a few years ago, and she brought me into a deeper understanding of the greatness of the culture.
+- Lyndon Johnson, I know for a fact, was a great president. And I don't mean by that he was a great man.
+- Poetry always, always, always is a key piece of democracy.
+- To be a poet, it's a challenge to do it in poverty, to do it in wealth. To do it in the academy, to do it in a relationship where you're happy. Everything changes the game. To do it in the awkward state of love, despair, dying. You just have to work it.
+- I was like the family clown. The middle child entertaining. I was a lousy student, but interestingly, the nuns always let me write plays or do drawings, endless special projects.
+- I'm proud that I've never stopped writing about being poor.
+- Poetry and novels are lists of our devotions. We love the feel of making the marks as the feelings are rising and falling.

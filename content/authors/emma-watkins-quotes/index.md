@@ -1,0 +1,27 @@
++++
+author = "Emma Watkins"
+title = "Emma Watkins Quotes"
+quotes_len = "21"
+description = "the best 21 Emma Watkins Quotes"
++++
+- I'm part of the original Wiggle fan generation. When I was 6 or 7, I went to one of their concerts with my sister, and we were filmed dancing in the aisle. And now I'm a Wiggle!
+- The children are watching us, and they're jumping and singing and bouncing, and essentially wiggling around. Some of the parents do watch us, but most of the parents literally just watch their children for the entire show because they're so excited that they're enjoying themselves.
+- And I would like to be a sign-language interpreter if I wasn't a Wiggle.
+- I see the other Wiggles more than I see my own family. I've learnt to be more tolerant with them, even though I'm constantly trying to organise them.
+- You do the shows, you get on the bus, you go to sleep, you wake up and you're in a different place, and then you do it all again.
+- Children love consistency... they love knowing what's going to happen.
+- I'm mainly a dancer, but I've been offered to write songs on albums this year, and that's really cool. I never thought I'd get to do that. It's out of my comfort zone, but I loved having that input. It makes you feel more involved, when you have that creative control.
+- A lot of children's entertainment is animated, and I guess the beauty of The Wiggles is that we're still real people... You're able to be predominantly yourself. I think that's why children relate.
+- I started as a fairy on the 'Dorothy the Dinosaur Show.' That was mainly just a national tour that featured Dorothy the Dinosaur.
+- When I was asked to be a Wiggle I was asked what I wanted to wear. I really wanted to wear a bow, I always wear bows in everyday life.
+- All of the original Wiggles were boys, but the girls sure loved them. In a preliteral age before 3, children don't necessarily know it's boys or girls on stage, but we tend to stereotype.
+- I love children's entertainment. I always have... I'm just lucky enjoying travelling the world doing what I love. It's not really a job. It becomes your life.
+- The greatest thing about the Wiggles, and how they started, was they had that great background of early childhood development and that's what they were studying at the university at the time.
+- Even when I was working for the company as a dancer, I didn't think it was even going to be a feature in the future at all. The Wiggles had understudies in case there were family issues, but it was never a thing.
+- My grandfather's name is Victor but I've always called him Poppy George - I have no idea why! He loved racing Renault rally cars and passed that passion on to my father, Richard.
+- I'm 27, the Wiggles as a group is 26, so I've watched them forever. The Wiggles are like the brothers I never had.
+- We don't ever get bored of what we're doing because every day is something different.
+- Dad is a really sound thinker and an accountant by day. I don't know anybody more sensible. But when he comes to see the Wiggles, he turns up in a big 'Emma' T-shirt and a yellow cap with a bow on it.
+- My school uniform in primary school was yellow, North Ryde Public School. When I did ballet, you wear a particular ribbon depending on your height and I was always yellow.
+- We do ballet dancing, Irish dancing, Scottish, jazz, tap - whatever country we're in or whatever culture that we'd like to present to the children.
+- Well, it's quite strange because there are three new Wiggles - Simon the red wiggle, Lachlan the purple wiggle and myself. We were already in the company doing different roles. Like, I was the fairy, the ballerina, and that kind of thing originally, and then I played Dorothy the Dinosaur and I was a Wiggles dancer.

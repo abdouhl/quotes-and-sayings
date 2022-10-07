@@ -1,0 +1,72 @@
++++
+author = "Elayne Boosler"
+title = "Elayne Boosler Quotes"
+quotes_len = "66"
+description = "the best 66 Elayne Boosler Quotes"
++++
+- My family was totally non-religious. There was no question we were Jewish, but we were not observant.
+- You never see a man walking down the street with a woman who has a little potbelly and a bald spot.
+- For me, comedy is a day-to-day report on the human condition. It's what's happening right now. I get maybe 20 minutes of my act straight from the newspaper.
+- I like to go after the foibles, basically of beliefs that are held without question. If people still want to believe in their stuff after that, that's great - as long as they just have a chance to step back and look at it for a second. Sometimes, you don't even realize what you've been thinking for 20 years.
+- I've never been married, but I tell people I'm divorced so they won't think something is wrong with me.
+- I personally cannot tell you how many times we rescuers put our names on animals to come to us as soon as they are eligible for release, only to find they have been senselessly killed by overzealous pound workers.
+- I'm pretty equal opportunity when it comes to issues to joke about.
+- Here is what is needed for Occupy Wall Street to become a force for change: a clear, and clearly expressed, objective. Or two.
+- I have always put my own money into Tails of Joy. For years, every time a dog walked by, my husband would say, 'There goes our beach house.'
+- When women are depressed, they eat or go shopping. Men invade another country. It's a whole different way of thinking.
+- Designers don't put out the same sweater every year. They just keep creating.
+- I just get the feeling that if Jesse Helms was in charge of art in America, you'd go into a museum and see nothing but prints of dogs playing cards.
+- Sometimes, if you really don't know how you feel about a topic, reading how both sides argue it can help.
+- Guys wake up at your place and they expect breakfast. They don't eat bagels and M&M's in the morning. They want things like toast. I say, 'I don't have these recipes.'
+- I am thankful that all the people in the world who absolutely, positively, know what God wants, usually kill mostly each other.
+- Wouldn't it be great if you could only get AIDS by giving money to television preachers?
+- I never minded flying cheap. I always said to myself, 'Taking this flight saves enough money to rescue four dogs, or six cats, or will let me make a difference to the one woman saving chimps in Cameroon.'
+- When the sun comes up, I have morals again.
+- We've seen the uproars around the world concerning cartoons depicting the prophet Mohammad. Anyone who does not think comic strips are relevant never had a fatwa put on him/her for drawing a picture.
+- I guess in general, people tend to not eat the cute animals.
+- I've never been able to write for stand-up.
+- Horse racing is waning in popularity.
+- Calgary wins for my coldest New Year's Eve gig. That's when I learned Fahrenheit and Celsius cross at 40 below. I could see callers' breath coming out of my phone.
+- I've thought for the last decade or so, the only actual place raw truth was seeping through in newspapers was on the Comics Pages. They were able to pull off intelligent social comment, pure truths not found elsewhere in the news pages, and had the ability to make it all funny, entertaining, and pertinent.
+- Why isn't the movie industry forced to open its shooting locations to an organization that is there to advocate for animal actors? The industry isn't allowed to pick and choose which movies using young children it will or won't allow to be monitored. The vulnerable should be protected.
+- I love being down at Occupy Wall Street. The sincerity, the youth involvement, the desire for better, is palpable and moving. There is true caring, sharing, and refreshingly naive hope.
+- It doesn't bother me that I'm not a household word on the East Coast. Baton Rouge, Raleigh, Minneapolis - I'm so popular in these cities where you've never imagined an East Coast comedian working.
+- I can't get married. I can't fake sleep for 30 years.
+- I always had a running commentary in my head that was extremely funny and off-center, but I never said it to anyone.
+- Stand-up is like a movie every night. You write it, direct it, produce it, the audience votes, and you go home. There's nothing more satisfying.
+- Pigs are smarter than dogs, and both are smarter than Congress.
+- I deliver very traditionally, and people aren't threatened. I think if I cursed or seemed wilder, I couldn't get away with the amount of very opinionated politics I get away with.
+- I am thankful I was born in America, although if I gain any more weight the burqa thing may start to seem like a good idea to me. See? Another plus about America, you can always find some food.
+- My ancestors wandered lost in the wilderness for forty years because even in biblical times, men would not stop to ask for directions.
+- A study last year showed that the page you turn to first in the newspaper can be a predictor of how long you will live. No surprise, turning first to the Comics Pages prolongs your life.
+- I wasn't funny as a kid. I remember enjoying comedians, but I never understood it was a job choice or a profession.
+- I am thankful that geniuses and artists and good people, no matter how hard it is, will eventually be recognized. I am doubly thankful that also goes for idiots.
+- There are many comedians who are afraid to work outside the coasts and the casinos because they're afraid they'll bomb.
+- I pray if I ever find out I have only about three minutes to live it's during a basketball game, because then I'll have, what, 10, 12 years to live?
+- I have no complaints about losing money I put in high-risk investments. I did some of that when I had real money; my informed choice, my measured gamble.
+- Incredibly, almost every hotel I ever played in Vegas was blown up shortly afterward: The Dunes, The Sands, The Landmark, The Aladdin, The Frontier, The Hacienda, The Stardust - all were imploded.
+- I don't categorize myself. I don't think I'm perceived as a female act by my audience. My fans include just as many men as women.
+- When I played the Sahara Hotel in Las Vegas on New Year's Eve, I got to bring Wiley, my 85-pound black lab. He's responsible for my favorite New Year's memory of all: At the end of the show, he ran onstage and then out across all the tables in the showroom, sending champagne glasses and gamblers flying.
+- I run everywhere and eavesdrop. It's the best way to see a city.
+- My breakup with AT&T is final, and I'm done with Skype as the rebound guy.
+- When I was growing up in comedy, there were maybe 10 comics in the whole country. Everyone had a day job. You worked free for years in little clubs, then you got your big break and became a star.
+- Now that the Court has declared money to be speech, I say we replace the current Court with some Ben Franklins, Thomas Jeffersons, George Washingtons, a couple of Susan B. Anthony's, Roosevelts, Hamiltons, a Sacajawea or two, and an Abe Lincoln to cover Scalia in full.
+- As a standup comedian, I've worked almost every New Year's Eve of my adult life. It's the best-paying night of the year.
+- The Vatican is against surrogate mothers. Good thing they didn't have that rule when Jesus was born.
+- I know what men want. Men want to be really, really close to someone who will leave them alone.
+- Ever notice that Soup for One is eight aisles away from Party Mix?
+- To listen to your own silence is the key to comedy.
+- San Francisco is really fun and liberal, and it's my kind of politics. It's like being Jewish in front of Jewish people.
+- I have six locks on my door all in a row. When I go out, I lock every other one. I figure no matter how long somebody stands there picking the locks, they are always locking three.
+- While editors and newspaper owners currently fret over shrinking readership and lost profits, they do the one thing that insures cutting their own throats; they keep reducing space for the one feature that attracts new young readers in the first place; the comic strips.
+- We have wild animals in zoos, yet people rarely meet their 'food' face to face.
+- I think about death. I don't want to die with clothes in the cleaners.
+- I'd much rather see Richard Pryor or Jackie Mason in a theater than in a club.
+- I'm just a person trapped inside a woman's body.
+- My fashion philosophy is, if you're not covered in dog hair, your life is empty.
+- I am thankful the most important key in history was invented. It's not the key to your house, your car, your boat, your safety deposit box, your bike lock or your private community. It's the key to order, sanity, and peace of mind. The key is 'Delete.'
+- The message of great art is to disturb.
+- My belief is that guns are too easy to get in America. My belief is that the NRA has bought much of our congress, to the point that guns are actually the only unregulated consumer product in America. Think about that. It's stunning.
+- Wouldn't it be great to see a line in all movie credits that truthfully says, 'Nobody was harmed in the making of this film, and at the cast party, all animals got a belly belly belly rub.'
+- Turkeys know their names, come when you call, and are totally affectionate. They're better than teenagers.
+- You know, if you need 100 rounds to kill a deer, maybe hunting isn't your sport.

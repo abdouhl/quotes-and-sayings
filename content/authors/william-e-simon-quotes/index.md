@@ -1,0 +1,31 @@
++++
+author = "William E. Simon"
+title = "William E. Simon Quotes"
+quotes_len = "25"
+description = "the best 25 William E. Simon Quotes"
++++
+- Pop taught me respect for my fellow man and reverence for my God. He taught me the importance of family and religion.
+- The nation should have a tax system that looks like someone designed it on purpose.
+- Everybody in this society that has been lurching toward socialism and collectivism for 40 years has their hand out. And the propensity of Congress is to spend, spend, elect, elect. That hasn't changed, and it isn't going to change for a long time.
+- Trading demands total concentration and the ability to do several things at once while instantly recalling trading prices from the day, or week, before.
+- We only have politicians who are concerned with being reelected.
+- The American citizen must be made aware that today a relatively small group of people is proclaiming its purposes to be the will of the People. That elitist approach to government must be repudiated.
+- It is essential that the young people of this country learn to respect the right of every man and woman to seek his or her happiness with minimal interference from the government.
+- Productivity and the growth of productivity must be the first economic consideration at all times, not the last. That is the source of technological innovation, jobs, and wealth.
+- The very nature of the government, and the direction it's been heading in for the past 40 years, is one of contrived government solutions to all the problems in the United States.
+- Disagreement on issues doesn't mean 'dissension.' All it means is that honest men can differ in their approach. You lay out your positions, and president makes a decision.
+- I continue to believe that the American people have a love-hate relationship with inflation. They hate inflation but love everything that causes it.
+- Writing checks for charities is necessary and important. But it can't compare with corporal works of mercy, which are infinitely greater.
+- A tax cut would most certainly be my first choice rather than an increase in federal spending. Those who advocate that fail to see that spending not only continues in subsequent years, but it grows and grows.
+- By the mid-1950s, the young bond traders on the Street were becoming more and more of a fraternity. We organized informal luncheons every Thursday in an effort to educate financial writers, who knew next to nothing about municipal bonds.
+- Work appealed to me; school did not. I was a disinterested, bored student.
+- Infinitely more important than sharing one's material wealth is sharing the wealth of ourselves - our time and energy, our passion and commitment, and, above all, our love.
+- While Pop lived his life in comfort, he was always generous to the less fortunate.
+- Bad politicians are sent to Washington by good people who don't vote.
+- Dad was high society, a big man in town, a 'Who's Who' in New jersey.
+- I found that I not only tolerated taking risks, I loved it.
+- For the U.S., the primary interest is our continued access to Saudi Arabian oil in adequate quantities... at an acceptable political as well as economic price.
+- I sometimes think that the only person fit to inherit wealth is the person who doesn't need an inheritance - the person who would create his own fortune no matter what his start in life - and have come to view inherited wealth as an affliction.
+- There is only one social system that reflects the sovereignty of the individual: the free-market, or capitalist, system.
+- At Union Securities, I threw myself into my work with the discipline and commitment that I had always demonstrated in employment and only rarely displayed in school. Years later, I would come to appreciate, abstractly, the importance of productive activity to the mind and soul of both an individual and a nation.
+- My father's card-playing buddies treated me as a plain, ordinary, commonplace kid destined for mediocrity - or less. I suppose they expected that I would spend my life as a clerk of some sort.

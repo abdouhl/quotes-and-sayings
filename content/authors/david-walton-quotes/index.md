@@ -1,0 +1,70 @@
++++
+author = "David Walton"
+title = "David Walton Quotes"
+quotes_len = "64"
+description = "the best 64 David Walton Quotes"
++++
+- At one point, I was seriously considering playing Huck Finn in a production in Northern Maine in the dead of winter.
+- It's funny how when your kids get sick, they get even cuter when they have a stuffed nose and they mouth breathe.
+- When a character does something appalling but you still want to root for them, I find that the most exciting challenge to play, if you can pull it off. You're not supposed to like it, but you can't help it.
+- My wife likes the hockey smell because it's the smell of a warrior.
+- It's so hard to make a comedy pilot and have a cool idea.
+- When I watch a comedy that's just hitting you over the head with jokes constantly, some really hit, but if they miss, you're like, 'Eh.'
+- I think people always respond to real moments.
+- I'd play the same character for ten years if the words and the moments that I'm playing are authentic.
+- Hockey on roller skates is like MMA in a bounce house: the elements are there, but the medium makes the whole thing ridiculous.
+- From the age of 4 or 5, I loved to make people laugh.
+- In TV, you may think your character's one thing for two episodes, and then the third episode it could be something different.
+- The idea of doing a tennis movie is truly unbelievable to me. Well, first of all, they don't really exist.
+- I'm trying to think how I impressed my wife. We had an on-stage kiss, and I really went for it. Because I liked her. Usually you can get away with it being just technical, but it was a problem when I ended up kissing my wife on the set. I'd say I stopped acting and kissed her on set.
+- My first series, I wouldn't even know where to get a clip of it. It was called 'Cracking Up.' It was on 'FOX' in 2004.
+- If you do good work, you start to make a name for yourself and things can come around. Weird little happenstances happen.
+- I grew up around a lot of feminine energy.
+- Once I started working as a professional actor, it was like, 'Bye-bye waiting tables, bye-bye bartending, bye-bye all the cliched jobs actors do.' But after a year of not getting work, there's this really difficult conflict, like, 'Do I have to go back to being a waiter when people recognize me from a show?'
+- In this fragmented world, with such short attention spans, you've got a couple of episodes to make an impression. And if you don't, you start to lose your audience in a big way.
+- Boston is so laced with jerseys that you can be dressed head to toe in team apparel and no one will look twice.
+- It's always the most fun to play that guy who, like, doesn't have a filter - that really speaks exactly what they're feeling.
+- I have straight married friends that other friends think are gay, and I have gay friends who don't throw that vibe at all. I know there's a full range out there, but I feel that gay men who aren't flamboyant are underrepresented on-screen.
+- I love being around cool, fun guys, so I've always enjoyed talking to gay men. Maybe it's because I'm an inherent flirt, but it just feels very natural.
+- I love Boston, and at some point, my plan is to have a home back there.
+- Chemistry's a funny thing. It can be instantaneous, but it helps when you know someone.
+- Jason Katims creates truly relatable three-dimensional people you fall in love with right away. Jason always puts a lot of heart into what he does. He has a way of touching your emotional core in a life-affirming way. And he's a great show runner.
+- Boston has a lot of European qualities to it, and one of them is the charm of its above-ground trollies.
+- I played the guitar in ninth grade. My sister's friend went on a semester abroad, and she left the guitar at our house for nine months.
+- I have a psychology degree, but I was a real theater rat.
+- I think what's most fun is playing someone who's sort of selfish and in a lot of ways unlikeable, but there's this really big heart underneath it that you get little glimpses of.
+- Being on stage was all about the palpable energy of a rapt audience hopefully buying into a life onstage. The immediate connection with the audience was the best part for me. The camera is not as fun, but your work is preserved forever. There's immortality to it.
+- I lived in Koreatown for five years, and I lived blocks away from about seven karaoke bars.
+- I think me having kids is helpful. It opens up a new little area of your heart.
+- Everybody claims they have relatable, connectable characters, but those claims often aren't true.
+- It's just nice to be employed.
+- People only see you as your last role, so it's hard to break out of that.
+- My wife is a very talented singer. She sang a lot on 'Roswell,' and I am embarrassed to sing around her.
+- I always try to be cautiously optimistic.
+- That's what I like about acting. You don't know where you'll be in year.
+- There are a lot of techniques for developing a character.
+- I kind of go where the wind blows, and TV has just been how I make a living so far.
+- I love Jim and Pam at 'The Office.'
+- I like to think everyone is pretty weird but they don't show it.
+- Sports movies are a genre that I really respond to, but they can be done really poorly and really fall short. The good ones are just so good and inspiring and make you feel good.
+- If you don't know how to play hockey, learn. If you quit, get back out there.
+- I graduated from Brown in 2001, moved to New York, and spent a year and a half just looking up 'Backstage' magazine auditions and grinding.
+- I think a lot of guys you see - there seems to be this thing where you can have all the fun in the world, but in the end of the day, there's no one to share it with.
+- I definitely had a wild phase.
+- I've always felt like I've been in good shows.
+- Teasing was big in my family, and there is a wonderful way to tease and make people feel more loved.
+- The first movie that made me cry was 'Dead Poets Society.' That one gets me. 'O Captain! My Captain!' That moment kills me.
+- I love tennis. I've played it my whole life. Loved it since the age of three. I had an injury, so from the age of 13 to 24 I didn't play much. Then when I moved out to L.A., there were so many tennis courts that I rekindled the love.
+- Just because you get a show and it gets on the air doesn't mean jack. It certainly means that you'll be considered for stuff, but you've got to fight and claw to get every job.
+- I've been in a talent show, yeah. They are terrifying. The most nerve-wracking experience of your life, I'd say.
+- With a lot of comedies, the characters go on a journey, and they come back, and they're the exact same people.
+- I actively avoided responsibility for as long as I possibly could.
+- To be perfectly honest, I've gotten attention from gay men for a long time.
+- Everyone can write jokes and makes things clever.
+- I had no idea how to make it as an actor. But I knew I wanted to.
+- I am not a man in decent shape.
+- The first season of a show is kind of like an extended pilot. You're only really on the map if it goes a second season.
+- My family took me to church when I was like 4 years old, and I had to be in a pageant, and I was playing Jesus.
+- Public perception is obviously important to an actor's career.
+- I'm not jaded yet. I'm still at the point where, if someone comes up to me with great energy, I'm happy to meet them.
+- There's a lot of young actors and people who have success very quickly who kind of expect it or don't have the experience to really appreciate it.

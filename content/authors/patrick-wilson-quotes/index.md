@@ -1,0 +1,48 @@
++++
+author = "Patrick Wilson"
+title = "Patrick Wilson Quotes"
+quotes_len = "42"
+description = "the best 42 Patrick Wilson Quotes"
++++
+- I am fascinated with religion or things that people believe in and question that. I think it's interesting.
+- Musical theater is one of my passions.
+- I grew up in the South and went to church a lot.
+- For me, I always have to establish a reality for the character. In very actor-y terms, you just have to understand his reality.
+- With actors like Steve McQueen, Paul Newman and Harrison Ford, what made them such icons is that even in dramatic movies, their characters had a sense of humor.
+- My father is an anchor and my brother is as well.
+- In a normal movie, you'd never see one guy talk for an entire page, whether good or bad.
+- I think your teenage years define your musical roots forever. You're always looking for a theme for your high school years.
+- The great thing about doing theater is that you get to do it better the next night.
+- I love making movies, but there's nothing like being in front of an audience.
+- I love acting.
+- If you look back on the breakups that you've had, whether it's a long relationship or a one-night stand, it's always awkward.
+- I try to do as many different roles as the system will allow me. That's the benefit of not being in a giant blockbuster where you're the lead and you get typecast in that kind of role. I am able to slip in or out of a lot of different parts.
+- If somebody wants to go to church because they like the ritual of it and want to sit in silence for a while one time a week, then that's great. If someone wants to go because they believe that God them and Jesus rose after three days, then that's great, too.
+- If I ever get looks on the street, which, for the record, is almost never, it's rarely because they think I'm someone they saw in a movie. More often someone sees me and thinks, 'Hey, was that guy my waiter the other night?'
+- Yeah, I'm a spiritual person.
+- Emasculation does seem to be a theme in the roles that I choose.
+- There's just a natural instinct to want to be great, I think.
+- Nobody ever wants to really make someone feel bad.
+- It's very hard to maintain focus in the gym.
+- When I look at a character, whether he's good or bad, one scene or 10 scenes, I just have to find my way in.
+- There's such an immediate intimacy with film that you just don't get in theater.
+- You're defined by your older brothers' or sisters' music.
+- I'm an actor who wants to do great parts, and I've been very fortunate, for a long time, to get meaty roles, and sometimes some of them are meatier than others.
+- I don't like being lied to.
+- The way you deal with a scare is the way you deal with a laugh. The timing has to be perfect. When you're dealing with fear or laughter - emotions that happen spontaneously - you hope it's working. But in the moment, you really have no idea.
+- A heroic nature is very Greek.
+- There are a lot of Christian fundamentalists; there are a lot of Muslim extremists. Every religion - Mormonism - has something way on the side that's completely using the religion as some weird backbone for their twisted faith. It has nothing to do with their religion.
+- The thing about abs is if you hit them daily, you feel more put-together.
+- I don't know if I have any feelings about psychics. I never really met any.
+- I love to go to casinos with my wife. I play poker, and she's an old-fashioned slot queen. She even has a visor.
+- You know when you see those guys and their sideburns are just a little too high? You don't need to have sideburns, but don't have to have them right above the ear. I knew a guy that did that in high school and I was like, 'What are you doing? Just let them down a little.'
+- If I'm not going to get a part, tell me why.
+- I like it when my wife is in her jeans, with very little makeup. But, I also appreciate the range - the different ways she can look. The moment she walks out all dressed up and... whoa! That's always good.
+- For everybody that does something bad there's gotta be someone that does something good.
+- When you're playing the good guy, you want to find the dirty parts - and when you're playing the bad guy, you want to find the vulnerability.
+- I just don't watch a lot of TV.
+- I'm an early-morning owl.
+- I am an avid runner, mainly on weekends.
+- I was convinced in middle school that I invented tight-rolling your pants, because I would get hand-me-downs from my brothers, and of course they were bell-bottoms from the '70s. So I would fold and fold over the bells. I like to think I started the trend. But I didn't.
+- You don't ever see a thriller with a spiritual backbone.
+- I try to shave at night so my skin has a chance to settle by the early morning call-time.

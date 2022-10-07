@@ -1,0 +1,106 @@
++++
+author = "David Jason"
+title = "David Jason Quotes"
+quotes_len = "100"
+description = "the best 100 David Jason Quotes"
++++
+- I was not driven by fame and fortune.
+- When I was a lad, my parents and all their equivalents never lusted after other people's riches or success.
+- Miley Cyrus epitomises what we have allowed. She has done it to break the mould. I can understand why, but we have given her the oxygen of publicity and encouraged it, so young girls will think it is the right way to attract men. We've lost our standards.
+- Missing out on 'Monty Python' was a real blow at the time. I sometimes wonder how things would have been different if I had been invited to join 'Monty Python,' but as the saying goes, one door closes, another opens.
+- You can't make people enjoy what you're doing unless you're enjoying it yourself.
+- It seems to me that as soon as politicians get in, they become part of this club, and the rest of us, beneath them, are just ants running about. They become besotted with their position.
+- Good parts just don't fall off trees. I try to be very careful about what sort of projects I attack. There's an audience out there that expects high standards from me.
+- I was 25 when I'd told my parents that I was giving up steady work as an electrician to become an actor. They couldn't have been less enthusiastic if I'd proposed starting a commercial newt-breeding operation in the bathroom.
+- In this business, you have to have what they call an idiotic determination to succeed.
+- I always wanted to fly. When I was in theatre, I used to go up on Dunstable Downs on my day off to watch the gliders, to get away from it all.
+- I've been approached to do reality shows, but even though the fees are very, very attractive, I always say no because money should never be your motivation.
+- While I'm hale and hearty, I've no thought in my mind to retire.
+- I never thought I was academically gifted at school. But when I started flying, I found you didn't need an academic mind - you just needed determination and dedication.
+- I would like 'Frost' to go on forever, but you don't want people in the press hammering you, saying you've outstayed your welcome or that it's not believable anymore.
+- Don't get me started on BBC salaries. We were never the big league. Situation comedy has always been the poor relation in the television entertainment business.
+- I needed to be an actor more than anything.
+- Driving a Model T Ford was extremely difficult. The pedals are reversed from the way they are now. It's so crude, but that was the motorcar that started it all. It's an incredible part of history.
+- My mum, Olwen, was a bright and talkative woman who loved a gossip and a story and was given slightly to malapropisms. And she was Welsh, so, of course, she sang.
+- I was never good academically. It was mainly my own fault.
+- I always say it is not the arrival; it is the journey.
+- I think 'Mrs. Brown's Boys' in particular is very good, though I do find that perhaps the language is a bit strong for a family, but it is very popular, and I think it's very funny.
+- I enjoy life so much I don't want it to end, and dying does worry me. If you've got faith, you believe that you're going to go to a magic land, but unfortunately, I don't have faith.
+- One of the reasons that I needed to become an actor was that I didn't have any self-confidence.
+- I'm really excited to be bringing back 'Open All Hours.' I am sure there is an audience out there who would like to see what Granville has been getting up to in the corner shop.
+- I have a yellow labrador, Tuffy, and a little rescue dog, Bella, who is the boss.
+- I hadn't been to drama school. I hadn't been to university and acted there. I had no qualifications behind me.
+- I'm a twin, but only I emerged live from the womb. The fact that I was originally one half of a duo gave rise to a theory, much propounded in newspaper profiles, that my life has been one desperate effort to compensate for that stillborn brother.
+- We get the impression through film and TV that Americans are violent gangsters with guns or upper-middle-class people in romcoms. I really liked the people. They were really warm. They could have been Brits. I mean that in the nicest possible way.
+- When I made my first decision, come hell or high water, that I would try to be a professional actor, I was burnt. Emotionally, I was burnt.
+- When you're young, for God's sake, get out and try everything in terms of a career. Or go abroad, meet people.
+- My desperation to be on the stage and perform was like a vocation, a religious calling.
+- I can be intolerant.
+- 'House Of Cards' with Kevin Spacey - I love how it portrays humans in power as just like the rest of us - but even worse.
+- I was very shy and had low self-esteem; the only way to stop yourself getting beaten up was to turn your hand to being an idiot. At the beginning, it was survival, and after that, it became second nature.
+- It has taken a lot of persuasion for me to take part in an official documentary about 'Only Fools and Horses.' But, as time has gone on, it seems to have been imprinted in television history, and I thought it was only right that I tried to give an accurate insight into how the show was put together.
+- I was a very shy sort of person, and by acting different characters, I could immerse myself and make them do what, perhaps, I wouldn't do.
+- I shall act until I drop. I just want to keep doing it and making it fun.
+- You wouldn't want me to play Frost in a wheelchair, would you? 'Frost' is getting a little long in the tooth. I still enjoy doing it, and it's a great part, but I just think he's got to retire.
+- I grew up in London, a city devastated by the bombing. I am, you might say, a Blitz Baby.
+- A lot of TV has moved away from family viewing. But with 'The Royal Bodyguard,' we have tried to make a show when no one will be worried about sitting there with their kids or their grandma.
+- A show like the 'Only Fool and Horses' Christmas special got 24 million viewers, so practically everyone in the country was watching. But of course it's a different world now, with so many channels. And those kind of figures are really difficult to achieve.
+- People ask me if I am thinking of retiring. Well, it doesn't occur to me. Different day, different challenge, different way. Lovely jubbly.
+- When you see the kids on 'Britain's Got Talent' or 'The X Factor' who just want to be famous at all costs, you just go, 'God, these people just don't know what it is they're asking for.'
+- Comedy is a funny business, which you have to take seriously.
+- The ups and downs are part of what has made you.
+- If I want to go out to a restaurant with some friends, I'm more than happy that we go in under the radar, have a little evening on our own.
+- After leaving school, I worked as an electrician before becoming an actor.
+- I go with my wife Gill to the supermarket, but not often.
+- I've met a lot of military men in my time. After they retire, they are still extremely game. They dress perfectly and have impeccable manners. They always end up as secretaries of golf clubs. I have great admiration for them.
+- I'm a qualified Professional Association of Diving Instructors Divemaster.
+- Classic comedy is classic comedy, and it will go on for years.
+- I won't let my daughter watch 'EastEnders.'
+- Despite offers, I have never felt the urge to try to make it in Hollywood.
+- I rarely go out, and I am not interested in golf or anything like that.
+- I deliberately decided not to go on Twitter. I've read about how much stress it can cause. I don't think it's healthy.
+- While I've got my health and fitness, I'm available... except for panto, of course. Too bloody much like hard work.
+- The Christmas of 1965 was a Yuletide with a difference at my parents' tiny terrace house in North London: it was the first time my family had been able to see me on television.
+- Some actors retire, and some don't.
+- All my work's been disguise, really: hiding behind the character.
+- I do recognise I have a responsibility to the audience. They feel fairly confident that if I'm in something, they can sit down with their family and be entertained by it. I don't desperately want to change that.
+- I wouldn't like to get trapped in a long series.
+- A couple of years ago, I bought my own helicopter, a Robinson R44. I use it occasionally to fly myself to sets where I am filming or to business meetings.
+- I'm an actor, and so of course I want to see TV companies making good dramas. I want that to be a priority.
+- I don't think I would ever have taken on professional acting roles if I hadn't had the ability to fly. I had quite low self-esteem, and it gave me the self-confidence to believe I could do anything that I put my mind to.
+- I am thrilled to be taking part in 'Hogfather.' I am a huge fan of Terry Pratchett's books, and to play the part of Albert is going to be great fun.
+- I started at the Incognito Theatre as an amateur.
+- Being an actor is like being a monk: you have got to be dedicated.
+- That's humour - doing what funny people have done since comedy began without being edgy and pushing boundaries.
+- I enjoy the work; I just don't like the glamour side of it. I find that very difficult to handle.
+- One of the things I learned was that I really enjoyed stunt-car driving.
+- In 1977, while I was performing in a play in Cardiff, a friend introduced me to a striking redhead called Myfanwy Talog, famed for her appearances on Welsh television with the comedy duo Rees and Ronnie. We were instantly smitten and eventually moved in together, sharing 18 happy years.
+- What intrigues me is that there are funny people in the real East End. It's famous for it. There'd be blokes dressing up as women as a lark, but 'EastEnders' seems blind to the fact that they enjoy a laugh. There should be a cheery chappy on there.
+- I don't watch 'The X Factor' any more. Why do I want to see someone say the same old thing - it's all they've ever dreamed about - then lose and burst into tears and go into neurosis? They just want to be famous - it doesn't matter how.
+- My father, Arthur, was a fishmonger, first at Billingsgate market and later in Camden Town and Golders Green.
+- I have no interest in Twitter or Twotter or Twatter. It would never occur to me to use it. People who Tweet during programmes are always asking, 'What happened then?' If you're bloody Twittering away all the time, you miss what is actually going on.
+- We were taught fortitude by our parents, who had gone through the war. Being a child then was fun. We could go out and play in the street - there were few cars - and we felt very safe.
+- John Sullivan's scripts were always very funny, and cast and crew got on well.
+- Journalists are out to trap me with my underwear showing.
+- I joined an amateur drama group as a teenager, fell in love with theatre, and it totally changed my life.
+- Working on 'Open All Hours' had some unexpected perks, not least the attractions of the canteen at the BBC's rehearsal studios in West London.
+- I've been lucky enough to do this fantastic job now for more than 50 years. To make people laugh, to entertain, create a wide range of emotions - it has always been a tremendous thrill for me, and it still is.
+- I'm happier being out of the limelight, at home with the family.
+- On 'EastEnders' everyone's bitter, angry. Where are the wonderful characters that I lived with, who could find humour even in the lowest form of living?
+- How do I feel about being called a national treasure? I think it's marvellous if that's people's opinion. But I'd rather have the money than the label.
+- People tend to feel that if you're a comedian, you can't act.
+- I want to encourage young people to get up off the sofa and get out there - as long as you want something hard enough, you can do it.
+- My father used to say, 'What the hell are you listening to? Put that bloody rubbish off.' And it was The Beatles.
+- While scuba diving off the British Virgin Islands about 25 years ago, our boat's anchor got stuck. I dived down to release it, but I got separated from the boat and was stranded as it sped away. I had to swim for an hour to the nearest island with all my scuba kit on before I was rescued.
+- For me, the making of a documentary to mark the 70th anniversary of the Battle of Britain was an intensely personal journey. I was born in February 1940, so I was just six months old as the battle raged overhead.
+- We have more and more rules coming out of Europe telling us what to do, and I think people are getting a bit fed up with it. This was supposed to be a common market. I don't remember them ever saying we would be governed by Brussels and become a satellite of Europe.
+- Ronnie Barker was a man whom I thought more deserving of a knighthood than me.
+- We seem to have lost our British sense of humour. It's a great shame. We have to be so careful nowadays; we have lost a lot of humour because people are too frightened of getting too near touchy subjects.
+- My life has been in reverse. It wasn't fame, and it wasn't money, but I always wanted to succeed. The only way I could do that was to try with every job to be better than I was in the last one, and to learn.
+- I will continue to entertain the great British public. Because that is what I love doing.
+- The first series of 'Open All Hours' came and went without much fanfare because the BBC, in its almighty wisdom, put it out on BBC2, reasoning that it was 'a gentle comedy', better suited to the calms of the second channel than to the noisier, choppier waters of the first.
+- I suppose that I just grew up knowing, in a very vivid way, that if it hadn't been for the men who fought in the Second World War, we'd all be living in a very different world now.
+- My parents, Arthur and Olwen, were honest, working-class people who raised my brother Arthur, sister June, and me with the values of that era - patriotism, stoicism, honesty, concern for your neighbours, and judging a man by what he did rather than what he had.
+- It's very nice to meet people who just get on, work hard, and don't have things handed to them.
+- There are certain values that, in my opinion, television has lost - various moral lines. How far you go in, say, revealing what people get up to on reality TV, and also graphic violence and swearing - the taboo of various swear-words is no longer there. It's worrying.
+- When you had just three and then four channels, I could always find something that was watchable because the standard of TV was much higher. In those days, they had so much more money to put into so many less programmes.

@@ -1,0 +1,20 @@
++++
+author = "Edy Ganem"
+title = "Edy Ganem Quotes"
+quotes_len = "14"
+description = "the best 14 Edy Ganem Quotes"
++++
+- I like to stay in touch with the fans via social media a lot. I really get involved through Twitter and Instagram, if anyone wants to see what I'm doing.
+- Thinking of that movie 'The Artist'; if anyone ever needed to reach anyone, I'm just thinking they didn't have cell phones, they didn't have Internet, they didn't have email, so I always wonder how it was back then where you had to be home if you needed to get a phone call; otherwise, people couldn't get a hold of you.
+- For a longer nail look, I get a gel manicure. They grow with the gel polish, and then I keep going until I want my natural, short nails back with the regular polish.
+- I use the Clairsonic Cleansing system to wash my face three times a week.
+- I think, in the future, people are going to look back and say, 'I can't believe that gay and lesbian people had to fight to be able to get married.'
+- I feel that everyone has something different that moves them or that appeals to them. Maybe something in your family or maybe something in your life that happened that really pushes you for a specific cause - as long as there is something that you're doing.
+- I was able to realize that I definitely want to make sure that I use my voice, as it gets bigger and bigger, in the world for good.
+- I always have at least four different lip products in my purse - I'm obsessed! I'm into L'Oreal Infallible Le Rouge 'Unending Kiss.' It's a very soft and natural pink color. I've also discovered Burt's Bees tinted lip balm in 'sweet violet.' I like it because it's very natural and feels good on my lips.
+- I use my Bionic flat iron and hair dryer, all shampoo and conditioners are sulfate free, and keep the blow-drys to a minimum. If I can go two to three or even four days without washing my hair, I'll just go for it. I know, sounds gross, but otherwise, I'd be frying my hair.
+- I like guys who have a plan or a dream. A good sense of humor is also a must. I can be weird with my humor and say things that are random. You need to understand that I'm really goofy and go with it.
+- I like being a woman, but I'm a little rough around the edges. I've been bungee jumping twice, but I was scared.
+- Mainly, I have actually been getting involved with an organization called MALDEF. It's a Latino organization. And I would like to get involved with charities that have to do with children or homelessness or education, or all of them together.
+- No matter what you're doing. I feel that everyone has something different that moves them or that appeals to them. Maybe something in your family or maybe something in your life that happened that really pushes you for a specific cause - as long as there is something that you're doing.
+- I'm kind of fixated with old Hollywood, like Marilyn Monroe.

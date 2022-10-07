@@ -1,0 +1,106 @@
++++
+author = "Eddie Rabbitt"
+title = "Eddie Rabbitt Quotes"
+quotes_len = "100"
+description = "the best 100 Eddie Rabbitt Quotes"
++++
+- I always break three or four guitar strings per show and fling them at the audience.
+- I can't see a Twisted Sister on the country charts.
+- Working the road will kill you. Eating cheeseburgers, sleeping odd hours. If you don't do something, it breaks you down. People think that it is glamorous; it is not glamorous.
+- At a certain time in your career you can't share your time with anyone else. You have to be completely selfish - so that you can write your music.
+- Even though I've had 20-some country No. 1 records, I still have a hard time convincing a lot of these people in the Country Music Association and the Academy of Country Music that I love country music.
+- The name is Irish-Gaelic. In old Ireland, the Rabbitts were counselors to the chiefs.
+- I can't imagine losing my wife or daughter or only being able to see them every so often. If my work made that happen, then music would become a bad thing.
+- Friends didn't believe me when I told them about him, so I'd invite them over on Saturdays to watch the monkey watch TV.
+- A lot of people kind of perceive me as some kind of pop act because in the early '80s 'I Love A Rainy Night' went No. 1 for two weeks in a row and 'Driving My Life Away' sold a million records.
+- I gave up some of my celebrity to be with my children for 14 years, but it's been fine.
+- I know exactly what songwriters are going through.
+- Once in a blue moon, everything will be right with the man in the sky, and when I start singing 'I Love a Rainy Night,' from out of nowhere, there will be lightning and thunder. I just say, 'Folks, we've got the best special effects guy in the world, so let's get wet together.'
+- I write all different types of music, which can be a blessing and a curse.
+- I'm not one that listens to a whole lot of advice... I go with my gut instincts.
+- You can bring your children and your Grandma to my show. Grandma might have to cover her ears, but it won't be because she'll be hearing anything nasty... just because it'll be loud.
+- All my life I only wanted to write and play music, but it took a long time to make a go of it, and I was one of the lucky ones!
+- My ultimate idea would be to get a lot of big investors together, buy some land outside Orlando, Florida, and start up Rabbitt Land.
+- I love music and I would hate to get bored with it.
+- I'm there from conception to delivery of an album because I don't want anybody getting in the middle of my music and meddling with my work while I'm on the road.
+- I usually hung out with my songwriter friends at their places or mine.
+- I'm not saying there's not talent in heavy metal and rap, but a lot of people are finding it's just the same thing, over and over.
+- I try to give back some of the good fortune that I've received.
+- It's important to help where you can.
+- Not everybody that loves country music is 'sitting on a bar stool/feelin' like a durn fool.'
+- I'm just an old Irish guy who believes if you have children, you need to be there to raise them.
+- MTV and others need to think about putting positive images In kids' minds.
+- I was engaged once In New Jersey. But the engagement ended, because I had music on my mind. I had nothing to offer her except a dream.
+- I'm not your basic cowboy-cowboy.
+- People don't know major and minor chords; they know what they like. I feel the same way.
+- If I didn't work out and everything, I'd look 15 years older.
+- I listened to all kinds of music: rock, pop, R & B. But country was always my first love.
+- I never went to parties for the same reason I never went to clubs, because I had worked so many clubs with a band up in Jersey that I just wasn't interested in hanging out in places.
+- Pop's not a dirty word to me.
+- I'm having No. 1 hits on the country charts and that's where I always wanted to be. I've had 26 No. 1 country records. That thrills me to no end.
+- I never want people to say, 'Oh, another Eddie Rabbitt record.' Each has to have a little different approach than the others.
+- As my kids are growing up, I continue to write songs for them.
+- I think rap is creating a reverse racism.
+- Sometimes the lyrics just fall out of my mouth.
+- We were one of the hottest bands in Jersey, but I was burning up because I knew I'd never be a star in Newark. I knew the action was in Nashville and that's where I wanted to be.
+- Steve Binder did the Elvis comeback special in 1968, you know. He did the Diana Ross special. He has won Emmy Awards. I think he's the premier, variety special man in America.
+- I was always going out to joints in Jersey that played country music. I was always around it. I liked the lyrics, the simple melodies, the soulful-ness.
+- They've always had a hard time categorizing me, it seems, even though most of my stuff is country of one kind or another - usually country spilling over into the old adult-contemporary charts.
+- I do face exercises, yoga things.
+- Well, I guess this sex symbol stuff is a nice compliment, but I don't walk around thinking of myself as a sex symbol.
+- I have always come out of left field with my stuff.
+- I'm pretty paternal.
+- I try to write something that has a common ground to everyone. But there's been nothing new in music since Bach; he put every note in the world on a piece of paper.
+- I didn't start out to be a country singer. It just happened that way.
+- Jeannle and I lost a son, Tlmmy, in 1985 to a liver transplant operation, if we can do some good, we want to do so.
+- We do a very family oriented show.
+- My father played fiddle and the accordion.
+- I did two years of walking the street and soul-searching. During that time I lived off $37.50 a week - that was $2.50 a week more than my Dad made during the Depression.
+- I'm an Irish guy who loves his music.
+- A song can go a million different ways once you first get it down on tape.
+- Song of Ireland' struck a chord in Ireland. There are tons of Rabbitts there.
+- I've always liked 'Mist In The Meadow.'
+- Not many Rabbitts in this country are related to me.
+- When I was growing up, there were pop stations, rock 'n' roll stations and the rare country station.
+- Freedom of the press without responsibility is madness.
+- I never really had any trouble selling my music to country audiences. They appreciate honest lyrics and straightforward melodies, and that's what I do.
+- People like you to be ordinary, but they prefer you if you're extraordinary. They want you to be a star.
+- You've only got your 20s and 30s to secure a job; you'd better be established by your 30s.
+- When a guy like Elvis sings your song, well, you know Elvis didn't cut any junk. People thought, 'This must be a good writer.'
+- I like all good music - rock, pop, country, classical - and when you sit down to write, it all comes out.
+- A lot of my friends who started out at the same time as me ended up getting married before they made it. There's nothing wrong with marriage, but at the wrong time it can kill an emerging career.
+- Music is me; it has been since I was 5.
+- There's a phrase that art is something created by the few and admired by the many. Now it's not created by the few, it's created by anyone. They just plug in a drum machine and read some dirty high school poetry.
+- I think if you start to feel secure, you don't do as well.
+- I didn't want to do two years in the regular army, my music career was just getting started. So, I joined the Guard where, after going to weekend meetings, you'd do six months of active duty, with three months of basic training and three months of on-the-job training.
+- I've managed to keep a lot of respect in radio because I write my own stuff. I've had a lot of success as a singer/songwriter. I think if you establish yourself that way, it is harder to throw you out with the bathwater.
+- Even though country is a large percentage of what I do. I don't want to get locked into just one area because I write a lot of different kinds of music and I like doing three-part harmony, minor chords and pop music.
+- I cant live in a 'world without love.'
+- All the music has been done before except for the 'Eve of Destruction' and the 'Born in the U.S.A.' You keep reshaping - llke it was putty or clay.
+- I have an affinity for animals.
+- MTV promotes the most violent of acts in front of our children.
+- I wrote 'On Second Thought' in five minutes in the back of my bus going through Montana.
+- I think the fact that I've always been left or right of mainstream cowboy hats and boots has made me hard to pin down.
+- I write music I like to write and that I'm comfortable with.
+- I've been doing country music for a while, and people ask me, 'What's a kid from New Jersey doing singing country music?' I just fell in love with it when I was a kid.
+- I just don't want to cut a tune and come in later on and put things on it.
+- You have these rap groups talking about 'Fight The Power' and that kind of stuff. What do they mean by that? Fight democracy? Fight the government, the most freest Superpower government in the world? What they need to fight is what's holding them back from getting educated and moving along in life.
+- I make sure the best of what I do each year is the only material that gets on my albums; I don't want people to think I put out junk.
+- I could care less about the pop charts.
+- We all have to dance with our devils. But I lead.
+- Writing has always been so much fun for me, and it still is. I think if you can keep it fun, then you have something. You start to lose it if it becomes work. That's one of the reasons that we're in this business - to get out of work.
+- When I was 12 years old, I was in the Boy Scouts. The scoutmaster of our troop was in a band that played country music in some of the local clubs on the weekends.
+- I write different kinds of stuff, from 'Two Dollars In The Jukebox' to 'Suspicions,' that really don't belong next to each other on an album.
+- The traditional country music stays because it's such an all-around good format and it's fun to write songs like 'Oh Susannah.' I just feel along with that you gotta talk about what's going on today.
+- I had 10 No. 1 country records before I ever crossed over, and the only reason I ever crossed over was because of a fad. It was that 'Urban Cowboy' thing, where everybody was riding fake bulls.
+- You know, one year with 'Glenn Campbell and his Good Time Hour' and people know you too well. To me, when someone is on the tube every day then they become ordinary.
+- A writer has to keep one foot in the street and one pocket empty and be hungry for it.
+- I've always got these little melodies running around in my head, although most of them aren't worth much, and I understand structure and formulas.
+- I like to mix things up and try to get the most out of what I do.
+- It takes a long time to write 10 good songs. Sometimes you have to write 30 to get 10 good ones.
+- One reason people are turning to country music is because of that non-music called rap.
+- The 'in your face' MTV attitude is a global problem.
+- Just because I have a successful dog act doesn't mean I can walk up to the lion cage and do as well.
+- For a couple of years, it was one gray-day after another.
+- I drive everybody crazy when I go into hiding to record... managers, the label, everybody!
+- I got into this business because you can get gratification from it the moment you set foot onstage.

@@ -1,0 +1,20 @@
++++
+author = "Donald Fagen"
+title = "Donald Fagen Quotes"
+quotes_len = "14"
+description = "the best 14 Donald Fagen Quotes"
++++
+- My style is a little quirky. I can't play as fast as most professional jazz players.
+- I like it when songs develop in some way. Four minutes usually isn't enough time for something to develop musically.
+- My writing is really intuitive. As a kid, I went to school in New Jersey and hung out in New York, so the way kids used to talk got into our earlier songs.
+- We're not getting any younger.
+- What do you do with what you're given, and how do you transform it into something worthwhile?
+- Randy Newman seemed like an even worse singer than me. I liked Ray Charles, Levi Stubbs, Jack Jones, Joe Tex, Wilson Pickett.
+- When you get a groove going, time flies.
+- People are usually afraid to say what's on their mind.
+- I had trouble distinguishing art from life. I don't now, and I feel much better!
+- I have a critical nature, in the sense that when I look at something I often look for the flaws.
+- Popularity has everything to do with business and nothing to do with music.
+- I've never been comfortable as a lead performer, and I never wanted to be a singer, particularly.
+- Anthemic rock music is inherently fascist - anything intended to move huge masses of people is politically offensive to me.
+- I took some lessons as a kid but trained myself by ear. I did it the way jazz musicians used to learn years ago, which is to play records and slow them down to figure out the notes. At first I tried to imitate Red Garland, who was my favorite jazz pianist.

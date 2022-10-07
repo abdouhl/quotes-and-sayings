@@ -1,0 +1,43 @@
++++
+author = "Diogenes"
+title = "Diogenes Quotes"
+quotes_len = "37"
+description = "the best 37 Diogenes Quotes"
++++
+- I am not an Athenian or a Greek, but a citizen of the world.
+- What I like to drink most is wine that belongs to others.
+- I have nothing to ask but that you would remove to the other side, that you may not, by intercepting the sunshine, take from me what you cannot give.
+- Calumny is only the noise of madmen.
+- I do not know whether there are gods, but there ought to be.
+- It was a favorite expression of Theophrastus that time was the most valuable thing that a man could spend.
+- Man is the most intelligent of the animals - and the most silly.
+- Blushing is the color of virtue.
+- In a rich man's house there is no place to spit but his face.
+- Stand a little less between me and the sun.
+- It is the privilege of the gods to want nothing, and of godlike men to want little.
+- When I look upon seamen, men of science and philosophers, man is the wisest of all beings; when I look upon priests and prophets nothing is as contemptible as man.
+- It takes a wise man to discover a wise man.
+- Those who have virtue always in their mouths, and neglect it in practice, are like a harp, which emits a sound pleasing to others, while itself is insensible of the music.
+- Of what use is a philosopher who doesn't hurt anybody's feelings?
+- As a matter of self-preservation, a man needs good friends or ardent enemies, for the former instruct him and the latter take him to task.
+- Dogs and philosophers do the greatest good and get the fewest rewards.
+- A friend is one soul abiding in two bodies.
+- Most men are within a finger's breadth of being mad.
+- The foundation of every state is the education of its youth.
+- The mob is the mother of tyrants.
+- I know nothing, except the fact of my ignorance.
+- No man is hurt but by himself.
+- Wise leaders generally have wise counselors because it takes a wise person themselves to distinguish them.
+- Modesty is the color of virtue.
+- The great thieves lead away the little thief.
+- I am called a dog because I fawn on those who give me anything, I yelp at those who refuse, and I set my teeth in rascals.
+- The vine bears three kinds of grapes: the first of pleasure, the second of intoxication, the third of disgust.
+- The sun too penetrates into privies, but is not polluted by them.
+- I threw my cup away when I saw a child drinking from his hands at the trough.
+- He has the most who is most content with the least.
+- Why not whip the teacher when the pupil misbehaves?
+- The art of being a slave is to rule one's master.
+- There is only a finger's difference between a wise man and a fool.
+- We have two ears and one tongue so that we would listen more and talk less.
+- Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.
+- The sun, too, shines into cesspools and is not polluted.

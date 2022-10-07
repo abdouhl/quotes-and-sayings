@@ -1,0 +1,106 @@
++++
+author = "Dustin Lance Black"
+title = "Dustin Lance Black Quotes"
+quotes_len = "100"
+description = "the best 100 Dustin Lance Black Quotes"
++++
+- I grew up in the Mormon Church and I have a very strange relationship with that.
+- As a Southerner and as a Mormon you approach life in this aspirational way: 'I will rise above my station.'
+- I think it's very important that, you know, gay actors get to play gay characters.
+- I always thought that the film would be successful if we captured Harvey Milk, like the way Harvey really was-the personality, the humor, the corny bad jokes, all of it.
+- To be gay means you are drawn to the same sex. You can be gay and abstinent. But it's a part of who you are, an identity, not an act.
+- Do I think J. Edgar Hoover was gay? Yes. Do I think he cross-dressed? No.
+- Gay and lesbian people want to love and be loved. Some of us want to get married. Some want to have and build families. We want our kids to have their lives be a little bit better than what we've had.
+- Growing up Mormon, you learn how to be very, very organized, and it's a passionate group. I mean, in that way, it's prepared me very well for Hollywood.
+- I get emotionally attached to someone if I talk to them on the street corner for five minutes.
+- Having a son has made it all the more important for me to stay in close contact with my family in Texas and Arkansas, whom I know full well voted for Trump. Though I didn't, and have deep problems with this administration and many of them don't. But I'm not going to let that cut the tie from my son to his own history and family.
+- We love and adore our surrogate, we speak to her and her family constantly, I'm sure our son will speak to her for the rest of his life as well.
+- You can't keep treating people differently under the law because of their differences. That's not America. I dare say that's not even a good conservative value. We're all supposed to have an equal shot.
+- For Coca-Cola to take a pro-diversity, pro-equality stance creates a lot of goodwill in the LGBT community.
+- You know, growing up Mormon, I always got the sense that it was hard for the leaders of the church to feel like they were outside of Christianity. I think, you know Mormon people believe that they are Christian, and a lot of people outside of the Mormon Church, you know, don't see them that way.
+- I'd say I'm not sure about Christianity, but I sure do like their Christ and the lessons about turning the other cheek, about forgiveness, of yourself and others.
+- That's what I learned most about directing on my own - you've got to build a family, a filmmaking family.
+- Too many of my heroes have been cut down, but do I want security guards? No. I've been offered them in the past. But the more you present yourself as someone afraid of being attacked, the more people see you as someone to attack.
+- 'Milk' had to be a financial success, following the success of 'Brokeback Mountain.' It had to make money so studios would develop other LGBT projects.
+- I turned in a script that meant a lot to me and an executive at Warner Bros said he was disappointed in me. I took a hit of confidence and stepped away from film-making for some time.
+- Directing was liberating and intimidating. It's something I've always wanted to do.
+- My mom achieved so much more than the doctors said she ever would. I miss her.
+- Being right is overrated! If someone is saying that they're right about the future, that's a claim only a fool would make.
+- I was about 15 years old when I moved to the Bay area.
+- My father, my Mormon father, took off when I was a young man and, or actually very young, I was like six years old, so a young boy.
+- Children are raised by single parents all the time. Those children - I'd like to claim myself as one, I was raised by a single mother who raised me incredibly well.
+- There's a difference between fame and fame for fame's sake.
+- If you do something with acceptance and kindness, you can create a true friendship.
+- When I was in my twenties, I would always read my horoscope.
+- Mom came from what has been called the poorest place in America - Lake Providence, Louisiana. She was born on the south side of the Mississippi which was mainly African American and even poorer than the rest.
+- There has been this resurgence in anti-LGBT language in the U.K. and the U.S., and the rest of the world. In the U.S. we've heard it with Trump's rise. Here, I've heard language borrowed from the most conservative anti-gay voices in the U.S. used by some gay and lesbian people against trans people.
+- Gay people are more powerful when they work with lesbians. We become more powerful when we're L, G, B and T.
+- You know, for a long time I became almost atheist. I believed in nothing. And it was tough for me to believe in anything at all because I had believed so strongly. And I divorced myself of spirituality, I think.
+- The real power of any movement is how we work together with other social justice movements.
+- My mom was paralyzed from polio at the age of 2, abandoned by her husband, left with a 2-year-old, a 6-year-old and a 10-year-old, and so, we were raising her as much as she was raising us.
+- Our brothers and sisters in the trans community, they showed up to every one of our marriage marches when it wasn't necessarily what they needed. So we have to be there for them, use our lessons learned in the marriage fight - how to win when it's difficult, how to change minds that are difficult to change.
+- Tom and I have never claimed to be perfect, whatever that means in a relationship. We're not trying to be anyone's example. We're living our lives and building our family and doing what we love.
+- For people who have fertility issues - and certainly gay men have fertility issues - there's several options for having a child and surrogacy was one of them.
+- Through my political work in D.C., and having done 'Milk' I got to know a lot of gay octogenarians. They are lovely and they like to tell their stories, and I like hearing them.
+- I tend to read 'The New York Times' and 'The Washington Post' online, and I go to the website for the BBC. I am a junkie when it comes to the news.
+- You're either Mormon or Southern Baptist in my family. They're incredibly conservative and I love my family.
+- My problem is always the number of hours in a day, not the number of things I want to do.
+- People are always going to disagree politically, because we all come at the law from a different perspective with different needs.
+- Some people only look at the good stuff and some people only look at the bad stuff.
+- There was a criticism of 'Milk' that I found truth in, which was that it was focused on gay white men.
+- Mom got very heated about the new government policy of Don't Ask, Don't Tell. In her view it was going to allow closeted gay people into her military and she was really against it... she just assumed I agreed with her opinions.
+- I think of the biopics I've written as exploring a more grown-up side of myself, through other characters' lives.
+- When we walked out of that hospital, we had a birth certificate with our names on it that said: 'Father one and father two, Tom Daley and Dustin Lance Black.' And we knew our son was not only ours in our hearts but also legally and protected that way.
+- And the film that I've seen a million times is 'When Harry Met Sally' with Meg Ryan and Billy Crystal, and directed by Rob Reiner.
+- We need to maybe think a little less about the science of building walls and that waste of time and energy and start to understand what is love.
+- Anyone who says a movie about history is a historical document is crazy.
+- I am sick and tired of the myopia in the gay and lesbian movement. It'll doom the movement.
+- I think for too many decades, the politicians have driven a wedge between the gay and lesbian communities and the religious communities for their own benefit, and I think it's time to start to broach those divides.
+- I say to my pupils, 'You can pitch me any thing you've got, but tell me why you're the only person who can write it in the world. Keep digging.'
+- The things that I'm interested in directing are fiction, because then you're not married to a particular reality.
+- The drive to be a parent is strong. It's one of the most ingrained human traits there is.
+- I think one of the biggest misconceptions is that this is somehow a stranger who is carrying your child. And this is absolutely not true. Your surrogate becomes one of your best friends and a member of your family.
+- I'm always interested in getting to know people, and that means vilified people as much as those celebrated. You find out that heroes aren't always so heroic, and villains have some bit of humanity in them.
+- I've never encountered homophobia in casting from the studios or networks - not once, not ever. Where you encounter it is with the agents and the managers, they're the ones who have an outdated notion of the price an actor might pay if it's discovered that they're LGBTQ.
+- In this miraculous, beautiful universe of ours, where it's an absolute miracle that our eyes and ears can witness it all, we somehow have bought into this lie that the highest plane of existence is whether we put an R or a D on our voter registration card. That's insanity.
+- I hope we build a son who's strong enough to stand up for other people. And if Donald Trump is out there teaching folks how to build walls, we're hoping to instil in our son the ability to know how to take them down.
+- I was very lucky to hear the story of Harvey Milk, it was life-saving for me. I wanted to share it in case it helped others, but the story of one gay man isn't going to do it.
+- I never wanted to be a writer initially. It was not my thing, but I was an avid reader.
+- I'm industrious. Ambitious. I'm like the gay Mitt Romney... That's a terrible thing to say.
+- I watched Sean Penn, you know, bring Harvey Milk to life. I was on the set every day.
+- I wrote 'Milk' for me. I wrote it for the younger version of me that had no clue that there are people who'd ever fought for my rights.
+- My mom would watch me giving speeches on TV and she'd call and say, 'I don't know who this son is.'
+- It's 'When We Rise,' not 'When Gay People Rise.' It's about how everyone benefits when we lift up any one group in this country.
+- I had a lot of success for many years, and the critics had been so kind. Sometimes it's good to get cut down to size a little bit.
+- Eventually my courageous Mom did something we do all too rarely. She got on a plane and she came to see me in L.A. - this place where we'd always been told sinners lived. She came to see my gay friends.
+- I'm my mother's son, so when it comes to altruism and understanding how to do things to benefit a person's life... the women in my life have been much better than the men.
+- When I got the deal to do 'J. Edgar,' which was really the brainchild of Brian Grazer, 'Milk' hadn't come out yet. We had just completed principal photography, and it was still basically this little film where we just really hoped someone would see it.
+- I grew up quite poor, and the Mormon church was always there for us as a family.
+- I love the true life stories and the biopics - people say I'm pigeonholed, but it's a fantastic kind of pigeonhole - but it's tough to then go and direct it because I know all the real people.
+- I am hopeful that there are three or four Harvey Milks. It would be nice to have one in California and one in New York and one in Texas and Oklahoma-it would be fantastic. Maybe even one in Salt Lake City. I would like that.
+- I'm drawn to making films that in some way move the social conversation.
+- Have I always agreed with my Southern, military, Mormon family? Absolutely not. Have we always figured out how to get along? Yes! At the point at which politics supersedes the family and community, we've got a real problem.
+- Here's the thing with 'When Harry Met Sally,' it doesn't matter how many times you watch it, it's always interesting, and you're always identifying with a different scene in the movie - at least I am.
+- It's really difficult for me to sit and watch anything that I do because I always think about what's there, and what there could be to make it even better.
+- Just like my mom, when things get bad, I get quiet. The worse they get, the more silent I become.
+- Hold onto power and you lose your moral compass.
+- Most of my family is still active in the Mormon Church. They live in Utah and Provo and Orem and Salt Lake City.
+- Every single person in this world is a minority in one way or another. It just depends on how you slice the pie.
+- I do try to deliver a solid first draft, meaning it's my tenth or twentieth draft and then I call it 'first' and hand it in, much to the chagrin of the studio sometimes when they look at the contract and go, 'You've passed your deadline.'
+- The octogenarians who have pictures of Hillary Clinton under their toilet-bowl covers - they've completely accepted me.
+- How amazing is it that when a young gay or lesbian person has their first crush, no matter where they live in the country, they can imagine that all the way to marriage? When I first experienced a crush, in Texas, there was maybe a second of butterflies that were then dammed in by the fear of what that meant.
+- I have incredibly sensitive hearing. I often hear people talking about me. Sometimes it's amazing and sometimes you hear gossip you'd rather not.
+- I like the gray movies. I don't know if audiences always... it makes them work a little harder. And they have to work hard in 'Hoover.'
+- I love Jennifer Connelly.
+- What's beautiful about the journey of surrogacy is that relationship you build with your surrogate, when it's done in places with good law. These aren't women you stop speaking to once your child is born, this is someone who's part of your family.
+- Although my mom and I had often disagreed politically and personally, she'd led our family by example, instilling in us a can-do attitude that often defied reason - an optimism many would call foolish, ignorant, and naive, but an optimism that occasionally shocked our neighbors and our world with its brazen veracity.
+- We've got the same problems any other gay couple and any other straight couple have. But it's 90 percent great. And that's better than most, I think. That's me and Tom.
+- My mom had grown up in the South. Louisiana and Georgia. She had been deeply religious. Baptist, then Mormon. She had worked for the U.S. military. She had voted for Ronald Reagan and Bush Senior.
+- I think people in the U.K. best know me as the guy who will take their picture when they run into Tom Daley. But I'm also his husband and the dad to our child.
+- I probably saw 'When Harry Met Sally' for the first time in college.
+- I have never imagined that I would get married and that I would become a father.
+- One of the great things about being married to my husband, who is also an impossible dreamer, is that we just do things.
+- I think that our view of love and family informs our work, the way we empathize with people.
+- If you go to Paris, try to speak French. If you go to the South, try to speak Southern. Southern isn't stupid. Southern is narrative; Southern is family.
+- Whenever you write script without a director, you put in things that point toward a style in which the story will be told, a subjective style.
+- I have no respect for someone who lies about their sexuality. At the very least say 'no comment', just keep your personal life personal. If you're going to closet yourself, that sends a negative message.

@@ -1,0 +1,104 @@
++++
+author = "El-P"
+title = "El-P Quotes"
+quotes_len = "98"
+description = "the best 98 El-P Quotes"
++++
+- I really want to produce a record for Mary J. Blige.
+- I like Das Racist, and so should you.
+- There's a lot of pretense out there. It can be exhausting. When people see something genuine, even if it's something as simple as two people actually being friends, actually enjoying what they're doing, or actually standing up for each other, that translates in a big way.
+- The thing about Steven Seagal is that he clearly wants to be a great person, but he just doesn't know how.
+- I literally have a massive database of cat sounds.
+- Run The Jewels, me and Mike, and our connection and everything, came out of a period of time where I had personally lost everything.
+- If you live in a crowded area of Brooklyn or Manhattan, having a car is a hindrance. It doesn't even make sense. I basically grew up all my life without a car.
+- I was obsessed with Philip K. Dick.
+- I think that Gordon Ramsay is maybe one of the most entertaining people ever on television. And I would love to pretend to be Gordon Ramsay and walk into a restaurant uninvited and attempt to make them change their menu. It's just a personal fantasy of mine.
+- I'm not a 'dystopian, futuristic master': I'm a schnook walking the street. It's an insane reality we're living in, and I'm just trying to translate it for myself.
+- I'm a cat guy. I'm absolutely a cat guy. I grew up with cats.
+- How could you possibly call something science fiction at this point unless it has to do with something that hasn't been done? When I write about 'Drones over Brooklyn,' it's not like I'm making something up. Drones are policing American cities.
+- I just don't believe in making music about making music anymore.
+- I would have to be traditional and say that my favorite era of hip-hop was between '85-'89. That was the era that got me to love hip-hop.
+- I don't hate Jay-Z. I think he's dope.
+- One of the reasons why I thought it was a good decision to put Def Jux on hold is that it's a hell of a lot easier to dismiss something as a movement than to dismiss individuals making good records.
+- I probably started trying to make beats at around 12.
+- I reserve the right to think many different things and to change my mind and to even be wrong.
+- I grew up on listening to, like, Mantronix and BDP and EPMD and Kool G Rap and Ultramag and Public Enemy and Fat Boys and Run DMC and a lot of those early records, those Rubin-era records. Those were always snare- and stab-heavy records.
+- I've never had a huge collection of records; I've never been a beat digga. I never been one of these guys who drives cross-country and knows some one-legged sailor who has a boat parked off some pier with a thousand Russian funk records that he stole from the Red Army in 1972.
+- You put a piece of music out, and it's not in your hands anymore, and that's cool with me.
+- I really am not interested in making political music per se. I'm making personal records, but at the same time, I'm very much aware of my surroundings. And those surroundings, what's going on in the larger picture, affects my everyday life and affects the way that I think.
+- The name of a cat has to come from something that just occurs to you by interacting with the cat.
+- I had a year, where... I was secretly, 100 percent, dead broke.
+- I've been listening to this group called the Veils, which I kind of discovered late. I've been really obsessed with this album that they have called 'Nux Vomica,' and I just think it's a brilliantly produced and written rock record.
+- I don't necessarily think the way people do, but that's not my problem. My problem is not to reinforce or destroy any ideas anyone might have about me, how I do what I do, what my intentions are, the way that I do it. My only job, as far as I can see, is to do the music that I want to do.
+- Rap music deserves truth, and it deserves spontaneity.
+- My love of Seagal is ridiculous. Like, I love this man. I love how ridiculous he is. I mean, he made an album called 'Songs From The Crystal Cave.'
+- I think any teenager, any single parent household teenager growing up in New York City, will probably go through tumultuous years. I definitely did. It all sort of righted itself once I definitively got on the path of being a musician or, like, following that directly.
+- The people who talk the most about God are people who are the least like God.
+- I've fallen on my face. I've made mistakes. I've got plenty of records where I listen back, and I think, 'I wouldn't've done that.'
+- New York is just an energy. There's a beauty to the way it's laid out: the architecture, the way the planning is. It's huge, but you really do get to experience more than your own existence here. It's kinda hard to isolate yourself from different types of people, different types of ideas or communities.
+- I'm not mad at digital media at all; I just see the importance and beauty of physical media.
+- The thing about hip-hop producers, and the thing about hip-hop musicians, is that we listen to everything. And we're inspired by everything. I'd say even more so than any other genre of music.
+- 'Meow The Jewels' was a nightmare of a promise I had to fulfill. We made a joke that if the fans gave us $40,000, we would remix our album using nothing but cat sounds.
+- I work on a musician's week, so Monday is Friday. By the time Thursday rolls around, you stay in, and you work, and you don't go out because it's horrible.
+- You've got to recognize it when it's time to go.
+- I used to think that growing up in New York made me ready for everything - for everything. Before I really got a chance to travel, I thought that I was better prepared for the world because I was from New York.
+- When writing songs, especially if they're kinda semi-true to you, a lot of people hide behind whatever their idea of themselves is in the record, and every now and then, you might make a song that exposes something a little too much about you, and there's a part that doesn't want yourself to be exposed.
+- 'The Venture Bros' are my jam.
+- I just love Steven Seagal for his pure - his perspective on what being a hero is: just a purely evil, cruel perspective.
+- For me, the idea of releasing a free record is powerful if everybody gets it for free at the same time.
+- The bravest artists I've ever known have always been graf artists. Risking your life and your freedom is no joke.
+- It's pretty cool being 40 and having your blow-up moment.
+- Anything that gets to the more emotional and dark side of music, I always enjoy.
+- You can always get something cool out of a collaboration - you can always have a moment - but meeting someone that you want to collaborate with continuously, that's a different thing.
+- A lot of the attitude I used to have about being from New York when I was younger just disappeared when I started to the rest of the world.
+- If New York has just become a mall for the world, then what's the difference between being here and somewhere else?
+- Some of the music I made for 'Fantastic Damage' I thought I was making for the Company Flow album, but the majority of it was post-Company Flow.
+- I had a boom box with a dual cassette deck and a mic, so I used to make pause tapes. I think a lot of people started like that because it was all I had. I would just take rap records that I liked and just loop the beat by pressing pause and record and make, like, five minutes of these beats.
+- Darkness does not truly have sway. I think that it's weak.
+- I'm not that prolific in terms of making my own music.
+- With me, I'm going to have a label where no one is ever cheated, ever.
+- I think it's impossible for hip-hop to be a dying art form.
+- I don't believe in collaboration necessarily for collaboration's sake, but I will do it, and sometimes it's great.
+- You don't know what it feels like to have someone go to bat for you until you really need it, and they do.
+- Just because I run an indie label doesn't mean I don't think Jay-Z is nice.
+- Def Jam is the reason why I started a label.
+- My New York, the one I identify with as a kid, has greatly changed. And I'm sure the people who were adults when I was a kid probably felt the same way.
+- A lot of people thought 'Funcrusher' was super dark and hopeless, and I don't think it was hopeless in any way.
+- We all want recognition and validation to an extent for our art, but greatness as a trade for decency is a risky proposition. In my life, I try to leave the people I encounter with the feeling that they have been respected and treated with warmth and appreciation.
+- I remember one day sitting in the mirror with a saxophone, just looking at myself, being like, 'I can't do this; this is ridiculous.'
+- There's always stuff to rebel against.
+- I remember listening to 'Low End Theory': I had been kicked out of high school. I was in GED school in the LES, and all I could do was listen to 'Low End Theory.' I was in a strange time in my life, and 'Low End Theory' kind of defined that time.
+- I tried to get Steven Seagal for my 'Stepfather Factory' video in 2002.
+- I definitely grew up on Garfield. I just loved his pessimism.
+- I just like heavy music in general - from heavy rock and heavy metal and heavy rap and heavy everything. I've always been attracted to it.
+- The last Company Flow reunion show in New York City was pretty insane. Everybody knew all the words to every song; everybody had smiles on their faces. Those shows are what you hope for every time you get on the stage.
+- I strongly believe in the art form of the album.
+- Atheists are just as obnoxious if not more obnoxious than zealots.
+- I don't ever really feel guilty about music, quite frankly. When you're younger, you think that anything you don't like, you have to hate. I'm so far beyond that perspective. Although, I will say I resent Bruno Mars for making me like him as much as I do. I wish that he wasn't so likeable.
+- When I'm not feeling something, I have a very hard time doing it.
+- I guess there are a lot of writers out there who get really inspired when they're depressed. I can't write about being depressed until I'm happy. That's all there is to it. I need space.
+- Standing up for what you believe is right, as well as standing up for what you believe is funny, standing up for what you believe is cool. As we found each other and the music that we do, we get to live out all of those things. That's what Run The Jewels is: it's all of those aspects of our personality.
+- Being stupid and compassionate are not conflicts. Being mean and being funny and having something to say are not a conflict.
+- I really don't believe in going too far out of your way to hunt down somebody to do a song.
+- Run the Jewels, our role is this: We can provide some music and some swagger in the face of doom and in the face of seemingly insurmountable odds.
+- I've lived in New York City all my life. I love New York City; I've never moved from New York City. Have I ever thought about moving out of New York? Yeah, sure. I need about $10 million to do it right, though.
+- There are two types of people, two types of performers: Performers who know how to keep a show going, literally, when the power is gone and performers who haven't had that much experience and will panic and freak out and don't know what to do.
+- I have a tendency to dip my foot in self-destructive behavior.
+- Music can feel empowering, or it can give a natural emotional voice to something people can't express. This is why it's beautiful.
+- I'm of the generation that discovered Aerosmith because of Run-DMC. They just looked crazy to me. They were the dudes in the Run-DMC video. That's who Aerosmith was.
+- If I can't work, I don't know what to do with myself.
+- I was raised by women. The men in my life were either not there or not good when they were there.
+- My videogame mind died after they stopped making wonderful escape worlds - every game just turned into me training to be in the army. But I used to love the Oddworld and 'Abe's Exoddus' and 'Abe's Oddysee' for Playstation.
+- I'm a believer in air bags.
+- All I ever wanted to do, personally, was bring something new to what I loved: the thing that I loved the most, the music that I loved the most.
+- I'm really pretty ridiculous about how much I work on my music, and I don't look at it as necessarily a good quality. I look at it as a side effect of my apparent insanity. It is what it is, man.
+- I think that people have been claiming hip-hop as being dead since the moment it started.
+- The thing I love about music is, if you do it long enough, you get better and better at translating what's in your head to a medium. That's why I keep doing it.
+- Labels are curators of taste, and the best ones know how to monetize what an artist is trying to do.
+- Personally more so than shock, I think, rap music has to be born of rebellion.
+- I really only put stuff out when I have something to say and I feel like I've got a direction and I've got an idea - and that can even take two, two-and-a-half years to flesh out.
+- If there's any credence to the guy who wrote 'Drones Over Blkyn' a year before drones were flying over Brooklyn, then listen to me: we're going to be in fascist police state.
+- I always liked the idea that you can put something in you onto a canvas or a piece of paper and have it exist there and not inside you. It's a way to control things.
+- There's something in the German language that makes you feel like you're getting a hug and a backstab at the same time.
+- I believe that experimenting is what production is. But it doesn't mean much if you don't have a solid foundation in what you're experimenting with. You can't really deviate from music unless you know music; it's not gonna work.
+- You don't have to say something directly to affect someone. You can make a piece of music without words that can capture a feeling of tragedy or struggle or anger or triumph. It's the translation of the human experience into another form.

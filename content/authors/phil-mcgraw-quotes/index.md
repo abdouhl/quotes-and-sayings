@@ -1,0 +1,78 @@
++++
+author = "Phil Mcgraw"
+title = "Phil Mcgraw Quotes"
+quotes_len = "72"
+description = "the best 72 Phil Mcgraw Quotes"
++++
+- There's a big difference between falling in love and being in love. There's a big difference between infatuation and falling in love.
+- Now, my body fat runs around 18 percent, which is normal and, you know, kind of in the middle of normal, actually.
+- If you're trying to get out of debt, you have to be willing to treat everything as expendable.
+- When I was practicing psychology, I used to tell myself if I ever get to where I'm just doing this for the money or I'm just going through the motions, I'll quit.
+- The truth is, I think we are a self-less society, not a selfish society. Because we're so busy now.
+- I think every parent, every generation has wanted their children to do better and have a higher standard of living. But I think there's too much guilt.
+- I grew up in athletics, where people keep score.
+- Well, I'm not sure what pop psychology is, but I don't like it.
+- A lot of people do have tragic childhoods. But you know what? Get over it.
+- When you get married, your loyalty, first and foremost, is to your spouse, and to the family that you create together.
+- Relationships are negotiated and if you deal with ultimatums and authority all the time, then you're not going to get anywhere.
+- It's great if the in-laws themselves put up boundaries. But if they won't; it's up to their grown kids to do it and enforce them.
+- People are used to being coddled.
+- What I want people to do is what's healthy for them.
+- I've talked to so many people, men and women alike, that get overweight and their self-esteem just goes in the tank. They think they're judged. They think they're unattractive.
+- I mean, if you degrade someone, you isolate them, you control them, you call them names, you demean them. That's a horrible existence for people.
+- I do not believe, even remotely, that you have to have a partner in your life in order to be whole, in order to be complete, in order to be fulfilled. You just don't have to.
+- Don't wait until you're in a crisis to come up with a crisis plan.
+- Everyone faces the challenge of finding meaning to their suffering.
+- I have some wonderful friends from the Mideast that are as red, white and blue as anybody you know, that have been harassed, and I think it's a terrible, terrible thing.
+- Sometimes you just got to give yourself what you wish someone else would give you.
+- There is nothing wrong with your marriage if you're dealing with bills and kids and the broken garbage disposal and in-laws and work demands. That's a normal marriage.
+- God is a loving god.
+- If your neighbor has a completely different view on abortion, gay marriage, stem cell research, all of those things, you still are both Americans. Neither one of you is necessarily more patriotic than the other. Neither loves their country any more than the other one does.
+- Not everybody is some kind of media model.
+- There are some sick people in this world.
+- I just am not good at math.
+- My dad used to say, 'You wouldn't worry so much about what people thought about you if you knew how seldom they did.
+- Do you realize that you can't play the game of life with sweaty palms?
+- You're only lonely if you're not there for you.
+- I've learned a tremendous amount from Oprah.
+- You have got to decide, look, this is who I am; this is my best way to present myself, and I'm going to ride that horse to the finish line. Not everybody will like it, but that's OK.
+- Every one of us have things that we believe about ourselves when nobody else is looking, nobody else is listening, nobody else is monitoring what we're doing. We believe things about ourself.
+- If you've gone into a marriage and you haven't been clear about how you're going to handle money, how you want to raise kids, who is going to work or stay home or what have you, then you've set yourself up for failure.
+- I think you're running into a lot of trouble if your idea of foreplay is, 'Brace yourself honey, here I come!'
+- If I was on the air and was just kind of a plain-vanilla personality that took the safe road and the safe way trying to please all of the people all of the time, I'd been gone in two weeks.
+- I don't substitute anybody else's judgment for my own.
+- It's so much easier to tell people what they want to hear instead of what they need to hear.
+- Well, let me tell you, if you're 45, had three children and are post-menopausal, you're not going to weigh what you did the day you graduated from high school. Get that out of your head. That's a media-driven ideal that you're never going to healthfully obtain.
+- You need to listen to your body because your body is listening to you.
+- Life is a full-contact sport, and there's a score up on the board.
+- Parents need to dial in and know what their kids are doing.
+- Oh, everybody wears a mask. We all put our best foot forward. We all try and make a statement, I'm not saying that's bad.
+- Sometimes you make the right decision, sometimes you make the decision right.
+- The most you get is what you ask for.
+- The Internet is just bringing all kinds of information into the home. There's just a lot of distraction, a lot of competition for the parent's voice to resonate in the children's ears.
+- You know, what we do know is that there is a high frequency of violence in the home of those who bully.
+- Food is a coping mechanism; people are afraid of giving it up because then they'll feel confused and lost.
+- Take it from a guy: If you're in love with somebody, you will swim the stream, you will climb the mountain, you will slay the dragon. You're going to get to her somehow, some way.
+- I mean, I'm very, very competitive.
+- I think I've got the best staff in television.
+- We all have a social mask, right? We put it on, we go out, put our best foot forward, our best image. But behind that social mask is a personal truth, what we really, really believe about who we are and what we're capable of.
+- If you want more, you have to require more from yourself.
+- It's hard to see your own face without a mirror.
+- The problem is that for women, the average time is just over 14 minutes... men are left with about 12 minutes during which time they need to think of something to do!
+- Eighty percent of all choices are based on fear. Most people don't choose what they want; they choose what they think is safe.
+- A year from now, you're gonna weigh more or less than what you do right now.
+- I tell you, if you're in the front row of the parade and you stop walking, pretty soon you're back in the tuba section. And if you want to lead the parade you've got to keep moving.
+- I'm not a politician.
+- As parents we're not nearly as computer literate as our children are.
+- We teach people how to treat us.
+- You don't need a rope to pinch a stranger's butt.
+- It's better to be healthy alone than sick with someone else.
+- Awareness without action is worthless.
+- Nothing's funnier to me than laughing at myself.
+- Successful weight loss takes programming, not willpower.
+- I don't care how pumped up or psyched you are to start a new diet or a new program - that emotion will fade.
+- I'm embarrassed every time I look a teacher in the eye, because we ask them to do so much for so little.
+- I'm one of those that believes you can't be one kind of a man and another kind of president.
+- At the end of the day, whether or not those people are comfortable with how you're living your life doesn't matter. What matters is whether you're comfortable with it.
+- You don't need a pack of wild horses to learn how to make a sandwich.
+- I mean, look, teachers don't do their job for the money, obviously, because we pay them ridiculously little amounts for what they put in. Most of them come out of their own pocket for materials and things to help the children and all that.

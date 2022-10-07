@@ -1,0 +1,84 @@
++++
+author = "Willie Nelson"
+title = "Willie Nelson Quotes"
+quotes_len = "78"
+description = "the best 78 Willie Nelson Quotes"
++++
+- I just enjoy both working and not working. And fortunately, I work enough where I get that out of my system, and then we take a few days off, take a rest.
+- The whole house came up and I came up with it... I was just praying to the Lord to take care of me.
+- I got along without you before I met you and I'll get along without you a long time after you're gone.
+- Once you replace negative thoughts with positive ones, you'll start having positive results.
+- It doesn't hurt to feel sad from time to time.
+- If a song was ever good, it's still good.
+- When I was about 12, I had my first paying gig - 8 dollars to play rhythm guitar in a polka band. Pretty soon, I ended up playing in all the bars within driving distance of Abbott, Texas.
+- Where I grew up, Bob Wills and his western swing was very popular. And western swing is not that far from jazz and blues.
+- America, to me, is freedom.
+- I think Ray Charles did as much as anybody when he did his country music album. Ray Charles broke down borders and showed the similarities between country music and R&B.
+- I didn't come here and I ain't leavin'.
+- I started out really young, when I was four, five, six, writing poems, before I could play an instrument. I was writing about things when I was eight or 10 years old that I hadn't lived long enough to experience. That's why I also believe in reincarnation, that we were put here with ideas to pass around.
+- When you hear me, you know it's me, regardless of the song.
+- I think people need to be educated to the fact that marijuana is not a drug. Marijuana is an herb and a flower. God put it here. If He put it here and He wants it to grow, what gives the government the right to say that God is wrong?
+- You don't have to be poor to need something or somebody.
+- Three chords and the truth - that's what a country song is.
+- I'm from Texas, and one of the reasons I like Texas is because there's no one in control.
+- My doctor tells me I should start slowing it down - but there are more old drunks than there are old doctors so let's all have another round.
+- I like to play small clubs.
+- Since I was a kid, music was what I wanted to do. I thought I could make it by my own talents. That's what I wanted to prove.
+- Don't try to change anybody. And they should let you be yourself, 'You loved me when you met me, so let's keep going!'
+- We've already been reincarnated about a million times, maybe. It doesn't make sense any other way.
+- You could make any song sound creepy if you wanted. It's all about the inflection.
+- I would like to see more airplay for all artists, no matter what age. I think there's a lot of money being spent toward the young guys, but a lot of the older guys are the ones who blazed the trail for those young guys.
+- As long as there's a few farmers out there, we'll keep fighting for them.
+- Great songs stand out wherever they're from.
+- I like myself better when I'm writing regularly.
+- A lot of country music is sad. I think most art comes out of poverty and hard times. It applies to music. Three chords and the truth - that's what a country song is. There is a lot of heartache in the world.
+- I been a long time leaving but I'm going to be a long time gone.
+- I think most people realize that our problems are our government, not me and you individually, except that we can - must have some sort of responsibility, because they're in there and they were elected, so we have to defend ourselves on those lines.
+- I grew up across the street from, you know, the Villarias, which was a great Mexican family there. In fact, there was three houses right across the street from me. So, day and night, I listened to Mexican music, and I'm sure, you know, my guitar playing, singing, writing, whatever, has a lot of Mexican flavor there, but it comes natural.
+- We create our own unhappiness. The purpose of suffering is to help us understand we are the ones who cause it.
+- Ninety-nine percent of the world's lovers are not with their first choice. That's what makes the jukebox play.
+- You know why divorces are so expensive? They're worth it.
+- I wanted to connect all people who are thinking about peace on Earth.
+- Anybody can be unhappy. We can all be hurt. You don't have to be poor to need something or somebody. Rednecks, hippies, misfits - we're all the same. Gay or straight? So what? It doesn't matter to me. We have to be concerned about other people, regardless.
+- I was born in Abbott, Texas, a little small town in central Texas, and I was raised by my grandparents. And my parents divorced when I was six months old, and my grandparents raised me.
+- I don't like to think too far ahead.
+- I believe that all roads lead to the same place - and that is wherever all roads lead to.
+- Sometimes there is a 36-piece orchestra going off in my stomach.
+- Freedom is control in your own life.
+- Waylon Jennings and I had a lot of fun recording together.
+- I think I'm basically the same guy I always was. Maybe I've learned, through experience, to rein in some of the anger and temper they say redheads normally have.
+- I guess if you can't sing, you better have a style!
+- I used to work in the cotton fields a lot when I was young. There were a lot of African Americans working out there. A lot of Mexicans - the blacks and the whites and the Mexicans, all out there singing, and it was like an opera in the cotton fields, and I can still hear it in the music that I write and play today.
+- If you got the money honey I got the time and when you run out of money honey I run out of time.
+- I don't think any person has any special knowledge about what God has planned for me and you any more than me and you do.
+- When I see someone I think is cool, he's a pretty well-adjusted individual. He's not too affected one way or the other by what's happening, no matter what's going through his mind.
+- Writing books is fun because after I do a show for a couple hours, I'm in a bus for 22 hours. It's not hard for me to look out the window and tell a joke here and there.
+- I like to stick with music I know I can play. I love classical, but I don't think I could ever play it. I'm just not qualified.
+- You want to be a good parent and you want to be a friend, and it's hard to be both. You have to balance it as well as you can.
+- All I do is play music and golf - which one do you want me to give up?
+- Most of the stuff I've read about me has been true.
+- I started out writing poems before I figured to put melodies to them and play the guitar. Somewhere, there's a book out there on all those early songs and poems. I hope no one ever finds it. I don't think it's my finest work.
+- I'm not prejudiced in any way that I can think of. That's just not the guy I am.
+- When I started counting my blessings, my whole life turned around.
+- If you really want to get along with somebody, let them be themselves.
+- I never gave up on country music because I knew what I was doing was not that bad.
+- I just enjoy both working and not working.
+- Freedom is control in your own life. I have more control now than in the past, and I'm learning the value of saying no. That's very important.
+- Well the country songs themselves are three-chord stories, ballads which are mostly sad. If you are already feeling sorry for yourself when you listen to them they will take you to an even sadder place.
+- What has changed is that nothing has changed... that's what has made me more unhappy than everything else.
+- The first time I got onstage was when I was about 5 years old. It was at a church social, and I had a poem to recite.
+- I think most art comes out of poverty and hard times.
+- All my kids were raised on computers: They were home-schooled on the Internet, so they're pretty good at that stuff. And I'm proud of them, but I don't really keep up with it.
+- I was influenced a lot by those around me - there was a lot of singing that went on in the cotton fields.
+- Cruelty is all out of ignorance. If you knew what was in store for you, you wouldn't hurt anybody, because whatever you do comes back much more forceful than you send it out.
+- We're still here trying to get the word out that 330 farmers are quitting every week.
+- There are only so many notes so there must be only so many melodies.
+- There's a great enthusiasm for good country music all over the world.
+- I'm a romantic slob!
+- I text and email my friends and family a lot, but that's about the extent of my high-tech-etude.
+- But if you think of all the people who don't like me, just think of all the millions who've never heard of me!
+- When you're singing, you're using extra muscles, and it requires a lot of exercise and breathing. You can't do that if you're a sissy. If I have any fitness advice for people, I'd tell them to sing more. It's good therapy, too.
+- And as far as guitars go, I loved Jimmy Bryant and Speedy West's stuff.
+- Everything about Sinatra was good. He had the ability to pick great songs, and once Sinatra had sung them, that pretty much was it. He pretty much put his stamp on everything.
+- When I'm driving the highway by myself is when I write best.
+- I am not a pig farmer. The pigs had a great time, but I didn't make any money.

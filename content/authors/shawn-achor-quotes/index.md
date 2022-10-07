@@ -1,0 +1,40 @@
++++
+author = "Shawn Achor"
+title = "Shawn Achor Quotes"
+quotes_len = "34"
+description = "the best 34 Shawn Achor Quotes"
++++
+- You have to train your brain to be positive just like you work out your body.
+- Positive and engaged brains are a company's greatest assets. More than time and even more than productivity, people must be happy.
+- Scientifically, happiness is a choice. It is a choice about where your single processor brain will devote its finite resources as you process the world.
+- Our daily decisions and habits have a huge impact upon both our levels of happiness and success.
+- To be truly engaged at work, your brain needs periodic breaks to gain fresh perspective and energy.
+- The idea of investing in the positivity of employees is often low down on companies' priority lists.
+- When people exercise, we talk about endorphins, but endorphins are just short-term. The reason why exercise is valuable is it trains your brain to believe, 'My behavior matters,' which is optimism.
+- Joy is something you can experience even when life is not pleasurable. Even in the midst of a long run, when your legs are burning, you can still feel joy.
+- The more we can lower or even eliminate the activation energy for our desired actions, the more we enhance our ability to jump-start positive change.
+- The research says that being successful doesn't automatically make you happier, but being happier - being more positive - makes you more successful.
+- Traveling the world can be an amazing - and even better - a happy experience. You just have to do it the right way.
+- If you've ever tried to start up the habit of early-morning exercise, you have probably encountered how easy it is to get derailed by too much choice.
+- Taking a vacation can actually increase the likelihood of getting a raise or a promotion.
+- Too many people limit their happiness and success by assuming that taking time off from work will send a negative message to their manager and slow their career advancement.
+- The greatest competitive advantage in the modern economy is a positive and engaged brain.
+- Poorly planned and stressful vacations eliminate the positive benefit of time away. The less the stress, the more likely you will experience a positive benefit from the time off. A positive, well-managed vacation can make you happier and less stressed, and you can return with more energy at work and with more meaning in your life.
+- Joy makes us want to invest more deeply in the people around us. It makes us want to learn more about our communities. It makes us want to be able to find ways of being able to make this a better external world for all of us.
+- I once stayed at a Ritz in D.C., paid for by a client, and when I asked to change rooms because mine smelled of smoke, the hotel immediately found me a better room, then paid for my dinner and drinks and even threw in a free massage to compensate me for the very minor inconvenience.
+- Turnover can be one of the most expensive problems at a company.
+- You spend money on Internet connection for your employees. Why not spend money on the energy that fuels their brains?
+- I'd love it if every company could give raises to the average worker for doing good work.
+- Not every vacation is equal. And theory - the idea that vacations should increase happiness - doesn't always translate to reality.
+- Positive vacations have a significant effect upon energy and stress.
+- Success does not mean happiness. Check out any celebrity magazine to look for examples to disabuse you of thinking that being beautiful, successful or rich will make you happy.
+- We not only need to work happy, we need to work at being happy.
+- For me, meditation's hard because I feel like I have developed 'cultural attention-deficit disorder,' where, because we have so much stimulation, I feel like I have trouble focusing on things for very long. So when I try to meditate, my brain gets so scattered.
+- Positivity is such a high predicator of success rates.
+- What we've been finding is people are afraid of happiness. They're afraid of happiness because they think we'll stagnate or we'll be blind: that if I'm happy now, I won't keep fighting as hard. If I'm happy now, I won't push as hard to make a better world. That's what pleasure does. Joy does the exact opposite.
+- Research shows you get multiple tasks done faster if you do them one at a time. It also decreases stress and raises happiness.
+- Smart vacations lead to greater happiness and energy at work and, therefore, greater productivity, intelligence, and resilience.
+- You've probably noticed how when someone says hello or smiles at you, your automatic reaction is to say hello or smile back.
+- We sometimes think that the best doctors are the ones who have the most specialized knowledge or the fanciest degrees, but in fact, study upon study, including one published in the 'New England Journal of Medicine,' show that the best doctors are the ones who also know how to connect with their patients.
+- We know that recognition and intrinsic motivation are important to our success, but the key is finding ways to effectively operationalize them.
+- The decision to use recognition as an on-the-spot bonus instead of merely pay increases is a fascinating one, because pay increases can create new mental anchors for how much the person feels happy earning, whereas the social recognition program is ongoing, unexpected, and harder to form a mental anchor around.

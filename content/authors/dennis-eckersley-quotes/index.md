@@ -1,0 +1,29 @@
++++
+author = "Dennis Eckersley"
+title = "Dennis Eckersley Quotes"
+quotes_len = "23"
+description = "the best 23 Dennis Eckersley Quotes"
++++
+- Later, I could take something off my slider and I could make my fastball sink, so I really had four pitches.
+- I also think that I had great mechanics.
+- I was in good control of my body, and I kept my head still.
+- Tony knew me both as an athlete and as a person. He cared for me like a father.
+- I think today the players are too nice to one another, but that might change with the unbalanced schedule, with teams playing each other more and more. When you face each other that much, with that much at stake, something's bound to happen.
+- When I first came up, the bullpen was pretty much where they put the guys who couldn't start.
+- When I started finishing games and coming off the field shaking hands, it was a beautiful thing. I mean, you start seeing that you're an important part of the team.
+- It took me a few years to realize that throwing harder wasn't always better.
+- Then you figure out that if you don't throw it as hard as you can, you can put it where you want. It's more important where you put it.
+- Pitching... sometimes I did so poorly, it brought me to tears.
+- But more important than personal awards is winning the World Series. That's the max that anyone could ask for. Let alone to have the ball in your in your glove for the final out of the World Series. That was the ultimate.
+- You aren't going to stick around long with just two pitches.
+- I can't recall too much about pitching, but I do remember that I was anxious to get it over with. I just wanted to get that first game over with and go from there.
+- I had never been to the playoffs, and it was exciting. The fans went through the roof. They were excited about the whole team. It was great to be traded to a city like Chicago, which was a lot like Boston.
+- That first year in Chicago was one of the most memorable in my career. Getting traded rejuvenated me, and I had something to prove. I wanted to show them what I could do.
+- Sooner or later you learn that you belong in the big leagues, and that makes you calm down.
+- The thing that got me over the hump was accepting that I had to do whatever I could to stay in the game.
+- I'm proud of the fact that I pitched almost 3,300 innings.
+- I always had the attitude that I wanted to throw a no-hitter every game.
+- But through experience I learned to control my body and locate the ball.
+- They developed a platform for me to put up another 12 years, and that was my ticket to Cooperstown. Those were the best years of my life. It was like magic.
+- I was a starter and did some good things there, and then I got a chance to prove myself as a closer. Because of that opportunity, I was blessed with the honor of being elected to the Hall of Fame.
+- My career spanned the era when relievers started to become more important.

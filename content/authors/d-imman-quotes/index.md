@@ -1,0 +1,30 @@
++++
+author = "D. Imman"
+title = "D. Imman Quotes"
+quotes_len = "24"
+description = "the best 24 D. Imman Quotes"
++++
+- My only passion is music.
+- I'm the same composer since my first film.
+- I never let anyone lose their self-respect and make them wait in my office, or hurt them with my words, thoughts or actions. I give my e-mail address to anyone who seeks me out. I ask them to send me their work, and if I like it, I give them an opportunity.
+- I like to see myself as a composer first and only then as a singer.
+- I don't compose songs to showcase my proficiency in music or to please hard-core music lovers. The basic criterion is that my work should reach all sections of music lovers.
+- I think in this world of social media, we will be lost if we don't have an online account.
+- I'd love to do a musical on the lines of 'Salangai Oli,' 'Sankarabharanam' and 'Sindhu Bhairavi.'
+- Everyone's computer, mobile phone or music-listening device should have a folder in my name with 100 songs.
+- YouTube has been a great source for me to spot talents across the world and provide a break.
+- There were people who supported me but there were even more who denied me opportunities.
+- I want my songs to be enjoyed by those who travel in a town bus and they should be played repeatedly in a tea shop.
+- I'm really thankful to everyone who has been part of my journey.
+- Even if I was playing the keyboard in an orchestra, or a radio jockey playing music at an FM station, I would have been the happiest person. So, for me, all this... being a music composer and getting appreciated for my craft... it is a bonus. It is God's gift.
+- My first films, 'Tamizhan' and 'Whistle,' showcased me in a different light - as an urbane composer.
+- Some directors ask for a hero introduction number, a duet and a fast number towards the climax. Most of the times, these songs only hinder the story.
+- The secret of success in cinema lies in not just being talented but showcasing your talent to the audience. And, that happens only when you get the right films and directors.
+- At times, yes, I have been typecast. But I love having a regional identity in my songs. I want to deliver music that reflects the culture of our soil.
+- I would like to reach out to the global audience; Music is beyond all the culture and language barriers.
+- Unlike what people assume, it is more challenging when you work with people whom you are comfortable with, because they know what you are coming up with, and hence, they expect you to deliver something new or different.
+- The background score plays an important role in black comedies.
+- I sing when both directors and producers compel me. I'd rather give that opportunity to a gifted newcomer, to whom it makes a huge difference. There are a lot of talented youngsters out there, who can do with such opportunities. Helping them matters to me more than my singing.
+- I'm constantly trying to introduce new voices in Tamil film music.
+- I want to create songs that will last across time.
+- At some point of time, Imman won't be in this world. But my biggest asset would be if my biggest hater had at least 100 songs that I composed in his playlist. That's how I know my work will continue to live.

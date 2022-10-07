@@ -1,0 +1,43 @@
++++
+author = "Patrick J. Adams"
+title = "Patrick J. Adams Quotes"
+quotes_len = "37"
+description = "the best 37 Patrick J. Adams Quotes"
++++
+- What's really interesting and fun to explore is not just the falling in love and everything being great, but the obstacles to falling in love.
+- To get a job as a blackjack dealer, you have to be able to count very quickly. Obviously, you need to do at least math, adding up to 21 very quickly.
+- I probably get eight straight hours of acting in an entire season or two seasons of 'Suits.' It's broken into such small pieces.
+- Anytime I met an actor, I just attacked them and said, 'How did you do this?' Eventually, I began to realize that you went to school for it. I wasn't a bright kid, so it took me a long time to figure that out.
+- I actually dealt blackjack for a summer.
+- By the time I got 'Suits,' I thought my time in Hollywood was coming to an end.
+- I got a part in a play in 10th grade, and that changed everything, woke up my love of theater.
+- I fell in love with acting, just going to a lot of plays. My parents went to a lot of plays, and I went to a lot of schools that would get plays for kids.
+- I love Robert Capa.
+- One of my first jobs was on a show called 'Cold Case.'
+- I like auditioning. I like working on material. I just love working. I like the chance to work on material. Sometimes it helps to not be going into a room cold and to know people. I've spent a lot of years getting to know people in the business, and that really helps. It depends. You can have some pretty terrible auditions.
+- I'm terrible at languages. I'm trying to learn Spanish. I tried to learn French as a kid.
+- We'd get into trouble a lot in school, and I could sweet talk my way out of it. I was really a charmer: I was the guy who would get to the office, the principal would sit me down, and within 10 minutes, we'd be, like, talking about some movies or something.
+- High school was a complicated, confusing time for me. I wasn't confident, didn't know who I was, and was hiding from myself a lot.
+- My dad was a journalist. One great trip we took was to Israel. We went there and drove through the whole country, and it was pretty incredible. We went to the Philippines and saw the beauty of that country but also what poverty really looks like. That had a profound effect on me.
+- I just love shows that don't hand everything to you, that ask you to be smarter. I think that's something really important that HBO has done to change the landscape of TV.
+- I was fired from an NBC sitcom called 'Friends With Benefits.' I was wrong for the part from the beginning, didn't even want to audition, and kept thinking, 'This isn't funny at all.'
+- The thing I learned about suits is that they only fit you for about a week after you've had them tailored.
+- I do think we have a responsibility to be aware of the stories we're telling and how those stories will be interpreted and what sorts of value systems we're celebrating.
+- I always travel with one book. I'll read it and then leave it for someone else, and take another book.
+- So, from a very young age, my mom tells me that I wanted to be Michael J. Fox. I didn't want to be an actor. I just wanted to be Michael J. Fox for awhile. And then, I realized that he was an actor, so I pursued that.
+- I'm a Virgo; I naturally love to organize things.
+- Working on a show for seven months is, as it turns out, kind of exhausting.
+- For me, university was a bit of a rebellious streak. I love teachers but I'm inherently a bit of an anarchist and don't trust you because you're my teacher. Somewhere around my second or third year, I realized as an artist that it's up to us to choose our path, and there's nothing wrong with being given many different tools to put in your tool bag.
+- I don't think people can die on 'Suits.' It's still, at its heart, an aspirational show, and it would be so hard to watch these people wrestle with that.
+- There was a small window when I wanted to be an astronaut. It may have coincided with not getting cast in a high school play.
+- I was always into film, but theater was my entry point. I always felt like film didn't make sense to me as a kid. It was just so magical that I was like, 'There's something going on back there that I don't know.' But, when I watched theater, it was something that was happening in front of me.
+- Theater is a way to keep challenging myself.
+- I was really a charmer; I was the guy who would get to the office, the principal would sit me down and within 10 minutes, we'd be, like, talking about some movies or something.
+- I believe in picking a strong ending.
+- It's the big question of every TV show, right, where you have these two people who it's clear the world wants to put them together and everyone wants to see them together, but also when you're telling these stories you can't throw these people together immediately.
+- I've definitely gotten a few jobs by pretending like I knew what I was talking about.
+- My dad was a journalist. He was in Rwanda right after the genocide. In Berlin when the wall came down. He was always disappearing and coming back with amazing stories. So telling stories for a living made sense to me.
+- The entire time I was up shooting 'Suits,' I was running back to my trailer to help get 'Nine Circles' produced. It's a no-brainer for me to keep that part of life alive.
+- 'Suits' is 'Suits.' It's grown and changed and evolved in lots of ways that I'm super proud of, but as an actor on a show like this, you try and make it something other than what it is sometimes.
+- My whole career is just terror, from beginning to end. That's kind of my thing. A lot of happy accidents happened.
+- I just wanted to do it all. Film and television was so strange to me because I didn't grow up in the business, I didn't know anything about it, and I had never been on set before. But, from the minute I got on set and did 'Old School,' I was like, 'I want to do this!'

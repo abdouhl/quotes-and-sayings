@@ -1,0 +1,106 @@
++++
+author = "Young Dolph"
+title = "Young Dolph Quotes"
+quotes_len = "100"
+description = "the best 100 Young Dolph Quotes"
++++
+- I've been targeted since I was 17, 18, 19.
+- I'm always doing my part as a CEO.
+- People that know they gotta work every day, them the kinda people I respect.
+- RIP to George Floyd and condolences to the whole family.
+- In the game, you've got some people who've got money, but their music is kind of off, their music is garbage. Then, you have people with good music, but they ain't got the biggest part: They ain't got the funds. But me, I'm just all the way around the board.
+- Not a lot of people make it out from where I'm from but I'm a living example showing you that it's possible. Word hard, play hard.
+- You learn how to take sacrifices, you learn to give things up to get into something you're trying to get into.
+- At the end of the day, don't nobody go into business to lose money.
+- We ain't got no limit with nothing we do, even if it's not music-related.
+- I don't wanna be like everybody else.
+- It's a big world and I got a lotta money to get.
+- I like seeing new artists with no buzz, because I can give them game, and they'll take that and run with it. It's not like someone who's been around that feels like they know it all.
+- Everybody you see around me, they're kings. Every last one of them. I ain't the only one that got paper.
+- Man, my little boy wanted to hear some new music. So it was like, I can't just play all my music around him, so I got to go ahead and make a whole project so I can get it clean, and have a clean version of all the songs just so he can listen to my music, you feel me?
+- When I talk about success I don't mean music business, I just mean the people around me.
+- There were two hoods, Magnolia and Castalia; I went to Magnolia Elementary. Back then there was slick beefing - all the Castalia kids would go over to Magnolia.
+- Hell yeah, I've influenced a whole lot.
+- We just like having fun with everything we do.
+- When I get my music mixed, I'm actually in the studio with the engineer, every project I've ever put out. So it's supposed to always say mixed by whatever engineer I use and Dolph.
+- Really, more than everything, I'm excited to showcase these talents that I got around me.
+- I'm willing to help anyone who is working hard.
+- Whatever it is we doing, we gonna do it to our very best.
+- I told myself, if I sacrifice Young Dolph and never sign to a major label and I get Young Dolph hot? I'm going to earn and get all of these relationships and do a lot of networking. I'm gonna know the business, all the way, ins and outs.
+- My haters is bigger than life.
+- I got responsibilities I got to take on whether I like it or not.
+- It's really important for everyone in our community to stand for something.
+- Baller Alert' is based on my lifestyle. As I talk about in the song, I've done a lot of dirt and worked hard to get to where I am. This song, like a lot of my songs, is about celebrating life.
+- I'm done doing music so I can go kick it with my son.
+- I always liked money, so when I was 15, 16 I went headfirst in the streets.
+- Never downplay nobody.
+- I got a record label and I got a couple artists signed. All of them got real-deal.
+- I don't want to play police games. When you start playing police games, I take myself out of the equation.
+- I really don't like showing my hand.
+- Dolph writing movies. Dolph into fashion.
+- I'm grown now. I ain't a kid no more.
+- There's a lot of people in this game that wait for Paper Route, Dolph or Glock to drop just to get that new lingo and style and see what type of creativity we on.
+- Listen to 'Dream.' It's just me all the way. It's like raw. It's gutter. It's real. It's authentic. It ain't like nobody else. Don't sound like nobody else, no nothing.
+- You ain't got to run your mouth. All you got to do is let you actions speak.
+- Dodge all the suckas.
+- That first tape I did dropped in 2009. It was just for fun, I'm like 'I'm just going to do something to have fun.' Everyone was just 'put out a tape. You're young. You've got money. It ain't gonna hurt you. Who's it gonna hurt?' So what I ended up doing was I put out the tape, pressed up 20,000 CDs, flooded the streets.
+- Music is like art, so I just paint all my pictures and put 'em out there.
+- What matters to everybody else don't matter to me.
+- It was a strategic plan, because prior to us doing 'Dum and Dummer,' me and Glock never had music together. So I planned it that way - because I always wanted Glock to take off and go big on his own, without a Dolph co-sign or Dolph feature.
+- The first rap I recorded was on Jeezy's 'White Girl' beat. One of my partners invited me to his studio, so I go. I wasn't planning on recording, we were just messing around. And I started recording a song, just a freestyle. Back then, Jeezy was going so hard, that's what everyone was on. That's what me and my partners in the trap would listen to.
+- I don't give a damn if it's a hustle that's already big or you go to work at Kroger every day, the grocery store. Or you work at Walmart. You work, so I respect you. You don't work, what can we do? We can't relate.
+- I'm here to satisfy the people. I'm here to teach. I'm here to motivate. I'm here to give people the adrenaline, the push and support.
+- I'm not going to play with the police.
+- But that was our thing from day one: to make Paper Route Empire strong. That's why I never wanted to sign to no label.
+- Yeah, I was going to have no features on 'Bulletproof.' But I ended up putting Gucci Mane on it. That's just my partner. He's just one of my personal friends. It ain't no different for him from my homeboys in Memphis. I just have a real personal relationship. I met Gucci Mane through my partner Drumma Boy, the producer.
+- Every decision you make, you got to stand on that decision.
+- There are three rules for being in the Paper Route Illuminati. Rule number one: get the money first. Rule number two: don't forget to get the money. How do you make that money? You can't make money without making sacrifices.
+- I got a lot of artists, and I been dropping all my artists' projects, and they going up.
+- It's just like, we know how to push ourselves to the max.
+- Once you been listening to the same CD for, like, two weeks, three weeks, it get old to you. You need something new.
+- The best thing is to invest in yourself, because it takes money to make money.
+- When you come to Memphis you get the family vibe. All of my partners, friends, they're from my neighborhood.
+- You only get one shot at life, one life to live, make the most out of it put as many smiles as you can on people's faces, help as many people as you can, get you some paper. Live life, you and your folks.
+- I'm not trying to regret nothing in my career.
+- Whatever you want to do, just make solid decisions.
+- Everything I know and everything I got, I had to teach myself.
+- It's the reality of being Black in this country. You can have money, and you can be a benefactor and a leader in your community, but all people see is Black skin.
+- You really got people that you got to talk to every day, you got teams that you gotta work with every day. You lose track of... not real life, but the people that really love you. It becomes a distanced thing because you give that job all of your time.
+- When I first started rapping, one of my partners who kept telling me to do music, I had asked him who I should buy some beats from, and he said DJ Squeeky.
+- My cousin put me on Three 6 Mafia and Playa Fly. My other big cousin put me on 8Ball and MJG.
+- My mom and dad are from the streets. My mom's from Chicago. My dad's from Memphis. My dad got out of school and got with my mom. They were hustlers. They were from the streets. They were doing their thing. The streets ain't got no love for the streets. You can light up the streets, or be a victim of the streets.
+- If there's something negative about you, you've got to bring out the positive to the front.
+- Never stop working. Never stop, never get satisfied.
+- Man, I really think I was just fascinated with money... and I always wanted it growing up. I always wanted money... Once I got upwards in age, the older I got, the more fascinated I got with money.
+- I respect people that build a career for themselves.
+- I don't have no deadbeat dads around me. How do you look hanging with me, when I got kids that I am taking care of and you in the backseat not taking care of your kids?
+- I'm through buying cars. I'm through buying jewelry.
+- Dumb & Dumber' is one of my and Glock's favorite movies. We do stuff in real life that's just like they do in that movie.
+- People, my age, people older, people younger, it's like they look up to me. They listen to my lyrics for wisdom. They listen to my lyrics for like game. They listen to my lyrics for real deal beneficial purposes.
+- I'd rather motivate somebody all day long.
+- I'm not just an artist. I'm a CEO.
+- You make good music, you're going to get good results.
+- I'm not like most artists or most CEOs - I'm a CEO first, then an artist.
+- When you from Down South, it's, 'You're a trap rapper,' 'You're a street rapper.' They try to put you in a category.
+- I was always real deep into music. From everything, all around the board - from East Coast, West Coast, down South, everywhere. I just been a fan of music and I know I always wanted to do it myself and I wanted to do it my way. So, I told myself if I ever start doing music, I'ma do it my way. That's what made me start my own label.
+- I like peace and quiet. It's like I'm a loner.
+- When I'm finished doing music or whatever, I want people to remember me as just being great.
+- Real respects real, so if you can get Memphis to love you, you have to have something real there. Memphis doesn't just support anybody.
+- I know how to make myself hot. I can drop my own music. I can shoot my own videos.
+- I didn't agree with everything she was trying to get me to do and teach me, but once I got old enough, I understood everything. I'm thinking she was being mean. I'm like, 'Damn, I just want to have fun. I just want to go outside, Grandma, play with the rest of the kids and kick it and ride bikes.' She prepared me for life with all of the rules.
+- I have to think big.
+- I ain't finna be beefing back and forth about no girl, bruh. I'm not doing that.
+- This has always been my plan and my vision, to build a strong team and build artists like Glock. I always knew I could do it with artists, because I saw what I did for myself as an artist.
+- I told my grandma a long time ago that I was going to take my mom and dad out the hood.
+- We did so much music together, before he got locked up, it's just, Gucci, he don't hold on to music. He like, Man, let's put this out, let's put that out, let's put this out. That's what he do. He like to put out a lot of music.
+- You can't be playing halfway or you are gonna get halfway results.
+- I've been enjoying life for a while.
+- Ain't nothing like family.
+- Memphis wasn't hot before Dolph came out.
+- When Young Dolph dead and gone, people still going to be talking about the Paper Route Empire.
+- You work hard enough everybody going to see it.
+- In a relationship, whether you got money to deal with it or no money to deal with it, the best relationships are going to be the ones where you understand each other.
+- At the end of the day that's the only thing you can't pay for, the thing you can't get back. So you gotta learn to sacrifice that time to put something you trying to invest in.
+- I'm a person. I don't like having security.
+- I know what the streets want to hear, I know what the streets going through, the lingo, the fashion, everything. It ain't nothing; it's my real life.
+- When people think Down South they think: 'They're not up on game,' or 'They ain't hip.'

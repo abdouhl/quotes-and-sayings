@@ -1,0 +1,57 @@
++++
+author = "Darryl Pinckney"
+title = "Darryl Pinckney Quotes"
+quotes_len = "51"
+description = "the best 51 Darryl Pinckney Quotes"
++++
+- The nameless loser in Jay McInerney's 'Bright Lights, Big City' is going to the dogs like a gentleman. He is too smart to blame anyone for the impasse he has come to, hip enough to know he does not know enough, too sophisticated to masquerade as an anti-hero.
+- Jean Toomer is a phantom of the Harlem Renaissance. Pick up any general study of the literature written by Afro-Americans, and there is the name of Jean Toomer. In biographies and memoirs of Harlem Renaissance figures, his name is invoked as if he had been one of the sights along Lenox Avenue.
+- When I was in high school, I looked for the black presence in a British historical tradition - before too much slavery and empire - that would not cost me my self-respect.
+- Once upon a time, I was morbidly sensitive about the impertinence born of sociology. Taxi drivers would not stop for me after dark; white girls jogged to keep ahead of my shadow thrown at their heels by the amber street lamps. Part of me didn't blame them, but most of me was hurt.
+- Novels set in distant places give us expectations not unlike those we have of travel writing, and often the distinctions are blurred, as in, say, the way the low life of Tokyo's Shinjuku Ward is depicted in John David Morley's recent 'Pictures from the Water Trade.'
+- Eventually, I gave up my sublet in Berlin and stayed in England for a long time - for about 20 years.
+- I was a slow and lazy reader as a kid. 'The Prince and the Pauper' was the only non-school book I would read, over and over, between television, records and radio, until I picked up my aunt's copy of 'In Cold Blood' and she didn't ask for it back.
+- Unfortunately for me, I was one of these people who took a long time to learn that the material at his feet was fine.
+- 'Go Tell It on the Mountain,' its pages heavy with sinners brought low and prayers groaning on the wind, scared me when I read it as a teenager.
+- Frederick Douglass had charged the air with rebellion and redemption, and these in turn had supported him in the heat of abolitionism. But the atmosphere changed to one of repression after the Civil Rights Act of 1875.
+- Ellison was prominent on the lecture circuit even in the Black Aesthetic days of the Sixties when his defiantly pro-American and prickly-proud intellectual act met with some hostility.
+- Race pride, socialist ideals, and a sincerity as exalted as that of Carlyle's visionaries coalesced in Asa Philip Randolph.
+- The draining away of James Baldwin's magic was a drama much discussed in the years leading up to his death in 1987 at the age of sixty-three.
+- The demise of Reconstruction had made it hard for blacks to acquire capital or to pass on property to their children. As blacks were driven from all but the most limited spheres of business and political life, the prestige of the professional rose in the black community.
+- The history of black people in Manhattan is a story of people getting pushed farther uptown as land acquires new uses and increases in value.
+- When writing on black life, whites have often been unwelcome, usually called upon to give witness or hauled in as the accused.
+- None of the black abolitionist newspapers, the first of which appeared in 1827, was in existence after the Civil War.
+- If the sensitive washout has no taste for extreme gestures, total self-destruction, then his hope for singularity rests in his voice. Tone is everything.
+- 'High Cotton' is more conscious of class than 'Black Deutschland.'
+- 'Invisible Man' holds such an honored place in African-American literature that Ralph Ellison didn't have to write anything else to break bread with the remembered dead. But he did try to go on, because if a writer has done one great thing, then the pressures to do another are intense.
+- Manhattan was the capital of the twentieth century for black writers, artists, and intellectuals as much as it was for their white counterparts.
+- That slave narratives existed at all implied a satisfactory conclusion to the journey - the attainment of literacy, the escape to the place where one could reflect on the experience of bondage and the flight to freedom, and, in the early days of the slave trade, the conversion to Christianity.
+- New York's various undergrounds can make for a disciplined apprenticeship, and Gaga takes pride in her earliest fan base of art, fashion and music students.
+- I know black kids who don't even know any other black kids except their cousins. And that's enough. You wouldn't look at these kids and say that they are Uncle Toms or self-hating or fleeing or trying to be white, given the culture in which they live, which is very natural to them as kids.
+- The history of blacks is complicated, fragmented, disturbing to contemplate - not a neat trail of challenges met or of felled trees blocking the path to the mountain top.
+- The city - as the theater of experience, the refuge, the hiding place - has, in turn, been replaced by an abstraction, the fast lane. In the fast lane, the passive observer reduces everything - streets, people, rock lyrics, headlines - to landscape. Every night holds magical promises of renewal. But burnout is inevitable, like some law of physics.
+- Harlem's streets lead backward, into history, straight to a work such as 'This Was Harlem.'
+- Harlem exists in retrospect, in the memory of grandparents or elderly cousins, those 'old-timers' ever ready with their geysers of remembered scenes. The legends of 'Black Mecca' are preserved in the glossy musicals of Times Square and in texts of virtually every kind.
+- In the years after World War I, blacks began to migrate to the North and its imagined freedoms in great numbers - 'Russian' came to mean a black who had rushed from the South.
+- The name James Baldwin had been around the house for as long as I could remember and meant almost as much as that of Martin Luther King.
+- For a long time, Nella Larsen was the mystery woman of the Harlem Renaissance. In the late 1920s, she published two sophisticated novels, 'Quicksand' and 'Passing,' and then her writing life came to an end. She died in obscurity in 1964.
+- As long as white newspapers were unwilling or unable to attack 'anti-Negro' forces or to air the views of black reformers, there was a service black newspapers could provide.
+- Baldwin gave expression to the longings of blacks in exalted prose. He was embraced, in the tradition of Negro Firsterism, even by those who never sat down with a book, as our preeminent literary spokesman, whether he liked it or not. Neither athlete nor entertainer, but nevertheless a star.
+- I carried props into the subway - the latest 'Semlotext(e),' a hefty volume of the Frankfurt School - so that the employed would not get the wrong idea or, more to the point, the usual idea about me.
+- I never read lying down.
+- A few of Ellison's short stories from the 1940s and 1950s were widely anthologized over the years. After a while, it became generally known that he was at work on another novel. Though he remained aware ever afterward of the authority 'Invisible Man' gave to him, no second novel followed his brilliant debut in 1952.
+- I had a lot of notes and fragments and observations that never amounted to anything. After the Wall had gone down, so many people were writing about Berlin, I didn't have the same urgency or feel enough authority.
+- Identity is made up of lots of different things now. Different colors and patterns stand out at different times. Different instruments in the symphony of being are more distinct than others at different times.
+- Whatever was said about Ralph Ellison, 'Invisible Man' was considered untouchable.
+- The novel and the film of 'The Color Purple' are both works of the imagination that make claim to historical truth.
+- I wrote 'Black Deutschland' very quickly one summer, probably because I had a lot of it in pieces and fragments sitting around over the years as false starts or notes.
+- After Reconstruction, black newspapers evolved from being a propaganda arm into a kind of opposition press, because even the friends of former slaves had their fears.
+- History is a sly boots, and for a generation of blacks that cannot identify with the frustrations of Jim Crow, and for whites who cannot understand the hard deal that faces working-class blacks, it is difficult to reconcile Hughes's reputation as a poet-hero with his topical verse and uncomplicated prose.
+- Black America has always felt itself divided into two classes: the mucky-mucks and the folk.
+- I grew up in Indianapolis, Ind., then a conservative, provincial city. Anglophilia was the first foreign language I was exposed to. Or maybe it was a way of one-upping the local white people. Or maybe it was an early manifestation of homohood.
+- Paule Marshall does not let the black women in her fiction lose. While they lose friends, lovers, husbands, homes, or jobs, they always find themselves.
+- Steven Spielberg's 'The Color Purple' might as well have been about a bunch of dancing eggplants for all it has to say about black history.
+- 'Harlem: The Unmaking of a Ghetto' is a surprise and a fresh way of looking at Harlem, connecting the black district with the architecture of its historical past.
+- Slave narratives had their greatest influence on public opinion and on literature in the U.S. between 1830 and 1860. After Reconstruction's defeat, their urgency of tone was replaced by the softer one of reminiscence.
+- I'd waste a holiday trying to set a story in this new place I'd visit, whereas I would never write a story about Indianapolis.
+- Tone is everything.

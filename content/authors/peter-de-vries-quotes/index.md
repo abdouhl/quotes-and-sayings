@@ -1,0 +1,36 @@
++++
+author = "Peter De Vries"
+title = "Peter De Vries Quotes"
+quotes_len = "30"
+description = "the best 30 Peter De Vries Quotes"
++++
+- Words fashioned with somewhat over precise diction are like shapes turned out by a cookie cutter.
+- The difficulty with marriage is that we fall in love with a personality, but must live with a character.
+- It is the final proof of God's omnipotence that he need not exist in order to save us.
+- When I can no longer bear to think of the victims of broken homes, I begin to think of the victims of intact ones.
+- I love being a writer. What I can't stand is the paperwork.
+- Gluttony is an emotional escape, a sign something is eating us.
+- We are not primarily put on this earth to see through one another, but to see one another through.
+- We must love one another, yes, yes, that's all true enough, but nothing says we have to like each other.
+- Celibacy is the worst form of self-abuse.
+- The bonds of matrimony are like any other bonds - they mature slowly.
+- The murals in restaurants are on par with the food in museums.
+- Pain is the question mark turned like a fishhook in the human heart.
+- Who of us is mature enough for offspring before the offspring themselves arrive? The value of marriage is not that adults produce children but that children produce adults.
+- Everybody hates me because I'm so universally liked.
+- The rich aren't like us, they pay less taxes.
+- Let us hope, that a kind Providence will put a speedy end to the acts of God under which we have been laboring.
+- Murals in restaurants are on a par with the food in museums.
+- The value of marriage is not that adults produce children but that children produce adults.
+- I was thinking that we all learn by experience, but some of us have to go to summer school.
+- Life is a zoo in a jungle.
+- My father hated radio and could not wait for television to be invented so he could hate that too.
+- Confession is good for the soul only in the sense that a tweed coat is good for dandruff - it is a palliative rather than a remedy.
+- The satirist shoots to kill while the humorist brings his prey back alive and eventually releases him again for another chance.
+- I wanted to be bored to death, as good a way to go as any.
+- The universe is like a safe to which there is a combination. But the combination is locked up in the safe.
+- The tuba is certainly the most intestinal of instruments, the very lower bowel of music.
+- There are times when parenthood seems nothing more than feeding the hand that bites you.
+- Nostalgia isn't what it used to be.
+- A suburban mother's role is to deliver children obstetrically once, and by car forever after.
+- I write when I'm inspired, and I see to it that I'm inspired at nine o'clock every morning.

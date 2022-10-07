@@ -1,0 +1,26 @@
++++
+author = "Sasha Spielberg"
+title = "Sasha Spielberg Quotes"
+quotes_len = "20"
+description = "the best 20 Sasha Spielberg Quotes"
++++
+- One of my least favorite things is having my full name called out at the pharmacy. I always try to cut them off before they can say 'Spielberg.'
+- At first, I had such stage fright, and it was always comforting to look over and see my big brother.
+- I've kept a diary since I was seven years old, and I still write in mine.
+- At the risk of sounding corny, the beach and the ocean are such a constant part of Los Angeles life, so that definitely seeps into our music.
+- We like to combine genres. Theo grew up listening to punk, and I love Christina Aguilera.
+- We're incredibly honest. I don't tiptoe around my choice of words with Theo. This can start some fights, but in a very healthy way.
+- All I've really been working on since I was a kid is music, but sometimes I feel like I'm an imposter or something.
+- When I was much younger, I used to practice my Oscar speech in the mirror. I used to beg my parents to be in movies.
+- I think my whole life, I put a lot of energy into pleasing other people, and trying to make jokes, and trying to make people laugh.
+- Some people are totally fine with just checking Instagram once a day and then putting their phone down. But with me... self regulation is very difficult and it's a battle.
+- I can kind of be a chameleon.
+- I used to pretend like I was 27 years old and about to get married and unsure if this was the right guy for me when I was 12.
+- I was the girl who was correcting people on the spelling of Led Zeppelin.
+- My approach to makeup is different between when I'm single and when I'm in a relationship. There are a lot of Sashas!
+- I was in a long-distance relationship. There's a lot of heartache in distance, and in proximity - those ideas you have when you're next to someone who you haven't seen in a month.
+- I actually find that my hair looks the best on tour with my band, Wardell. And it's funny because I'm just using cheap hotel shampoo and conditioner.
+- I'm on many a pill for my skin... I feel like that's cheating but when I turned 18, out of nowhere I got acne.
+- We tracked 'Domestic Sweater' live as a full band. It had been a while since we had even performed so in doing so, a sweet innocence arose, as though we were playing in our garage again.
+- I assume everyone is going to hate my music before listening to it or hate me before meeting me because of where I come from and my name - it's not Smith or Taylor.
+- So most days I don't wear makeup, but I do like this liquid eyeliner from Prestige Cosmetics in Icon that I think you can get at any Rite Aid.

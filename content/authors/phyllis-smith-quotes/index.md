@@ -1,0 +1,65 @@
++++
+author = "Phyllis Smith"
+title = "Phyllis Smith Quotes"
+quotes_len = "59"
+description = "the best 59 Phyllis Smith Quotes"
++++
+- I had a really fantastic time shooting 'Bad Teacher.' I loved every second of it.
+- I'm just a normal person, believe me.
+- I've just tried to be a responsible person and pay my bills. But whatever it is I do, I want to do the best I can.
+- When I'm home, I go back to the same routine that I've had since I was a kid.
+- We're not whole people if we're just one emotion. On any given day, you can be happy, sad, angry, and so on... As you mature, you just learn to deal with each one of those emotions.
+- I want to do the best and be the best at what I do.
+- We all have these emotions, but you never really want to own up to sadness. You want to bury it.
+- My love for dance was so strong.
+- I have said in many interviews that God had a better plan for me than I ever anticipated. I still firmly believe that, and I am grateful for a prayer answered.
+- In today's world, everyone's so clued into their iPhones, and communication is going by the wayside as far as one-on-one is concerned. It's very seldom that I walk into a room and parents make their children say hello and have a social grace with one another.
+- I grew up when Disney was doing movies like Cinderella, and all the girls were princesses.
+- If I wasn't going to be able to dance professionally, I wasn't going to dance. That's my all-or nothing personality coming out.
+- Well, I think that in every character there are little bits and pieces of yourself.
+- I'm generally pretty happy about life.
+- It was only after I'd had some injuries that I basically retired from the performing side of show business and then began working in casting. I did that for 19 years or so before a friend of mine decided to cast me as Phyllis Lapin-Vance on 'The Office.'
+- Listen, if there's anything we need more of in this world, it's something that has a better ending or is more positive.
+- I know I'm not supposed to talk about God and stuff, but my spiritual life is very strong, and I really feel that a big part of whatever success I'm having is due to that as well.
+- I had one young man tell me he wished I was his mom. Another young woman told me that every time she watched 'The Office,' I reminded her of her mother, who had just passed away a year ago, and that every time she saw me she felt as if she had a piece of her mom still with her.
+- Everybody involved in Pixar, I've not met one person who's not incredibly creative and nice and lovely and know what they're doing.
+- I'm not accomplished enough to over-analyze something, because I don't have the background as far as people who write and know how to break down a character or story and stuff. I mostly go by gut instincts.
+- When I hurt my knee, I knew it was time to retire from dancing, and I needed a job just to pay the bills, and I ended up as a receptionist for about three-four years.
+- Just go for it. Don't be afraid of trying new things. You have absolutely no idea what's going to present itself to you. Don't be frightened. Just buckle down and do whatever your heart desires.
+- In my heart, my first desire was to be a dancer. I always wanted to dance and I danced from the time I was 7 till I was well into my 30s.
+- My family in St. Louis brings me to my roots.
+- I have always been more of a joyous person than a sad person. But I was fortunate to have a mom and dad where my mom could look at my face and know what was going on and was able to get me to talk and draw it out. As a result, I didn't have to hide an emotion. I didn't have to worry about her telling me, 'That's silly.'
+- When I was in casting, we would bring somebody in, have them read their lines, maybe give them a few pointers, and hire them, and then once they go to the set and you have a director who's directing them, that performance may not be anywhere near what you had in the audition, either good or bad.
+- I feel like I'm an ordinary person, but I've had extraordinary opportunities in my later life, and I never saw any of it coming. I never saw 'The Office' coming, I never saw 'Inside Out' coming, and I just feel grateful and thankful to have these opportunities and to have an actual real enthusiasm in my life.
+- As a dancer, one of my many teachers along the way made the comment that who I was onstage and who I was off were two totally different people.
+- One of the first places I was ever recognized after 'The Office' came out was at Target in Los Angeles. Someone came up to me, and she said, 'Are you Phyllis from 'The Office?'' We were in different aisles, but she had recognized my voice.
+- The discipline as a dancer carried over into my life.
+- I don't really think about being pigeonholed so much.
+- If you look at the character of Sadness, they really nailed my eyebrows.
+- I wish I had paid more attention in my psych class in college. I would've had a broader vocabulary to draw from.
+- I didn't want Sadness to be just one note.
+- I once prayed when struggling financially and worried how I was going to be able to assist my parents in their latter years living thousands of miles away, to help me win the lottery or something. And I did win the lottery, just in a different and better way.
+- I find myself dancing in the grocery store.
+- To be in a Pixar movie is just great to begin with, and it has afforded me the opportunity to do a different medium because I have never done voice-over before. And I love it.
+- When we were doing 'The Office,' there was an area backstage where they worked on hair and makeup, and I was sitting there waiting to get ready to go on, and one of the writers went, 'I want you to audition for 'Bad Teacher.'' I went, 'Okay!'
+- I used to watch, on television on Sunday nights, they had the Disney hour then and the castle coming up and 'When you wish upon a star... ' That was my very first Disney memory.
+- I've had an experience that... I don't know the right label to put to it, if it was an angel or Jesus or what. Nobody knows anything for sure about that, but I know that I had an encounter, and I know that things exist beyond this realm, most definitely. I'm grounded in that.
+- God truly had a better plan for me than I had imagined. You never know what life has in store.
+- IMDB's not the most accurate. Even my birth place and my age are wrong there.
+- Sadness is a necessary emotion. It's maybe not the most pleasant one to have, but it's cathartic.
+- I did ballet, tap, jazz, modern, I taught dance here in my hometown of St. Louis.
+- Hopefully, 'Inside Out' will have the longevity that those older movies have, and many years down the line, people will be able to watch it and find some kinship with it.
+- Life is not all a bowl of cherries. There are days when you aren't going to feel up to par. And it's healthy to see it in yourself and to ask, 'Hey, what's going on?'
+- I just wanted Sadness to be true, to come from a real place. I tried to work from the inside out, going from my gut all the time. I didn't over-analyze it. I just did it.
+- Generally, I'm not sad. I mean, everyone has sad moments.
+- Even before 'The OA,' I was a very spiritual person.
+- I believe in angels.
+- We are made up of multiple emotions. And it would be unnatural to completely eliminate even one or two or three of those. It's impossible. You'd become a robot if the emotions weren't there.
+- For me, I want to find the truth in the word and the character and the line.
+- Everybody wants to shine a little bit, even a wallflower.
+- I know how difficult it is for actors to get work, because I did casting for all those years.
+- I do like comedy and drama.
+- You have to understand that when you're a voice actor on an animated film, you're really just a tiny little piece of this huge process. And when you finally get to see the finished product and see all of the wonderful work that the animators & the designers & the writers did to make your character stand out, it's just so touching, so humbling.
+- One day, I was taken into a room with 25 animators, all working on Sadness. They asked me a lot of questions, and they got something of the way I move into the character.
+- I know how difficult it is to get one job, much less an entirely new career. I'm very blessed and grateful. It's like I'm a normal person with an extraordinary journey.
+- When I was little, my mom would dress me up and take me downtown on the Carondelet bus, which in itself was exciting. We would go to see Santa Claus at Famous-Barr. The decorations were so pretty. The line was long, but that just gave me more time to enjoy Santa's Toyland. I loved every minute of it.

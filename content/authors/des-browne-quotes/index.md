@@ -1,0 +1,24 @@
++++
+author = "Des Browne"
+title = "Des Browne Quotes"
+quotes_len = "18"
+description = "the best 18 Des Browne Quotes"
++++
+- I agree with the British Legion that we have a responsibility to support our troops and support their families, particularly when we are asking people to do very difficult and dangerous things for our security.
+- I am sorry to be leaving the post of secretary of state for Scotland.
+- What you need to do in conflict resolution is to bring the people who believe that the answer to their political ambitions will be achieved through violence into a frame of mind that they accept that their political ambitions will be delivered by politics.
+- While we are deploying troops in their thousands, we lose the chance to build up their basic skills.
+- The Helmand area used to be the breadbasket of Afghanistan. There was a time when a substantial number of the grapes we ate came from Afghanistan.
+- Nuclear weapons are infinitely less important in our foreign policy than they were in the days of the Cold War. I don't think we need nuclear weapons any longer.
+- I do not believe it makes sense to say that nuclear weapons are inherently evil. In certain circumstances, they can play a positive role - as they have in the past. But clearly they have a power to do great harm.
+- With the enhancements to the security of the passport document itself that biometric technology will bring, it is time to make equivalent enhancements to the process of establishing identity before issuing passports.
+- I will do what the Prime Minister asks me to do; that is my consistent approach to politics and to service.
+- It will require a sustained military and financial commitment by the international community, working with the government of Afghanistan, to create the environment in which enduring democratic institutions can be established.
+- We live in a very uncertain world, and I think that uncertainty of itself generates an environment which we should not make a decision that deprives future generations of the deterrent effect that the nuclear weapons have provided for us and for almost all of my life.
+- There are some days when history is made. Yesterday was one - and I was honoured to be in Washington to watch Barack Obama being sworn in. During his soaring inaugural address, the new president gazed over a teeming National Mall that was crowded with more than a million people.
+- You can't talk about defeating insurgencies in the same way that you can with a conventional army.
+- Are we prepared to tolerate a world in which countries which care about morality lay down their nuclear weapons, leaving others to threaten the rest of the world or hold it to ransom?
+- Before they deploy, they train for the specific operations, but there is a danger that the Army is not retaining the core of its full capabilities.
+- The ability to send applications by post allows fraudsters to apply in false or stolen identities without fear of arrest and to make multiple applications in the hope of getting one through. It allows the possibility of passports being applied for with the photographs of people who are outside the U.K. and seeking to enter illegally.
+- Whatever he does in office, no man can live up to the high expectations of the world, but we have been changed by his election. Obama's inauguration is a historic global achievement, a major milestone in the journey of a powerful nation.
+- The process of establishing the identity of passport applicants needs to be strengthened by introducing a requirement for some applicants to attend a passport office in person.

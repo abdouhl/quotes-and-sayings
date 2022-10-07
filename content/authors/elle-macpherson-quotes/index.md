@@ -1,0 +1,36 @@
++++
+author = "Elle Macpherson"
+title = "Elle Macpherson Quotes"
+quotes_len = "30"
+description = "the best 30 Elle Macpherson Quotes"
++++
+- For me, just being on the cover of a magazine wasn't enough. I began to think, what value is there in doing something in which you have no creative input?
+- I try to focus on eating seasonally and organic whenever possible. It can be a challenge, but it has a huge effect on my weight, my health, and the environment.
+- I've done all this stuff because it's fun. It's never been about fame.
+- I try to meditate every morning. It relaxes me, clears my mind, and sets my day off on the right foot before things get too manic.
+- I don't believe we own our children, they're their own souls who make their own choices, we just guide and support them.
+- I choose movies, I never choose roles. I look at the script. I look at the director. I look at the other actors - and then the role.
+- It's not vanity to feel you have a right to be beautiful. Women are taught to feel we're not good enough, that we must live up to someone else's standards. But my aim is to cherish myself as I am.
+- Having children is my greatest achievement. It was my saviour. It switched my focus from the outside to the inside. My children are gifts, they remind me of what's important.
+- The image is where you have dinner at night, who you're seeing. It's what car you drive and how you dress. People in the industry sell that, and it creates a dream. There's nothing else.
+- I like to make movies I like to watch.
+- I just happen to like the work. I like preparing for a role. I like reading. I like analyzing. I like literature. I like emotions. I like working with other actors.
+- People in the fashion industry have used the press a lot more than people in the film industry, because you have nothing to sell except for the image: The image is everything.
+- Acting and modeling have nothing to do with each other.
+- For a while I was on the cover of every Sports Illustrated swimsuit issue, which was regarded as the pinnacle of success in America.
+- I don't like everybody knowing what I'm doing, unless it's related to a movie. I don't like speaking to the press. I never did.
+- You know, Mamet is not a huge writer of female parts. Most of his movies don't even have women in them, so I'm lucky I'm in it at all.
+- I went to America on holiday when I was 17 and, before I knew it, I'd been signed up by an agency and had these obligations I didn't understand, but which I couldn't say no to. This industry chose me. But I did choose to make it fulfilling.
+- I used to wear heels because I wanted to show people I wasn't ashamed of being tall. But I don't wear them any more because you don't have to wear heels to be beautiful. I can't even remember the last time I wore heels.
+- I eat like a horse!
+- Being a public person doesn't necessarily mean you're a piece of meat for everybody.
+- My favorite body part is my heart. Nothing beats loving and being loved.
+- But I do know focusing on the exterior doesn't make me happy. If I want peace and serenity, it won't be reached by getting thinner or fatter.
+- As long as people want to see me in movies, and as long as I find it interesting, I'll keep working.
+- Focusing on the way I look makes me uncomfortable. I try to focus on the way I feel - I know what makes me feel better about myself. Reading my child a story makes me feel great, doing my hair nicely doesn't.
+- You check to see the facts are correct where business is concerned but if I read everything that was written about me, I'd end up feeling totally insecure about myself.
+- A celebrity name is never enough for an intelligent mass market... truly successful businesses are born of passion and heartfelt interest.
+- If I have a choice between putting my kids to bed and going to a party, I'll put my kids to bed. If I have a choice of going to a restaurant or having friends round, I'll have friends round. Every time.
+- I feel beautiful when I'm at peace with myself. When I'm serene, when I'm a good person, when I've been considerate of others.
+- Anyway, I believe you don't fix the inside by putting something on the outside.
+- I wanted so badly to study ballet, but it was really all about wearing the tutu.

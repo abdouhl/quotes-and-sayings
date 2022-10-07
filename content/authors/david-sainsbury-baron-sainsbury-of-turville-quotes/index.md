@@ -1,0 +1,14 @@
++++
+author = "David Sainsbury, Baron Sainsbury Of Turville"
+title = "David Sainsbury, Baron Sainsbury Of Turville Quotes"
+quotes_len = "8"
+description = "the best 8 David Sainsbury, Baron Sainsbury Of Turville Quotes"
++++
+- I am proud of the fact that the U.K. is an open trading country. I welcome inward investment such as that of Nissan, and the takeover of struggling British companies by foreign companies who turn them around, as in the case of Jaguar Land Rover. I also accept that job losses sometimes have to occur to restore failing companies to health.
+- The apparent strategy of Pfizer is to take over AstraZeneca, dismember it, and put the different parts of it into its three new divisions, with the ultimate aim of selling off one or more.
+- Even if Pfizer committed itself legally to maintaining some of its research and development in the U.K., its takeover of AstraZeneca would involve dismembering an excellent and strategically important British company.
+- If you know your life chances are greatly reduced, should you be in a position to take out life insurance if that knowledge is not available to the insurers?
+- At the end of the day, if there are truly ethical considerations, those have to override scientific considerations.
+- In our democracy, political parties have to raise funds to campaign and put their policies to the electorate, and as a proud supporter of the Labour Party, I am happy to be in a position where I can make a contribution to its ongoing work.
+- I am not in favour of the takeover of excellent and strategically important British companies by struggling foreign firms whose actions are fuelled by tax avoidance, and who want to asset-strip the intellectual property of the British company and then dismember it.
+- Scientists should not do animal testing if there is any alternative, but subject to that, I would support it on grounds of the medical benefits.

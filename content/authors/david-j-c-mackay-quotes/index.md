@@ -1,0 +1,23 @@
++++
+author = "David J. C. Mackay"
+title = "David J. C. Mackay Quotes"
+quotes_len = "17"
+description = "the best 17 David J. C. Mackay Quotes"
++++
+- We can't be anti-everything - we need an energy plan that adds up. But there's a lack of numeracy in the public discussion of energy. Where people do use numbers, they select them to sound big and score points in arguments, rather than to aid thoughtful discussion.
+- Solving climate change is a complex topic, but in a single crude brush-stroke, here is the solution: the price of carbon dioxide must be such that people stop burning coal without capture.
+- Fridges can be modified to nudge their internal thermostats up and down just a little in response to the main's frequency in such a way that, without ever jeopardising the temperature of your butter, they tend to take power at times that help the grid.
+- We must not let ourselves be swept off our feet in horror at the danger of nuclear power. Nuclear power is not infinitely dangerous. It's just dangerous, much as coal mines, petrol repositories, fossil-fuel burning and wind turbines are dangerous.
+- The discussion about energy options tends to be an intensely emotional, polarised, mistrustful, and destructive one. Every option is strongly opposed: the public seem to be anti-wind, anti-coal, anti-waste-to-energy, anti-tidal-barrages, anti-carbon-tax, and anti-nuclear.
+- I was distressed by the poor quality of the debate surrounding energy. I was also noticing so much green wash from politicians and big business. I was tired of the debate - the extremism, the nimbyism, the hair shirt. We need a constructive conversation about energy, not a Punch and Judy show. I just wanted to try to reboot the whole debate.
+- I would like to help people have honest and constructive conversations about energy. We need to understand how much energy our modern lifestyles use, decide how much energy we would like to use in the future, and choose where we will get that energy from.
+- The United States consumes power per land-area at a rate three times the average. Even though they are more energy efficient, densely populated industrial countries like Germany, Britain and Japan have even bigger power consumption per area.
+- I was writing a book about sustainable energy, and a friend asked me, 'Well, how much energy do you use at home?' And I was embarrassed. I didn't actually know.
+- To have constructive conversations about the world's energy options, one needs to take a calm look at the numbers.
+- Fusion power is speculative and experimental. I think it is reckless to assume that the fusion problem will be cracked, but I'm happy to estimate how much power fusion could deliver, if the problems are cracked.
+- Most of physics is about energy, and physicists understand inefficiencies. I wanted to write a book about our energy options in a neutral, human-accessible form.
+- Electric cars are really very cool. Air-source heat pumps are great.
+- All renewables, much as I love them, are diffuse. They all have a small power per unit area, and we have to live with that fact.
+- The amount of energy saved by switching off the phone charger is exactly the same as the energy used by driving an average car for one second.
+- When the Industrial Revolution started, the amount of carbon sitting underneath Britain in the form of coal was as big as the amount of carbon sitting under Saudi Arabia in the form of oil, and this carbon powered the Industrial Revolution, it put the 'Great' in Great Britain, and led to Britain's temporary world domination.
+- The only thing that really scales up apart from nuclear is solar power from other people's deserts.

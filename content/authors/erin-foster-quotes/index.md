@@ -1,0 +1,67 @@
++++
+author = "Erin Foster"
+title = "Erin Foster Quotes"
+quotes_len = "61"
+description = "the best 61 Erin Foster Quotes"
++++
+- Fashion is really funny because it's something that should be subjective, but there are clear things that are chic or not chic. There are all these rules, but if the right person breaks a rule, then it becomes a trend.
+- We don't mess with squads. Our friend group is not, like, a strategic thing. There's no strategy to our friendships. There's no strategy to the circle of girls. Everyone's, like, bound together for different things.
+- There are so many shows that are 'white,' and we wanted to talk about how two really delusional, cliche white girls handle racial issues.
+- I always took myself really seriously in my 20s and needed everyone to know that I wasn't a spoiled blond actress.
+- Obviously, it's the Lucille Balls of the world who helped make humor accessible to women and in a voice that women related to. I just wanted to continue that.
+- Sara is about as tech-savvy as your grandma.
+- I think, in anyone's career, you have to map out some sort of strategy of steps that take you closer to the career you want.
+- I imagine when you're making a reality show with a whole crew, it's bound to get complicated.
+- Puppies and kittens are both great. Cats and dogs are not for me.
+- The greatest thing about siblings is you constantly have someone putting you in check; there's no room to get delusional about yourself.
+- When I was in my twenties, I was a self-conscious, out-of-work actress. Then I decided to be a writer and got hired on an NBC show that got canceled after one year. I was heavily discouraged by someone I worked for who told me I wasn't good.
+- I have run from a lot of relationships in favor of being alone. And I tend to find men who use their money and status as a dating tool to be unattractive.
+- People want to see someone who looks like they might have this enviable life, but in turn, they are a mess and their life is a mess.
+- It was not even that long ago when my acting career was in the gutter. I was just thinking that I didn't want to live a life still going on auditions and not getting work. I wasn't inspired or anything at the time, and it sucked.
+- You don't get to be in the squad unless you're six feet tall, a supermodel, perfect, famous, and hot. That's like hand selecting perfection, putting it into a group of girls, and saying, 'Look how amazing we are.'
+- Our dad was always like, 'Look, if you're musical, if you live and breathe music and want to play an instrument, that's not something that's on me to put on you. If you're passionate, you will come to my studio every day after school and watch me work because you can't live without it.
+- Sunday brunch at Soho House. The views of L.A. are spectacular.
+- I could not write on 'Downton Abbey'.
+- You take from things that you read about in the news or things you hear about or things that happen to you, and you collectively sit in a room with everyone, and everyone decides what the funniest stories are that you've heard or thought of.
+- We didn't have parents who let us get away with anything. We grew up here with privilege, and we never got a D.U.I., we never went to rehab, we never got pregnant.
+- The truth is that the celebrities that transitioned into being business moguls or launching a brand have to be very smart, or at least be advised by very smart people.
+- Anyone who is on the verge of kind of famous but not really relevant is kind of fun to play with.
+- Relationships are temporary, and everyone needs to understand that.
+- Even Instagram has become a way to show off your girl group and make other girls feel left out.
+- I'm kind of over people using the word 'bae'. Let's get rid of that.
+- The idea of me writing something that I'd get to be in as well was not what I saw coming. I do think that life works that way. When you kind of let go of something and accept that it hasn't worked, it takes all the pressure off, and then you end up getting it.
+- The Beverly Hills Hotel is so iconic.
+- Our parents are beyond proud that we never sold out once and created something together.
+- I love a dinner, but I love a night in.
+- Chris Martin is my best friend.
+- When we go out with friends for a dinner or something and we have friends that aren't there, for no reason other than they weren't invited because we only had room for a certain amount of people, we just don't post a picture because we don't want anyone to feel left out. What's the point?
+- Platform flip-flops. Those were crazy. Wait, I don't think they were ever fashionable. But we saw them everywhere.
+- I love animals. I just don't want to have a pet. That's OK, right? I would take a dog over a cat, at least to interact with you. I feel like cats just stare you down all the time. Cats have, like, bad attitudes.
+- We're living in a time when the most famous people in the world have no specific skill set and are known for living their lives in front of the world. How strange is that? The appeal makes sense to me - it's like 'The Truman Show,' getting a chance to peak into someone's bedroom or see the way someone fights with their husband.
+- I have no interest in feeling like a trophy. Money itself has never been attractive to me; instead, I prefer ambition and integrity.
+- No one wants everyone to know how sick they are and everyone to see how much they are struggling. And when that seems to be the focus, of making sure everyone sees how sick you are, that's just confusing to someone that is trying to be supportive.
+- I find so much new music I didn't know about on my Sonos.
+- When I did stand-up at U.C.B., and I had a blog for a couple of years that started my writing career, 'Totally Confident and Completely Insecure,' it was the same kind of self-deprecating humor and stories about being out in L.A. and being treated like a loser at a hair salon because you are not famous.
+- Your instinct when someone is busy is to give them the least amount of work so that they can do it.
+- When you watch women who are a great mom, a great wife, and a great CEO, like, it's very inspiring. Like, being friends with Jessica Alba makes you work harder.
+- If you look at any sitcom that you watch, if it takes place in, say, a small town in Massachusetts, and it's about the dynamics of the people in that town, the showrunner probably grew up in a town like that, witnessed things, and created content.
+- I have no college education; I taught myself how to write. If you want it badly enough, you can have it. You can walk into any room and convince the person that you know what you're doing.
+- I don't even know who I am. All I know is that I am the sibling, daughter, sister, the friend of somebody, and I need to know who I am outside of that.
+- If I'm awake at 2 A.M., I'm either suffering from anxiety or doing something I will regret tomorrow.
+- It's OK to want to feel beautiful - as long as you really do the work on yourself to be the kind of person you are proud of.
+- I think I would want to be a therapist or sociologist. I love talking to people about their relationships and life problems, understanding where it comes from, and giving insight that's helpful. Also, it would be fun to just marry rich and vacation a lot. That's my real second choice.
+- Everyone's trying to get a reality show, and we're just trying to avoid accidentally being on a reality show.
+- When you have a big family, certainly with strong personalities, you feel like you have to fall into a role, and I didn't want to be the little sister or the daughter, because that's who you become as an adult.
+- In L.A., you see a lot of women who get into these trends for inner happiness while putting most of their energy into looking younger. It's Botox on Tuesday, laser on Wednesday, some weird juice cleanse having nothing to do with health and everything to do with losing weight the next day.
+- Everyone is struggling to compete with how people consume television these days.
+- If I was in some Marvel movie and made all that Marvel money, you wouldn't see me ever again.
+- I don't think we are changing the world here, but we might be influencing a perspective.
+- What's important in any working relationship or working with someone in your family is you have to start with a clean slate.
+- I've never dated anywhere else, so I only know L.A. dating, and I wouldn't wish it upon my worst enemy. I've pulled back and taken the pressure off of myself to figure it out, because there's so much pressure about status that dating has become this game where you pull out all your tricks.
+- We have really good parents, and even though they broke up when we were little, we were still raised by two people who had really good ethics. They were never going to let us turn into Paris Hilton. I think that it wasn't really an option to become spoiled brats.
+- I blame my parents for never introducing me to good music.
+- There were a lot of assumptions that we were raised a certain way. Our dad was always really clear with us that he is rich and we are not: 'If you want to be rich, you should go do what I did, which is work really hard.'
+- Your sister knows everything to say to piss you off. But sisters tend to be each other's biggest champion and also their hardest critics.
+- What's happening with feminism in general is I think that, as a woman, you're not limited to being one thing or the other. You can be feminine and sexy and beautiful and hot and funny.
+- With 'Barely Famous', we've tapped into and created something really exciting that we'll always be proud of going forward.
+- The Bachelor'... and 'The Bachelorette'... and 'Bachelor in Paradise'... and the 'After the Final Rose ceremony'. I love a competition dating show.

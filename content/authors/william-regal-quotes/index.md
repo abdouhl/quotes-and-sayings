@@ -1,0 +1,97 @@
++++
+author = "William Regal"
+title = "William Regal Quotes"
+quotes_len = "91"
+description = "the best 91 William Regal Quotes"
++++
+- There's no egos, we just want the best show we can put on. That started with NXT and that continues.
+- One man won't make a difference against sixty.
+- It doesn't matter how good you are, it's about connecting with your audience. It doesn't matter how technically good you are, if nobody wants to watch you then you're no good to anybody.
+- I always tell people this - when you start wrestling, don't forget that part you liked as a child. If you can keep a bit of that in your act, you can keep a bigger audience.
+- You'll always have people saying 'these guys look good' but there's a difference in what we're looking for. We want our fighters to look like fighters, sure, but the moves still have to look good.
+- NXT is the part of the WWE that is about competition. It's not sports entertainment, it's the pro wrestling side and that's what we do.
+- Bo Dallas is phenomenal. He's so confident and has this star aura that shines out of him.
+- If you take yourself too seriously, you've got no chance in this job. You cannot take yourself seriously.
+- WWE has always been committed to promoting wrestling talent in India.
+- Sometimes, you know how good certain people are and then you actually get to see them have the kind of matches you know they can have in front of an audience that isn't used to seeing that. Then, in a few minutes the audience is on the edge of their seats, just through the sheer craftsmanship of their abilities.
+- Above anything else - above family or job - the main thing is staying sober. That's because without being sober, I don't have a family.
+- People saw I was in horrendous shape when I was in the WWF. They suggested I go into rehab. I was in that much denial.
+- I've never had a big role at any WrestleMania, but I've been at 11-odd. Just to be there is special - the week beforehand and all the promotions and stuff.
+- There's people that have all these other qualities, but if you've got a spiteful streak, that will take you to realms people have no concept of.
+- You've got to embrace whatever is given and make the most of every opportunity to make it funny or to make it memorable.
+- I admire traits in people. I 'respect' certain things about them but I think that word gets thrown around too much.
+- I used to work on Blackpool Pleasure Beach when I started wrestling.
+- I have a huge man-crush on Aiden English.
+- In the 1995 'World War 3,' it was Dave Taylor's first WCW match. I remember looking across the ring and seeing Dave give Hogan an uppercut. Hogan wasn't used to being hit with such ferocity, and seeing the look on his face was an absolute picture.
+- A ladder match is a career altering match, the physicality of it is second to none.
+- When I get in the ring, I get to work very aggressively and solid, whereas with the Lord thing there were a lot of facials and stuff like that.
+- I admire plenty of people, I admire Daniel Bryan, I admire CM Punk, I admire Antonio Cesaro, Wade Barrett, Sheamus; all the fellows that have been out and earned their spot on this roster.
+- If you can make yourself popular in front of any audience, you can use it anywhere.
+- Over time, your face hardens up and you just look more like a fighter.
+- If you can roll at every angle, it becomes second nature to protect yourself when you fall.
+- Unfortunately, sometimes the unexpected can be something that you wish you never encountered.
+- We value the independent wrestling scene, and it's our goal to strengthen it.
+- You find a lot out about people when they're blowing up, as we say, gasping for air, and if they can still hold conversations and be polite.
+- I try to keep my own career in check, but when I came to America there were very few people wrestling.
+- I'm not one of those people desperate to get in the ring again.
+- I'm not lying in any way, British fans are the best in the world.
+- I'm making a fresh start. That's another reason for the name change from Lord Steven Regal to William Regal here in the WWF.
+- If it was one person I could have a bout with, it would be Jack Pye, the Doncaster Panther. A mythical wrestler obviously from Doncaster who lived in Blackpool.
+- Life is just experience, whether it's good or bad, whatever you're doing you should learn from it if you've got the right kind of mindset.
+- Jerry Brisco, who is a WWE Hall of Famer, goes out and scouts all of the amateur wrestling.
+- The camaraderie between the athletes is a joy to behold sometimes, because they all help each other along.
+- Dave Taylor, who was my tag partner in WWE, had a wrestling school close to where we both lived in Georgia for a while.
+- I've always just took notice of what's going on in the wrestling business and who the younger fellas are, and younger ladies, that are interested in this.
+- I didn't know what a good technical wrestler was when I was little - it was people that made me scream or boo or cheer.
+- My trainer, Marty Jones, was trained by Billy Robinson, so was Johnny Saint and a lot of great British wrestlers.
+- When I was younger wrestling in England, I used to go to a lot of countries on my own a lot of time.
+- I don't want to watch phoney looking wrestling, nor does any of us anymore - we've seen too much of it.
+- I have only put my reputation on the line three times with people, Cesaro being one of them.
+- The Performance Center features seven training rings, a state-of-the-art gym and nearly every piece of equipment a future WWE superstar could need to sharpen their body and their mind.
+- I hadn't slept in 20 years. I would sleep a couple hours a night, and I went from specialist to specialist and they could never find out why.
+- I was the last of the British style that was a big thing in Japan.
+- We all just want NXT to be the best product we can do. I don't care about what's going on anywhere else, we just get on with what we do, which is competitive pro wrestling and that's what NXT is.
+- I saw there was an open market because everything was pushed towards young boys, but we had nothing for young girls. That was a role that could be filled, and finding Bayley helped.
+- When I was in WCW I came out the back and found six fellas smashing my car up - that was a nice interaction, I had to run all them off.
+- There are so few who are men worthy of praise in this dreadful life: Mr. McMahon is one who immediately comes to mind; Billy Shakespeare is another, Bob Barker, god rest his soul - wait, he's not passed yet has he? Drat, take that one off, I suppose.
+- I've made more with John Cena just by being John Cena that anyone else I've ever met. He works harder than anyone I've ever met, 30 hours a day, 500 days a year and will do anything and everything that is asked of him and couldn't possibly work harder. He is a mega draw.
+- Wrestling died. It had a comeback in the early '90s just through word of mouth with Brian Dixon's shows.
+- I might not be the most whatever in the world but I've built credibility with the audience that means something. So, I can sort of have that thing about me and I always wear a nice suit as well, which is important.
+- There are only so many wrestlers that can actually look and act the part, and do whatever they have to do in WWE, and that's a lesson to be learnt for a lot of wrestlers, you need to look the part. If you don't, there is very little chance of you making it here.
+- If there's an opportunity open that leads to an even bigger opportunity, you're going to take it.
+- When you're happy and you're comfortable with yourself and you're not worried about being a top guy, you'll make the most out of anything and make it work.
+- The only place to get better is to work in front of a crowd every night, that's when you'll find what really works and what doesn't.
+- Daniel Bryan is one of the few people in the world I would stand toe-to-toe with in any situation and know that we would do the same for me.
+- Everybody is different; as long as you look like you belong and you can fit in, the world is you oyster now.
+- If you've got the talent it'll shine through.
+- My little niece used to call me and say 'I like watching that Uncle Darren, can I have a T-shirt of AJ Lee' and I went 'they don't make any' and it just struck me. We have Rey Mysterio for little boys. But we don't have anything for little girls.
+- I was in WCW 20 odd years ago and people really didn't like the character I did at the time. It was a different time when you could really hammer that anti-American thing home and people hated it and hated me.
+- People from the beginning of time have always loved to watch two people in competition with each other. You go back to the gladiatorial shows, there's just something about it.
+- You need to be very adaptable to have a long career. If you're not taught by somebody who knows different styles you'll be left by the wayside very quickly.
+- You have to be able to work as a unit sometimes, in the ring when you're wrestling other people.
+- I want to keep all the comedy to interviews and outside-the-ring work.
+- This may sound strange but I don't respect anybody.
+- At the end of the day, who at my age can say that they fought somebody that fought Muhammad Ali?
+- Anything that we do in NXT is a joy to be a part of to be honest.
+- There's nothing wrong with having a bit of fun as long as I continue to do my duties as General Manager.
+- It's wonderful to see a young lady headbutt somebody and kick somebody's face.
+- I'm a wrestling fan - before I was a wrestler, I was a wrestling fan. I like watching wrestling.
+- In my opinion the fans here in the United Kingdom are much more vocal and passionate than WWE fans in the United States.
+- Very few people get into that category of being a good grafter.
+- I know everything that's out there that's worth knowing about.
+- The way NXT has been from day one when I was asked to do it, 'Don't put me on camera. I do not need to be on camera unless it's absolutely necessary. This isn't about me, it's about the talent,' and everyone that works in NXT, that's what we think.
+- Just traveling the world, and getting to live the highs and lows of what we do, makes you a better talent and a better performer.
+- The days of just being a generic, punch-and-kick wrestler are pretty much over.
+- I'm asked all the time who the next big thing is in NXT and I always say I'm not going to say because it puts too much pressure on them.
+- When I wasn't wrestling, I was always at the circus or at a show watching all these people - 'how do they make their stuff work for their audience?' That used to fascinate me as a child.
+- It's always great to see old friends, especially those I have not been able to see in 15 months.
+- I usually get a good reaction anywhere in England, but Manchester is the place they go a little more wild for me.
+- I went off the rails for a few years with drink and different things.
+- I remember the original injury happening in 1993, when I first was in WCW, and I've had a few neck injuries since, but with no pain. There was some pain, here and there, but not much. Eventually, it turned into a major problem, with my legs not moving well, so I had to have surgery done.
+- With NXT there are always going to be a few people who are still developing because that's what NXT is, but that's really exciting because you get to see them thrown into the deep end.
+- Something was causing me not to be able to sleep, and then after a while your brain doesn't want to turn off and go to sleep. And so it was constant battle with that. But as soon as I had the neck surgery, I started sleeping again.
+- A lot of British people of my age would not have know of the terrible treatment of Nelson Mandela if not for Jerry Dammers and The Specials.
+- Alexander Rusev is one of the most incredible things I've seen in my entire 30-year career. He's a ferocious monster.
+- I'm in awe of Alexander Rusev.
+- I get great satisfaction nowadays when people come up and say 'I used to hate you when I was little' or 'you used to make me mad' - well that was the desired effect.
+- I'd go to war for John Cena.

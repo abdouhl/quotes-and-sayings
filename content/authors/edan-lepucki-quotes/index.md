@@ -1,0 +1,22 @@
++++
+author = "Edan Lepucki"
+title = "Edan Lepucki Quotes"
+quotes_len = "16"
+description = "the best 16 Edan Lepucki Quotes"
++++
+- I have a darker imagination than most people.
+- Before my book, 'California,' came out, I had modest hopes for it. Or, let's put it this way - I had the same hopes that every literary fiction writer in America has: I wanted the novel to be well-received, critically. As for sales? I didn't want it to disappoint, but I didn't expect it to be a best-seller, either.
+- With 'California,' editors were reading it, and fast, and others were emailing my agent to request it. Ultimately, there were a few editors interested in the book, and it sold at auction about two weeks after the submission process started. I couldn't believe it!
+- I still can't believe that I went on 'The Colbert Report' myself; for the appearance I wore a lot of makeup, my hair was curled like a poodle's, and I could barely breathe in my Spanx undergarments. But, hey - an authoress has to lean in, right?
+- If you don't ponder the end of the world on a regular basis, I don't think you're really human.
+- I recognize that I'm probably the luckiest novelist in recent memory, because Sherman Alexie, a writer I greatly admire, raved about my book on 'The Colbert Report,' and then Mr. Colbert himself urged his viewers to buy it - on his show and on Twitter.
+- I am always worried that over-planning and outlining will kill the magic of writing; most of the world I created in 'California' occurred via good old sexy sentence-making.
+- Amazon is such a big player in publishing, but a lot of authors feel this connection to their publishing house and their editors who helped them get their books out there, so their loyalties tend to go that way.
+- I'm always looking for complicated characters in fiction about whom I can feel a dozen feelings at once - in the space of a single paragraph, even.
+- Oh how I wish I could be as obsessive as Carrie from 'Homeland' when I'm writing a book! That would save me a lot of trouble during the revision process.
+- I love how easy it is to run my business, Writing Workshops Los Angeles, with the help of email and my website. I love that I don't have to use cuneiform, a quill, or a typewriter to write my novels - I love to write on my laptop!
+- I wish I wasn't so in love, wasn't so interested, in the Internet. I wish I spent less time online and more time outside and in my head. Writing requires solitude and deep, deep daydreaming, and the Internet just kills that - its lure is toward the external; it asks you to flit from place to place.
+- It's funny: when I set out to create the world of 'California,' I didn't give the type of apocalypse much thought... I simply set my two characters, Cal and Frida, in a depleted world and moved through it intuitively.
+- My signature is like a squished spider.
+- Amazon has historically been a bully, and I don't shop there. But I love Goodreads. For the record.
+- I'm a mother of a three-year-old, but when I started 'California,' my son wasn't even a twinkle in my eye. Because the book took as long as it did, I wrote it before I was pregnant, while I was pregnant, and as a new mother - so I enjoyed a diversity of experiences while creating this world.

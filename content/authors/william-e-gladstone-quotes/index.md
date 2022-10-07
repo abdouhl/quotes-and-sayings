@@ -1,0 +1,26 @@
++++
+author = "William E. Gladstone"
+title = "William E. Gladstone Quotes"
+quotes_len = "20"
+description = "the best 20 William E. Gladstone Quotes"
++++
+- No man ever became great or good except through many and great mistakes.
+- The disease of an evil conscience is beyond the practice of all the physicians of all the countries in the would.
+- There should be a sympathy with freedom, a desire to give it scope, founded not upon visionary ideas, but upon the long experience of many generations within the shores of this happy isle, that in freedom you lay the firmest foundations both of loyalty and order.
+- Here is my first principle of foreign policy: good government at home.
+- It is the duty of government to make it difficult for people to do wrong, easy to do right.
+- Good laws make it easier to do right and harder to do wrong.
+- No one ever became great except through many and great mistakes.
+- Nothing that is morally wrong can be politically right.
+- We are bound to lose Ireland in consequence of years of cruelty, stupidity and misgovernment and I would rather lose her as a friend than as a foe.
+- All the world over, I will back the masses against the classes.
+- Justice delayed is justice denied.
+- Men are apt to mistake the strength of their feeling for the strength of their argument. The heated mind resents the chill touch and relentless scrutiny of logic.
+- Liberalism is trust of the people tempered by prudence. Conservatism is distrust of the people tempered by fear.
+- It is not a life at all. It is a reticence, in three volumes.
+- We look forward to the time when the Power of Love will replace the Love of Power. Then will our world know the blessings of peace.
+- Selfishness is the greatest curse of the human race.
+- Be happy with what you have and are, be generous with both, and you won't have to hunt for happiness.
+- Mediocrity is now, as formerly, dangerous, commonly fatal, to the poet; but among even the successful writers of prose, those who rise sensibly above it are the very rarest exceptions.
+- Remember the rights of the savage, as we call him. Remember that the happiness of his humble home, remember that the sanctity of life in the hill villages of Afghanistan, among the winter snows, is as inviolable in the eye of Almighty God, as can be your own.
+- You cannot fight against the future. Time is on our side.

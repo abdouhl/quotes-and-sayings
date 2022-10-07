@@ -1,0 +1,80 @@
++++
+author = "W. H. Auden"
+title = "W. H. Auden Quotes"
+quotes_len = "74"
+description = "the best 74 W. H. Auden Quotes"
++++
+- The countenances of children, like those of animals, are masks, not faces, for they have not yet developed a significant profile of their own.
+- History is, strictly speaking, the study of questions; the study of answers belongs to anthropology and sociology.
+- A professor is someone who talks in someone else's sleep.
+- A verbal art like poetry is reflective; it stops to think. Music is immediate, it goes on to become.
+- A tremendous number of people in America work very hard at something that bores them. Even a rich man thinks he has to go down to the office everyday. Not because he likes it but because he can't think of anything else to do.
+- We all have these places where shy humiliations gambol on sunny afternoons.
+- If time were the wicked sheriff in a horse opera, I'd pay for riding lessons and take his gun away.
+- Of all possible subjects, travel is the most difficult for an artist, as it is the easiest for a journalist.
+- To save your world you asked this man to die; would this man, could he see you now, ask why?
+- I'll love you, dear, I'll love you till China and Africa meet and the river jumps over the mountain and the salmon sing in the street.
+- My face looks like a wedding-cake left out in the rain.
+- A poet is, before anything else, a person who is passionately in love with language.
+- All sins tend to be addictive, and the terminal point of addiction is damnation.
+- Death is the sound of distant thunder at a picnic.
+- Choice of attention - to pay attention to this and ignore that - is to the inner life what choice of action is to the outer. In both cases, a man is responsible for his choice and must accept the consequences, whatever they may be.
+- Health is the state about which medicine has nothing to say.
+- No poet or novelist wishes he were the only one who ever lived, but most of them wish they were the only one alive, and quite a number fondly believe their wish has been granted.
+- Murder is commoner among cooks than among members of any other profession.
+- In a world of prayer, we are all equal in the sense that each of us is a unique person, with a unique perspective on the world, a member of a class of one.
+- Between friends differences in taste or opinion are irritating in direct proportion to their triviality.
+- It's frightening how easy it is to commit murder in America. Just a drink too much. I can see myself doing it. In England, one feels all the social restraints holding one back. But here, anything can happen.
+- A poet is a professional maker of verbal objects.
+- Every autobiography is concerned with two characters, a Don Quixote, the Ego, and a Sancho Panza, the Self.
+- Art is born of humiliation.
+- Evil is unspectacular and always human, and shares our bed and eats at our own table.
+- The ear tends to be lazy, craves the familiar and is shocked by the unexpected; the eye, on the other hand, tends to be impatient, craves the novel and is bored by repetition.
+- For who can bear to feel himself forgotten?
+- Thousands have lived without love, not one without water.
+- It is a sad fact about our culture that a poet can earn much more money writing or talking about his art than he can by practicing it.
+- Perhaps there is only one cardinal sin: impatience. Because of impatience we were driven out of Paradise, because of impatience we cannot return.
+- Like everything which is not the involuntary result of fleeting emotion but the creation of time and will, any marriage, happy or unhappy, is infinitely more interesting than any romance, however passionate.
+- You know there are no secrets in America. It's quite different in England, where people think of a secret as a shared relation between two people.
+- You owe it to all of us all get on with what you're good at.
+- If equal affection cannot be, let the more loving be me.
+- 'Healing,' Papa would tell me, 'is not a science, but the intuitive art of wooing nature.'
+- Before people complain of the obscurity of modern poetry, they should first examine their consciences and ask themselves with how many people and on how many occasions they have genuinely and profoundly shared some experience with another.
+- Learn from your dreams what you lack.
+- One cannot walk through an assembly factory and not feel that one is in Hell.
+- Fame often makes a writer vain, but seldom makes him proud.
+- Every American poet feels that the whole responsibility for contemporary poetry has fallen upon his shoulders, that he is a literary aristocracy of one.
+- It's a sad fact about our culture that a poet can earn much more money writing or talking about his art than he can by practicing it.
+- All works of art are commissioned in the sense that no artist can create one by a simple act of will but must wait until what he believes to be a good idea for a work comes to him.
+- No good opera plot can be sensible, for people do not sing when they are feeling sensible.
+- Some books are undeservedly forgotten; none are undeservedly remembered.
+- Art is our chief means of breaking bread with the dead.
+- Music can be made anywhere, is invisible and does not smell.
+- God bless the USA, so large, so friendly, and so rich.
+- I don't get acting jobs because of my looks.
+- Good can imagine Evil; but Evil cannot imagine Good.
+- No hero is mortal till he dies.
+- When I am in the company of scientists, I feel like a shabby curate who has strayed by mistake into a drawing room full of dukes.
+- Now is the age of anxiety.
+- Music is the best means we have of digesting time.
+- The center that I cannot find is known to my unconscious mind.
+- The class distinctions proper to a democratic society are not those of rank or money, still less, as is apt to happen when these are abandoned, of race, but of age.
+- We are all here on earth to help others; what on earth the others are here for I don't know.
+- In times of joy, all of us wished we possessed a tail we could wag.
+- It takes little talent to see what lies under one's nose, a good deal to know in what direction to point that organ.
+- Almost all of our relationships begin and most of them continue as forms of mutual exploitation, a mental or physical barter, to be terminated when one or both parties run out of goods.
+- What the mass media offers is not popular art, but entertainment which is intended to be consumed like food, forgotten, and replaced by a new dish.
+- Murder is unique in that it abolishes the party it injures, so that society has to take the place of the victim and on his behalf demand atonement or grant forgiveness; it is the one crime in which society has a direct interest.
+- The words of a dead man are modified in the guts of the living.
+- Geniuses are the luckiest of mortals because what they must do is the same as what they most want to do.
+- Among those whom I like or admire, I can find no common denominator, but among those whom I love, I can: all of them make me laugh.
+- Sob, heavy world Sob as you spin, Mantled in mist Remote from the happy.
+- No human being is innocent, but there is a class of innocent human actions called Games.
+- A real book is not one that we read, but one that reads us.
+- In relation to a writer, most readers believe in the Double Standard: they may be unfaithful to him as often as they like, but he must never, never be unfaithful to them.
+- Hemingway is terribly limited. His technique is good for short stories, for people who meet once in a bar very late at night, but do not enter into relations. But not for the novel.
+- Some writers confuse authenticity, which they ought always to aim at, with originality, which they should never bother about.
+- When I find myself in the company of scientists, I feel like a shabby curate who has strayed by mistake into a room full of dukes.
+- A poet can write about a man slaying a dragon, but not about a man pushing a button that releases a bomb.
+- May it not be that, just as we have to have faith in Him, God has to have faith in us and, considering the history of the human race so far, may it not be that 'faith' is even more difficult for Him than it is for us?
+- All that we are not stares back at what we are.

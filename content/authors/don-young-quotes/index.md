@@ -1,0 +1,21 @@
++++
+author = "Don Young"
+title = "Don Young Quotes"
+quotes_len = "15"
+description = "the best 15 Don Young Quotes"
++++
+- I wrote my thesis on the benefits of war and very near got thrown out of college. But I can show you where the greatest advancement of mankind comes under stress and strain, not comfort.
+- That's one of our biggest problems, it's always somebody else's fault instead of our own fault.
+- If it is warming, it's because it's happened before, cyclitic, it will happen again, regardless of what you and I do.
+- I don't see any justification for the federal government owning land, other than the Statue of Liberty and maybe a few parks, maybe a few refuges. But to just own land to do nothing with it I think is a disservice to the Constitution.
+- You've got to be willing to forgive and say, 'God, get something good out of something bad.' And if you'll make that choice... God will do it.
+- I can't convince you to put the drink down if you're an alcoholic, you have to want to do that. I can't convince you to stop eating the cookies when you're a diabetic. You have to do that. And that takes responsibility.
+- If you can't eat it, can't sleep under it, can't wear it or make something from it, it's not worth anything.
+- Remember in 1973 the same science chatter said that the coming Ice Age is going to occur, we're going to lose millions of people. And the politicians knew how to solve it, they just didn't have the courage to solve it; they were going to put coal dust on the Arctic.
+- You cannot solve the economy in this country by creating government jobs.
+- If I have my way, I'm going to dissolve the Forest Service. They're in the business of harvesting trees and they're not harvesting trees, so why have them anymore?
+- Remember, the Arctic didn't have any ice. And the Northwest Passage was wide open. They were raising grapes in Scotland for God sakes, had a huge winery. Iceland was a farming community. As some of the glaciers retreated they found villages that were covered with ice.
+- There's nothing pretty about ice. Ice grows nothing. But we've got this in our minds that we've got to make everything cold.
+- We're the only creature God ever created that doesn't want to adapt. We want to make it stand still. And one thing that's constant is nature is constantly changing.
+- Environmentalists are a socialist group of individuals that are the tool of the Democrat Party. I'm proud to say that they are my enemy. They are not Americans, never have been Americans, never will be Americans.
+- We wonder why we have got the Freemen or the militants. We wonder why we have got unrest in this country. It is because our government, in fact, has got out of hand and out of line, with the Endangered Species Act.

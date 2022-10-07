@@ -1,0 +1,28 @@
++++
+author = "Eric Heiden"
+title = "Eric Heiden Quotes"
+quotes_len = "22"
+description = "the best 22 Eric Heiden Quotes"
++++
+- Sports and politics don't mix.
+- One thing is having skated five of the best races I've probably could have skated. It was nice to peak at the right time and to do it in an important time in somebody's career.
+- I didn't get into skating to be famous.
+- It's not a sport you get famous at. If I wanted to be famous, I would have stuck with hockey.
+- Heck, gold medals, what can you do with them?
+- When I was skating you had to participate in every thing.
+- Immediately after the Olympics, I was pretty fatigued.
+- I really liked it best when I was a nobody.
+- We had a party with the rest of the skaters in our trailer and then the next day we were off to see Jimmy Carter. And then we had the World Championships the next weekend, so not a lot of chance to catch up.
+- Cyclists, I work with a number of cyclists. They are great athletes; they are great aerobic athletes. If you ask them to hit a baseball or golf ball, they can't do that.
+- You got to get lucky because it lasts for a week and a lot of things can happen in a week.
+- I'm not a big fan of those who are egotistical and so outspoken.
+- I would recommend anybody who gets a chance to see short track skating, make it a point to go out there when Apolo is skating because you won't see anybody better.
+- I mean you got to thank your parents for giving you the right genes.
+- We never did a lot of weights, but a lot of repetitions. The most I would use doing squats was 300 pounds.
+- They're just big in the eyes of the American public.
+- We used to lift weights a couple of times a week, we did a lot of running. I enjoyed the variety.
+- Then going out on the ice usually about 15 minutes before and certain things I would do for the different races, aspects that you run through your mind.
+- You don't really want to load up a whole lot, probably anything more than four hours before the race. I needed something to make me feel full, but I certainly didn't want it to make me feel stuffed.
+- I have a very close friendship with the skaters.
+- In general, I enjoy athletes who have a strong character who let their abilities speak for themselves.
+- I'd rather get a nice warmup suit. That's something I can use. Gold medals just sit there. When I get old, maybe I could sell them if I need the money.

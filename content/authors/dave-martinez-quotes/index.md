@@ -1,0 +1,63 @@
++++
+author = "Dave Martinez"
+title = "Dave Martinez Quotes"
+quotes_len = "57"
+description = "the best 57 Dave Martinez Quotes"
++++
+- Every year that I have under my belt, I'm a lot more confident and a lot more prepared for the challenges of being a manager.
+- When I was with the Giants, I played for Dusty Baker, and I love Dusty to death. I think he's a great manager and great person, but he platooned me. His reasoning was to get everybody in the lineup. It wasn't that I couldn't play every day.
+- I love conversations, about anything.
+- I'm about as honest as I can get.
+- When a guy 275 pounds snaps, look out.
+- My dad was big about talking about baseball and Latin players.
+- In my first press conference I said, 'I'm here to win.' If you don't think that way, or any player thinks that way, why are you playing the game?
+- It would be tremendous... I'd love to be part of winning a championship in Chicago.
+- I had some pretty good teachers. I learned how to play the game the right way.
+- I've been around baseball for a really long time. I didn't know I could want to be here any more than I do, have any more love or passion for this. But being away, even for just a week, that was the worst. I didn't know what was going on. I never want to do that again.
+- When you feel like you're going to have a low-scoring game, why not have one of your better hitters have a chance? All of a sudden you're in the ninth inning and you have one of your best hitters on deck that doesn't get up. I always think about that.
+- I prepared myself for years to be where I'm at now, and I try to focus on the here and now.
+- When I look back, I think I just never got the opportunity to play every day.
+- The biggest thing I tell the boys is control the heartbeat. It's hard to do, but we've gotta be able to control the heartbeat in big moments because it goes really quick. So just stay in that moment and focus on the moment, don't get ahead of yourselves, and just play the game that we've been playing all year.
+- My kids would watch from the window and wave to me during batting practice.
+- I can remember having meetings with my coaches when things were going bad. I told them, 'Hey, we've got to be positive. This is the time we need to step up. You've got to make sure they know everything is going to be okay. Keep teaching. Once they see you are down, you lose them and that can't happen.'
+- It wasn't until Joe Maddon called me in 2006 when I thought about pursuing a coaching career.
+- My job is to be the bench coach with the Rays and help this team succeed. If another opportunity arises, I'd welcome the opportunity.
+- I can play with pain. It doesn't bother me.
+- There's a lot of good Latin personnel out in baseball, coaching, in the front office, and it's nice to be recognized. But I really believe I'm here because of my merit, not because of any race or anything like that.
+- We have to stick together. That is what makes good teams.
+- Let them know that we care, even when they have a bad game and not a good game, let them know that we always care about them. You'll get the most out of every player.
+- Umpires are supposed to be non-confrontational - they're supposed to uphold the peace on the baseball field.
+- Building relationships. Communicating. Trust. Those are three things I've kind of instilled myself with.
+- The one thing I always hear from the players is they say, 'You never change... no matter what happens, you have conversations with us, you are always positive.' They appreciate that.
+- I don't care what a guy can't do. Tell me what a guy can do and let's make the best of that. If we can do that, all the perceived things he can't do seem to go away.
+- Everyone keeps telling me how young I am, but if the right opportunity comes up, I'm ready to manage.
+- Through process and preparation and going through all of the interviews, I've learned a lot about myself and my skills.
+- In the heat of the moment things get blown out of hand.
+- I interviewed quite a few times and finally got a job with the Nationals. And I greatly appreciate it.
+- I never took things for granted. I always told myself to keep working hard, come to the ballpark ready to play, and one day I'll get a chance to play.
+- I've seen teammates who wanted to choke each other.
+- In my career, I finished in second place six times. I played on teams that were in it to the very end. It's frustrating.
+- You have to stay in the moment. Stay focused. Know what you're going to do.
+- I utilize my coaches. I value their opinions on a lot of things.
+- You have to take care of the seconds. The minutes, the hours, and the days will take care of themselves.
+- Early in my career when I was with Montreal, we had a lot of good outfielders like Otis Nixon, myself, Marquis Grissom and Larry Walker. We all did the platooning thing, although each one of us could have played every day. We got everybody in the lineup, and everybody got to play.
+- It's all about communication, culture and competing every day.
+- I like to hit with men in scoring position.
+- I realized that I still had a lot to offer the game. My knowledge could maybe help younger guys. I enjoyed being around the clubhouse, on the field.
+- The one thing I've known and I've learned from the best managers, it's to stay positive.
+- I enjoy my job. And I love the city of Chicago, and this organization - it gave me the start to my whole career.
+- At 21, I'm too young to be considered just a defensive outfielder.
+- The object is to win as many games possible.
+- When you go up there in the batter's box, you're engaged to hit. It's the same thing with baserunning.
+- Honestly, I'd rather not talk about my health.
+- I'm never going to criticize any umpires or anything, because they're a big part of the game.
+- I always was the quiet type, never said that much.
+- Often, bumpy roads lead to beautiful places.
+- I love Chicago. I love Wrigley Field.
+- Sometimes you need to have a tough conversation or face a tough situation, and take it head on.
+- You know, for me, you don't chase wins.
+- Yeah, I grew a goatee, and the next year, everybody had them.
+- I was thinking it would be nice if I woke up and could play like Roberto Clemente.
+- I've done everything I could as a bench coach. I'm ready to manage.
+- I've had many managers, and learned a lot from them, the good ones always stayed even-keeled, never rode the waves.
+- When things go bad, the best thing to do is keep working and keep coaching.

@@ -1,0 +1,19 @@
++++
+author = "Pauline Phillips"
+title = "Pauline Phillips Quotes"
+quotes_len = "13"
+description = "the best 13 Pauline Phillips Quotes"
++++
+- If you want children to keep their feet on the ground, put some responsibility on their shoulders.
+- There are two kinds of people in the world. Those who walk into a room and say, 'There you are' and those who say, 'Here I am'
+- If you want a place in the sun, you've got to put up with a few blisters.
+- It is true that I was born in Iowa, but I can't speak for my twin sister.
+- People who fight fire with fire usually end up with ashes.
+- True, a little learning is a dangerous thing, but it still beats total ignorance.
+- It is a sad commentary of our times when our young must seek advice and counsel from 'Dear Abby' instead of going to Mom and Dad.
+- A church is a hospital for sinners, not a museum for saints.
+- Never give a golfer an ultimatum unless you're prepared to lose.
+- Loneliness is the ultimate poverty.
+- If we could sell our experiences for what they cost us, we'd all be millionaires.
+- Religion, like water, may be free, but when they pipe it to you, you've got to help pay for piping. And the Piper!
+- The less you talk, the more you're listened to.

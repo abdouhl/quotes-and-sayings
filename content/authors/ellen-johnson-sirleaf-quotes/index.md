@@ -1,0 +1,31 @@
++++
+author = "Ellen Johnson Sirleaf"
+title = "Ellen Johnson Sirleaf Quotes"
+quotes_len = "25"
+description = "the best 25 Ellen Johnson Sirleaf Quotes"
++++
+- I'm not talking about what you hear from 5 per cent of the population on the radio, in the papers. I don't pay attention to it. I travel around the country. I'm happy I have a good relationship with the people.
+- We have to overcome the practice of male domination - even though it's changing, and changing in Liberia quite drastically.
+- We've done a lot to restore Liberia's credibility, Liberia's reputation, Liberia's presence.
+- I think we're ready for succession. We just must try to do it right.
+- I stand by it. I take the criticism for it. I think it's unfair, but yes, there is a thing about nepotism, and we all try to respect it.
+- Women work harder. And women are more honest; they have less reasons to be corrupt.
+- I beg you I no magician. I can't just wave a magic wand.
+- I would like to make sure, first of all, that our women in the informal sector - I mean, these are the farmers and the traders; many of them are not educated, many of them lacking literacy - be able to give them better working conditions. And we've done a lot to be able to achieve that.
+- The future belongs to us, because we have taken charge of it. We have the commitment, we have the resourcefulness, and we have the strength of our people to share the dream across Africa of clean water for all.
+- As more men become more educated and women get educated, the value system has to be more enhanced and the respect for human dignity and human life is made better.
+- When I took office, Liberia began to recover from years of neglect. Our people have brought clean water into the heart of Monrovia to children who have never known water from a tap. Efforts are underway to expand water projects as much as possible throughout the country.
+- I just think that unless you have that cohesiveness in the family unit, the male character tends to become very dominant, repressive and insensitive. So much of this comes also from a lack of education.
+- All girls know that they can be anything now. That transformation is to me one of the most satisfying things.
+- I think the majority of the Liberian people want peace.
+- One has to look at my life story to see what I've done. I've paid a heavy price that many people don't realize.
+- I underestimated the low level of capacity. I also underestimated the cultural roots of corruption.
+- Liberia just needs to go through this one political transition and it can really take off. Everything's in place now. We cannot afford to put the country in the hands of someone that lacks the experience.
+- I don't think people understand the awesomeness of the destruction of this country - its institutions, its infrastructure, its law, its morals.
+- My mother was a disciplinarian. She believed that when young girls start to go out with young boys, they get married.
+- I work hard, I work late, I have nothing on my conscience. When I go to bed, I sleep.
+- The people of Liberia know what it means to be deprived of clean water, but we also know what it means to see our children to begin to smile again with a restoration of hope and faith in the future.
+- My calling was first of all to ensure there was peace in the country, because we could easily have gone back to war. In the midst of the country, there were still warlords; there were many child soldiers who had never gone to school - they were part of the social setting - compromises had to be made.
+- I've been involved in politics for quite some time. I've held positions, and my experiences are very deep, and I think I have the capacity, the courage, and the character to institute the kinds of reforms that are so desperately needed.
+- My mother was the strength. She was the anchor. She was a preacher and a teacher.
+- In terms of being able to renew my nation, to be able to be able to bring back a devastated country, to restore hope to our people, to lift women and to give them a new horizon, a new ambition and new dreams, in respect of all of that, I think we've accomplished it, and I feel very good about that.

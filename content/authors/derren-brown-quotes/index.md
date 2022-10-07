@@ -1,0 +1,106 @@
++++
+author = "Derren Brown"
+title = "Derren Brown Quotes"
+quotes_len = "100"
+description = "the best 100 Derren Brown Quotes"
++++
+- It's a controlling thing on stage - you're directing the action, getting people to play their role. In real life, I take being kind and nice seriously, so the last thing I'd ever want to be is that weird, controlling, manipulative character.
+- Everything you do is about creating an experience in the viewer's head. If you're rude or irritating as a performer, then your magic is irritating.
+- As a performer you often feel that you're the child and everyone else is a grown-up.
+- I came across the idea of running towards the things that frighten you. Once you go and do it, you realise that the fear of it is far more powerful than actually doing it.
+- In my 20s, I just had to be the centre of attention all the time. I was quite eccentric.
+- Mentalist is the technical term for what I do and it covers everything from psychic medium through Uri Geller, through to magicians doing tricks with a mental theme.
+- Yes, I've had a slight feeling of wanting to reclaim some of the lifestyle I had in my 20s, which means poncing around in what amounts to pirate clothes.
+- Glenn Close is my favourite actress and she came to see the show in London once which was giddying.
+- I do always look back and feel faintly embarrassed by anything I've done in the past. I think that's not a terrible thing, because if you don't do that, how are you growing and moving forward?
+- The process of coming out is normally very disappointing. It's not that people react badly to it - they really don't care.
+- You have to realise that hypnosis doesn't exist: it just works on people's natural suggestibility, their expectations and capacity to unconsciously role play. You can't make someone do anything they don't want to do.
+- In real life, when I can avoid anything stressful, I do.
+- Taking up magic was a distraction from my sexuality. There is that 1970s cliche of the gay man as hairdresser, interior decorator, fashionista... and all of those things are about arranging surfaces in a very dazzling way - and magic is all about how you arrange surfaces. I got very good at deflecting people from things I didn't want them to see.
+- The stuff that I do and enjoy is normally quite similar to a lot of the stuff that psychics and spiritualists would enjoy themselves. I just have a different approach to wanting to find out how things really work, or a sense of, I guess, responsibility about honesty and so on.
+- People often think that you get the most of everything from having your face on the screen but its really, like musicians, when you hit the road. It's also where the most fun is, the adrenaline of it every night, giving this incredibly well rehearsed charismatic version of yourself every night and people hopefully loving you.
+- That was how I started, as a hypnotist. But I didn't like the kind of gigs I was being offered. I didn't want to embarrass people.
+- I have got friends that I have got to know and found out that, the first few times I was with them, they were just thinking that everything I was doing was some kind of weird mind game, which is hysterical, really, because I couldn't be any less like that.
+- A lot of unconfident kids do tricks because it's the quickest route to impressing people. You can stand behind something amazing and people think you're amazing.
+- I think it's important to be sort of nice.
+- A magic trick of any sort works because you tell yourself a story about what you see. And politicians use this all the time in their own way by throwing a load of statistics at you when things don't quite follow and then saying, 'So therefore blah,' and you believe that 'blah' thing because of the confusion that's come before.
+- Magic, whether it's mind magic or conjuring, is about the cheapest and quickest way of impressing people, and I think if you don't grow out of that as a magician then it shows, and people get a bit sick of that after a while, because it starts to feel like posturing. So I grew out of it.
+- Magic's quite a solitary pursuit - a thing you can do for hours and hours, getting better and better.
+- I wasn't terribly sociable. I had two or three friends at school. I drew things, played with Lego. My parents left me free to do whatever made me happy.
+- When touring I get to travel around with my best friends, do a show I love and I'm confident people will enjoy, and have all the adrenalin that comes with performing.
+- When we find ourselves in groups or with charismatic individuals, we might do things we wouldn't ordinarily do.
+- I remember Doritos launched a new flavour and the question was whether I could use my skills - as they perceived them - to make people desire and want to try this new flavour. But I like to be in control of the things I do and feel proud of them.
+- In terms of self-esteem and confidence I think I'm generally quite healthy.
+- If you're a comedian, it's a bit of a choice whether or not you want to be funny when you're not performing because it might feel disingenuous. In the same way, I don't show people magic tricks in social situations any more.
+- I never really enjoy the thought of fancy dress.
+- The joy of doing the TV or something like 'Sacrifice' isn't really the process of doing it; the joy is going through this real-life experience.
+- If you aim to be controversial for the sake of it you'd end up with a very thin and meaningless show.
+- If you do magic, it's the quickest most fraudulent route to impressing people.
+- I really do like being on stage. Compared to television I have a lot more control - it's a lot more relaxed and loose.
+- I like films that sort of play out in one confined area. Films that have a feeling that you're watching a play, a contained environment and a creeping tension.
+- That's how I lived for 10 years in Bristol after graduating. I just stayed in my student flat and paid very little rent. It was lovely, and part of me still misses that very lazy lifestyle. I was known as the magician on the street, and I used to dress a little eccentrically in a cloak.
+- Since turning 40 I happily moisturise - I have what's called a regime - but I'm always in two minds because I have no idea if I'm completely wasting my money. They feel nice when they are on but I can't stop wondering, 'Am I succumbing to the same nonsense I try to fight against in other areas?'
+- Psychic, illusionist... I'm just doing the things that I find interesting and worthwhile.
+- I am a movie geek, yes!
+- A bedrock of insecurity made me want to impress and want to be the center of attention.
+- I have a couple of dogs and I live with my partner. We just like to sit and read and I'm generally quite quiet.
+- Clearly if a hypnotist could make someone to steal £100k just by telling them to, the world would be a different place, and I suspect that hypnotists wouldn't bother doing shows in pubs or dodgy Spanish holiday resorts.
+- I'm very interested in how we take ownership of our own stories and our own lives.
+- I'm probably more persuasive than the next person if I want to be, but do I want to be? In my head, I just don't go there.
+- If people have very big personalities, I find myself feeling I have nothing to offer.
+- We go through life owned by the stories we tell ourselves which are often historic and charged narratives - things we've learnt since childhood that we don't even consciously realise are going on.
+- Feeling we have to be constantly updated about the lives of our friends and that everything we say has to be out there leads to frustration, anger and jealousy much more than it leads to anything else.
+- Suggestibility is a very loose term. You may not be the sort of person who responds well to a hypnotist on stage, but you might find, for example, that a doctor administering a placebo to you is something you respond well to.
+- I was allowed to do whatever made me happy. I can't think of a better or more worthwhile approach to parenting.
+- The Stoics appear during a huge time of constant wars and real political strife. And it became very popular, I think, because it's a way of distancing yourself from strife and keeping your centre of gravity within you.
+- For a long time, I couldn't just sit and have a conversation with people at a table without showing them a trick. I thought you just had to impress, it was about impressing, which of course is what you do if you don't feel very impressive.
+- I once had Rachel McAdams over for lunch, when she was with Michael Sheen, who's a friend of mine.
+- The big, fun, ambitious ideas tend to come out of the frustration of talking for too long about the smaller, weaselly ones.
+- When you're with your partner, I think, does everyone else sing and do the stupid voices and all that stuff that I do and always have done?
+- There was something about me even at an early age that enjoyed charming and manipulating.
+- I wore a cloak for many years, I had long hair, I may have had a drop earring for a week and I fancied myself as a philosopher poet but was somewhere more in the gay female leisure pirate.
+- I never quite know how to describe what I do. I normally just say, 'Oh, I'm a magician', which probably puts fairly naff ideas in people's minds but is pleasantly conversation-stopping.
+- Sexuality is often tied in with something you feel you lack in yourself and look for in others.
+- I had a natural aptitude for wanting to be the centre of attention and a definite skill for annoying people.
+- Relationships are very good at making you more conscious of yourself. Especially as you get older, you develop a crust around your madnesses and shortcomings that take someone else to recognize them.
+- Guilt's too strong a word, but there is this niggling worry that I'm a grown-up doing a childish job and it would be nice to do something more useful and to reach a number of people with an idea you think is important.
+- When I started doing magic I was quite obsessive about it. I didn't feel impressive and I had a strong desire to impress people. I was putting all my creative energy into learning and performing tricks, and it helps if you're not in relationships or doing the stuff other people are doing. But it's not necessarily a healthy way of living.
+- I'm finally having my TV removed and replaced by a tropical fish tank, which I hope will provide more interesting viewing.
+- I was in Leeds, just starting out, and I was hypnotising one person up on stage. Suddenly I had members of the crowd unsuspectingly go to sleep on me as well.
+- I was a Christian when I was young and didn't know any better.
+- I was part of a very uncool group. It was a group that liked classical music. They were known as the Music School Gang or, less charitably, the Poof Gang.
+- There's something a bit embarrassing about saying you're a magician. It immediately suggests all these horrendous cliches, let alone that you're a grown-up doing a child's job.
+- Most people's fear of being in front of an audience can generally be conquered by being completely on top of what it is they've got to do.
+- I'm not very sociable. If I get invited to a glamorous event I probably won't go. That world does not really appeal to me.
+- Magic has both feet planted in cheap vaudeville and childish posturing; in dishonesty and therefore not in art.
+- I love touring, more than anything. Doing the stage show is a more enjoyable process than TV. There are no safeguards but the payoff is the wow factor.
+- If something's stressful I've always tended to just find ways of avoiding it rather than rising to meet it or try to change it.
+- What I do is rooted in magic - it's got a big foot planted firmly in conjuring, even if the other foot's planted in psychological techniques.
+- So I don't really suffer too badly from fears - I'm quite happy to engender them in other people though!
+- Kindness and compassion aren't political qualities even though they get politicized.
+- The people who are most susceptible to hypnosis - the rugger bugger types - were also the ones who intimidated me most at school, so on an unconscious level I suppose I'm turning the tables on them.
+- Sometimes you need to be aware of the bigger picture you are missing.
+- Hypnosis is just suggestibility; you see it in certain people.
+- In recent years there's been a lot of philosophical theorising about how important magic is, and how it takes us back to a childlike state of astonishment. I think all this is just nonsense. Magic isn't meaningful or important other than how you're performing it in that moment.
+- I had no sense of 'Gotta work hard to be famous.' Never have done, and still don't.
+- I don't like big spiders in the house.
+- I think the sheer hell of trying to get a film made; I don't know if it would ultimately be worth it. The sort of format that I have, these TV things, sit somewhere between documentaries and reality shows and entertainment shows and dramas.
+- I think you can be sceptical, and still do things that are in a joyful way, and ultimately you are on stage entertaining. If you let your philosophy get too much in the way of that, then you are failing as an entertainer.
+- I don't want to be some extreme therapist. Although seeing someone's life change for the better is a really moving thing.
+- I really liked 'Heist,' and that seems to be a popular favourite, but I think my personal favourite was 'Hero at 30,000 ft,' about the guy who ended up landing the aeroplane.
+- Magic should get under people's skins.
+- Not everything is about causing controversy. That would be a very boring way to go.
+- I went to a party when I was a student and they had a mynah bird up in the bedroom where people put their coats. I was completely captivated - I just sat there all night talking to it. The next day I passed a pet shop and they had a conure - it's a little parakeet - in the window. I bought it, not knowing what it was or how to look after it.
+- When you're made to be frightened within a safe context, like watching a horror film, you have that tension/release which triggers all those happy chemicals that feel good.
+- When I was at University I had a sort of fear about going to the gym and that kind of blokeish environment, which was rooted in a feeling of total inadequacy, which is what fear is.
+- Being gay facilitated my capacity for shame. As a child, I carried around this thing that gradually became this big dark secret. When I came out in a newspaper interview at 30 I was expecting the reaction the following day to be like the climax of 'Dead Poets Society,' but actually no one really cared.
+- I like to eat other people's food in restaurants.
+- It used to frustrate me when I'd get celebrities on my shows and I had to meet them as this ludicrous magician character rather than as myself.
+- I've got a house full of taxidermy. It's like a museum. I have about 200 pieces in total, all ethically sourced.
+- I'm a British psychological illusionist, which is a term I made up, but I do these kind of mind-reading and psychological experiments. There's nothing magical about it at all.
+- Things I've done in the past always make me cringe a bit. When I think back to being a Christian. Proselytising to people, that makes me cringe.
+- And the nature of magic is all in the person's experience. Whether the magician is using a highly complex sleight of hand or he's just got two cards that are the same, it doesn't matter: it's how it's sold and how magical it is for the person that matters.
+- For every moment of concentration there is an equal moment of relaxation.
+- I'm probably a little shyer than people imagine.
+- People are just passively accepting what you tell them, so if you are on TV there is that greater responsibility to be true.
+- I'll sometimes go a week or two without tweeting, and then when I'm in the mood, tweet loads, and clog up people's in-boxes. It's a moment when you feel like sharing something.

@@ -1,0 +1,106 @@
++++
+author = "Daniel Jacobs"
+title = "Daniel Jacobs Quotes"
+quotes_len = "100"
+description = "the best 100 Daniel Jacobs Quotes"
++++
+- Most of the guys I grew up with let the streets and the gangs influence them. Maybe one or two of them made it to college. All the negative things were all around me.
+- I would be a dumb guy to say I don't like MMA because it's not boxing. You just have to appreciate everything.
+- My life is meaningful.
+- Giving back - that's the purest joy you can possibly have.
+- Listen, it's crazy because I almost have to work twice as hard to get the amount of attention as it is for somebody who's a little lighter than me or from a different country than me, you know?
+- I'm a very spiritual guy. I'm a firm believer of positive energy.
+- My grandmother was very strict. She and my mom wouldn't let me hang around the streets. It wasn't my lifestyle.
+- I had such severe nerve damage that I didn't get the nerves all the way back. My pinky toe on my left foot is still numb, and I feel it when I'm in bed at night or when I'm by myself. That pins-and-needles feeling reminds me that life is precious, and don't take for granted what you have.
+- The opportunities that I've been allowed to have just keep getting better.
+- I'm fortunate for where I come from because even though I didn't grow up with a silver spoon in my mouth, it allowed me to appreciate any little thing that I have.
+- It's a beautiful thing to live in a diverse area.
+- You know, I'm a man, and men are proud and stubborn. We don't go running to the doctor when something's wrong. We let it play out a little bit.
+- If I'm winning and looking impressive and being on the scene, the fans are going to start demanding bigger fights.
+- Going in with one of the best middleweights, I can take experience and the mental capacity to know I can and do belong, and bring a mental edge you can have every time in the ring.
+- I won four 152-pound Golden Gloves titles.
+- I'm a fan of the sport and I like to see the best in the ring together.
+- Canelo is not only the face of boxing, but he is probably pound-for-pound one of the best in the sport. He's one of the most recognized fighters in all our sport. I think a victory over him, a convincing victory, would definitely solidify my spot and it would be inevitable for people to know who Daniel Jacobs is.
+- I know that the strong, black woman is the most beautiful creature in this world, so that's why I always have the utmost respect for my sisters. That's why I make sure I'm not out here disrespecting women and acting a fool.
+- They say the only thing that your parents don't teach you is how to live without them, but my grandma's religious beliefs allowed me to accept death even though it was so hard to live without her.
+- When I first turned pro, I was making a lot of money, and I was spending money from two fights down the line.
+- Sergio Mora is a Rubik's Cube. You have to figure him out. He's crafty and I have the utmost respect for him.
+- I had to have 25 counts of radiation, and the radiation was an obstacle I had to get over, in and of itself. It took away my appetite completely, it changed my mood swings, it would make me feel nauseous all the time.
+- At the end of the day, don't bet against me. Don't bet against me.
+- I'm a ride or die Biggie fan. I've come out to 'Victory' so many times.
+- Fighting cancer taught me more than I ever could have imagined, but I've beaten it.
+- I had a hard time growing up, and boxing kind of served as my second family.
+- If I wasn't boxing I'd be a wide receiver or a running back for the Giants.
+- When I was making my way to the ring and when I fight, to see people cheering for me, it makes me feel that I'm somebody special.
+- You have all these different reality shows, all social media, all these different things where people have to act a certain way to get attention.
+- This is boxing - you can't really say what is going to happen because anything can happen in that square ring.
+- I'll continue to strive for success and be the best that I can be.
+- Boxing is one of those things where you want to be respected for what you do at your craft.
+- For what I've overcome and am still overcoming, and accomplishing, says a lot.
+- I'm a pure boxer. I have lightning speed that hurts guys. But I love to box. I love to be on my back foot. I love to work my jab and combinations.
+- Mentally, I don't think there's anything that can discourage me.
+- Andre Ward is a guy I look up to, a guy I have the highest respect for in and out of the ring, so anytime he can give me some kind of advice, I'm like a sponge.
+- I wanted to show people the sweet science I have, from my amateur background.
+- It never ceases to amaze me the opportunities that have arisen for me after my cancer scare.
+- When I was reading the Bible, I came across the word 'meek.' It means to be humble. I asked God, I want to become meek, allow me to become meek. About two months later I was struck with cancer. I realized this was God testing me. If you want to become appreciative, and humble, and meek, I'll strip you of everything.
+- At one point, I didn't really consider myself as a puncher because it was more so that the speed created the knockouts. People were getting hit with punches they didn't see and they were going down.
+- Anytime you get an opportunity to better yourself and escape your surroundings you take advantage of it.
+- I want to be a world champion, but I want to be the face of Livestrong.
+- The thing I've most realized is that when people come up to me and tell me how much my story means to them, how much it was inspiration for them to see me fight through and push through with my career, I realized love is real. And there's no greater feeling in this world, to give back and touch people.
+- The little things I used to take for granted before I don't take for granted anymore. This whole situation has evolved me into a better person. Mentally, I'm much stronger, I'm more loving. I'm a man now. Cancer has played a huge role into making me into this person.
+- This thing, boxing, is a mental battle.
+- A fighter in his prime needs to stay active. A fighter, who doesn't have certainty when he's going to fight again, it's hard for him to stay mentally ready.
+- There's not a lot of things to look out for in amateur boxing. Once the headgear comes off, once the 10-ounce gloves come on and you're fighting men and you're doing all these different things, that's where the experience comes.
+- Being bullied is the reason I got into boxing. When I was 14, I was being bullied by a kid in junior high school. I wanted to do this the right way. So we went to a boxing gym. We boxed, I beat him up in the ring. He never bullied me again and I found my passion in the sport of boxing.
+- It's kind of hard for boxing, which is a violent sport, to get the respect that it deserves.
+- Obviously I've had my setbacks, but those have enabled me to be the man I am today.
+- I'm very confident in myself and in my ability, but in boxing there's always the unknown.
+- I think it's a true blessing and great opportunity for me to represent, not only New York boxing, but coming from Brownsville where boxing has been the essence of the neighborhood.
+- I have athletic power that people can't see, that sharpness, the big bang that hits you.
+- There's no better way to prove the doubters wrong than to win in a KO fashion.
+- When you are defending your title at any point in your career, a loss can be fatal.
+- To not only be a cancer survivor, but to return to the sport of boxing, because, I mean, this is not basketball, this is not baseball, this is not a sport you play. This is a sport where you can die in the ring. So it says a lot to me to come back and be a world champion in that aspect.
+- I'm super proud of myself, not because I can throw punches inside a ring but just because of my journey and who I proved that I am.
+- I was raised by my grandmother, my mom, about five or six aunts and female cousins as well. We were all in one building. I definitely learned how to respect and how to treat women.
+- On October 20, 2012 - 17 months and two days after I was diagnosed with that rare form of bone cancer - I stepped back into the ring at the Barclays Center to fight Josh Luteran. He didn't make it out of the first round. Just 1:13 in, it was over. Knockout. I was back.
+- I get to eat what I want on Sundays. You still can have a cheat day up to two weeks before the fight.
+- I'm able to do motivational speaking all over the world and do so many positive things with my life because of my journey and the battles I've fought. Without cancer, I would have never had some of these opportunities, and I wouldn't be the man I am today.
+- My outlook on life is totally different because my life was almost taken.
+- I've been able to not only fulfill my dreams and become a world champion, but there's been so many different opportunities that just blow my mind and opportunities that I never thought I'd have.
+- I remember being on my death bed, and I found out in the newspaper that the Barclays Center was opening and that they were going to have fights here and me not knowing if I would ever be able to box again, let alone perform here.
+- It's always been important for me to do things in the community, it's part of my upbringing.
+- Two-time champion, it feels great.
+- The doctors misdiagnosed me at first - they told me I had a pinched nerve. But my situation was getting worse. The tumor was cutting off the circulation in my nerves. And in two weeks' time, I was left paralyzed. I went from a cane to crutches to a walker to a wheelchair.
+- I don't want to be in a stable of guys that have to fight for the spotlight. I want to be with a promoter who is solely focused on me.
+- I have so many memories, and I love music because you can listen to a song when you're at a certain place or doing something special and that particular song will always remind you of that thing.
+- A lot of guys would prefer to go the business route by getting as much as they can for the least amount of risk than to actually put everything on the line.
+- I'm not a real religious guy. I'm a spiritual guy and my religion is love.
+- So many people are affected by cancer, whether you have it, or a family member.
+- I accept MMA, I appreciate MMA, I even get techniques from MMA, surprisingly, like footwork techniques and how I move. It's different and unorthodox to what boxers are normally used to.
+- For me, being world champion, you have to put your body through these extreme tests, day in and day out. So when Sunday comes around, that's the day when I pamper myself. I might get a massage or go to a spa.
+- In 2007, I dreamed of Olympic gold but got outpointed in the Olympic trials.
+- I'm the guy who sings in the shower, more than anything.
+- I've had the dream of being a world champion since I put on my first pair of gloves.
+- I've seen a lot in my life and nothing really shocked me, just being where I'm from. But this was unexpected. It just hit me, like, I have cancer? Me?
+- I wouldn't give me a rematch, too, if I was Golovkin, to be honest with you.
+- Any time a fighter is in a championship fight, he will bring his best.
+- I'm just living daily and I thank God for every day that I have.
+- This is boxing and it's all about putting your punches together perfectly.
+- I miss corner men dressed up in the white cardigans, with sometimes the white hat they may have on.
+- I don't work out at all on Sunday. It's amazing. I look forward to every Sunday.
+- The cancer battle, it helped me put a lot of things in perspective and gave me time to reflect and think.
+- With any opponent there's always a challenge and something to watch for.
+- What I bring to the table is that I'm a boxer-puncher.
+- When you're from Brooklyn, you've got to rep, and you've got to perform, like it's your last fight on earth.
+- I wouldn't say that I'm the most avoided man in boxing, but a few guys might avoid me in the middleweight division.
+- I might have a snack before bed. We have healthy cheat snacks. I might eat some apricots or veggie straws.
+- I'm not out to knock anybody out, even though knockouts are cool.
+- I've always vowed that if I had a child, I would treat him right. My father was a perfect model for me because everything that he did wrong, or everything that he did I would just do the opposite. Which would be the right thing to do. So that is being in your son's life 100 percent, give them love, give them affection, give them discipline.
+- I fight with glory and I fight with guts and I fight with skills.
+- Being able to see my family... it's priceless.
+- I just use my platform as a boxer to reach the masses.
+- I'm a Triple G fan.
+- I believe my speed is my greatest advantage. My skill, my ring generalship... I could go on and on.
+- One thing that I learned post-cancer is to enjoy every moment of every day. To find things to be grateful for.
+- Well, 'Titanic' is probably my second favorite movie.
+- The determination that I have to be a champion - whether it's in or out of the ring - is just so amazing.

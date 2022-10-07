@@ -1,0 +1,106 @@
++++
+author = "Daniel Levitin"
+title = "Daniel Levitin Quotes"
+quotes_len = "100"
+description = "the best 100 Daniel Levitin Quotes"
++++
+- Anything you care about, from vacation plans to exercise to the best Ethiopian restaurant, is going to be guided by your individual search history.
+- Procrastination comes in two types. Some of us procrastinate in order to pursue restful activities - spending time in bed, watching TV - while others delay difficult or unpleasant tasks in favor of those that are more fun.
+- Two sides to a story exist when evidence exists on both sides of a position. Then, reasonable people may disagree about how to weigh that evidence and what conclusion to form from it. Everyone, of course, is entitled to their own opinion.
+- The human brain long ago evolved a mechanism for rewarding us when we encountered new information: a little shot of dopamine in the brain each time we learned something new. Across evolutionary history, compulsively seeking information was adaptive behavior.
+- That daydreaming mode turns out to be restorative. It's like hitting the reset button in your brain. And you don't get in that daydreaming mode typically by texting and Facebooking. You get in it by disengaging.
+- We need to blinker ourselves, to better monitor our attentional focus. Enforced periods of no email or Internet to allow us to sustain concentration have been shown to be tremendously helpful. And breaks - even a 15-minute break every two or three hours - make us more productive in the long run.
+- I don't think we should have less information in the world. The information age has yielded great advances in medicine, agriculture, transportation and many other fields. But the problem is twofold. One, we are assaulted with more information than any one of us can handle. Two, beyond the overload, too much information often leads to bad decisions.
+- Google is a company whose very existence depends on innovation - on inventing things that are new and didn't exist before - and on refining existing ideas and technologies to allow consumers to do things they couldn't do before.
+- I'm a simple country neuroscientist, not an expert on democracy, but I do know something about how the brain works and how opinion-reinforcing bubbles can distort the picture of reality we build from the information we encounter on a daily basis.
+- Music can be thought of as a type of perceptual illusion in which our brain imposes structure and order on a sequence of sounds. Just how this structure leads us to experience emotional reactions is part of the mystery of music.
+- Approximating involves making a series of educated guesses systematically by partitioning the problem into manageable chunks, identifying assumptions, and then using your general knowledge of the world to fill in the blanks.
+- Lies are an absence of facts and, in many cases, a direct contradiction of them.
+- Critical thinking is not something you do once with an issue and then drop it. It requires that we update our knowledge as new information comes in. Time spent evaluating claims is not just time well spent. It should be considered part of an implicit bargain we've all made.
+- Activities that promote mind-wandering, such as reading literature, going for a walk, exercising, or listening to music, are hugely restorative.
+- There's an ancient connection between movement and music. Most languages don't make a distinction between the words 'music' and 'dance.' And we can see that in the brain. When people are lying perfectly still but listening to music, the neurons in the motor cortex are firing.
+- Through studies of music and the brain, we've learned to map out specific areas involved in emotion, timing, and perception - and production of sequences. They've told us how the brain deals with patterns and how it completes them when there's misinformation.
+- As soon as you hear a proposition, the creative brain in humans assumes for the moment that it's true, and starts trying to find evidence. It's what computer scientists in the old days used to call 'Fifo:' first in, first out. The first piece of information that gets in has a privileged position, even if it's misinformation.
+- I think of the brain as a computational device: It has a bunch of little components that perform calculations on some small aspect of the problem, and another part of the brain has to stitch it all together, like a tapestry or a quilt.
+- Our brains are very, very good at self-delusion. What happens is, it releases the stress hormone cortisol in the brain, which leads to foggy thinking, so you're not even able to judge well whether you're working well or not.
+- Healthy breaks can hit the reset button in your brain, restoring some of the glucose and other metabolic nutrients used up with deep thought. A healthy break is one in which you allow your brain to rest, to loosen its grip on your thoughts.
+- Unscrupulous writers often count on the fact that most people don't bother reading footnotes or tracking down citations.
+- We're assaulted with facts, pseudo facts, jibber-jabber, and rumour, all posing as information. Trying to figure out what you need to know and what you can ignore is exhausting.
+- Most jobs require some degree of creativity and flexible thinking.
+- If everything in the environment is utterly predictable, you become bored. If it's utterly unpredictable, you become frustrated.
+- I've always been interested in peak performance, why some people do better in life than others.
+- Across a range of inferences involving not just language but mathematics, logic problems, and spatial reasoning, sleep has been shown to enhance the formation and understanding of abstract relations, so much so that people often wake having solved a problem that was unsolvable the night before.
+- We're a social species, and we want to get along with the people we like and who are like us. That's just good adaptive behaviour. We're more likely to accept something if we hear it from a friend, whereas we're sceptical of people who are not like us - which is what leads to racism, nationalism, sexism and all forms of bigotry.
+- I'm not a great guitarist, and I'm not a great singer.
+- That walk around the block, that fresh air, is going to help you work more quickly and effectively when you get back.
+- We need to take a step back and realize that not everything we encounter is true. You don't want to be gullibly accepting everything as true, but you don't want to be cynically rejecting everything as false. You want to take your time to evaluate the information.
+- Even though we think we're getting a lot done, ironically, multitasking makes us demonstrably less efficient.
+- The rest-seeking procrastinators would generally rather not exert themselves at all, while the fun-task procrastinators enjoy being busy and active all the time but have a hard time starting things that are not so amusing.
+- What it turns out is that we think we're multitasking, but we're not. The brain is sequential tasking: we flit from one thought to the next very, very rapidly, giving us the illusion that what we're doing is doing all these things at once.
+- People have different styles: Some are filers and some are pilers. The people who pile things often know exactly where things are, and they're often just as organized as the people who file things.
+- Evolution doesn't just look for things that are fun; if it did, we'd know how to fly.
+- The conscious mind can only pay attention to about four things at once. If you've got these nagging voices in your head telling you to remember to pick up the laundry and call so-and-so, they're competing in your brain for neural resources with the stuff you're actually trying to do, like getting your work done.
+- There are people from lots of different fields in my department. In my lab, they come from computer science, education, psychophysics, psychology, music - and we all work together, and it feels very comfortable. All the careers I've had have been interdisciplinary; working in a studio is like being an engineer and a musician and a therapist.
+- Use the environment to remind you of what needs to be done. If you're afraid you'll forget to buy milk on the way home, put an empty milk carton on the seat next to you in the car or in the backpack you carry to work on the subway.
+- Singing and dancing have been shown to modulate brain chemistry, specifically levels of dopamine, the 'feel good' neurotransmitter.
+- Workers in government, the arts, and industry report that the sheer volume of email they receive is overwhelming, taking a huge bite out of their day. We feel obliged to answer our emails, but it seems impossible to do so and get anything else done.
+- If you're making a bunch of little decisions - like, do I read this email now or later? Do I file it? Do I forward it? Do I have to get more information? Do I put it in the spam folder? - that's a handful of decisions right there, and you haven't done anything meaningful. It puts us into a brain state of decision fatigue.
+- Yes, there were piano bands and great rock pianists, from Jerry Lee Lewis and Little Richard to Keith Emerson, Rick Wakeman, and Elton John. But something about the electric guitar speaks of more than music - it epitomizes and gives voice to the rebellion, power, and sexuality of rock.
+- We've always known that music is good for improving your mood.
+- Many people say some of their best ideas come from dreams. Arguably the greatest Beatles song, 'Yesterday,' came to Paul McCartney in a dream.
+- We need to support the media by subscribing to newspapers and magazines and supporting their advertisers to stay in business. And we need to be less greedy and allow journalists to take the time to pull the story together.
+- Unfortunately, often found next to things that are true are an enormous number of things that are not - in websites, videos, books and on social media.
+- When people silo themselves by belief, only affiliating with like-minded media organizations and people, we lose the opportunity for genuine conversation, much less persuasion.
+- The obvious rule of efficiency is you don't want to spend more time organizing than it's worth.
+- People who organize their time in a way that allows them to focus are not only going to get more done, but they'll be less tired and less neurochemically depleted after doing it.
+- If you aren't taking regular breaks every couple of hours, your brain won't benefit from that extra cup of coffee.
+- We get stressed out now by having somebody yell at us in the office or by making a mistake or by losing a bunch of money. These aren't problems that our hunter-gatherer ancestors had. They'd get stressed if a lion came to them or a boulder was rolling towards their living quarters. That kind of stress provoked the fight or flight response.
+- I think we've debunked the myth of talent. It doesn't appear that there's anything like a music gene or center in the brain that Stevie Wonder has that nobody else has.
+- When do you suppose the electric guitar was invented? If you thought the 1950s, you'd be wrong. If you can muster a recollection of hearing electric guitar in Lionel Hampton's big band in the 1940s and date it to that decade, you'd still be off - by more than 30 years.
+- The state-of-the-art techniques really allowed us to make maps of how Sting's brain organizes music. That's important because at the heart of great musicianship is the ability to manipulate in one's mind rich representation of the desired soundscape.
+- Maybe instead of asking political candidates to submit tax returns, we really should be asking to see their brain scans.
+- Because our ancestors lived in social groups that changed slowly, because they encountered the same people throughout their lives, they could keep almost every social detail they needed to know in their heads.
+- Brain extenders are anything that get information out of our heads and into the physical world: calendars, key hooks by the front door, note pads, 'to do' lists.
+- In a country that was still racially segregated and prejudiced, music was among the first domains in which African-Americans thrived alongside whites.
+- Getting new information through Web-surfing almost always feels more rewarding than having to generate new information in the work that is in front of us. It therefore takes increasing amounts of self-discipline to stay on task.
+- Because you've been exposed to Western tonal music, you know after a certain chord sequence what the next possibilities are. Your brain has compiled a statistical map of which ones are most likely and least likely. If the song keeps hitting the most likely notes, you'll get bored, and if it's always the least likely ones, you'll get irritated.
+- Of the thousands of ways that humans differ from one another, turns out there's this one cluster of traits called conscientiousness that predict a whole host of positive life outcomes, such as longevity over our health, life satisfaction.
+- Having learned something, we tend to cling to that belief, even in the face of overwhelming evidence to the contrary. New information comes in all time, and the thing we ought to be thinking about doing is changing our beliefs as that new information comes in.
+- I became a cognitive psychologist because I met a bunch of teachers I really liked.
+- Our species uses music and dance to express various feelings: love, joy, comfort, ceremony, knowledge, and friendship. And each one is distinct and widely recognized within cultures. Love songs cause us to move slowly and fluidly, for example, while songs of joy inspire us to dance in a full-body aerobic way.
+- If we are to appropriate money for roads, we need statistics on how bad our roads really are and, moreover, where more roads will be beneficial - it would be irresponsible to just build them where our gut tells us to.
+- When you're at work, be fully at work. And let your leisure time be what it's meant to be - restorative and fun.
+- I became interested in structure when I was in graduate school. How is it that the brain perceives structure in a sometimes disorganized and chaotic world? How and why do we categorize things? Why can things be categorized in so many different ways, all of which can seem equally valid?
+- I have never seen a proton or electron spinning around it. I have never actually seen a chromosome. I trust that they exist because people who I trust tell me they do.
+- Our ancient forebears who learned to synchronize the movements of dance were those with the capacity to predict what others around them were going to do and signal to others what they wanted to do next. These forms of communication may well have helped lead to the formation of larger human communities.
+- The left brain is responsible for making order out of chaos, for making sense of things in the world that don't always add up. To do this, it often makes up stories, fantastic confabulations in some cases, just to be able to explain what we're experiencing.
+- Multitasking creates a dopamine-addiction feedback loop, effectively rewarding the brain for losing focus and for constantly searching for external stimulation.
+- I believe in an informed electorate, and we need to teach our children to become informed enough to have opinions on world issues or, at least, to understand what the major issues are and who the players are.
+- Music and dance have also always been a communal activity, something that everyone participated in. The thought of a musical concert in which a class of professionals performed for a quiet audience was virtually unknown throughout our species' history.
+- If you're studying from a book and trying to listen in on a conversation at the same time, those are two separate projects, each started and maintained by distinct circuits in the brain. Pay more attention to one for a moment and you're automatically paying less attention to the other.
+- If you don't get a good night's sleep, the events of the day are not properly encoded in memory.
+- Every status update you read on Facebook, every tweet or text message you get from a friend, is competing for resources in your brain with important things like whether to put your savings in stocks or bonds, where you left your passport, or how best to reconcile with a close friend you just had an argument with.
+- The electric guitar and its players hold a place of privilege in the annals of rock music. It is the engine, the weapon, the ax of rock.
+- You're entitled your own opinions, but you're not entitled to your own facts.
+- I reject the notion of a post-truth area. I don't believe there is such a thing, and we shouldn't accept that.
+- There are not two sides to a story when one side is a lie. Journalists - and the rest of us - must stop giving equal time to things that don't have an opposing side.
+- We used to think that you could pay attention to five to nine things at a time. We now know that's not true. That's a crazy overestimate. The conscious mind can attend to about three things at once. Trying to juggle any more than that, and you're going to lose some brainpower.
+- Neurons are living cells with a metabolism. And they need glucose in order to function. Glucose is the fuel of the brain, just like gasoline is the fuel of your car.
+- I don't think I'm always right, but I would like to empower people to come to sound conclusions using a systematic way of looking at things.
+- One big promise of the Internet was that it would be a great democratizing force, allowing us to become exposed to new ideas that we might not otherwise encounter in our town, workplace or social circle.
+- There are a lot of books about how to get organized and a lot of books about how to be better and more productive at business, but I don't know of one that grounds any of these in the science.
+- Many of us feel as though we are overloaded and overwhelmed by all the things that are happening, and we can't stop work for even five minutes or we'll fall behind: the idea that if we don't take breaks, we're being more productive.
+- Some people like very predictable melodies, and others prefer the less likely notes.
+- When it comes to snowing people, one effective technique is to get a whole bunch of verifiable facts right and then add one or two that are untrue.
+- I actually became a producer because I saw the producers getting all the babes. They were stealing them from the guitarists.
+- President Trump, when challenged on facts, says that many people feel the way he does. But feelings should not take the place of reason in matters of public policy.
+- Music has got to be useful for survival, or we would have gotten rid of it years ago.
+- Information overload refers to the notion that we're trying to take in more than the brain can handle.
+- If you hear on the weather report that it's going to rain tomorrow, rather than reminding yourself to bring your umbrella, set the umbrella by the front door - now the environment is reminding you to bring the umbrella.
+- We've learned that musical ability is actually not one ability but a set of abilities, a dozen or more. Through brain damage, you can lose one component and not necessarily lose the others. You can lose rhythm and retain pitch, for example, that kind of thing.
+- The phrase 'fake news' sounds too playful, too much like a schoolchild faking illness to get out of a test.
+- We're not the best, but we happen to be what evolution came up with.
+- Our to-do lists are so full that we can't hope to complete every item on them. So what do we do? We multitask, juggling several things at once, trying to keep up by keeping busy.
+- What music is better able to do than language is to represent the complexity of human emotional states.
+- One of the most important tools in critical thinking about numbers is to grant yourself permission to generate wrong answers to mathematical problems you encounter. Deliberately wrong answers!
+- The history of science and culture is filled with stories of how many of the greatest scientific and artistic discoveries occurred while the creator was not thinking about what he was working on, not consciously anyway - the daydreaming mode solved the problem for him, and the answer appeared suddenly as a stroke of insight.

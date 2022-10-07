@@ -1,0 +1,106 @@
++++
+author = "Erik Prince"
+title = "Erik Prince Quotes"
+quotes_len = "100"
+description = "the best 100 Erik Prince Quotes"
++++
+- I built Blackwater to stay connected to the SEAL teams and to serve that whole community.
+- I'm a business guy just trying to make - provide great services to the customers that need us.
+- I've been overtly and covertly serving America since I started in the armed services.
+- The establishment, rigged, cozy system inside the beltway is not America.
+- The people we helped in the field, they know what the legacy is. The 40% or so of Americans that really can't stand the name of Blackwater, that's fine, I'll never really win them over anyway. And I really don't care.
+- We have a great all-volunteer force, but the fact is that 0.5% of the U.S. population serves in the military, maybe another 3-5% knows someone who serves. Leaving 95% of Ameria with no real contact with the military.
+- Everyone says they support our troops and thank you for their service, if they really want to support their troops, demand better. Demand that their sacrifice not be wasted. That we not just muddle along as some of the generals have called for.
+- The failings in Afghanistan don't fall on the shoulders of the American service personnel trying to complete their mission. The failure falls on military leadership unable to adapt to irregular warfare, and a Congress that blindly continues to fund failure.
+- I know a lot of people in the aviation business, particularly ones who will fly to places where your boots get dirty when you get out of the airplane.
+- Some people will always hate the name Blackwater. They might not like me.
+- Blackwater's work with the CIA began when we provided specialized instructors and facilities that the Agency lacked. In the years that followed, the company became a virtual extension of the CIA because we were asked time and again to carry out dangerous missions, which the Agency either could not or would not do in-house.
+- I started a private equity fund and we invest in energy, mining, agriculture kind of things in Africa.
+- We protect our banks, hospitals and airports with armed personnel; surely, we can do more to protect schools, which teach our nation's most valuable resource.
+- It's amazing how many countries run their embassies as commercial outposts to promote businessmen from their country.
+- We have kind of turned our back on the fact that hard work, sacrifice, risk-taking, innovation, is what made America great.
+- The Janjaweed is a truly unfettered bully. No one has stood up to them. If they were met by a mobile quick reaction force of African Union soldiers, the Janjaweed would quickly learn their habits were not sustainable.
+- Developing good investments in Africa is by and large the best for the people of Africa that have a job, that have electricity, that might have clean water, that might have those things that we in the West take horribly for granted.
+- Every individual who has worked for Blackwater in Iraq has previously served in the U.S. military or as a police officer. Many were highly decorated. And from the beginning, these individuals have been bound by detailed contracts that ensure intensive government direction and control.
+- Since United States military operations in Iraq began in 2003, I have visited Iraq at least 15 times. But unlike politicians who visit, the question for me has never been why the U.S. got into Iraq. Instead, as the CEO of Blackwater, the urgent question was how the company I head could perform the duties asked of us by the U.S. State Department.
+- Our nation has endured and flourished because people of goodwill adapt and innovate productive solutions to our nation's problems - not because of top-down dictates.
+- I'm not sure whether a person can really gauge the quality of his work by the enemies he's made, but if I somehow upset Hamas and the Taliban and Henry Waxman, I must have done something right.
+- My father was a brilliant inventor and businessman. He taught me to appreciate the opportunities that America offers to innovators.
+- I will support vigorously whoever commits to reduce the size of government the most.
+- Afghanistan is an expensive disaster for America.
+- After 9/11, a few hundred CIA and Special Operations personnel, backed by airpower and Afghan militias, devastated Taliban and al-Qaeda forces. That effort has since turned into a conventional Pentagon nation-building exercise and gone backward.
+- China trading with its neighbours and building infrastructure brings only benefits.
+- I can relate to ranchers and roughnecks and professional game guides and farmers and homemakers.
+- One of the real core competencies of Blackwater, or companies like Blackwater, is we can operate in difficult places without any outside support.
+- Why should I pay for business? Fly coach, you arrive at the same time.
+- Any time you employ thousands of people, some people do dumb things.
+- I put myself and my company at the C.I.A.'s disposal for some very risky missions. But when it became politically expedient to do so, someone threw me under the bus.
+- Sometimes motorists do irrational things.
+- I'm a very free market guy.
+- Very few people know someone who would voluntarily go into a war zone to protect a person he has never met. I know 1,000 of them, and I am proud that they are part of our team.
+- I live in Loudoun County, and the counties surrounding Washington, D.C., have the highest per-capita income in the country. Not because they create wealth, but because they suck wealth from the rest of the country, and that system needs to be shaken up.
+- I love the U.S. military. I want them to be the most effective and the most cost-effective and I think there is so much spending and so much bloat and so much bureaucracy that it actually hinders them from having a lot of the mission accomplishments that they should.
+- Russia is basically Italy with nuclear weapons.
+- Troops fighting for their lives should not have to ask a lawyer sitting in air conditioning 500 miles away for permission to drop a bomb.
+- I think faith gives us a structure around which to try to organize our lives. I'm also a big believer, and very thankful that there's forgiveness.
+- My dad built his business by providing products he figured the customers would want.
+- Any systems can always be made better.
+- If someone is doing that, saving the customer money, is making a profit so bad?
+- I've certainly been mortared and rocketed a few times.
+- In Iraq, State Department civilians and U.S. soldiers have been operating in the same location in an active war zone. While the troops have been facing insurgents, the State Department civilians have been working to rebuild institutions and infrastructure. Blackwater's role in this war evolved from this unprecedented dynamic.
+- We have the finest officers in the world, but it seems like once they become generals it is a self-licking ice cream cone of who gets promoted and who gets approved to join that club. No one thinks outside the box.
+- If the Chinese are sensitive about anything, it's not having their people die.
+- If I could send a message back to my younger self, it would be: Do not work for the State Department at all.
+- We have no George Pattons anymore. We have no Ulysses S. Grants. We have none of the swashbuckling generals that actually made things happen.
+- I like the fact that Donald Trump has been in the private sector. I like that he's had to make a payroll. I like that he's had to do projects.
+- Let's stop trading freedom for the illusion of security.
+- We're very excited about Africa - it can be the breadbasket of the world.
+- The greatest threat to our freedom and prosperity is not al-Qaida, the Taliban, Iran or even China. It's an idea, the idea that we can spend our way out of our problems without tightening our belt and paring down the very bloated government.
+- Limited government is best.
+- America is way too quick to trade freedom for the illusion of security. Whether it's allowing the NSA to go way too far in what it intercepts of our personal data, to our government monitoring of everything domestically and spending way more than we should.
+- Like Vietnam, Afghanistan was never about troop levels; it is about how troops are utilized.
+- I'm an American working for America. Anything we do is to support U.S. policy. You know the definition of a mercenary is a professional soldier that works in the pay of a foreign army. I'm an American working for America.
+- I'm a practicing Roman Catholic, but you don't have to be Catholic, you don't have to be a Christian to work for Blackwater.
+- We're trying to do for the national ­security apparatus what FedEx did for the postal ­service.
+- Unfortunately, I kind of split between Virginia and living in an airplane. I travel a lot.
+- I'm painted as this war profiteer by Congress. Meanwhile I'm paying for all sorts of intelligence activities to support American national security, out of my own pocket.
+- Readiness is an oft-mentioned - but frequently ignored - necessity.
+- We now know that gun-free zones, though well intentioned, do not prevent attacks.
+- Entrepreneurship made America great.
+- I believe there is significant overreach by the NSA in how it monitors American citizens.
+- Some of the most dedicated, most passionate people I've ever met have been part of the United States armed forces.
+- I'm no hero. The world knows all too well about my mistakes. But I was never meant to play the villain.
+- I don't know if I want to live in a country where lone wolf and random terror attacks are impossible 'cause that country would look more like North Korea than America.
+- Training for any difficult job is essential.
+- I loved being a SEAL. I loved working with those kind of guys and a sense of mission, and Blackwater was started to continue that sense of mission.
+- I would rather deal with the vagaries of investing in Africa than in figuring out what the hell else Washington is going to do to the entrepreneur next.
+- I never intended to be a defense contractor in the first place.
+- You pretty much remove the entire political texture from Blackwater when you come to China. What they look at is our 100 per cent success rate.
+- I think the diplomatic-security needs in Iraq were an anomaly. There's never been a bulge of requirements that large ever before.
+- I've done dumb things.
+- Bad things usually don't happen by themselves in Iraq.
+- I wish we had been doing diplomatic security in Benghazi. I can tell you that Benghazi would not have happened if Blackwater were on the job there.
+- I identify with Wyoming, I love the state of Wyoming, I love the people. It's a fantastic state - people that live in rugged conditions and who make their living doing things in the outdoors.
+- President Trump should appoint a special presidential envoy and empower them to wage an unconventional war against Taliban and Daesh forces, to hold the corrupt officials accountable and to negotiate with their Afghan counterparts and the Afghan Taliban that are willing to reconcile with Kabul.
+- I'm not a huge believer that government provides a whole lot of solutions.
+- I'm a strong supporter of the military.
+- I give people ideas on how to solve intractable problems.
+- Our failed population-centric approach to Afghanistan has only led to missed opportunities, which is why Afghanistan depends on donors for 90% of government revenues. A smarter, trade-centric approach will boost Afghanistan's long-run viability by weaning it off donor welfare dependency.
+- I'm a pretty stubborn guy. I don't quit too easily.
+- When someone needs copper, or wood or an ag product, and they invest capital somewhere to make that happen, and people get jobs from that, and that good gets introduced to the world stage and it gets traded and moved, the whole world benefits.
+- In Afghanistan, the viceroy approach would reduce rampant fraud by focusing spending on initiatives that further the central strategy, rather than handing cash to every outstretched hand from a U.S. system bereft of institutional memory.
+- C'mon now, I'm not going to make it easy for the terrorists to get me.
+- The video game industry is constantly evolving. The sheer creativity matched with cutting-edge technologies gives me the comfort that innovation is alive and well in America.
+- I think everybody wanted to help the U.S. government in some way after 9/11.
+- I represented everything Democrats loathed.
+- There are some phone calls where it's not even worth wasting the electrons on.
+- The left wants to protect social programs, the right wants to protect defense and intelligence spending and all the rest. I say the defense and intelligence world will be better off with a smaller budget. They would be less encumbered by bloat and able to maneuver the way they used to be able and not trip over themselves.
+- We need to privatize whenever possible.
+- Video games are an exciting medium. The creativity of design, the technology and the interaction represent the best of American innovation.
+- We have done great work for the U.S. government.
+- I'm going to teach high school. History and economics. I may even coach wrestling. Hey, Indiana Jones taught school, too.
+- For people to mischaracterize my time or ownership of Blackwater as being some great financial bonanza, it was not. It was most definitely not.
+- When the United States first went into Afghanistan in 2001, it devastated the Taliban and Al Qaeda in a matter of weeks using only a few hundred C.I.A. and Special Operations personnel, backed by American air power. Later, when the United States transitioned to conventional Pentagon stability operations, this success was reversed.
+- In Joe Yorio you find a guy who's smarter at business than I am. I'm an entrepreneur and idea guy; he's a professional businessman.
+- America is a great nation, but it cannot spend blood and treasure endlessly.
+- I am a businessman, not a politician, but I am also a proud American who would never do anything against my country's national interest.

@@ -1,0 +1,234 @@
++++
+author = "Yotam Ottolenghi"
+title = "Yotam Ottolenghi Quotes"
+quotes_len = "228"
+description = "the best 228 Yotam Ottolenghi Quotes"
++++
+- Fresh egg pasta is traditionally served in the north of Italy with butter, cream and rich meat sauces, whereas dried pasta is more at home with the tomato- and olive oil-based ones of the south.
+- As for pineapple, it's far more versatile than you might think, and certainly merits wider use than in Hawaiian pizzas and pina coladas and on cheesy cocktail sticks.
+- Small okra pods have a much more attractive texture than large ones, which, when cooked, can be gloopy, stringy and totally spoil a dish.
+- On many occasions, an informal buffet and casual seating offer a little more intimacy than a loud gathering around a big table.
+- I can't stand recipes that don't have background.
+- Blanching the cloves removes the harsh and bitter bite of raw garlic.
+- Braising eggs in a flavoursome, aromatic sauce is all the rage. It is warming and comforting, ideal for the morning when you are not normally up for a great culinary challenge.
+- Food that's served at the table in a paper parcel always creates a remarkable culinary moment when opened, because the package is full of aromatic steam from the lightly cooked ingredients inside.
+- Infants have around 30,000 tastebuds, only about a third of which survive into adulthood, so a child's sensitivity towards extremes of sweet, sour and bitter flavours is heightened.
+- Some heat, some spice and plenty of citrus are the building blocks of many North African fish dishes.
+- Marinating chicken in miso adds lots of character to the meat with little work.
+- The teaching thing, the one where I have to impart my knowledge, is probably what comes the least naturally to me because I'm an absorber of things.
+- Vegetarian and frugal it may be, but the chickpea is one of the most versatile ingredients you could keep in your cupboards.
+- I have a terrible tendency to lick my fingers when I cook. So much so that I got a telling off from my pastry teacher years ago, who said it would hinder my prospects.
+- Sea spaghetti looks like dark fettuccine and has a similar texture - you can get it in health food stores or online.
+- A great fig should look like it's just about to burst its skin. When squeezed lightly it should give a little and not spring back. It must be almost unctuously sweet, soft and wet.
+- I do support people eating more vegetables. It's a good thing to do.
+- If I must choose between healthy and tasty, I go for the second: having only one life to waste, it might as well be a pleasurable one.
+- The natural sweetness of leeks, with their soft, oniony aroma, makes them the perfect winter comfort food.
+- In vast parts of the world, people don't eat meat.
+- Rice and vermicelli is a common combination in Arab and Turkish cooking - it has a lighter texture than rice on its own.
+- It's well worth making your own harissa, but there are some very good commercial varieties.
+- Brussels sprouts are really quite versatile.
+- Salbitxada is a sharp and lightly sweet Catalan sauce that's traditionally served with calcots - spring or salad onions, grilled whole, make a good substitute.
+- Apart from its famous healing properties, manuka has a strong, woody flavour.
+- A great ratatouille is one in which the vegetables interact with each other but are still discernible from each other. The trick is to cook them just right: not over, not under.
+- Sorrel adds a unique grassy sharpness to salads and dressings, but it can be hard to come by.
+- Chefs don't use white pepper just to avoid spoiling the whiteness of pommes puree or bechamel. It has a more peppery aroma, with sharpness and sweetness, too.
+- There are tons of wonderful places to eat in London.
+- If the British Isles had an official vegetable, it would have to be the potato.
+- A food processor, or even one of those small bowls that fit on a stick blender, is a real treasure. No, that's not an overstatement.
+- Herbs deserve to be used much more liberally.
+- Preparing and cooking squid is easier than most fish. The only thing to remember is not to cook it for too long.
+- My maternal grandmother made fantastic ox tongue with velvety roasted potatoes. She cooked sweet red cabbage and lovely cauliflower with butter and bread crumbs.
+- One man's trash is another man's treasure, and the by-product from one food can be perfect for making another.
+- There is a unique freshness when eating buckwheat noodles cold with plenty of herbs and citrus acidity. I can't think of any better use of chopsticks on a hot and sweaty evening.
+- Miso makes a soup loaded with flavour that saves you the hassle of making stock.
+- The way to entice people into cooking is to cook delicious things.
+- The combination of lentils with rice or bulgur is the absolute height of Levantine comfort food. I could eat it every day.
+- I love dishes that feature the various shades of a single colour, making you stop to check what's in there.
+- After all these years of cooking and writing recipes, I am still amazed every time I notice how even the minutest of variation in technique can make a spectacular difference.
+- TV chefs are not responsible for people's consumption of fibre; this is not our job.
+- I don't do guilt. Whatever I do, I do it happily.
+- Having grown up in the Middle East, eating beans for breakfast always seemed like a bizarre British eccentricity.
+- Fusion food as a concept is kind of trying to quite consciously fuse things that are sometimes quite contradictory, sometimes quite far apart, to see if they'd work.
+- I like to talk about food, ingredients, and how to adapt recipes. It's a dialogue.
+- Dried porcini add a substantial, deep flavour to otherwise more neutral vegetables. I use them in risottos, mashed roots and winter soups.
+- Believe it or not, I'm as much a fan of a supper shortcut as the next person.
+- Way back when I was a junior pastry chef, I'd bake loads of muffins every morning, as many as 120 or so, while operating on autopilot.
+- Manouri is a Greek ewes' milk cheese that's light in colour and texture. It's fresh and milky, and goes well with other subtle flavours.
+- Going out for a meal, especially for young urbanites, is less about socialising over enjoyable food than about enjoying food as a way to socialise.
+- Conflict is very much a state of mind. If you're not in that state of mind, it doesn't bother you.
+- Chickpeas are one of my favourite things to serve with chorizo or lamb meatballs; they also work brilliantly as the quiet partner in a vibrant alphonso mango salad.
+- I always pan-fry sprouts - it retains texture and enhances flavour.
+- The tang of tamarind is a great way both to flavour and lighten up slow-cooked savoury dishes.
+- I have an intense dislike of doctrines, because you will always end up eating your words.
+- The main distinction for fresh chillies is whether they are red or green, the difference being one of ripeness.
+- Taleggio is the perfect cheese to melt over a warm dish.
+- Swiss chard is undervalued in Britain. It's a great substitute for spinach and keeps its shape well.
+- Fish cakes are perceived as being quite British, and they're always a bit brown and a little dull.
+- Chana dal are skinless dried split chickpeas used in Indian cooking. They have a great texture and delicate flavour.
+- Some breakfast cereals only come into their own as children's party treats: what are cornflakes and Coco Pops for, if not to clump together with melted chocolate and spoon into a cupcake holder?
+- Breakfast is always the best time for something juicy, sweet and fresh - it just feels like the right way to open the day. There's no right way, though, when it comes to choosing the fruit.
+- Gooseberries aren't just for creamy desserts and pies.
+- Tahini is fantastically versatile, its deep, nutty flavour a harmonious match with roasted vegetables, grilled oily fish or barbecued meat.
+- Every era has its own list of ingredients that are considered exotic and then, 15 years later, they're not.
+- Most pumpkin dishes involve scooping out the seeds, cutting off the skin, and chopping up the flesh before cooking.
+- Kibbeh comes in all forms, but most feature bulgur and meat.
+- For those, like me, who can't rely on being given a home smoker this Christmas, you can build your own approximation with just a roll of tin foil and a big wok or pan for which you have a lid.
+- Too many books are full of recipes that aren't doable at home. They are purely aspirational. They are quite frightening, even for me.
+- I have yet to meet a carnivore who doesn't love a sausage roll.
+- Stuffed vine leaves tend to burn and/or stick when you cook them. To avoid this, use a heavy based pan lined with a few layers of second-rate leaves.
+- As is always the way with pancakes, the first hotcake to come out of the pan will probably be a bit misshapen. Just scoff it, and carry on with the rest.
+- I'm a firm believer that the world should be your oyster when you're cooking. People should open themselves to other cuisines - there are a lot of hidden secrets all over the world.
+- When I was a kid, there was always food to be had on the street in Jerusalem, but anything above a falafel stand was mediocre or worse.
+- I have to admit that I can't take a whole fig and eat it on its own as I would a peach or mango. It's just too much.
+- Black glutinous rice works in both savoury and sweet dishes. It's a popular pudding rice in south-east Asia, where you'll often come across it cooked with water, coconut milk and a pandan leaf.
+- I adore recipes that make use of one cut of meat or a whole animal to create a complex dish, loaded with flavour.
+- Celery leaves are an underused ingredient, most likely because supermarkets sell mostly leafless stalks.
+- Most British cheeses are now vegetarian and are labelled accordingly. However, French and Italian manufacturers still tend to use rennet.
+- Orange blossom water would make a magical addition to your store cupboard.
+- Pasta with melted cheese is the one thing I could eat over and over again.
+- Stereotypical vegetarian food looks gray and brown.
+- People don't know how good cauliflower is, because they always have this image of cauliflower cheese - awful, sticky, creamy and rich.
+- Most men say they can cook pasta, but I think you should find a little bit of an unusual angle on your pasta and make that your signature dish.
+- The emotive power of hummus all over the Middle East cannot be overstated, being the focus of some serious tribal rivalries.
+- A quick shallow fry is a great way to transform leftovers, and no more so than in the case of risotto.
+- The difference between brown and white rice is that the former is not milled. With the outer bran and germ intact, the rice is therefore chewier and nuttier.
+- For people who think of chicken as the meat choice of those-who-don't-really-like-meat, brining a bird will be a revelation.
+- The Guardian's 'Word of Mouth' blog bridges the gap between blogging and serious food journalism.
+- Take your average couscous salad, and it's almost always a sloppy mush, no matter how much attention has gone into getting flavours in there.
+- New-season lamb shoulder, cooked pink, is the perfect platform for a mixture of fresh and cooked herbs.
+- What makes maftoul worth celebrating is that it's so easy and forgiving to cook.
+- Greek yogurt with some olive oil stirred in can transform many dishes.
+- The differences between a tart, a pie and a quiche are a blur.
+- Lebanese mezze, Cantonese dim sum and Basque pinchos have all evolved over years and are designed to make sense together.
+- The kitchen is tough. It's one of the last bastions in civilized culture that sets out to crush the spirit.
+- Amaranth, the world's most nutritious grain, is available from health food stores.
+- The addition of vinaigrette to freshly roasted vegetables gives them a freshness and juiciness they don't normally have; the acidity brings out new shades of flavour, too.
+- I just don't tend to cook eggplant at home.
+- Leeks are normally given the job of flavouring other things, such as stocks and soups, but I find their creaminess and sweet, oniony flavour very satisfying.
+- I tend to mean what I say: in life, generally; in recipes, certainly.
+- I enjoy meat, but I can do without it.
+- These days, meals are more open to personal preferences. People like to serve themselves.
+- There are many reasons I feel at home in the U.K., but if I were asked to pinpoint the moment I knew I'd arrived, it might well be when I realised the British shared my love of fritters.
+- Just-poached vegetables show off their natural attributes and taste fresh and light in a way you never get with roasting or frying.
+- The range of ingredients available to home cooks has expanded dramatically. People are incorporating herbs and spices like lemongrass, smoked Mexican chile, sumac, and za'atar mix.
+- Most of my recipes start life in the domestic kitchen, and even those that start out in the restaurant kitchen have to go through the domestic kitchen.
+- On some subconscious level, I've been prejudiced against turnips, parsnips, swedes and other roots. Do they taste of much? Are they really special? How wrong I was.
+- A lemon, boiled whole and blitzed, makes a useful base for all sorts of dressings.
+- Chermoula is a potent North African spice paste that is ideal for smearing on your favourite vegetables for roasting.
+- Good asparagus needs minimal treatment and is best eaten with few other ingredients.
+- Hardly any of my most memorable meals have been eaten in a restaurant, and definitely none in one of those fancy marble-floored, polished-silver establishments.
+- There used to be a time - it isn't so much the case now - that vegetarianism was some kind of religion, and either you belong or you don't belong.
+- I've been accused of having very long ingredient lists, and I guess there's some truth in that.
+- Scamorza, an Italian curd cheese often labelled 'smoked mozzarella,' melts fantastically well.
+- Long-, medium- and short-grain rices differ in the amount and type of starch they have.
+- Chipotles, which are dried jalapeno peppers, give out a terrific smoky flavour - they're warm, earthy and usually not too spicy.
+- Souffles don't deserve their reputation as potential disasters.
+- Food can bring people together in a way nothing else could.
+- I rarely cook traditional risotto, but I love other grains cooked similarly - barley, spelt or split wheat. I find they have more character than rice and absorb other flavours more wholeheartedly.
+- For me, the end of childhood came when the number of candles on my birthday cake no longer reflected my age, around 19 or 20. From then on, each candle came to represent an entire decade.
+- When it comes to the battle of the molluscs, cephalopods win tentacles down.
+- The unlikely combination of potatoes and pasta does appear in some Italian recipes.
+- Agave nectar is a good substitute for refined sugars. It has a relatively low glycaemic index, which means it doesn't cause quick rises in blood sugar levels. It also has a nice, mild flavour.
+- I get great pleasure from stuffed foods, from an apple strudel to a vegetable samosa, from a whole roasted bird with a sweet and savoury stuffing to a vine leaf filled with rice and spices.
+- There is nothing like a good old recipe. If it has lasted, then it is good.
+- Kirmizi biber has a sweet aroma and can vary in spiciness.
+- I now understand how varied the world of cultivated rice is; that rice can play the lead or be a sidekick; that brown rice is as valuable as white; and that short-grain rice is the bee's knees.
+- Forget mung beans' reputation as healthy yet bland - used right, they soak up loads of flavour.
+- Call me tacky, but I love the union of sweet and sour, even in some now-unloved Oriental dishes incorporating pineapple and ketchup.
+- Panko are the elite of the breadcrumb world because they stay so crunchy and light.
+- Date syrup is a natural sweetener that has wonderful richness and treacly depth; I drizzle it over semolina porridge.
+- Some days, just occasionally, when I've had just one too many chickpeas, drizzles of olive oil or chunks of feta, I crave a return to the sushi-filled joints of Tokyo.
+- In certain European cuisines, vegetables are cooked a long time. I take the term 'al dente' and use it for vegetables.
+- Halva works brilliantly in ice-cream.
+- It's hard to beat the rough texture of steel-cut oats, with their slight resistance against the teeth.
+- The difference between a bland tomato and great one is immense, much like the difference between a standard, sliced white bread and a crusty, aromatic sourdough.
+- Most fish require a short cooking time, but cephalopods are the exception to this fishy rule. As with some cuts of larger land beasts, the longer they're cooked, the more tender they get.
+- You can be vegetarian and eat fish. It's your choice, just say: 'I am what I am.' There are no hardcore divisions anymore.
+- Good-quality nuts, toasted in a little butter and salt, make a magical addition to many salads.
+- Turkish cuisine is, to my mind, one of the most exciting and accomplished in the world.
+- Barley and mushroom is a soothing combination. It's mainly a textural thing, with the barley both gently breaking and enhancing the mushroomy gloopiness.
+- I have had to come to terms with the fact that I am hooked on Twitter. Not good.
+- Food was always important in my family, but I didn't think of it as a vocation until a later point in life.
+- Poaching white fish in moderately hot oil guarantees soft-textured flesh and allows you to prepare a sauce calmly, without the usual panic about overcooking the fish.
+- Pizza was made for television in so many ways: it is easy to heat up, easy to divide and easy to eat in a group. It is easy to enjoy, easy to digest and easy-going. It is so Italian!
+- The moment to tell my barber I was gay just never came up.
+- One of the troubles with food is that people take themselves too seriously. This is why I'm very happy for people to change my recipes, alter them, replace one ingredient for another.
+- I love my garlic press; in fact, it is probably my one true desert island gadget. But I'm happy to put it aside whenever the smell and sweet taste of slow-cooked garlic is called for.
+- Pot barley takes longer to cook than pearl, but an overnight soak in water will speed things along. It's a robust grain that, if overcooked, won't collapse but will become more tender.
+- Nearly all edible seaweeds - or 'sea vegetables,' as they ought technically to be called - belong to one of three broad groups: green, red and brown algae.
+- Jerusalem artichokes have a great affinity with nuts. I love them with chopped walnuts or almonds, lemon juice, garlic, herbs and plenty of olive oil.
+- Leeks, like other oniony things, reach a certain peak when fried. It's the subtle sweetness that suddenly becomes evident and works so well with their creamy texture.
+- Polenta is to northern Italy what bread is to Tuscany, what pasta is to Emilia-Romagna and what rice is to the Veneto: easy to make, hungry to absorb other flavours, and hugely versatile.
+- The smells of slow cooking spread around the house and impart a unique warmth matched only by the flavour of the food.
+- Steaming maintains some of the aubergine flesh's texture, which doesn't happen if you cook it in any other way.
+- Seasonality in winter doesn't have to mean sleep-inducing, stew-like, starchy casseroles.
+- The combination of olive oil, garlic and lemon juice lifts the spirits in winter.
+- You can really taste the difference between a shop-bought and a good homemade mayo.
+- You don't need a machine to make pasta: a rolling pin and a fast hand can create a smooth, if thick, sheet.
+- Buttermilk's palate-cleansing tartness is one reason it's used a lot in southern India, where meals often end with a small bowl of the stuff served with plain rice and pickles.
+- Raw fish suppers admittedly require a little planning, not least in the acquisition of the main ingredient.
+- One Indian-inspired favourite of mine is mashed potato mixed with lemon juice, breadcrumbs, coriander and chilli, shaped into patties, fried and served with chutney and yoghurt.
+- Many people struggle to make hummus that lives up to their expectations at home, and recreating a favourite brand or the stuff from your local deli is almost impossible.
+- How can something that's 95% water be so divisive? Alone among vegetables, the poor, innocent stick of celery elicits the most vicious attacks.
+- Almost every culture has its own variation on chicken soup, and rightly so - it's one of the most gratifying dishes on the face of the Earth.
+- When I cook a meal, I like to serve things one by one and keep them separate. I get that from my father - he's such a purist. Some people even put their desserts on the main plate. It's just wrong.
+- Normally, when congee is served, the different condiments and garnishes are placed in little bowls on the side so diners can make their own personal creations.
+- If I am honest, my food is actually quite far removed from both the food of my mother and my father.
+- Tagliatelle comes from the word tagliare, meaning 'to cut.' Tagliolini are simply thinly cut tagliatelle.
+- Popping broad beans out of their skins can be therapeutic, but it isn't everybody's favourite waste of time.
+- If you can't taste an ingredient, you have to ask yourself why it is there.
+- Mackerel is sustainable and healthy.
+- Sweet potatoes are ideal for lazy days: just bake, then mash and mix with yogurt, butter or olive oil.
+- Eating ready-made meals is about being very passive, and actively cooking is something that nothing compares to.
+- The most important thing for me is to walk the little alleys of the city, to find the little alcove where someone is cooking something, and just watch them do it. That's my idea of fun.
+- Plums are a good substitute for gooseberries.
+- Like parents, cooks shouldn't have favourites, but some recipes inevitably shine more than others.
+- Polenta is one of those ingredients that in many homes spends its days at the back of the kitchen cupboard, on the 'no one knows quite what to do with it' shelf.
+- Recipes can be incredibly vague where chillies are concerned.
+- There's nothing more marvelously wintery than orange root veg mash; some butter is all it needs.
+- The only way reliably to gauge the heat of any particular chilli is to cut it in half, so exposing the core and membranes, and to dab the cut surface on your tongue.
+- Though not a true cereal but a fruit, buckwheat seeds resemble cereal grains and are often used in a similar way to rice, barley, bulgar or quinoa, usually as a side dish.
+- Buckwheat, like Marmite and durian, is a seriously divisive foodstuff, so it needs a seriously capable defence team if it's ever going to make it on to most people's dinner tables.
+- When it comes to cooking pasta, the first essential is to make sure you have a big enough pot: it needs room to roll in the water while cooking.
+- Yogurt sauce, as you may have noticed by now, is a regular presence in my recipes - that's because it has the ability to round up so many flavours and textures like no other component does.
+- I am sure that in the story of Adam and Eve, the forbidden fruit was a fig and not an apple, pear or anything else.
+- Chinese sausage, which is widely available from Asian grocers and online, is sweet, rich, and enticingly smoky. I add it to steamed rice with strips of omelette and a few baby veg stir-fried with soy.
+- Healthy is in the eye of the beholder.
+- Pomegranate molasses is ubiquitous in Arabic cooking: it's sweet, sour and adds depth.
+- My dad makes food with very few delicate flavours.
+- Dad likes my food, but he probably thinks it's too busy. He is a wonderful cook but only uses three ingredients. My mum rips out my articles and makes my recipes.
+- Speaking as someone who didn't go through the U.K. school system, with all the culinary baggage that entails, I am inordinately fond of custard in any shape or form.
+- Middle Eastern cuisine has the same depth of ingredients and processes as other cuisines. They just haven't had as much exposure.
+- I used to love fine dining, but I lost my appetite for it to a degree because sometimes it is too much about the effort and too little about the result.
+- I used to have a very unmediated experience of food but, because of the recipe testing, I've lost that now. I can't switch it off even when I'm on holiday.
+- Even in the busiest kitchen, there's always a point at the end of the day when you go home.
+- Verjuice may not be the easiest thing in the world to find, but you should be able to track some down in good delis and online.
+- I always preferred my father's pasta the next day, when he'd put it in a hot oven with heaps of extra cheese. It would emerge slightly burned and very crisp on top.
+- Like all rice, black rice is great at absorbing flavours, but it's just as happy to act as a satiny bed for a poached egg, say, if you want to keep things simple.
+- My all-time favourite classic use of ricotta is in gnudi: fluffy, cheesy dumplings of almost ethereal, feathery lightness.
+- If the first bite is with the eye and the second with the nose, some people will never take that third, actual bite if the food in question smells too fishy, fermented or cheesy.
+- Vegetarians in general don't like me.
+- Tiny quails may not seem as impressive as a mammoth turkey, but there is something refreshing about a spread of individual birds on the Christmas table.
+- As with lemon juice, the more sorrel you use, the more it has to be balanced with something sweet, starchy or creamy - it's a yin-yang approach to cooking that I find rather calming.
+- Barberries, or zereshk, are tiny dried red fruit with a tremendously sharp flavour. They come from Iran, where they're used to add freshness to rice and chicken dishes.
+- Cobnuts have a fresher flavour than any other nut I know of and go very well with autumnal fruit and light cheeses.
+- For my money, celery hasn't got a mean bit of fibre in its body, and we all need to start being much nicer to it.
+- My father always cooks more polenta than he needs for a meal. The excess he spreads on an oiled surface and chills. Next day, he cuts out chunks, fries them in olive oil and serves with salad.
+- Dinner parties are still highly popular, and I believe they always will be.
+- Shimeji are those odd-looking clusters of small mushrooms you often find in so-called 'exotic' selections at the supermarket. They have an appealing firmness that is retained during light cooking.
+- My secret with kale is to add lots of sweet or sharp flavours to offset some of that grassy intensity.
+- I love the way soft white cheese such as ricotta or the creamier mascarpone reflect the milieu in which an animal has been raised.
+- I keep returning to the combination of artichoke, broad beans and lemon. The freshness of young beans and the lemon juice 'lifts' the artichoke and balances its hearty nature.
+- Urfa chillies are a Turkish variety that are mild on heat but big on aroma. They're sweet, smoky, a lovely dark red, and go with just about anything.
+- Brunch, for me, is an extended breakfast that should be enjoyed whenever you have time properly to engage in cooking and eating.
+- Many ingredients are called 'earthy,' but none comes as close to fitting the bill as buckwheat. I'm mildly obsessed with the stuff.
+- Yoghurt cuts sweetness and richness, tempers spice, and makes a dish sing.
+- Tel Aviv is the most exciting place to eat in Israel.
+- A well-made salad must have a certain uniformity; it should make perfect sense for those ingredients to share a bowl.
+- Custard is controversial: what makes it a custard, how best to cook it and, crucially, is it to be eaten or put in a pie and thrown?
+- Tossing doughnuts, fritters or fried dumplings in fennel sugar adds grown-up complexity without diminishing the indulgence factor.
+- Like brown rice, black rice is unmilled, and it is the dark outer husk that makes it so nutty and chewy. It's also why it takes longer to cook than many other rices.
+- Beetroot is a great salad ingredient, especially when still warm; the colour ain't bad, either.
+- I have been cooking with preserved lemon for years, using it left, right and centre, but I am still far from reaching my limit.
+- The taste of any simple tomato-based salad is dependent on the quality of the tomatoes.
+- I like to add something unusual to a dish.

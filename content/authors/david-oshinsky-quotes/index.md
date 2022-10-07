@@ -1,0 +1,14 @@
++++
+author = "David Oshinsky"
+title = "David Oshinsky Quotes"
+quotes_len = "8"
+description = "the best 8 David Oshinsky Quotes"
++++
+- When FDR died in 1945, he was still paralyzed from the waist down. After he died, his portrait was put on the dime. Through his illness, he went out of his way to minimize his difficulties. Of the thousands of pictures taken of him, only two show him in a leg brace or a wheelchair.
+- The Left is deeply invested in Obama's presidency; they believe he's too important, symbolically, to fail.
+- Jonas Salk showed that a killed virus vaccine would work and would be damned effective in fighting disease. This was something that virologists of the day pooh-poohed. And Salk proved them wrong.
+- So much of the bitterness that the term 'McCarthyism' evokes refers to the probe begun in New Jersey in the summer of 1953 - both in the laboratories of Fort Monmouth and in the surrounding communities of Red Bank and Belmar, where some of the best scientists and engineers in America worked.
+- Coming of age in the 1960s, I heard the word 'fascist' all the time. College presidents were fascists; Vietnam War supporters were fascists. Policemen who tangled with protesters were fascists - on and on.
+- The March of Dimes turned a disease not nearly as prevalent as childhood cancer into a national crusade. Polio was not that widespread.
+- All of these charges by McCarthy were a way of getting the Democrats out of power. The Democrats had controlled the government for 20 years, and the New Deal had helped a lot of people. So Republicans turned instead to saying that the Democrats were soft on communism, which was ridiculous.
+- 'Liberal Fascism' is less an expose of left-wing hypocrisy than a chance to exact political revenge. Yet, the title of his book aside, what distinguishes Goldberg from the Sean Hannitys and Michael Savages is a witty intelligence that deals in ideas as well as insults - no mean feat in the nasty world of the culture wars.

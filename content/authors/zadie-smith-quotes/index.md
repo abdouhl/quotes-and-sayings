@@ -1,0 +1,99 @@
++++
+author = "Zadie Smith"
+title = "Zadie Smith Quotes"
+quotes_len = "93"
+description = "the best 93 Zadie Smith Quotes"
++++
+- My life is black and white and mixed. My mother's a Rastafarian, my dad was a short white guy - it's not an affectation. It's also the lives of millions of people throughout the world.
+- I wrote 'White Teeth' in the late nineties. I didn't really feel trepidatious about it. It was a different time.
+- I don't keep any copies of my books in the house - they go to my mum's flat. I don't like them around.
+- English writing tends to fall into two categories - the big, baggy epic novel or the fairly controlled, tidy novel. For a long time, I was a fan of the big, baggy novel, but there's definitely an advantage to having a little bit more control.
+- If you asked me if I wanted more joyful experiences in my life, I wouldn't be at all sure I did, exactly because it proves such a difficult emotion to manage.
+- It's difficult to tell the truth about how a book begins. The truth, as far as it can be presented to other people, is either wholly banal or too intimate.
+- The utterly fallacious idea at the heart of the pro-war argument is that it is the duty of the anti-war argument to provide an alternative to war. The onus is on them to explain just cause.
+- I never attended a creative writing class in my life. I have a horror of them; most writers groups moonlight as support groups for the kind of people who think that writing is therapeutic. Writing is the exact opposite of therapy.
+- English fiction was something I loved growing up, and it changed my life - it changed the trajectory of my life.
+- People with children will know this: when the childcare is over, it's over on the dot. You immediately have to go into child mode; there's no down time.
+- I often worry that my idea of personhood is nostalgic, irrational, inaccurate.
+- The roots of rap are originally ghetto-ised or extremely working class. So when you're an artist who's making something which isn't how its mainstream appearance should be, there's always these strange questions of authenticity and what you have to do to be 'real' as a rapper.
+- I just realized quite early on that I'm not going to be the type who can write a novel every two years. I think you need to feel an urgency about the act. Otherwise, when you read it, you feel no urgency, either. So I don't write unless I really feel I need to, and that's a luxury.
+- World makers, social network makers, ask one question first: 'How can I do it?'
+- I'm never interested in writing a kind of neutral, universal novel that could be set anywhere. To me, the novel is a local thing.
+- The conflation of the simple in style with the morally prescriptive in character, and the complex in style with the amoral or anarchic in character, seems to me one of the most persistently fallacious beliefs held by English students.
+- Nowadays, I know the true reason I read is to feel less alone, to make a connection with a consciousness other than my own.
+- I love to dance, and sing - in the shower, not in public. I'm too old to go raving, but my fondest memories are of that kind of thing - dancing, with lots of people, outside if possible.
+- Any artist who aligns themselves with a politician is making a category error because what politicians do is not on a human scale, it is on a geopolitical scale.
+- Don't romanticise your 'vocation.' You can either write good sentences or you can't. There is no 'writer's lifestyle.' All that matters is what you leave on the page.
+- You can't state difference and also state equality. We have to state sameness to understand equality.
+- I'm most honest about writing when I'm talking to family or friends, not to newspapers.
+- Unless you consider yourself some sort of human brand, which I don't, you have to deal with the fact that different people are going to like different aspects of your work. It's not consistent. I am not consistent. But I feel OK with that.
+- Tell the truth through whichever veil comes to hand - but tell it. Resign yourself to the lifelong sadness that comes from never being satisfied.
+- I lost many literary battles the day I read 'Their Eyes Were Watching God.' I had to concede that occasionally aphorisms have their power. I had to give up the idea that Keats had a monopoly on the lyrical.
+- Your mid-thirties is a good time because you know a fair amount, you have some self-control.
+- We cannot be all the writers all the time. We can only be who we are.
+- It might be useful to distinguish between pleasure and joy. But maybe everybody does this very easily, all the time, and only I am confused.
+- I can't add. I don't understand basic science. Or anything else. But I can read anything. I've always been able to, and I've always liked to. Even if I didn't understand it, I liked to.
+- Asking why rappers always talk about their stuff is like asking why Milton is forever listing the attributes of heavenly armies. Because boasting is a formal condition of the epic form. And those taught that they deserve nothing rightly enjoy it when they succeed in terms the culture understands.
+- When I think of the books I love, there's always a little laughter in the dark.
+- I read Carver. Julio Cortazar. Amis's essays. Baldwin. Lorrie Moore. Capote. Saramago. Larkin. Wodehouse. Anything, anything at all, that doesn't sound like me.
+- Well-run libraries are filled with people because what a good library offers cannot be easily found elsewhere: an indoor public space in which you do not have to buy anything in order to stay.
+- It seems to me that we often commit ourselves wholly to something while knowing almost nothing concrete about it. Another word for that, I suppose, is 'faith.'
+- Desperation, weakness, vulnerability - these things will always be exploited. You need to protect the weak, ring-fence them, with something far stronger than empathy.
+- Don't we all know why nerds do what they do? To get money, which leads to popularity, which leads to girls.
+- A lot of women, when they're young, feel they have very good friends, and find later on that friendship is complicated. It's easy to be friends when everyone's 18.
+- There's constantly this melancholy about British hip-hop. People are always waiting for it to explode like American hip-hop, but it might just be that British hip-hop will always be as it is: an underground thing which will stay that way.
+- As far as I'm concerned, if you want to find out about the last day of WWII or the roots of the Indian Mutiny, get thee to a books catalogue.
+- One thing you can't intend is how you will be read. I hear it said a lot that my books are about the 'search for identity', and this is said admiringly, as if I meant to encourage such a search.
+- I don't take notes. I don't have any notebooks. I keep on trying to do that because it seems like a very writerly thing to do, but my mind doesn't work that way. I tend to get the idea for a novel in a big splash.
+- A lot of people seem to feel that joy is only the most intense version of pleasure, arrived at by the same road - you simply have to go a little further down the track. That has not been my experience.
+- I recognize myself to be an intensely naive person. Most novelists are, despite frequent pretensions to deep socio-political insight.
+- The library was the place I went to find out what there was to know. It was absolutely essential.
+- I'm always a bit suspicious of writers who have the gift of the gab.
+- Can't a rapper insist, like other artists, on a fictional reality, in which he is somehow still on the corner, despite occupying the penthouse suite?
+- The idea that motherhood is inherently somehow a threat to creativity is just absurd.
+- I suppose I often think of my writing as quite impersonal. But it turned out, when my father died, writing was exactly what I wanted to do.
+- When I was 21, I wanted to write like Kafka. But, unfortunately for me, I wrote like a script editor for 'The Simpsons' who'd briefly joined a religious cult and then discovered Foucault. Such is life.
+- Protect the time and space in which you write. Keep everybody away from it, even the people who are most important to you.
+- It seems that if you put people on paper and move them through time, you cannot help but talk about ethics, because the ethical realm exists nowhere if not here: in the consequences of human actions as they unfold in time, and the multiple interpretive possibility of those actions.
+- Young people understand the world. They should be listened to on matters of politics and world organization. But they know nothing of their own lives.
+- Some people like just sitting down and being taken for a ride. That's a beautiful thing that fiction can do. But it's not the only thing. In television and film, people are ready to accept any kind of jump cut, but the slightest disturbance on the page ruffles their feathers.
+- Nabokov, who I loved more than any other writer when I was young, had such contempt for dialogue. When I was younger, I never wrote a word of dialogue because of him. I thought it was a childish part of a novel.
+- Without the balancing context of everyday life, all you have is the news, and news by its nature is generally bad.
+- English, as a subject, never really got over its upstart nature. It tries to bulk itself up with hopeless jargon and specious complexity, tries to imitate subjects it can never be.
+- Women often have a great need to portray themselves as sympathetic and pleasing, but we're also dark people with dark thoughts.
+- There is a kind of desperate need for somebody to tell everyone what to do, which I find really peculiar in America. And then when you tell them, they're not interested, because it's also a country where everybody's opinion is their opinion, and they really don't give a damn what you think. So it's a very odd experience.
+- Books are not brands. Some people are very willing to see themselves as a brand, but you can't be a certain type of writer to a certain type of person all the time. It will kill you.
+- I wouldn't write about people who are living and who are close to me, because I think it's a very violent thing to do to another person. And anytime I have done it, even in the disguise of fiction, the results have been horrific.
+- It's a funny thing about rap, that when you say 'I' into the microphone, it's like a public confession. It's very strange.
+- I want to write without shame or pride or over-compensation in one direction or another. To write freely.
+- Cambridge was a joy. Tediously. People reading books in a posh place. It was my fantasy. I loved it. I miss it still.
+- I like books that don't give you an easy ride. I like the feeling of discomfort. The sense of being implicated.
+- If you love a young writer, maybe the best thing you can do is give them a little bit of space.
+- The lack of alternatives to an illegal action does not legitimise that action.
+- Novels are not about expressing yourself, they're about something beautiful, funny, clever and organic. Self-expression? Go and ring a bell in a yard if you want to express yourself.
+- Writing is my way of expressing - and thereby eliminating - all the various ways we can be wrong-headed.
+- There is no bigger crime, in the English comic novel, than thinking you are right.
+- I like books that expose me to people unlike me and books that do battle against caricature or simplification. That, to me, is the heroic in fiction.
+- Like all readers, I want my limits to be drawn by my own sensibilities, not by my melanin count.
+- I just can't get used to the idea of being somebody unreal in people's minds. I can't live my life like that. And it's just anathema to being a writer. It's not healthy.
+- I think of reading like a balanced diet; if your sentences are too baggy, too baroque, cut back on fatty Foster Wallace, say, and pick up Kafka as roughage.
+- If you're going to write a good book, you have to make mistakes and you have to not be so cautious all the time.
+- People profess to have certain political positions, but their conservatism or liberalism is really the least interesting thing about them.
+- All novels attempt to cut neural routes through the brain, to convince us that down this road the true future of the novel lies.
+- I think I know a thing or two about the way people love, but I don't know anything about hatred, psychosis, cruelty. Or maybe I don't have the guts to admit that I do.
+- You become a different writer when you approach a short story. When things are not always having to represent other things, you find real human beings begin to cautiously appear on your pages.
+- In my situation, every time I write a sentence, I'm thinking not only of the people I ended up in college with but my siblings, my family, my school friends, the people from my neighborhood. I've come to realize that this is an advantage, really: it keeps you on your toes.
+- My short stories have always pushed twenty pages. That's no length for a short story to be. You either do them short like Carver or you stop trying.
+- I noticed in America that if you write a book of any kind, you're made to be the representative of all the issues that might surround it.
+- All my books are made up of other books. They're all deeply structured on other fiction, because I was a student in fiction and I didn't have much actual living to draw on. I suspect a lot of other people's novels are like that, too, though they might be slower to talk about it.
+- I tap danced for ten years before I began to understand people don't make musicals anymore. All I wanted to do was be at MGM working for Arthur Freed or Gene Kelly or Vincent Minelli. Historical and geographical constraints made this impossible. Slowly but surely the pen became mightier than the double pick-up time step with shuffle.
+- Don't confuse honours with achievement.
+- You know, you don't expect everyone to be as educated as everyone else or have the same achievements, but you expect at least to be offered at least some of the opportunities, and libraries are the most simple and the most open way to give people access to books.
+- Normally, young writers have all the time in the world and they don't always use it well.
+- That's the thing about fiction writers: what seems alarming or particular or perverse about them is simply the shape of their brain - they cannot be otherwise.
+- Oh yes, my generation liked to be in some pain when they read. The harder it was, the more good we believed it was doing us.
+- Working with great writers can be humbling and frightening, but it can also change you for good, forever.
+- When a human being becomes a set of data on a website like Facebook, he or she is reduced. Everything shrinks. Individual character. Friendships. Language. Sensibility.
+- I have an ambition to write a great book, but that's really a competition with myself. I've noticed that a lot of young writers, people in all media, want to be famous but they don't really want to do anything. I can't think of anything less worth striving for than fame.
+- I'm very attracted to exile literature - particularly Nabokov - exactly because the idea of being away from home for any serious length of time is so inconceivable to me.
+- My feeling is, having lived in different classes, that people want equality of opportunity... that's the thing that makes me despair: the idea that people aren't given equality of opportunity.

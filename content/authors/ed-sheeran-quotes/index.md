@@ -1,0 +1,64 @@
++++
+author = "Ed Sheeran"
+title = "Ed Sheeran Quotes"
+quotes_len = "58"
+description = "the best 58 Ed Sheeran Quotes"
++++
+- As far as songwriting, my inspirations came from love, life and death, and viewing other people's situations.
+- I think YouTube has destroyed the genre barrier. People can be into Justin Bieber and Eminem at the same time. It's a good thing.
+- I think I need to accept the fact that I am where I am today because fans have shared my music illegally and legally, but I wouldn't be here today without the Internet, so I can't speak out against it.
+- I've never really been a confident person, except from a musical standpoint. I had to push myself early on, but it got easier with each gig.
+- I do like my hair. It took a while to come around to the fact that it was quite a unique value point.
+- If I can put on my album in a car or on my headphones and listen to the whole thing and love it, that's what I'm going to be happy putting out there.
+- Everyone knows almost everything about me. I make it very clear that I'm cool with people knowing all my personal life through my songs.
+- Whenever you have an ex, and they're like, 'I hope we can still be friends!' and you weren't friends before you started dating, then what do you go back to, really?
+- I think the moment you start trying to please a fan base is when you start going downhill. I'm going to always, always write about what I want, even if it doesn't necessarily cater to most of them.
+- My love songs are very personal and quite weird. They don't really have the big radio hit choruses because basically they're my therapy, stuff I have to get off my chest.
+- My parents worked in the art world. They were really supportive of my music in that they allowed me to drop out of school and move out of our home, which not many parents would do.
+- I've always been a massive fan of John Mayer. I think he's very talented.
+- In my eyes, there's no one better than Stevie Wonder. He's a top dude.
+- I think the music I've created is quite odd, and people are going to start talking about that.
+- I think encouraging young people to twerk might be a bad thing. It's a stripper's move. If I had a daughter of nine, I wouldn't want her twerking.
+- I've done some really weird gigs. The ones where no one turned up - they're probably not the interesting ones to talk about. I played some pretty random ones in L.A. I signed to play all-R&B nights or an all-comedy night where I'd be the only white person there. They were fun.
+- I'd like to have kids and a wife, and you know, drop them off at school and like, do normal things rather that constantly being on tour. Because I'm young now and I haven't really got a social life. This is all I do. It's the best job in the world, but I'll get to the point where there's more to life than work.
+- If Adele's seen as boring, then I'm happy to be boring as well.
+- I've always had really messy hair.
+- I was on some TV shows with Lady Gaga the other week, and you could see the difference in reaction between her fans and my fans outside. She comes out, and she looks like a star, and the reaction is just tears, crying, people going, 'Oh my God, Oh my God.' My fans are like: 'Alright, Ed.'
+- Everyone still thinks I'm Scottish - that's totally wicked.
+- I'd like to say that I'm a rock star, but I'm not - I'm honestly more of a relationship kind of guy. I'm a guy you could take home to meet your mum rather than a guy your mum wouldn't like.
+- Nashville is wicked. It's like a proper music community, but it's also quintessentially American. You bump into people there with cowboy hats that spit in jars and call you 'boy.' I just love that.
+- The public has heard the stereotypical love songs a million times, and they've heard the stereotypical life-or-death songs millions of times. It's good to mix it up a little bit.
+- I'm quite arty. I didn't know whether to become an artist or musician but I realised I could paint with music. All my songs have colours.
+- There were a couple of things I needed to do while I was in New York. One was to have a pizza pie, one was to get a tattoo... and the other was to get a Yankees hat.
+- I've never dated anyone in Hollywood - or anyone famous, for that matter. I don't know that I'm ever gonna write a song that you will know who it's about.
+- It was my love for the guitar that first got me into music and singing.
+- The main thing that you have to remember on this journey is, just be nice to everyone and always smile.
+- I get tweets every single day going, like, 'I'm so glad you weren't on 'The X Factor.'
+- I would love to get a Moonman! I'd put it next to my other awards. I don't have a cabinet right now; they're just kind of all around my flat, one next to the TV, one in the bedroom. So, I'd have to build a cabinet.
+- Be original; don't be scared of being bold!
+- It was my love for the guitar that first got me into music and singing. Growing up, I was inspired by The Beatles and Bob Dylan. Damian Rice was a huge influence for me musically.
+- Try to find someone with a sense of humor. That's an important thing to have because when you get into an argument, one of the best ways to diffuse it is to be funny. You don't want to hide away from a point, because some points are serious, but you'd rather have a discussion that was a discussion, rather than an argument.
+- The best thing about being on the road in general is just playing every single night in front of people that are genuinely fans of your music.
+- Country music is some of the best-written music in the world, so yeah, one day, I would keep my mind open to doing a country record.
+- Instead of writing songs for girls, I tend to write albums, which I guess is a bit weird.
+- I saw Damien Rice in Dublin when I was 13, and that inspired me to want to pursue being a songwriter... I practised relentlessly and started recording my own EPs. At 16, I moved to London and played any gigs I could, selling CDs from my rucksack to fund recording the next, and it snowballed from there.
+- I've had years of teasing about my red hair, but I definitely think it toughened me up. If you're ginger, you end up pretty quick-witted.
+- I'm a huge hip-hop fan from way back in the day.
+- I don't know if my songs fit in films.
+- Growing up, I was inspired by The Beatles and Bob Dylan. Damian Rice was a huge influence for me musically.
+- But once you've made a song and you put it out there, you don't own it anymore. The public own it. It's their song. It might be their song that they wake up to, or their song they have a shower to, or their song that they drive home to or their song they cry to, scream to, have babies to, have weddings to - like, it isn't your song anymore.
+- I met Bill Clinton; he's a very nice guy. Yeah, Bill Clinton's cool.
+- I find the whole concept of women screaming at me so odd. It's very flattering, but I don't think I will ever consider myself to be a sex symbol.
+- I personally don't think ginger men have a habit of being attractive. We have to make ourselves seem attractive by doing stuff.
+- The whole 'studly womaniser' thing, I mean, I quite enjoy the title - it's just not very accurate.
+- The more you write tunes, the better they will become. The more you do gigs, the better you will become.
+- I want to have a career that evolves as I go on.
+- 'Kiss Me.' That's my 'Twilight' tune, a song you'd have on the 'Twilight' soundtrack.
+- I don't think that there's much that sets me apart from other musicians, but I think there are definitely things that set me apart from other kinds of artists. I feel that musicians do it their own way, write their own songs and put on a great live shows.
+- Some of my tattoos are a bit silly, but I know where and what time I got them.
+- Harry Potter is awesome.
+- You can't call me a Twitter phenomenon or a YouTube one. These things are useful, but so's hard gigging. One year I did 311 shows. I did six in one night alone.
+- I think I've been around for a while. But I still have to pay my dues.
+- Music is a powerful tool in galvanizing people around an issue. There's no better way to get your point across than to put it in a beautiful song.
+- The thing that I took away as an early fan from Bob Dylan was the storytelling aspects. He can tell some wicked stories.
+- I don't really do that whole 'single life' thing. I'm kind of heads down and get things done.

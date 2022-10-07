@@ -1,0 +1,50 @@
++++
+author = "Ok Taec-Yeon"
+title = "Ok Taec-Yeon Quotes"
+quotes_len = "44"
+description = "the best 44 Ok Taec-Yeon Quotes"
++++
+- I have learned that Indonesians love ballads and I also like ST12 songs.
+- I'm thankful that I was able to show a better side of me in acting, and I hope that you'll continue to have high expectations for me.
+- When we had concerts in the U.S., I used to be able to just go, but now I have to stop by the embassy and do an interview to get a visa.
+- Our third album, 'Grown.' On that album, some of us had the opportunity to have hands-on experience into songwriting and production. The project itself taught the members how to create an album ourselves while grabbing guidance from the producers we worked with.
+- I will keep doing my best to show better achievements.
+- Previously, I was in a historical drama so I'm happy to show my romantic act, even though it's short.
+- It's not easy to decide what kind of music should be our title song or which direction we should go in.
+- Those who like 2PM will be able to understand Korean culture more, and their knowledge may be passed down to their children and grandchildren.
+- Yes, I love my life.
+- It's not common for a group to make a comeback after the members leave for a different agency.
+- I'd like to make a sincere lament for the victims of Sichuan earthquake. I will pray for them with all of my heart.
+- Not as many idol stars were acting back then, and I had to suffer a lot of criticisms. However, I still did my best because I did not want to miss the chances that I was given.
+- It seems that people view idol stars in a bit different perspective now, and I am going to keep singing and dancing until whenever I can.
+- In portraying Jang Han-seok, I tried to draw upon certain aspects of myself and emphasize expressions of evil from deep within.
+- I will do my best so that I won't feel ashamed of myself in the future.
+- We are glad to be a part of the K-pop boom sweeping Asia and ready to show the music of 2PM to our fans.
+- I wrote the song 'I LOVE U, U LOVE ME' wishing to have the most fantastic show ever.
+- As an actor, I need to convince the audience that the character that I'm playing is real, and the situation that this character is in is also real.
+- Though I am not a veteran actor yet, I will do my best based on what I learned from previous experiences.
+- I haven't had the opportunity to play the main 'axis of evil' character before, so 'Vincenzo' serves as another challenge to me.
+- We want to be successful in places like Europe, U.S. and in other parts of Asia. That's our goal.
+- We had to think about what the fans and the public would want to see from a grown-up 2PM.
+- The biggest reason for choosing 'Save Me' was the opportunity to work with excellent actors.
+- It is a great honor for me to work with Cho Yong Pil, who is a living legend.
+- I don't get much stress.
+- The most crucial thing is to be considerate of the other members and treat them like family.
+- There are many things that I've learned through the characters that I've played. But one thing that pops up in my head is 'always be honest.'
+- I'm feeling a lot of pressure because it is first time for me to cast as the main character.
+- But the thing is, Chansung and I don't wear any clothing when we sleep.
+- Our taste in music has changed over the years, and our thoughts on how we should project ourselves through music has changed as well.
+- The character Jang Joon-woo isn't a simple villain. He is multi-dimensional.
+- It is quite amazing how K-pop has developed over the years. This genre has so many musical components that it has no limitations.
+- We would look quite distinctive from what we were like in our 20s. Back then, we put emphasis on our youth, ambition and passion.
+- Someone told me that it's really difficult to have the Cool Ray up. When it happens, you can see every face in the house, all the way up to the third floor.
+- There have always been small anti-Korea movements, and I think it's all due to cultural differences.
+- Song Joong-ki was always considerate of his fellow actors and staff members, and Jeon Yeo-been always brought her own energy and charm to all of her scenes.
+- Members that were in their early-20s are now in their mid-30s, so the style of our team should also change.
+- What's done is done, and what's the point of getting so stressed about things that you cannot change?
+- 'Hello' and 'Bounce' were my most favorite tracks from his 19th album, and I hope many people in Japan would also enjoy Cho Yong Pil's music along with me.
+- Having promoted a long time, I received love from so many people.
+- It is true that my mental age is quite young.
+- I ate a lot because there was a lot to eat at the military.
+- I wanted to portray Joon-woo as someone who breaks out into a song and dance in that situation, an unpredictable villain who doesn't fit into the mold of a serious and scary psychopath.
+- I wanted the role the moment I learned that the naive legal intern Jang Joon-woo is the ultimate villain and the transformative, surprising character in 'Vincenzo.'

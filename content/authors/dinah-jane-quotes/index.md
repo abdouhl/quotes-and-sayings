@@ -1,0 +1,78 @@
++++
+author = "Dinah Jane"
+title = "Dinah Jane Quotes"
+quotes_len = "72"
+description = "the best 72 Dinah Jane Quotes"
++++
+- Oh first, let me tell you how amazed I am by the wealth of talents in the Philippines. I remember watching a lot of home videos about Filipino artists, and they are really very talented. That really motivated me to always do my best and to stay inspired.
+- I love Sam Smith a lot.
+- Really, personally, makeup is cool to wear less and light on the eye and just go colorful on the lips.
+- Sometimes when you sing someone else's song over and over again or songs that have been given to you, you're afraid to go out there and write one yourself.
+- I love the stage more than the studio.
+- At 15, 16, life is being tossed at you.
+- I watched my great-grandmother be buried on FaceTime.
+- When I first got started, I used to say I just want to stay in the studio, I want to make good music, I want to sing my heart out, and I didn't think I'd have people following me to a grocery store or following me home or stuff like that.
+- I feel like there's something in me that desires to express myself even more and not be so afraid of a solo endeavor.
+- I wanted to represent for Polynesians, and that was always my goal, because not everyone knows about us, and I just want to represent for them.
+- We used to take it really hard when people criticized us about what we were wearing, but not anymore.
+- I never thought in a million years I would be in a girl group, so I can't look too deep into the future.
+- 'Bridges' is definitely one of the heart-wrenching ones. It's definitely a message that needs to be shared out there into the world. Something we wanted to share with everybody and let them know is that we know love can conquer hate.
+- Lauryn Hill. I admire her bravery and her strength. Hands down to the queen.
+- I'm very into urban chic; it goes with my personality.
+- Celeb crushes? Chris Brown - I hope he doesn't really find out.
+- We are so grateful we are given the chance and the freedom to do what we want, what we want to create, what's on our mind, and that's honestly what we asked for in the beginning of our career.
+- It's been amazing to create with one another because we're so different when it comes to music. We love different genres. So to vibe together and create this Fifth Harmony sound is what makes it so special.
+- I've always been interested in Mariah Carey, Beyonce, and Leona Lewis.
+- With the right vibes and the right people, it's easy to create something magical.
+- I feel like people expect a lot from me.
+- My thing is, when I come across somebody, when I think they're super cute or handsome, I can't play along with that because sometimes they take it as something like, 'She wants me.'
+- I'm never not in the studio creating; it's like my second home.
+- My mother is a singer herself.
+- We're quite different from each other. Camila is the pop girl, Lauren likes the indie sound, Normani and I love R&B, and Ally is the pop-country, kind of church girl.
+- With the advances in technology, it's so easy connecting to our fans. There's Facebook, Instagram, and Twitter. I try to reach out to them. I try to update them on what's happening in my life, what books I'm reading, or whatever I do.
+- Nowadays, so many girls are really harsh online and always bringing each other down, so one of the things we try to do is help bring them back together.
+- I fell in love with music at the age of four, and I remember my grandmother being on the piano teaching me some church songs, some primary songs.
+- I always sang Leona Lewis covers, and if you know her songs, she's not just singing your average easy song; she's going off the majority of the time.
+- We're constantly on the road, and we all love to eat, so we try to find balance. We never like to deprive ourselves, but we do try to eat clean as much as possible and sneak in workouts wherever we can so we feel energized and don't feel bad when we eat that extra handful of Flaming Hot Cheetos!
+- The way you carry your name is the vibe people get off it.
+- Britney Spears is one of my first idol.
+- We've been fully involved in making our music, and to be personally involved is what we really asked for.
+- We were little girls coming off of a TV show and had a team of people trying to sculpt us into something we weren't.
+- We are literally like sisters: you know their ins and outs; you know if something is on their mind, that something's bugging them. We know when something is going wrong, and that instinct you can feel instantly.
+- Fifth Harmony is definitely our first love... it's always been the foundation of everything.
+- 'Bottled Up' is so honest. It's something we all can relate to.
+- Music is the outlet for me because when I do step into the studio, I feel no barriers.
+- You have to stay true to yourself, and as long as you are comfortable, then no one else's opinion matters.
+- When it comes to our makeup artist asking me, 'So, what do you want today?' I'm like, 'I don't know.' I have no idea what I want that day, or I just go with what I feel.
+- We finally have a damn voice. We feel like actual artists. We were little babies in the beginning. Now we're becoming big girls.
+- People always want to learn how to booty pop like Fifth Harmony, so that's our signature.
+- I actually love Little Mix, and I think they're doing a great job.
+- I love listening to Tori Kelly.
+- We think you should show your flaws to fans because that's what makes them love you more.
+- If Trump becomes president, he wouldn't be afraid to step on toes. And he'll be feared by the world.
+- We're not always going to be these bubbly, happy girls. We're real women, too.
+- A record deal is my dream.
+- For us to win a VMA without even dropping our first album was kind of amazing. It felt like a dream, and then I woke up the next morning like, 'Oh my God - I've got a Moonman!'
+- I'm friendly - maybe that's taken as flirtatious. Which I don't mind!
+- My music's matured so much, I don't have to create any barriers.
+- I was just grateful for the fact that I was able to repay my parents for their sacrifices throughout my career.
+- I'm an ice cream lover, but anytime it's show day, I have to cancel out all dairy because it isn't good for vocalists.
+- 'Reflection' and 'Going Nowhere' would've been great singles because that's the exact sound that we wanted to achieve.
+- During any performance, I love to connect with the crowd and hope fans leave my show feeling happy.
+- What me and my girls are about is being confident in yourself.
+- For the winter, I think dark lips, any dark lip for the winter is really cool.
+- I'm very chill, and when I'm out, I want to make sure that my outfit makes me feel comfortable and that I don't feel restricted.
+- All we want is a confident dude to come straight up... maybe. Just walk up and say, 'Hey, what's up?' And start from there.
+- Growing up, for me, it was in a musical family, so my mum and her brothers and sisters always sang. Every time I tried to join their group when I was little, they were like, 'Ah, darling, you're not too good - just sit back and watch us.'
+- Honestly, we get our energy from our fans. When we are on stage, whatever they are feeling, we also get the same feeling.
+- I started using this outlet of creativity - you know, going to the studio, writing, meeting these writers and producers - as the best form of representing myself to my fullest potential.
+- We're all about girl power and everything, but we cry sometimes, and we're softies, so we can't always be like, 'Woo, girl power. We're going to come dominate the boys, blah blah blah.' That's not always the case, which is why us girls have each other to lean on and give each other advice.
+- Fifth Harmony are all feminists. It's our duty to reach out to people and let them know a woman can be just as powerful as a man can be.
+- I feel like sometimes we just need to speak more about what we're going through.
+- For me, it's Rihanna and Kim Kardashian who I always keep up with. They both have incredible style.
+- Being in a group, you don't really get to give an ounce of who you are as a solo artist.
+- What I want to advice our fans, not only in the Philippines but anywhere in the world, is to always give your all in anything that you do.
+- I don't want to let any of my family down.
+- I love me some Mariah Carey. I grew up on that because of my mother.
+- At the age of 11 is when I took my love & interest for singing a bit more serious.
+- I don't feel like anybody can stop me when it comes to music.

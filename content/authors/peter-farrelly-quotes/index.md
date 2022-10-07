@@ -1,0 +1,24 @@
++++
+author = "Peter Farrelly"
+title = "Peter Farrelly Quotes"
+quotes_len = "18"
+description = "the best 18 Peter Farrelly Quotes"
++++
+- I know this is silly, it's shallow, it's bad, I wish I wasn't this way-but if I meet a girl with no teeth, I just don't want to date her. It's creepy of me, I wish I was a bigger person, but that's my real turn-off.
+- Nine out of 10 times these guys will hit it-they'll be on something incredibly funny, but one out of 10, two out of 10, they'll fall flat on their faces. That's what makes them great actors: they take those chances, they don't play it safe.
+- We really love all sports, but we don't think in the long term. The reason we did Kingpin was because there was a script we really liked and we saw the possibilities.
+- Usually, you can shoot a movie in 10 or 12 weeks.
+- Everything's a lot easier when you work with someone you know just about as well as you know yourself.
+- Anybody who is a fan of any team is going to recognize themselves in this.
+- 'Movie 43' is about the hardest R Rated comedy ever.
+- I know guys. I know the way they think.
+- If I was not allowed to mention that I was in the film industry, I could go six months without getting a kiss.
+- I always loved Kate Winslet, but after you meet her you really love her because she's a cool chick.
+- I do know this: When somebody has to look great on the screen, that's the death of funny.
+- With all of my films if I get one bad review and a bunch of good reviews the bad one is the only one that will stay with me, which really sucks!
+- You know, I'm not sure I ever even had a blind date!
+- If you work with Jim Carrey, you're working with the best.
+- There are a lot of laughs in this movie, but it's not just about the laughs. It's really about the story, about a guy who finds his soul and realizes what's truly important.
+- I always take kind of a zen view of casting and I really don't remember people who passed. I kind of turn it over to the universe and figure, 'Wow, I guess that wasn't meant to be.' It doesn't sit with me.
+- Our feeling is that the most important thing on a set is that actors have enough confidence to try different things. If there's stress or tension, they won't go out on a limb because they won't want to embarrass themselves if they don't feel completely comfortable.
+- We've had no problems with the actors, but we keep a really loose set.

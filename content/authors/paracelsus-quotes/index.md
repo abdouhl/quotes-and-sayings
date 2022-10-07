@@ -1,0 +1,37 @@
++++
+author = "Paracelsus"
+title = "Paracelsus Quotes"
+quotes_len = "31"
+description = "the best 31 Paracelsus Quotes"
++++
+- The interpretation of dreams is a great art.
+- This process is alchemy: its founder is the smith Vulcan.
+- Man is a microcosm, or a little world, because he is an extract from all the stars and planets of the whole firmament, from the earth and the elements; and so he is their quintessence.
+- Nature also forges man, now a gold man, now a silver man, now a fig man, now a bean man.
+- For one country is different from another; its earth is different, as are its stones, wines, bread, meat, and everything that grows and thrives in a specific region.
+- We do not know it because we are fooling away our time with outward and perishing things, and are asleep in regard to that which is real within ourself.
+- Once a disease has entered the body, all parts which are healthy must fight it: not one alone, but all. Because a disease might mean their common death. Nature knows this; and Nature attacks the disease with whatever help she can muster.
+- The dose makes the poison.
+- What the eyes perceive in herbs or stones or trees is not yet a remedy; the eyes see only the dross.
+- A mortal lives not through that breath that flows in and that flows out. The source of his life is another and this causes the breath to flow.
+- Life is like music, it must be composed by ear, feeling and instinct, not by rule. Nevertheless one had better know the rules, for they sometimes guide in doubtful cases, though not often.
+- Medicine rests upon four pillars - philosophy, astronomy, alchemy, and ethics.
+- When a man undertakes to create something, he establishes a new heaven, as it were, and from it the work that he desires to create flows into him... For such is the immensity of man that he is greater than heaven and earth.
+- The dreams which reveal the supernatural are promises and messages that God sends us directly: they are nothing but His angels, His ministering spirits, who usually appear to us when we are in a great predicament.
+- Many have said of Alchemy, that it is for the making of gold and silver. For me such is not the aim, but to consider only what virtue and power may lie in medicines.
+- Although Alchemy has now fallen into contempt, and is even considered a thing of the past, the physicain should not be influenced by such judgements.
+- Poison is in everything, and no thing is without poison. The dosage makes it either a poison or a remedy.
+- If we want to make a statement about a man's nature on the basis of his physiognomy, we must take everything into account; it is in his distress that a man is tested, for then his nature is revealed.
+- Thoughts create a new heaven, a new firmament, a new source of energy, from which new arts flow.
+- Dreams are not without meaning wherever thay may come from-from fantasy, from the elements, or from other inspiration.
+- The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.
+- For it is we who must pray for our daily bread, and if He grants it to us, it is only through our labour, our skill and preparation.
+- What sense would it make or what would it benfit a physician if he discovered the origin of the diseases but could not cure or alleviate them?
+- Medicine is not only a science; it is also an art. It does not consist of compounding pills and plasters; it deals with the very processes of life, which must be understood before they may be guided.
+- However, anyone to whom this happens should not leave his room upon awakening, should speak to no-one, but remain alone and sober until everything comes back to him, and he recalls the dream.
+- The physician must give heed to the region in which the patient lives, that is to say, to its type and peculiarities.
+- Dreams must be heeded and accepted. For a great many of them come true.
+- This is alchemy, and this is the office of Vulcan; he is the apothecary and chemist of the medicine.
+- But is not He who created it for the sake of the sick body more than the remedy? And is not He who cures the soul, which is more than the body, greater?
+- Often the remedy is deemed the highest good because it helps so many.
+- From time immemorial artistic insights have been revealed to artists in their sleep and in dreams, so that at all times they ardently desired them.

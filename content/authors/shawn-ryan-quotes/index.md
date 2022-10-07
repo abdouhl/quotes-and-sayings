@@ -1,0 +1,30 @@
++++
+author = "Shawn Ryan"
+title = "Shawn Ryan Quotes"
+quotes_len = "24"
+description = "the best 24 Shawn Ryan Quotes"
++++
+- Everyone in Hollywood who is successful becomes less successful at some point. I'm just trying to delay that fall for as long as I can.
+- I think the bar is higher these days in terms of audience expectations of authenticity.
+- In order to appeal to a wider audience on network in order to survive, generally your characters need to be, at a base level, a little bit more likable.
+- I'm very humble in terms of knowing that television is an extraordinary collaborative medium and that one person alone cannot make a great TV show.
+- There will always be economic pressure to make hits, identify hits, and then exploit hits. And you're going to exploit them with as many episodes as you probably can.
+- The payment for sins can be delayed. But they can't be avoided.
+- There are certain economics involved in making a network TV show that you want to amortize the costs of that, so the more episodes you make, the cheaper they all are individually.
+- I don't want my writing to be so unique that when you apply it to different genres, it seems like the previous show that people know you from.
+- Series finales have that responsibility to leave you feeling good about entire series. You want to feel like the viewer closes the book satisfied. And if you strike out on the finale it skews how you feel about the entire series.
+- You can make a good show, but you still need some magical alchemy to get people to watch.
+- I've worked in network and cable on and off for a number of years, and you just understand what your parameters are. A lot of times, I think the best work that my team has come up with comes from having to deal with certain boundaries.
+- The payment for certain sins can be delayed. But they can't be avoided.
+- I'm perfectly happy to color within the network lines when I have to.
+- I was never that kid who grew up in New York and was always at the arthouse watching important films. I was the kid who grew up in the Midwest where there weren't any art films, and I watched TV. And that was really the medium that affected me and that I fell in love with.
+- TV is just such a fast-moving medium that you do what you can do, and what you can't do, you don't worry about too much.
+- Working as a showrunner has made it tougher to watch other shows and movies.
+- I've spent a lot of time thinking about what the audience would want. That's my job, is to anticipate ahead of the audience.
+- I don't ever want to have a weak episode of television with my name on it.
+- I don't want my writing to be recognized.
+- I have no problem at all going back and forth between cable and network.
+- I still feel driven to try to make great shows and to make each episode great.
+- To this day, nothing makes me happier than finding a TV show I really love.
+- One of the tricky things about running a TV show is that you just never know how good the guest stars you cast on a weekly basis, how good they're going to be in the episode. Sometimes they surprise you in good ways and sometimes they surprise you in disappointing ways.
+- I would say on a creative level I put a lot of pressure on myself.

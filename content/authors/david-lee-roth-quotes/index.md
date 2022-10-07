@@ -1,0 +1,37 @@
++++
+author = "David Lee Roth"
+title = "David Lee Roth Quotes"
+quotes_len = "31"
+description = "the best 31 David Lee Roth Quotes"
++++
+- A lot of rock bands are truly a legend in their own minds.
+- When you get something like MTV, it's like regular television. You get it, and at first it's novel and brand new and then you watch every channel, every show. And then you become a little more selective and more selective, until ultimately... you wind up with a radio.
+- The light you see at the end of the tunnel is the front of an oncoming train.
+- There are only so many letters in the alphabet. When I talk to young musicians or authors and they ask for advice, I say, 'You gotta learn all the letters of your own personal alphabet. With music, you need to know all the different kinds of music and everything in and around your given instrument.'
+- I've always been very self-motivated.
+- Rap is poetry to music, like beatniks without beards and bongos.
+- It's always irritated me that people say, 'Where's the action? Oh wow, there's no action here; let's go somewhere else.' These people will never find the action.
+- The only thing I'm allergic to is criticism.
+- Music is like girlfriends to me; I'm continually astonished by the choices other people make.
+- I used to have a drug problem, now I make enough money.
+- I always admired Ray Kroc, the man who invented McDonald's. Ray had a vision of the most commonplace thing - a hamburger and fries to go - but to him it was just the greatest thing ever, and he was going to make it the greatest thing ever for everybody else, and he did.
+- You want a hero in the music world? James Brown. He brought a feeling to music without really using words. He's just famous for his sound.
+- It doesn't matter the kind of music, it doesn't matter whether it's a cowboy hat or a yarmulke. I don't care if it's outer space or pop, the spirit is the same.
+- The problem with self-improvement is knowing when to quit.
+- I used to jog but the ice cubes kept falling out of my glass.
+- People ask me how far I've come. And I tell them twelve feet: from the audience to the stage.
+- In the United States, you can put on a cowboy hat and join the country-western neighborhood. If you're down below 14th Street in New York City, that's bohemian; that's left-wing.
+- It doesn't get better, it doesn't get worse, but it sure gets different!
+- Maybe I'm like acts of Congress or your favorite Chinese restaurant - you don't really want to know what's going on behind the door. I'm a real study in contrast, I expect, looking from without. But it adds up to what you get on stage.
+- I'm not conceited. Conceit is a fault and I have no faults.
+- Radio as we know it is pretty much changing completely.
+- Van Halen can keep providing the rain and I'll keep providing the parade.
+- Ya know, I always admired Ray Kroc, the man who invented McDonald's. Ray had a vision of the most commonplace thing - a hamburger and fries to go - but to him it was just the greatest thing ever, and he was going to make it the greatest thing ever for everybody else, and he did.
+- I grew up on radio, not TV.
+- You stick your head above the crowd and attract attention and sometimes somebody will throw a rock at you. That's the territory. You buy the land, you get the Indians.
+- I don't get all the women that I want... I get all the women that want me.
+- Money can't buy you happiness, but it can buy you a yacht big enough to pull up right alongside it.
+- The world's a stage, and I want the brightest spot.
+- My ambition is to further create a signature sound, a signature spirit, that makes some kind of contribution to music in general.
+- I take my personal upkeep real seriously; my sense of organization and attention to detail; my memory; my business - I love the business.
+- He who knows how will always work for he who knows why.

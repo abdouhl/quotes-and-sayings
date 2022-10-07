@@ -1,0 +1,28 @@
++++
+author = "Dabney Coleman"
+title = "Dabney Coleman Quotes"
+quotes_len = "22"
+description = "the best 22 Dabney Coleman Quotes"
++++
+- I think is very beneficial to relax yourself so that when you are doing it you are not staggering for lines and your concentration is not on what I am going to say - but the scene itself, the character that you are talking to.
+- I did two or three plays every summer.
+- It takes a lot of energy to teach.
+- When I go to where I was getting excellent parts in movies I may have taken a few too soon, too anxious to go back to work and to anxious to make another film and to succeed more.
+- I think that you get something for your acting from almost anything you do.
+- I work with Sally and I can see Sally doing that. She is very aggressive. Very fun loving and charming... and pushy in a very competitive way and a very healthy way and a very good actress.
+- I have worked with some great directors.
+- I was very lucky in as much as I played a lot of tennis.
+- But it was this tough little character part that I was playing, a very funny little guy that I invented over a weekend, because I realized I was not contributing to the humor of this thing. And I had to do something.
+- But movies as much as anything developed what I thought was right and wrong, what was honorable, what wasn't, what was funny what wasn't... what had some depth to it, what didn't.
+- I'm convinced that the place, if you have your druthers, to go to have that experience is New York City.
+- The career doesn't get any easier. A career stays tough.
+- The next night I got on an airplane, and flew to New York and looked into acting schools. Four or five acting schools. One of which was the Neighborhood Playhouse, which I started at six months there after.
+- No not pigeon holed me as an actor, or as a character, or as to what I could do - but what I would do... and the fact is the things you don't do are almost as important as as the things that you do.
+- But I did make some money doing commercials. I did fourteen in one year.
+- To tell you the truth I am hard put to think of anyone who's career was affected significantly by making all those phone calls and I must be wrong. I must be wrong! Because it has just got to pay off!
+- I didn't have any extra money. But I can't say that I had a hard early career.
+- Well Sid Pollack was... He was I would say probably, probably the most influential on me.
+- And it just made me realize again because I have know it for some time, that you never get comfortable in this. No matter who you are. No matter who... how successful you are.
+- There is something about New York City that in and of itself is so theatrical hat I use to think... I use to feel when I walked out of my apartment on the way to school or anywhere that I was walking out on stage.
+- But it is a hard, it's a hard profession teaching acting.
+- I have a theory about that, if you have to say something, if you have encourage for one second a prospective acting student - he should not go in to acting.

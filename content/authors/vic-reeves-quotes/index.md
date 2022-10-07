@@ -1,0 +1,105 @@
++++
+author = "Vic Reeves"
+title = "Vic Reeves Quotes"
+quotes_len = "99"
+description = "the best 99 Vic Reeves Quotes"
++++
+- People think I'm a keen birdwatcher, but I don't go out of my way to look at birds. I'm not Bill Oddie. But I do know which are which. I keep my eyes open.
+- There's not really a gap between my comedy and my art; it's all the same thing.
+- Probably the biggest influence on me, strange though it may sound, was the 70s, a decade of invention. Growing up then had a huge impact on me. People wanted to experiment and were hungry for change. I was influenced by the literature and art of the time; listening to John Peel and Annie Nightingale and watching 'Monty Python.'
+- Once you become public, then whatever you do is public.
+- Comedy and art go hand in hand, even if it's not laugh-out-loud.
+- I cook every day and find it really relaxing. I've got a huge amount of cookery books. It's usually traditional British and French cooking, but then I'll go off-piste.
+- It was good fun being a pop singer. I had quite a laissez-faire attitude towards it which I think is why it worked.
+- I've got an incredibly acute sense of smell, like a bloodhound. My wife borrows perfumes off me. I play the bass, too.
+- Television was restricted by my parents. They encouraged reading more than anything. It wasn't done in a let's-get-educated kind of way, it was: 'This looks like it might be fun so let's do it.' There were a lot of castles, art galleries, museums and mountains to climb.
+- People like to be voyeuristic and look at others bickering. That's part of any double act, from Laurel and Hardy onwards.
+- Journalists like to invent a person, and it's not necessarily the person that they're writing about. The image the tabloids try to create of me and Bob is very different from how we really are. They try to make us out to be mad jokers. But I wouldn't want to put journalists down. That's their job.
+- Picking on people is not my sort of humour, but I think there's quite a lot of it around. We're slowly turning into a nation of bullies; manners have gone out of the window.
+- We've always had people who don't understand our humour.
+- People sometimes get ideas about us that are not of our creation. Journalists, for instance, have always wanted us to be something we're not. They've said that we have a big student fan-base, but that's simply not true. We have loads of older fans as well. Increasingly, ladies in their mid-fifties seem to like us.
+- I suffer from bizarre dreams and epic nightmares.
+- I think my comedy's probably the same as my art, which is kind of abstract, impressionist, emotional. You create an emotion and then you knock it down. You take something the way people are expecting it to go, and then give it a different conclusion.
+- We've always shied away from showbusiness.
+- Most of my grudges are road-based. Parking and speeding fines.
+- My mum used to paint and my dad did woodturning. We would spend our weekends at craft fairs and art galleries. That was just what we did. We were steeped in that world.
+- I sometimes wish I was a bit younger.
+- My dad worked at night so he could spend more time in the day with us. He made that effort.
+- I don't quite know what zany is. I think they should think of some new words.
+- Well, I wouldn't say I am a keen gardener... I'm a gardener. Well, by that I mean I've got a very nice garden and have got some very good gardeners.
+- Out of all the isms, movements and manifestos of the 20th century, it was the Dadaists who proved the most important - giving birth, not only to a lot of modern art, but also shaping comedy, music and political protest.
+- When people say you can and can't say things, I don't know who's the authority on it. As long as you're kind, as long as you're not upsetting anyone. But that's a natural thing, isn't it? I would never do anything if I thought it was going to upset anyone.
+- Every day I'm in my studio - it's wooden and purpose-built at the end of our garden. It's filthy and has got paint everywhere.
+- People think they are not allowed to laugh at art, but they are. Damien Hirst laughs at himself. I know Jake and Dinos Chapman and they laugh all the time at what they do and at other artists.
+- The majority of people probably think that Damien Hirst is avant-garde. Look at the amount of people who say 'What is this rubbish? Who is running our galleries? Why are they spending all this money on the avant-garde?' That doesn't make it avant-garde to me.
+- I'm not convinced that creative people have mentors because that's what makes them different; they just do their own thing. If anyone had tried to tell me how to go about something, I'd have run a mile. But I have certainly had a few influences in my life.
+- The best way to fry an egg is to let the white out so it forms a base, then drop the yellow bit in the middle.
+- I love pineapple. You know, pineapple's great on ham, and just on its own, and in a drink. It's a very versatile fruit.
+- You have to make sure you marry your best friend.
+- I know everything there is to know about women. I believe I'm a natural-born feminist.
+- I came up with the Vic Reeves character for a stage project and people presume that's my name, even when I do other acting jobs.
+- I can't stand dogs.
+- It's really a music hall act that we do.
+- I have topiary.
+- Within comedy, macabre is the root, and a lot of art - Goya, Bosch, Dali - is macabre. Even Van Gogh, if he paints a chair, there's an element of the macabre within it.
+- I do one painting per day, I've always done that.
+- I love clothes and going to supermarkets. I spend hours walking around the aisles looking at ingredients.
+- They say Ant and Dec are a double act, but they are just presenters. They read off an Autocue and they don't do gags, so that doesn't count.
+- If you do a double act for 30 years you kind of get a psychic thing going so you know what the other person's move is and what they're going to say and kind of predict... and you can send psychic messages.
+- The thing is hats don't really suit me because my head's too big, so I always just end up looking like an idiot. So I tend not to wear hats.
+- My first crush was at the age of 10, on Emma Peel in 'The Avengers.' She was a powerful woman, which I found very appealing. It had something to do with the leathers she wore: they made her look strong and almost masculine, which is what you like when you're that age.
+- You never, ever leave art school. It's important to keep finding inspiration. I look at YouTube videos and think, 'How would I do that?' I like experimenting with things. For instance, drying paintings off too quickly in a microwave can look strangely beautiful.
+- I think everyone has to have some kind of hiatus at some point, if only for people to get nostalgic and remember. Then it comes back with a bigger bang. In the meantime, you have to keep busy doing other things.
+- You can be a really terrible actor - I won't mention any names - but, as long as you're good-looking, you can get by with it. Okay, Keanu Reeves. He's a diabolical actor, but he still looks good.
+- I'm in my studio at 6 A.M. every day because I work better in the morning. Then in the afternoon, I like to go for a walk. I enjoy going for a perambulation or a constitutional. It's all very Victorian.
+- My introduction to art was winning a Weetabix drawing competition: I did a picture of a combine harvester. My sister used to read Jackie magazine in those days, so next I drew a picture of Mark Bolan for them and won a prize.
+- I don't really like British comedy.
+- We've never gone mainstream. Once you've been around on TV for 10 years, people will assume that you're mainstream because they recognise you.
+- I live in a female-dominated household, so I'm like a partial woman myself.
+- I've been accident-prone since I was a kid climbing trees and falling out. I've come off a few motorcycles.
+- I was a pop star at one point, and I sang the 'Shaun The Sheep' theme.
+- If we tried to analyse our comedy, we might stop being any good at it.
+- I always wander round thinking I'm anonymous. Maybe in my psyche I would like to be. But then you suddenly realise you're not.
+- I paint or sketch for two, three hours every day. It keeps me sane.
+- I think there's an incredible luck or skill for a 45-year-old man to draw like a three-year-old.
+- Out Demons Out' by the Edgar Broughton Band is a good album, and they had fantastic hair - so much that you couldn't see their faces at all. But the most triangular haircut in rock belonged to Mick Box, guitarist in Uriah Heep. He had that thick, slightly curly hair that was so dense it was out in a huge triangle by the time it got to his waist.
+- I couldn't ever stand up in front of an audience on my own and talk to them. It would be awful; I couldn't bear to do it.
+- I loved my parents. There were never any rows. It was a sort of artistic, bohemian upbringing.
+- Sometimes you have to go and do something different. I'll just disappear and write a couple of books, and then go back and do some TV when I've been forgotten about, and people think it's fresh. I see people who suddenly put themselves around everywhere and I think, 'You're going to last for about two years and vanish.'
+- My playground growing up was the fields and forests.
+- I first came across Dada at art school in the early 80s. It was funnier and more anarchic than anything else I discovered. And it didn't always have to make sense.
+- I am really trying not to eat cheese at night. It's become a real problem and I have now got high cholesterol. I have to do something about it.
+- When I was young I was shy around girls and never found it easy to talk to them.
+- You treat your body with the disrespect that you did as a young man and it starts catching up.
+- The comedy I do on TV came from me being at art school and seeing Gilbert and George films, thinking they were hilarious. I was trying to do that, a sketch version of art, and it ended up on TV.
+- People who aren't known for being artists do come in for criticism when they exhibit pictures. Paul McCartney, Tony Curtis, Mo Mowlam's husband are all at it - and what's to stop them? In my case, I don't see the comedy and the art as separate at all - you're just bending your creativity in a different direction.
+- I used to think I'd never get married or have kids. Peer pressure suggested I might be a lone wolf forever. I've always let life dictate its own terms. Marriage just happened.
+- I like to produce something every day. The easiest way to get ideas out is to put them on paper. I like to sit back at the end of every day and think, 'I created that today.'
+- There are no statements in my paintings at all. Quite the opposite - I don't like people to go looking for them. If something makes me laugh, that's it.
+- I have a look for everything I do. No matter what I do, I try to dress the part. In the garden, I'd wear vintage Levi's, because they do a thick corduroy trouser and mine have got patches on them. So I'd wear them. And a tweed jacket. The full look.
+- Timidity has followed me throughout the years.
+- Ant & Dec have always nicked stuff off us. We met their writers, they said they just trawl our stuff and adapt it. The problem is they're a lot bigger than us, so people think we're copying them.
+- In the 70s I started doing my Big Night Out on stage when I was at art school. A friend of mine owned a comedy club and sold it to me. I worked out quite quickly that if I did the comedy myself I'd make more money.
+- I mean, when we did 'Families At War,' on Saturday night prime time, people said we were mainstream then. But it wasn't in the least mainstream. The fact that we got that on BBC1 at that time with those ridiculous things, that's as mainstream as we get. We do what we do and people can think that it's mainstream or avant-garde.
+- If we started thinking, 'Why's this funny?' we might start incorporating rules into it. I'd be suspicious that it would change the nature of what we do.
+- I don't think you should have to defend your actions to people who say: 'You've put some paintings on a wall, and if this doesn't have any deep meaning, then why?' What about the Dadaists? What were they doing? Weren't they just having a laugh with their tin hats?
+- I love seeing people create.
+- A lot of things we take for granted sprang out of the 70s; it was a decade for thought and if a decade can be a mentor, then the 70s was mine.
+- I can watch dramas all day long. I like 'Ozark,' things like that.That or 'Coronation Street.' I never miss it.
+- You hear rumours of some double-acts who can't stand each other. That can't be true. You couldn't do it.
+- I pretended to be dead in front of a pig once, because I heard that they snuffle you, they try and wake you up, to check if you really are dead. And if you are dead, they eat you, but they like having a little prod first.
+- I always wear ladies' scents. I like the smell of flowers and men's scents tend to smell like burnt photocopiers.
+- When I was at art school we used to make films, and we had a really very realistic manikin that we threw off a bridge, and a car nearly crashed. We all had to clear off really quickly.
+- I've got two pigs, which doesn't constitute a farm. I just keep them in a field. They are very pleasant.
+- I can't be bothered with reality shows; I'd rather go and look through someone's letter box.
+- Our thing with us has always been if people aren't interested in one bit, they won't have to wait too long for something else to happen.
+- That's the Daily Mail for you, they'll twist whatever you say and try and start a fight. They are terrible, awful gossip-mongers and troublemakers.
+- What's that one that people seem to like so much? 'Fleabag.' I watched that and it was that sort of Oxbridge 'Oh, I'm so clever and witty, aren't I?' I don't like that stuff. But then I don't like 'Mrs Brown's Boys' either. I like things that are clever but hide it.
+- I don't watch a lot of comedy really.
+- If anything had happened to Bob, I wouldn't have carried on. Me and Bob are a comedy unit.
+- I remember 'Virginia Plain' being on Top of the Pops, and everyone was talking about it the next day. Eno was bald on top with shoulder-length hair at the sides, and he was wearing a feather boa and a silver catsuit.
+- I like to keep myself to myself. I like to stay in my house.
+- I'm a stoic. When something goes down the pan, enjoy it. Make the best out of a bad job. I'm not the sort of person who would break down and weep if my trousers split. It is funny, and I don't really get embarrassed.
+- Yeah, I was in a band called Trout.
+- I've always been an early riser. Sometimes, I wake up at 4 A.M. and don't go back to sleep... My mind keeps churning out ideas. I have a notebook beside my bed.
+- I think somewhere along the line probably Tony Hancock did an interview and claimed that he was terribly depressed, and that he was hiding his depression with comedy. So then it's been used as a template for every comedian since.

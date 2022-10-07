@@ -1,0 +1,36 @@
++++
+author = "Dar Williams"
+title = "Dar Williams Quotes"
+quotes_len = "30"
+description = "the best 30 Dar Williams Quotes"
++++
+- The very best thing you can do is to try to write a song that has some sort of impact.
+- I really value people besides parents who nurture kids.
+- A song versus an album is not like a scene versus a play.
+- How I long to fall just a little bit, to dance out of the lines and stray from the light.
+- Arizona is really cool but I couldn't stay there for too long.
+- Milwaukee one of my favorite cites; I think Milwaukee is #1.
+- Being told that you are good at banter is like being told that you are a good person.
+- If a war has to happen, a war has to happen.
+- But social justice and the environment are very tied together in my head.
+- But if you're looking to be spooked by really tall trees then you've got to go to Washington State.
+- You always have to wrestle with chaos.
+- But I benefit from the taxes I pay because I know how to access the benefits of the taxes.
+- The funny thing is musicians often love to go to see visual art because you've got all these pictures to turn into metaphors.
+- The very best thing for music would be to live next door to a person who listens to loud music so you could mishear music everyday and mutate it to your own means.
+- The first concert I saw was Cheryl Wheeler.
+- Everyone has to decide how they're going to appear in their lives, how they're going to put themselves out there to the world.
+- You'll almost encounter a superstition amongst musicians, people sort of go through strange rituals, what they need to do to write a song.
+- In the laughing times we know that we are lucky, and in the quiet times we know that we are blessed. And we will not be alone.
+- I watch people throw aluminum cans in the trash, and I think of all the stories I've heard about the over-mining of aluminum, the erosion that happens, and the trees that fall down.
+- I think music is another language.
+- And where does magic come from? I think that magic's in the learning.
+- I was raised by parents who really admired the religious leaders of the left, as many 60s and 70s liberals did.
+- I have a sordid past.
+- Therapy was the biggest romance of my life.
+- Writing 'February' made me realize that breaking form is a way of letting the song be human.
+- Sometimes life gives us lessons sent in ridiculous packaging.
+- Sometimes I see myself fine, sometimes I need a witness. And I like the whole truth, but there are nights I only need forgiveness.
+- I try to be careful not to do single concerts where I fly out, do my show, turn around and go home.
+- I'm becoming a professional nomad and enjoying that whole part of my life.
+- If you're looking for can-do, earthy-crunchy attitude then you've got to go to Wisconsin.

@@ -1,0 +1,48 @@
++++
+author = "Daniel Webster"
+title = "Daniel Webster Quotes"
+quotes_len = "42"
+description = "the best 42 Daniel Webster Quotes"
++++
+- An unlimited power to tax involves, necessarily, the power to destroy.
+- Whatever government is not a government of laws, is a despotism, let it be called what it may.
+- The people's government, made for the people, made by the people, and answerable to the people.
+- I was born an American; I will live an American; I shall die an American.
+- When tillage begins, other arts follow. The farmers, therefore, are the founders of human civilization.
+- Inconsistencies of opinion, arising from changes of circumstances, are often justifiable.
+- The materials of wealth are in the earth, in the seas, and in their natural and unaided productions.
+- I mistrust the judgment of every man in a case in which his own wishes are concerned.
+- It is my living sentiment, and by the blessing of God it shall be my dying sentiment, independence now and independence forever.
+- The law: it has honored us; may we honor it.
+- We have been taught to regard a representative of the people as a sentinel on the watch-tower of liberty.
+- One country, one constitution, one destiny.
+- The right of an inventor to his invention is no monopoly - in any other sense than a man's house is a monopoly.
+- Justice, sir, is the great interest of man on earth. It is the ligament which holds civilized beings and civilized nations together.
+- Man is a special being, and if left to himself, in an isolated condition, would be one of the weakest creatures; but associated with his kind, he works wonders.
+- Let it be borne on the flag under which we rally in every exigency, that we have one country, one constitution, one destiny.
+- Whatever makes men good Christians, makes them good citizens.
+- What a man does for others, not what they do for him, gives him immortality.
+- Falsehoods not only disagree with truths, but usually quarrel among themselves.
+- A strong conviction that something must be done is the parent of many bad measures.
+- There is nothing so powerful as truth, and often nothing so strange.
+- Mind is the great lever of all things; human thought is the process by which human ends are ultimately answered.
+- Failure is more frequently from want of energy than want of capital.
+- On the diffusion of education among the people rest the preservation and perpetuation of our free institutions.
+- The world is governed more by appearance than realities so that it is fully as necessary to seem to know something as to know it.
+- Every unpunished murder takes away something from the security of every man's life.
+- He who tampers with the currency robs labor of its bread.
+- A country cannot subsist well without liberty, nor liberty without virtue.
+- The contest for ages has been to rescue liberty from the grasp of executive power.
+- Keep cool; anger is not an argument.
+- God grants liberty only to those who love it, and are always ready to guard and defend it.
+- Wisdom begins at the end.
+- Let us not forget that the cultivation of the earth is the most important labor of man. When tillage begins, other arts will follow. The farmers, therefore, are the founders of civilization.
+- The most important thought that ever occupied my mind is that of my individual responsibility to God.
+- We are all agents of the same supreme power, the people.
+- There is always room at the top.
+- Liberty exists in proportion to wholesome restraint.
+- There is no refuge from confession but suicide; and suicide is confession.
+- A disordered currency is one of the greatest political evils.
+- Liberty and Union, now and forever, one and inseparable.
+- How little do they see what really is, who frame their hasty judgment upon that which seems.
+- No man not inspired can make a good speech without preparation.

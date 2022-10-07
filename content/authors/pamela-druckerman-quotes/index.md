@@ -1,0 +1,106 @@
++++
+author = "Pamela Druckerman"
+title = "Pamela Druckerman Quotes"
+quotes_len = "100"
+description = "the best 100 Pamela Druckerman Quotes"
++++
+- I was scared to say I was in my 40s because at that point, it sounded really old, and to out myself as a middle-aged human - I felt very awkward about it.
+- Just do what you want more often. Don't be so worried about what other people expect.
+- How hard or easy it is to raise kids, especially while working, is a big part of people's well-being everywhere.
+- Although I wrote a book about infidelity around the world, I ended up concluding that fidelity is quite a good idea.
+- Eating among the French certainly affected me. After a few years here, I gave up most of my selective food habits.
+- Just as dressing well in your forties entails making choices that reflect who you are and not just wearing generic basics, looking good as you get older requires accentuating and enjoying what's specific to you rather than striving for cookie-cutter perfection.
+- The question on my husband's birthday is always, What do you get for the man who has nothing?
+- I spent most of my adolescence feeling awkward but never once mentioned it.
+- I'm not an early adopter. I'll only start wearing new styles of clothing once they're practically out of date, and I won't move into a neighborhood until it's fully saturated with upscale coffee shops.
+- Certain woman will be jealous of how skinny you are, no matter what's causing it.
+- I had applied to become French - or, rather, Franco-American, as I'm now a dual citizen - partly because I could: I'd lived and paid taxes here for long enough.
+- I've gotten used to being a foreigner.
+- I've never gotten a good idea while checking Twitter or shopping.
+- Earnestness makes British people gag.
+- I guess we're all supposed to get used to living in a more dangerous world.
+- I'm always hoping no one is following me around with a camera.
+- Around my neighborhood, I'm known as the American who talks to her computer while she types.
+- It's fine to discuss money in France, as long as you're complaining that you don't have enough, or boasting about getting a bargain.
+- If you want to know how old you look, just walk into a French cafe. It's like a public referendum on your face.
+- Unlike the time sink of binge-watching a TV series, podcasts actually made me more efficient. Practically every dull activity - folding laundry, applying makeup - became tolerable when I did it while listening to a country singer describing his hardscrabble childhood, or a novelist defending her open marriage.
+- Sometimes I just tell my kids, 'Outside of France, I'm considered completely normal.' This worked until we traveled to London.
+- The main thing my bookcase says about me is that I'm not French.
+- When my mother in Florida mentions that she's off to play golf, I think: Golf? In the age of Trump?
+- I always knew the French had a penchant for criticism and abstract thought. Usually, that just meant they complained a lot.
+- One of the great joys of a creative life is that your observations and loose moments aren't lost forever; they live in your work.
+- In the English books, the American kids' books, typically, there is a problem, the characters grapple with that problem, and the problem is resolved.
+- The French view is really one of balance, I think... What French women would tell me over and over is, it's very important that no part of your life - not being a mom, not being a worker, not being a wife - overwhelms the other part.
+- Get rid of the idea of kids' food. Kids can eat whatever adults can eat. You know, there is one dinner, and everyone has the same thing.
+- Every time I pass a cafe, I imagine it being stormed by men with Kalashnikovs.
+- There's an American idea that you want to look as young as you can for as long as you can. If you can be mistaken for a teenager from behind into your 50s, then you've won; you've succeeded.
+- In your 40s, you kind of know how things are likely to go, and you're better at saying, 'You know what? That just doesn't suit me...' I remember thinking in my 30s, 'I should go to Burning Man. I could be a Burning Man person.' And in my 40s, I'm like, 'You know what? I'm never going to go to Burning Man.'
+- We're understandably worried that staring at screens all day, and blogging about our breakfasts, is turning America into a nation of narcissists. But the opposite might be true.
+- Early childhood offerings vary, but everywhere in Europe and in Canada, they're far more generous than in the United States. Ukrainian dads may not change enough diapers, but their government offers paid maternity leave; practically free preschool; and per-baby payments equivalent to eight months of an average salary.
+- My husband is so upset by President Trump's scapegoating of immigrants and Muslims, he refuses to even visit the United States.
+- When I tell French parents that I know lots of American kids who will eat only pasta or only white rice, they can't believe it. I mean, they can understand how the kid left to his own devices might do that, but they can't imagine that parents would allow that to happen.
+- I gradually understood why European mothers aren't in perpetual panic about their work-life balance and don't write books about how executive moms should just try harder: Their governments are helping them - and doing it competently.
+- Not many foreigners move to Paris for their dream job. Many do it on a romantic whim.
+- Having lived in America and France, I've been on both sides of the picky-eating divide.
+- Remember that the problem with hyper-parenting isn't that it's bad for children; it's that it's bad for parents.
+- You know you're in your 40s when you've spent 48 hours trying to think of a word, and that word was 'hemorrhoids.'
+- We Anglophones have reasons for adopting strange diets. Increasingly, we live alone. We have an unprecedented choice of foods, and we're not sure what's in them or whether they're good for us. And we expect to customize practically everything: parenting, news, medicines, even our own faces.
+- Babies aren't savages. Toddlers understand language long before they can talk.
+- When I moved to Europe 12 years ago, my biggest concern was whether I'd ever speak decent French. Practically every American I knew came to visit, many saying they dreamed of living here, too.
+- Usually, I'm so self-absorbed that my companion could be bleeding to death, and I might not notice.
+- As an American married to an Englishman and living in France, I've spent much of my adult life trying to decode the rules of conversation in three countries. Paradoxically, these rules are almost always unspoken.
+- Like practically everyone who grew up in Miami, I knew little about its history. We were more worried about mangoes falling on our cars.
+- I spend much of my free time listening to podcasts of American comedians talking to each other.
+- While I love walking past those beautifully lit bookstores in my neighborhood, what I mostly buy there are blank notebooks and last-minute presents for children's birthdays.
+- One of the many problems with parenting is that kids keep changing. Just when you're used to one stage, they zoom into another.
+- Where Americans might coo over a child's most inane remark to boost his confidence, middle-class French parents teach their kids to be concise and amusing, to keep everyone listening.
+- Even for natives, French satire is rarely laugh-out-loud funny. Its unspoken punch line is typically that things have gone irrevocably wrong, and the government is to blame.
+- When I was 41, I had a very bad back pain, and it turned out to be Non-Hodgkin's lymphoma.
+- When people used to ask me what I missed about America, I would say, 'The optimism.' I grew up in the land of hope, then moved to one whose catchphrases are 'It's not possible' and 'Hell is other people.' I walked around Paris feeling conspicuously chipper.
+- Podcasts immersed me in colloquial English and put me back in the American zeitgeist.
+- I've been vacationing in western North Carolina and northern Georgia since I was a kid. I arrive, marvel at the mountains, and put on an unconvincing Southern drawl.
+- Teach your kids emotional intelligence. Help them become more evolved than you are. Explain that, for instance, not everyone will like them.
+- Soccer may not explain the world or even contain the world. But it makes the world a slightly happier place.
+- When my kids correct my cultural missteps, I sometimes suspect that they're not embarrassed, they're gleeful.
+- French schools follow a national curriculum that includes arduous surveys of French philosophy and literature. Frenchmen then spend the rest of their lives quoting Proust to one another, with hardly anyone else catching the references.
+- Before Donald Trump took office, optimism about his presidency was the lowest of any president-elect since at least the 1970s.
+- Parisians won't admit that they go to the gym, let alone that they're scared of terrorists.
+- Your child probably won't get into the Ivy League or win a sports scholarship. At age 24, he might be back in his childhood bedroom, in debt, after a mediocre college career. Raise him so that, if that happens, it will still have been worth it.
+- Here's some news you might find surprising: By and large, the French like Jews.
+- And as a mother of three with a full-time job, podcasts gave me the illusion of having a vibrant social life. I was constantly 'meeting' new people. My favorite hosts started to seem like friends: I could detect small shifts in their moods and tell when they were flirting with guests.
+- Being an immigrant mother can be hard, but being a poor immigrant mother is much harder. You don't generally get to sit in cafes polishing your French by reading 'Le Monde.'
+- Soon after Donald Trump was inaugurated, I got a letter from France's interior ministry informing me that I was now French. By the time it arrived, I'd been French for nearly two weeks without even knowing it.
+- Childhood and adolescence are nothing but milestones: You grow taller, advance to new grades, and get your period, your driver's license, and your diploma. Then, in your 20s and 30s, you romance potential partners, find jobs, and learn to support yourself.
+- When you're the foreigner and your kids are the natives, they realize you're clueless much sooner than they ordinarily would. I'm pretty sure mine skipped the Mommy-is-infallible stage entirely.
+- I don't like rules, because rules, you have to follow.
+- Parisiennes rarely walk around wearing the giant diamonds that are de rigueur in certain New York neighborhoods.
+- Optimism - even, and perhaps especially in the face of difficulty - has long been an American hallmark.
+- When I left for college, I put Miami behind me and tried to have a life of the mind. I got a graduate degree. I traveled. I even married a fellow writer, whose only real estate was a dingy one-bedroom apartment in Paris, where we lived.
+- French children seem to be able to play by themselves in a way.
+- I think kids in France, and certainly in my household, don't necessarily stop interrupting when you tell them, but they gradually become more aware of other people, and that means that you can have the expectation of finishing a conversation.
+- If you had asked me what I wanted when I was 12 years old, I probably would have said, 'To marry a plastic surgeon.' You can hardly blame me: I was growing up in Miami.
+- I think, in writing a memoir, you kind of give order to your life.
+- I'm speaking in very broad brushstrokes, but in France, there's generally this idea that you should look like the best version of the age that you are.
+- There's this idea in America that you can be whatever you want. That remains an ideal in terms of how you dress too - when you go shopping, you try on all possible selves and then decide.
+- Discrimination was a problem before terrorism. Now, the bad deeds of a few people have made life worse for millions.
+- It's refreshing to have some time off from wondering whether I look fat.
+- America's parenting customs can shock foreigners.
+- I hear people in their 20s describe the 40s as a far-off decade of too-late, when they'll regret things that they haven't done. But for older people I meet, the 40s are the decade that they would most like to travel back to.
+- The whole point of a commencement speech is to say something encouraging.
+- One of the maddening things about being a foreigner in France is that hardly anyone in the rest of the world knows what's really happening here. They think Paris is a socialist museum where people are exceptionally good at eating small bits of chocolate and tying scarves.
+- The French aren't known for being hilarious. When I told Parisians I was interested in French humor, they'd say 'French what?'
+- In the Nineties, there was all this new research into brain development, with evidence saying poor kids fall behind in school because no one is talking to them at home, no one is reading to them. And middle-class parents seized on this research.
+- What you can say, what French parents say to their kids is, 'You don't have to eat everything, honey, you just have to taste it.' And it's that tasting little by little by little that gets kids more familiar with the food and more comfortable with it and more likely to eat it the next time.
+- A lot of French comedy is satire.
+- A large part of the creative process is tolerating the gap between the glorious image you had in your mind and the sad thing you've just made.
+- The French don't think everyone should have the same bank balance, but they're offended by extremes of inequality.
+- My family was once invited to lunch at a chateau owned by a friend of a friend. As we drove our rental car up to the giant castle, my kids gasped and said, 'They must be rich!'
+- The overarching conventional wisdom - what everyone from government experts to my French girlfriends take as articles of faith - is that restrictive diets generally don't make you healthier or slimmer. Instead, it's best to eat a variety of high-quality foods in moderation and pay attention to whether you're hungry.
+- When you're further along in your career, you probably have more money and more means; you have to stop yourself from giving your child too much. Whereas, if you're in twenties, you might just get by.
+- This idea - that the only way to mend the relationship post-affair is through therapy - is unique to the American script.
+- In my 40s, I expect to finally reap the average-looking girl's revenge. I've entered the stage of life where you don't need to be beautiful; simply by being well-preserved and not obese, I would now pass for pretty.
+- Practically every time I speak up at a school conference, a political event, or my apartment building association's annual meeting, I'm met with a display of someone else's superior intelligence.
+- I've got letters from all over the world saying what you're describing as American parenting is Chilean middle-class parenting, or it is Finnish middle-class parenting, or it is Slovak middle-class parenting.
+- When we're in the U.S., my kids instantly start snacking all the time. I don't know how it happens. There is just more food available all the time. There aren't all these little different varieties of snack foods in France.
+- I'm a third-generation Miamian. I'm fond of it. I'm an expatriate, so it's the only American city I can still legitimately claim.
+- The French talk about education, the education of their children. They don't talk about raising kids. They talk about education. And that has nothing to do with school. It's this kind of broad description of how you raise children and what you teach them.

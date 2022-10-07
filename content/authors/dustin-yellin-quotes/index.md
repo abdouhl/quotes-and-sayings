@@ -1,0 +1,12 @@
++++
+author = "Dustin Yellin"
+title = "Dustin Yellin Quotes"
+quotes_len = "6"
+description = "the best 6 Dustin Yellin Quotes"
++++
+- Sometimes I have to be pulled down to reality. I want everything to happen all at once.
+- My father had the bug. Ever since I can remember walking, he was waking me up at 5 in the morning to go to flea markets. As a kid, I couldn't really stand it, but as I grew up, I became that guy, and when I have kids, I am going to be doing the same thing.
+- I could never even entertain the notion that it's an option, to not be an artist.
+- Warhol was definitely an inspiration when I was younger. I wouldn't quantify his sort of influence. I've been influenced by nature and science, and I've been influenced by people like Ernst and Rauschenberg, Cornell and Bosch and Bruegel, by writers like Haruki Murakami to Pablo Neruda to Artaud.
+- New York is an incredible place to be an artist, because there are so many incredible people, and... it's all about the people that you get exposed to.
+- As I got older, I got more Victorian and morbid. I got into things that circled around death, like skulls or morgue photographs or handwritten diaries. They can be almost haunted with all this history, and you project onto it and then it gets onto you.

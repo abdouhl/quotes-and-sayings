@@ -1,0 +1,74 @@
++++
+author = "David Alaba"
+title = "David Alaba Quotes"
+quotes_len = "68"
+description = "the best 68 David Alaba Quotes"
++++
+- For me, games against Arsenal are always beautiful because in my childhood they were my favourite team.
+- My parents came a long time ago to Vienna, met in Vienna. Of course they had to go through a lot also, but we're very happy to have our home in Vienna.
+- We are thankful for our support in the United States.
+- If you reach the Champions League semifinals three times in a row that speaks for itself. To win this competition isn't easy.
+- The 'FIFA' games are getting more and more realistic. You can see it from one year to the next. Whenever I play on the console I try to be influenced by my own experience.
+- It's every player's goal to become one of the best.
+- The season lasts a long time, and we need not only a high-level squad but also a big squad.
+- I played No10 for Austria.
+- I've said it a few times over the years that I'm very happy in midfield.
+- I grew up Seventh Day Adventist.
+- I started jogging with my dad when I was five years old.
+- There are lots of brilliant free kick specialists in the world. But the technique of Cristiano Ronaldo and David Beckham fascinates me most of all.
+- A final in Berlin is always something special.
+- I'll play wherever I can help the team.
+- It's great when we score our first chance.
+- I think Mr. Ancelotti is a coach who speaks to the players a lot, not only as a team but also with the individual player. He tries to talk to you and wants to make sure to explain to you what he wants you to do on the pitch. That's important, and if you listen to it, you're going to learn a lot.
+- Munich is a great place for me.
+- I know the Premier League very well because I followed it a lot when I was younger.
+- I feel very comfortable at Bayern Munich.
+- When you've been Arsenal fan as a kid you will be one your whole life in some way.
+- I used to spend hours on the laptop watching free kicks on YouTube - again and again. You obviously learn a thing or two.
+- When we talk about racists, first, racists still exist on this earth. They're in Europe and in Austria and Germany where we play, in Italy. I've heard a lot of things and also have my own experience with that. We don't have space for this, especially in football, but also just on the Earth.
+- Fabregas is my role model. Technically, he can do everything, and he exudes calm.
+- At home I have a mixing desk that I like playing around on. It's great fun making music myself. And music has always been a very good counterbalance to football for me. It allows me to switch off and relax.
+- Friends from Vienna visit me a lot, and when the weather's bad we usually end up playing 'FIFA.'
+- Getting into the senior squad was an important step for me. I can learn a lot, not only on the pitch but also in everyday life.
+- We want to make our dreams come true and the Champions League is a dream for all of us.
+- Look, I try to focus on the essentials, on the games. It is very good for me.
+- At the age of 16, when I had my first traning session with the first-team squad, I came into the cabin and there stood Ribery and he said: 'Come here, sit down. Take the locker beside me.'
+- Winning the championship becomes more difficult every year.
+- I want to be successful with the national team and Bayern.
+- Cristiano Ronaldo works very hard, day by day, hour by hour, for his success.
+- We have a great squad at Bayern Munich and our German players are very important for us - we know their qualities and they are hungry for success.
+- I love listening to hip-hop and going to concerts with Jerome Boateng; it's my hobby.
+- Music is a big thing in our family. I also have a feeling and an ear for it. It's something we share in common.
+- We try our best and we want to come out on the top at the end of the season.
+- I can imagine trying something else but I really feel very comfortable at Bayern. Every year there a new challenges and new objectives and the pressure will always be there.
+- I am aware that I can play in various positions.
+- To be involved in the final is a dream for every single player, not only young ones.
+- At Bayern, the bar is set very high, and we all know how to deal with it. We live with that amount of pressure every day, otherwise we wouldn't be able to maintain our level of performances.
+- I'm better on the pitch than with the microphone.
+- You can be the better team and still lose.
+- Playing for the national team, you are aware that a whole country wants you to succeed, but you mustn't get side-tracked.
+- A move to England? I understand why a lot of players are moving there. It's one of the best leagues in the world. But the same goes for the Bundesliga.
+- Patrick Vieira was one of my favourite players.
+- My sister is a singer, my father is a singer.
+- We want to win every game, that is typical for Bayern.
+- Faith means a lot to me.
+- Could I stay at Bayern my entire career? I'm not the type of person who looks that far ahead. I am setting short-term goals instead.
+- I've improved a lot in every part of the game.
+- Salah's one of the best players in the world. He's fast, but I've played against other fast players such as Mbappe.
+- I have developed as a player but also as a human being.
+- It's no secret that the expectations are very high here at Bayern. We are under pressure all the time. But we've often proved we can deal with it.
+- It's not easy to create chances or a game when you're just receiving long balls.
+- We don't get tired of winning titles. On the contrary it's a lot of fun.
+- I know from experience that it is crucial that I use my strengths.
+- Messi is not human with the ball.
+- Every footballer wants to take part in a World Cup with his country.
+- I have always said I am a player who looks for new challenges.
+- I think it's obviously no secret that my buddy is Franck Ribery.
+- I think football is a game where people come together and football should bring everybody together, whether it is religion or skin colour or where you come from. We should be happy to enjoy that moment together, those 90 minutes where we can show love. Because I think football is love - and when love is not there, for what should we play?
+- I try to help the team.
+- I know that in football everything can go very quickly.
+- Everybody who has ever played for Bayern knows how good this club is for its players. We are all grateful to be playing for Bayern.
+- Everyone is beatable, many things are possible in football. We have often seen this.
+- When you come home and dad's making music, sister's making music and my mum is also very musical - you can't escape it.
+- It's clear I'm not the best singer and don't have the best voice, but you can work a bit of magic in a studio.
+- We are Bayern Munich and we don't have to hide from any opponent!

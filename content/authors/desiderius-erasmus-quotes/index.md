@@ -1,0 +1,56 @@
++++
+author = "Desiderius Erasmus"
+title = "Desiderius Erasmus Quotes"
+quotes_len = "50"
+description = "the best 50 Desiderius Erasmus Quotes"
++++
+- If you keep thinking about what you want to do or what you hope will happen, you don't do it, and it won't happen.
+- Reflection is a flower of the mind, giving out wholesome fragrance; but revelry is the same flower, when rank and running to seed.
+- Don't give your advice before you are called upon.
+- The most disadvantageous peace is better than the most just war.
+- Whether a party can have much success without a woman present I must ask others to decide, but one thing is certain, no party is any fun unless seasoned with folly.
+- What is popularly called fame is nothing but an empty name and a legacy from paganism.
+- Nature, more of a stepmother than a mother in several ways, has sown a seed of evil in the hearts of mortals, especially in the more thoughtful men, which makes them dissatisfied with their own lot and envious of another's.
+- Human affairs are so obscure and various that nothing can be clearly known.
+- To know nothing is the happiest life.
+- War is delightful to those who have had no experience of it.
+- I doubt if a single individual could be found from the whole of mankind free from some form of insanity. The only difference is one of degree. A man who sees a gourd and takes it for his wife is called insane because this happens to very few people.
+- It is wisdom in prosperity, when all is as thou wouldn't have it, to fear and suspect the worst.
+- In the country of the blind the one eyed man is king.
+- The entire world is my temple, and a very fine one too, if I'm not mistaken, and I'll never lack priests to serve it as long as there are men.
+- Now I believe I can hear the philosophers protesting that it can only be misery to live in folly, illusion, deception and ignorance, but it isn't -it's human.
+- Everyone knows that by far the happiest and universally enjoyable age of man is the first. What is there about babies which makes us hug and kiss and fondle them, so that even an enemy would give them help at that age?
+- Concealed talent brings no reputation.
+- Luther was guilty of two great crimes - he struck the Pope in his crown, and the monks in their belly.
+- Fools are without number.
+- Man's mind is so formed that it is far more susceptible to falsehood than to truth.
+- War is sweet to those who have not experienced it.
+- Nothing is as peevish and pedantic as men's judgments of one another.
+- Women, can't live with them, can't live without them.
+- There are some people who live in a dream world, and there are some who face reality; and then there are those who turn one into the other.
+- In the kingdom of the blind, the one-eyed man is king.
+- Fortune favors the audacious.
+- Your library is your paradise.
+- Time takes away the grief of men.
+- Humility is truth.
+- The nearer people approach old age the closer they return to a semblance of childhood, until the time comes for them to depart this life, again like children, neither tired of living nor aware of death.
+- By burning Luther's books you may rid your bookshelves of him, but you will not rid men's minds of him.
+- No one respects a talent that is concealed.
+- What difference is there, do you think, between those in Plato's cave who can only marvel at the shadows and images of various objects, provided they are content and don't know what they miss, and the philosopher who has emerged from the cave and sees the real things?
+- Nowadays the rage for possession has got to such a pitch that there is nothing in the realm of nature, whether sacred or profane, out of which profit cannot be squeezed.
+- The more ignorant, reckless and thoughtless a doctor is, the higher his reputation soars even amongst powerful princes.
+- By a Carpenter mankind was made, and only by that Carpenter can mankind be remade.
+- Man is to man either a god or a wolf.
+- It's the generally accepted privilege of theologians to stretch the heavens, that is the Scriptures, like tanners with a hide.
+- He who allows oppression shares the crime.
+- Everybody hates a prodigy, detests an old head on young shoulders.
+- Prevention is better than cure.
+- The desire to write grows with writing.
+- It is the chiefest point of happiness that a man is willing to be what he is.
+- A nail is driven out by another nail. Habit is overcome by habit.
+- When I get a little money I buy books; and if any is left I buy food and clothes.
+- A good portion of speaking will consist in knowing how to lie.
+- Great eagerness in the pursuit of wealth, pleasure, or honor, cannot exist without sin.
+- It is an unscrupulous intellect that does not pay to antiquity its due reverence.
+- Great abundance of riches cannot be gathered and kept by any man without sin.
+- Give light, and the darkness will disappear of itself.

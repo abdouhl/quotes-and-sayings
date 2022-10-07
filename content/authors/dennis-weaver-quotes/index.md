@@ -1,0 +1,27 @@
++++
+author = "Dennis Weaver"
+title = "Dennis Weaver Quotes"
+quotes_len = "21"
+description = "the best 21 Dennis Weaver Quotes"
++++
+- We don't have to sacrifice a strong economy for a healthy environment.
+- We're the only species that have crapped up the planet and the only species that can clean it up.
+- The earth is a tremendous gift. There is nothing else like it in the known universe. I want to leave it the way I found it.
+- Changing mass consciousness is an individual responsibility.
+- Practically every environmental problem we have can be traced to our addiction to fossil fuels, primarily oil.
+- Whatever we'll be forced to do later, we should be doing now.
+- It's fun to be a little bit different in the world, to make a few new trails of your own.
+- Business must be the solution, not the problem.
+- I feel responsible; I feel I've got to do something that will leave the kids a place where they can live healthy, safe, productive, creative and prosperous lives.
+- The people of the future will say, meat-eaters in disgust and regard us in the same way that we regard cannibals and cannibalism.
+- The premise is simple: One economy and one environment, and they're interdependent.
+- When we realize we can make a buck cleaning up the environment, it will be done!
+- If you don't generate tension in the film to begin with... you can't really make a purse out of a sow's ear, you know.
+- If we were driving pure hydrogen automobiles, that automobile would actually help clean up the air because the air coming out of the exhaust would be cleaner than the air going into the engine intake.
+- It's not an if - we're going to have to change. Oil is simply going to be gone.
+- War is usually fought over diminishing resources, particulary those that we perceive to be extremely valuable.
+- Business has to change the way it does business, or we will make no significant changes in the way we relate to the earth.
+- When I was a kid, we never heard of smog, ozone depletion, acid rain, green house gasses.
+- If we had a hydrogen economy worldwide, every nation on earth could create its own energy source to support its economy, and the threat of war over diminishing resources would just evaporate.
+- Coming back to a television series puts you back in the limelight and gives you a platform for your ideas. If you're not acting on a series, you don't get the ability to communicate to people.
+- We should be able to support our own economy within our own borders.

@@ -1,0 +1,38 @@
++++
+author = "Olivia De Havilland"
+title = "Olivia De Havilland Quotes"
+quotes_len = "32"
+description = "the best 32 Olivia De Havilland Quotes"
++++
+- I don't feel the cold. It's my British blood!
+- All of Hollywood was convinced that 'Gone with the Wind' would be a colossal disaster and rather hoped it would be.
+- The TV business is soul crushing, talent destroying and human being destroying.
+- I have the idea that anyone who has ever heard my name has the distinct impression that I was put under the sod years ago just before they buried Lillian Russell.
+- I was just a mini-star when we did 'Gone With the Wind.'
+- Famous people feel that they must perpetually be on the crest of the wave, not realising that it is against all the rules of life. You can't be on top all the time, it isn't natural.
+- I'm certainly relishing the idea of living a century. Can you imagine that? What an achievement.
+- I'm all for typewriters, with instant carbon copies, and seeing films in cinemas.
+- I don't need a fantasy life as once I did. That is the life of the imagination that I had a great need for. Films were the perfect means for satisfying that need.
+- There are no words to describe my feelings for Errol Flynn.
+- I would watch anything with Meryl Streep in it.
+- We were like a stock company at Warners. We didn't know any of the stars from the other studios.
+- I loved France, although I initially thought they were stubborn for always speaking French.
+- I feel like a survivor from an age that people no longer understand. I want to try to explain what the 1930s - the golden age of Hollywood - was truly like. People forget that America was such a different place then, not yet the dominant force in the world.
+- I felt 'Gone with the Wind' would last five years, and it's lasted over 70 and into a new millennium. There is a special place in my heart for that film and Melanie. She was a remarkable character - a loving person - and because of that, she was a happy person. And Scarlett, of course, was not.
+- If I watch 'Gone With the Wind,' I always find it interesting. I think, 'What's going to happen next? What's that character going to do?' But you know, you never really need to watch the films you made again. They stay inside you, always with you.
+- I had a very big crush on Errol Flynn during 'Captain Blood.' I thought he was absolutely smashing for three solid years, but he never guessed. Then he had one on me but nothing came of it. I'm not going to regret that; it could have ruined my life.
+- When I was five, I discovered a secret box that contained Mummy's stage makeup. It was like finding buried treasure. I tried the rouge, the eye shadow, the lipstick. But I couldn't get the rouge off. Mummy spanked me terribly.
+- By 1951, television had already made such inroads on the income garnered by motion picture companies that the Golden Era which had prevailed until then was beginning to disintegrate. And by 1953, it had come to an end. Hollywood was a dismal, tragic place.
+- What bothered me was playing one-dimensional parts in films which were really about, 'Boy Meets Girl,' 'Will Boy Get Girl?'
+- I wanted to be what my high-school civics and history teacher thought of as a good American. That automatically involved taking an interest in government.
+- I am attracted by almost any French word - written or spoken. Before I knew its meaning, I thought 'saucisson' so exquisite that it seemed the perfect name to give a child - until I learned it meant 'sausage!'
+- I have, indeed, lived most of my life overseas, but I've returned repeatedly to work in film, special television productions, and the New York theater. There have also been tributes and similar occasions that have called me back to Hollywood. I've returned so often, I almost feel that I've never left.
+- Playing good girls in the 30s was difficult, when the fad was to play bad girls. Actually I think playing bad girls is a bore; I have always had more luck with good girl roles because they require more from an actress.
+- I wouldn't wish overnight success on anyone. You have no real friends. Everyone works endless hours at different studios, so far apart. Even on your own lot, relationships were formal and often competitive.
+- I was naturalized right before Pearl Harbor. Nine days later, I would have been classified as an enemy alien. I might have been sent to a camp.
+- I would prefer to live forever in perfect health, but if I must at some time leave this life, I would like to do so ensconced on a chaise longue, perfumed, wearing a velvet robe and pearl earrings, with a flute of champagne beside me and having just discovered the answer to the last problem in a British cryptic crossword.
+- There certainly is such a thing as screen chemistry, although I don't believe you find it frequently.
+- I read the Scriptures at the American Cathedral on Christmas and Easter; that's it. It's a task I love.
+- The one thing that you simply have to remember all the time that you are there, is that Hollywood is an oriental city. As long as you do that you might survive. If you try to equate it with anything else you'll perish.
+- How many women in this world are served breakfast in bed every morning by a gorgeous young man? I am. So how do I feel about older age? Crazy about it! Wouldn't trade it for anything!
+- I was quite thin, and I didn't have to worry until I had my appendix out and a mysterious metabolic change occurred.

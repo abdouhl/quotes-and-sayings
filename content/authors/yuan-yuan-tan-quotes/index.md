@@ -1,0 +1,25 @@
++++
+author = "Yuan Yuan Tan"
+title = "Yuan Yuan Tan Quotes"
+quotes_len = "19"
+description = "the best 19 Yuan Yuan Tan Quotes"
++++
+- If Shanghai wants to be an international cultural center, they have to do something about that. The reason I left is that I wanted to explore what ballet is all about, and if I had stayed put, that wouldn't have happened.
+- My workout is ballet class and rehearsal - I've never belonged to a gym.
+- I have learned to be patient.
+- My favorite shoe brand is Christian Louboutin - I don't have a favorite shoe store per se.
+- I can be very hard on myself, very demanding.
+- For me, dance is about the aesthetics and the hard work that goes into creating something so beautiful. Motivation and dedication to the craft is what pushes me to do my best, to always strive to do better, and the outcome is always worth it.
+- I love to watch old movies when I get time off.
+- I remember watching Audrey Hepburn dancing in movies, and I was inspired by how graceful she looked, though I understand it was no easy task.
+- My Chinese side comes out in my dancing. There's a certain in-the-moment sentimentality, an appreciation for the smallest details.
+- I can let go of a lot of stuff, but I focus on things I think I should, like dancing, because it takes 100 percent concentration on every step.
+- I love wine tasting in Napa. I don't have a huge collection, but the bottles I do have are special.
+- I have never gotten my nails done.
+- I just don't do much social media. No, it is more important to strike a balance between ballet and real life.
+- I'm flying all around the world, and it's hard to be settled.
+- I like walking in Golden Gate Park.
+- I own the complete DVD set of all the Audrey Hepburn movies ever made.
+- Things don't always happen the way one wishes they would.
+- I think ballet has influenced my personality a lot in the sense that I am very disciplined in all of my endeavours. I am always on time; I take things very seriously. I've built up my inner strength and self-esteem over time as I've improved as a dancer.
+- I think Hong Kong's ballet audience is very sophisticated in the sense that they are able to find the beauty in good performances.

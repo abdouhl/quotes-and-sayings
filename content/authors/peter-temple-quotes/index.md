@@ -1,0 +1,20 @@
++++
+author = "Peter Temple"
+title = "Peter Temple Quotes"
+quotes_len = "14"
+description = "the best 14 Peter Temple Quotes"
++++
+- For some men, life seems to be one long attempt to escape childhood and all the fears of childhood. That's what many of us are doing.
+- A lot of people like cabinet making; people are intrigued by it. Women in particular like cabinet making. They like it more than men do - the men are not really interested in the cabinet making.
+- In everything I've written, the crime has always just been an occasion to write about other things. I don't have a picture of myself as writing crime novels. I like fairly strong narratives, but it's a way of getting a plot moving.
+- There's a high point in your career, and then people get bored; they want something else to come along.
+- I like having a plot; I like characters with a reason to get up in the morning.
+- I think Melbourne is by far and away the most interesting place in Australia, and I thought if I ever wrote a novel or crime novel of any kind, I had to set it here.
+- No book of mine is complete without a dog.
+- A lot of crime fiction writing is also lazy. Personality is supposed to be shown by the protagonist's taste in music, or we're told that the hero looks like the young Cary Grant. Film is the medium these writers are looking for.
+- As far as I am concerned, I write novels, and other people can do the labelling.
+- In writing, I'm totally anti-plans of any kind. All my attempts to plan and plot novels have come to grief, and in expensive ways.
+- Football makes nonsense of class. It may make nonsense of colour in some circumstances.
+- I suppose most crime writing is urban. There's not a lot... certainly not in Australia, people don't often set books in the countryside.
+- I think if you live in a country, basically you share the dominant values of a country although you may disagree on issues all the time.
+- The real difference between literature and pulp is the kind of emotional responses they elicit. Dan Brown can't pierce your heart. Patricia Cornwell can't make you read a sentence twice and then look sightlessly out of the window.

@@ -1,0 +1,41 @@
++++
+author = "Ursula K. Le Guin"
+title = "Ursula K. Le Guin Quotes"
+quotes_len = "35"
+description = "the best 35 Ursula K. Le Guin Quotes"
++++
+- I don't teach writing classes anymore, and I'm really glad I don't, because I would feel very strange about telling people, 'Go out there and be a writer, and make a living from it.'
+- The unread story is not a story; it is little black marks on wood pulp. The reader, reading it, makes it live: a live thing, a story.
+- There's a good deal in common between the mind's eye and the TV screen, and though the TV set has all too often been the boobtube, it could be, it can be, the box of dreams.
+- He is far too intelligent to become really cerebral.
+- I've got some gift for languages. You follow your gift. But Latin's not easy.
+- I doubt that the imagination can be suppressed. If you truly eradicated it in a child, he would grow up to be an eggplant.
+- I believe that maturity is not an outgrowing, but a growing up: that an adult is not a dead child, but a child who survived.
+- Love doesn't just sit there, like a stone; it has to be made, like bread, remade all the time, made new.
+- I certainly wasn't happy. Happiness has to do with reason, and only reason earns it. What I was given was the thing you can't earn, and can't keep, and often don't even recognize at the time; I mean joy.
+- In so far as one denies what is, one is possessed by what is not, the compulsions, the fantasies, the terrors that flock to fill the void.
+- The artist deals in what cannot be said in words. The artist whose medium is fiction does this in words. The novelist says in words what cannot be said in words.
+- Inventions have long since reached their limit, and I see no hope for further development.
+- I get a lot of moral guidance from reading novels, so I guess I expect my novels to offer some moral guidance, but they're not blueprints for action, ever.
+- There are no right answers to wrong questions.
+- Great artists make the roads; good teachers and good companions can point them out. But there ain't no free rides, baby.
+- If you see a whole thing - it seems that it's always beautiful. Planets, lives... But up close a world's all dirt and rocks. And day to day, life's a hard job, you get tired, you lose the pattern.
+- If science fiction is the mythology of modern technology, then its myth is tragic.
+- To light a candle is to cast a shadow.
+- I talk about the gods, I am an atheist. But I am an artist too, and therefore a liar. Distrust everything I say. I am telling the truth.
+- It is good to have an end to journey toward, but it is the journey that matters in the end.
+- What sane person could live in this world and not be crazy?
+- The only thing that makes life possible is permanent, intolerable uncertainty; not knowing what comes next.
+- If you want your writing to be taken seriously, don't marry and have kids, and above all, don't die. But if you have to die, commit suicide. They approve of that.
+- The children of the revolution are always ungrateful, and the revolution must be grateful that it is so.
+- The only questions that really matter are the ones you ask yourself.
+- As great scientists have said and as all children know, it is above all by the imagination that we achieve perception, and compassion, and hope.
+- Morning comes whether you set the alarm or not.
+- It is above all by the imagination that we achieve perception and compassion and hope.
+- I don't write tracts, I write novels. I'm not a preacher, I'm a fiction writer.
+- When action grows unprofitable, gather information; when information grows unprofitable, sleep.
+- To oppose something is to maintain it.
+- It had never occurred to me before that music and thinking are so much alike. In fact you could say music is another way of thinking, or maybe thinking is another kind of music.
+- I do try to separate my personal activism - showing up at a demonstration or something - from what I write.
+- My imagination makes me human and makes me a fool; it gives me all the world, and exiles me from it.
+- We are volcanoes. When we women offer our experience as our truth, as human truth, all the maps change. There are new mountains.

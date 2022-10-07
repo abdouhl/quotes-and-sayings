@@ -1,0 +1,81 @@
++++
+author = "Zac Efron"
+title = "Zac Efron Quotes"
+quotes_len = "75"
+description = "the best 75 Zac Efron Quotes"
++++
+- Don't get me wrong - I've gone to a club. But I'd much rather be with my close friends at home or a concert, or on a trip. I'll go dancing with my grandma. She likes to cut a rug!
+- I'm a guy, but I'm not afraid to cry. Not all of the time. But when I'm watching a movie, I'll sometimes shed a tear, especially 'Moulin Rouge'.
+- I grew up being into sports and I wasn't trained to move my body in the right way for dancing. I'm the last one to get any moves correct. In rehearsals it's always, 'OK, one more take for Zac.'
+- I know I've been lucky. But it's what you do with that luck afterwards that really defines whether you stick around.
+- One time I went into a restroom and a girl followed me in. I signed an autograph for her in the sink. It was pretty funny because she was in a guy's restroom and she wasn't embarrassed at all.
+- I can draw really well. And I like to paint. I'm a bit of an artist.
+- It's the moms who are overaggressive. A lot of times their daughters are very sweet and cordial, and the moms tend to grab you and scream and want to kiss you. You gotta watch out for the moms.
+- My dogs are crazy. They're always getting into some kind of trouble... but then again, they're my most loyal friends.
+- In sixth grade, my basketball team made it to the league championships. In double overtime, with three seconds left, I rebounded the ball and passed it - to the wrong team! They scored at the buzzer and we lost the game. To this day, I still have nightmares!
+- I wish I could say I see my little brother more. We used to fight all the time but now that I don't see him very often I cherish the time I have with him.
+- The fans make the person a star.
+- I think the only real knowledge I had before I went to Iowa was what I learned from 'Food Inc'. But once I got there and developed these extensive relationships with the farmers, I realized that we're basically made of corn.
+- In the back of my mind, I can never forget this could be gone tomorrow - and at this point I think the odds are against me... the chances of succeeding in this business are slim to none; there's only a handful of people that have long careers. You have to put in the work, you can never be satisfied, never take it for granted.
+- I've always been singing. Since day one. I started doing musical theater and you have to sing in musical theater and so that's where I got most of my training. So singing on stage, you just inevitably, when you're around other vocal artists, you get better at singing.
+- Being known for musicals is a great thing.
+- I think every single girl has something different and special about her. You find one who clicks with your vibe.
+- The awkward thing for me is when the realization happens that I actually might like this girl. Then I become awkward.
+- Right when 'High School Musical' was taking off, one of my little cousins called and was really excited to tell me there was a huge 'I Hate Zac Efron' club at her school. I'm sure they're doing great. More power to them.
+- We shot 'High School Musical' in eight weeks. I spent longer rehearsing for 'Hairspray' than filming 'High School Musical'.
+- From day one, I got addicted to being on stage and getting the applause and laughter.
+- I feel disconnected, like I don't know where I am, if I'm on my phone too much. I'm also just the type to call. I'm not good on text.
+- I think the most important thing for me in a relationship is honesty.
+- Little Zac had it easy - but he didn't realize he had it easy, so he took it for granted. I think going through 'Hairspray' and other projects helped me learn about the business and life in general.
+- You always have something to learn from people who have been through more than you. Be open and receptive to what they know.
+- Spider-Man's probably my favorite. You see, Batman is a billionaire and there's nothing really cool about a billionaire saving the world. But Spider-Man is Peter Parker, a conflicted character who puts on a suit and saves the world. I love that.
+- I usually spend Valentines Day with my friends. But if I did have a girlfriend, I'd bring her flowers and candy.
+- There are a lot of people who can slide on talent their whole lives; they're just naturally gifted. I've never considered myself one of those people. I enjoy outworking the opposition.
+- Without a doubt, I'd love to do Broadway. I actually can't wait to get back to musical theater.
+- If there's a party and they won't let my friends in, I'd leave. No question.
+- Jesse McCartney is one of the nicest people around. I hate when I hear bad things about him, because anyone who knows him would agree that he's a good guy and really humble.
+- I connect with people on a daily basis.
+- I think if a girl is easy to talk to then that's the first thing I look for. It's great when you meet a girl and three hours later you're like, 'Oh my gosh, we've been talking for three hours, what happened to the time?'
+- I might not be the greatest actor, but I walk into every project willing to work hard.
+- I've been doing musical theater since I was a kid. And look for a CD from me in the future. I want to write all the songs!
+- Dating is kind of hard. Like dinner or something like that. Like a forced awkward situation is very strange. Especially for me, for some reason.
+- There's really nothing but one audition for a Disney Channel movie that separates me from 2,000 other brown-haired, blue-eyed guys in L.A., you know?
+- I don't know if I believe in love at first sight, but of course I believe in two people having chemistry right away. A girl should be really easy to talk to. When I lose track of time because we've been talking, I think that's really fun.
+- A girl can tell I like her when I blush or start telling bad jokes.
+- I'll never try to put on a fake image. I'm just Zac.
+- A fan sent me a letter and a $10 bill. It's a short letter - all she said was, 'Hey, since it's harder for you to go out these days without getting photographed, here $10 for a pizza.' I was like, 'Aww, she sent me money for a pizza so I could eat at home!'
+- I've grown up a lot, I'm on my own, and I've learned some valuable life lessons.
+- Every day is a new experience and I take it as it comes.
+- I think if you're fame-hungry, go out to a nightclub and get drunk... why do that? I don't understand how some people would want fame so bad that they'd go out and get negative attention to earn it.
+- High School Musical has been a blessing and a gift.
+- Every time I go to big events, it's a trip. I feel like that kid who shouldn't really be there.
+- I want to be a well-rounded, versatile performer.
+- I love action-adventure-type films - mythical adventures like 'Lord of the Rings' or superhero films like 'Batman.'
+- Honestly, if the worst these people can say about me is that I'm gay, then I think I'll be fine. I can handle it.
+- I bought an electric scooter in sixth grade. Bankrupted me.
+- Think on your toes, use what's around you, and come up with something organic and fun.
+- It's weird, but I don't feel like think I deserve any of the attention. There's really nothing but one audition for a Disney Channel movie that separates me from 2,000 other brown-haired, blue-eyed guys in L.A., you know?
+- Personally, I was never the cool kid. I was always sort of a bookworm.
+- I like to go and do something adventurous. I like to go out and do some sort of crazy activity.
+- A lot of people ask: 'Will you play a psycho to really change your image and prove you can act?' But that's not what I'm about.
+- I've always cared about fashion and what I look like. I don't like to spend a lot of money on designer clothes, but I do like to look good.
+- I think it's fine for girls to ask boys out. I actually prefer it.
+- There's a way that you can throw negativity out there that seems rebellious. But I've always taken pleasure in a different kind of rebellion, which is putting a positive spin on everything, trying to enjoy myself at all times.
+- It's not that I'm opposed to doing a big-budget action movie. But it has to be the right project.
+- I just want to make great films and be good in them. And I think that my perception of what's great in a film is constantly evolving.
+- Sometimes, especially when it's cold, I get dry skin, so I scratch a lot. I scratch my arms incessantly.
+- Sometimes I take a while to get ready to go out. It's not excessive, but it takes me some time to find clean clothes that match.
+- I left home at 17 and I've been on the road ever since.
+- Great advice comes from people that have been around a lot longer than you.
+- A woman called me interesting once, and it kind of blew my mind. She said, 'You're one of the most interesting people I've ever met,' and I was like, 'Wow.'
+- If I splurge on anything, it's cologne. I love smelling good.
+- I'm definitely not getting married. In this business, you're either getting married or they want you to be pregnant. I'm not getting married until I'm forty. If ever.
+- I like when a girl knows what she looks like and dresses to accentuate those features.
+- Working out is my biggest hobby. It's my Zen hour. I just zone out.
+- Amanda Bynes and I have become close since filming 'Hairspray.' It's so weird because I grew up watching her.
+- I was influenced when I was younger by the cartoon movies that Disney put out, like Cinderella and what not. I watched those movies over and over when I was younger and the music is ingrained into my head. Nowadays, I'm still humming the tunes. It taught me the fundamentals.
+- I wouldn't just have other people write songs and me go out and sing it. I would sit down with a guitar and write 11 or 12 good songs for an album and that is gonna take a long time.
+- I'm very competitive by nature. And I like to be the underdog - It's the best way to win. To come from behind and win is a great feeling!
+- I wore goofy hats to school and did musical theater. Most people thought I was a dork. But if you have a sense of humor about it, no one can bring you down.
+- If I had a daughter, and some guy came home with her, I'd be on him like a hawk. When I meet people's parents, I know my place. It's not that hard.
+- I'm bad at returning phone calls.

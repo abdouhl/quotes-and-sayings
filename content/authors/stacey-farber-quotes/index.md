@@ -1,0 +1,12 @@
++++
+author = "Stacey Farber"
+title = "Stacey Farber Quotes"
+quotes_len = "6"
+description = "the best 6 Stacey Farber Quotes"
++++
+- Everyone I went to school with went to university, or took a year off and then went, and that was the norm - so I did the same thing.
+- I think that 'Degrassi' really challenged its actors. I was on it for seven years, and it was one of my first jobs. I can't even watch the early episodes - they're so embarrassing! But I really do think I grew as an actor and learned a lot over the seven years.
+- I always enjoyed school, and I enjoyed being focused on learning - and I know that sounds nerdy, but there were so many wonderful elements of going to school with just girls. I wouldn't brush my hair.
+- I remember there were days when - and this is kind of gross - I would sleep in my uniform to save time in the morning and then get up and go to school... it didn't matter because I didn't have to impress anyone, and I didn't have to look cute in class.
+- When I was 18, I was moving to New York to start college at The New School. I had done a year of college in Toronto and wasn't happy there. I didn't have any friends in New York City, but I applied and got in. It was pretty overwhelming, but everyone in New York is so ambitious and creative.
+- I think it's cool to be smart, and I think it's sexy to be smart.

@@ -1,0 +1,86 @@
++++
+author = "Pavel Durov"
+title = "Pavel Durov Quotes"
+quotes_len = "80"
+description = "the best 80 Pavel Durov Quotes"
++++
+- WhatsApp doesn't only fail to protect your WhatsApp messages - this app is being consistently used as a Trojan horse to spy on your non-WhatsApp photos and messages.
+- The political solutions proposed against encryption are not going to work against terrorism.
+- I'm in a situation where I can determine my own future.
+- I believe in small governments or no governments. I think the majority of people want to have big government, a big brother taking care of them.
+- I'm out of Russia and have no plans to go back.
+- A lot of people in the western world don't realize how much taxes limit their options. You can end up paying almost half your income in taxes, which basically means you're working for the government for 180 days a year. I think I can find better ways to use the money I make for the benefit of society.
+- I believe that at some point we should come up with a business model that would make us sustainable.
+- To put it simply, it doesn't matter how many other messaging apps are out there if all of them suck.
+- Terrorists will always find a way to communicate. They will always find a solution.
+- I never want things to be dull.
+- Privacy is not for sale, and human rights should not be compromised out of fear or greed.
+- I'm motivated by curiosity.
+- The No. 1 reason for me to support and help launch Telegram was to build a means of communication that can't be accessed by the Russian security agencies, so I can talk about it for hours.
+- I'm very happy right now without any property anywhere.
+- The U.S. can use its control over the dollar and the global financial system to shut down any bank or bank account in the world. It can use its control over Apple and Google to remove apps from the App Store and Google Play.
+- We don't put a dollar toward marketing or advertising. I think we're more efficient than Facebook.
+- I like to make fun of serious matters.
+- WhatsApp deliberately obfuscates their apps' binaries to make sure no one is able to study them thoroughly.
+- I'm not afraid of anything. I'm not afraid to die, if I have to.
+- I'm a big believer in Europe.
+- Governments should be smaller. In fact, governments and countries in general are less important than we think they are. They take credit for processes they have nothing to do with.
+- Compromises lead you nowhere. You can't be happy doing something you don't believe in.
+- The global threat of 'Big Brother' can actually be conquered purely by technology.
+- If you get rid of emotion for a minute and think about the threat of terrorism statistically, it's not even there. The probability that you will slip on a wet floor in your bathroom and die is a thousand times higher than the probability of you dying as a result of terrorism.
+- Looking back, there hasn't been a single day in WhatsApp's 10 year journey when this service was secure.
+- Whenever technological advancement is made it can always be used both for good or for bad.
+- Few people outside the Telegram fan community realize that most of the new features in messaging appear on Telegram first, and are then carbon-copied by WhatsApp down to the tiniest details.
+- Me myself, I'm not a big fan of the idea of countries.
+- We had a simple choice: Either betray our values or keep our values and leave Russia to try to do something new.
+- Obviously I do have political views - I'm a believer in the free-market economy; I also believe that without competition and respect for human rights there will be no progress because nobody will feel safe and free.
+- As a foreign company and offshore entity we will not be obliged to comply with the rules of Russia, China, Saudi Arabia and countries like that.
+- At Telegram we enjoy the luxury of not having to care about income streams or advertising.
+- When you start giving interviews like the CEO of an established company, it's just wrong.
+- I think the big difference between most countries and the U.S., is that governments are more straightforward now about their intentions to gather information on private communications.
+- When I turned 17, I created a website for the students at my University. It enabled students to share lectures and discuss exams, and became popular very quickly.
+- We think that providing this kind of secure private means of communication for the masses for 99.999 percent of people that have nothing to do with terrorism means more than the threat that we see from the other side.
+- Telegram is heavily encrypted and privacy-oriented, but we're no friends of terrorists - in fact, every month we block thousands of ISIS-related public channels.
+- Italian food is simple and healthy, and it's easier for a vegetarian to choose something from the menu.
+- Not everybody's actions are based on ideas. Some people's actions are based on profit.
+- I think we should be less dependent on the outdated concept we call countries.
+- Every time WhatsApp has to fix a critical vulnerability in their app, a new one seems to appear in its place.
+- Facebook has long been part of surveillance programs, long before it acquired WhatsApp.
+- I hope Telegram will be able to rely on the community even more than VK since it's a non-profit project that hopefully will be able to attract people who share the idea behind it.
+- The probability that we will get into a car accident is a million times higher than the probability we will suffer as a result of terrorist act.
+- For WhatsApp to become a privacy-oriented service, it has to risk losing entire markets and clashing with authorities in their home country.
+- To be truly free, you should be ready to risk everything for freedom.
+- There's always a risk that your iPhone can be stolen, and the people who stole it can use the data, your private photos, etc. to blackmail you.
+- Some things like the layout of the early VKontakte was very influenced by Facebook. Otherwise it could take ages for me to build, and I was not a professional designer.
+- WhatsApp has a consistent history - from zero encryption at its inception to a succession of security issues strangely suitable for surveillance purposes.
+- When I was 11, I started building games for IBM PC XT.
+- I was born in Leningrad, U.S.S.R., before my father got an appointment at a university in Italy and we moved to Italy. I spend a few years there before my family returned to Russia.
+- In my days in Russia, I visited some very rich guys. I visited big ships, private airplanes, houses - and I know for sure I don't want this for myself.
+- To give the personal details of Ukrainians to the Russian authorities would not only be against the law, but also a betrayal of those millions of people in Ukraine who trusted us.
+- In America they started to refer to Telegram as 'ISIS's preferred messaging app,' But in reality there are many more legitimate users.
+- You know the interesting thing about encryption is that it cannot be secure just for some people.
+- It's super-interesting to see what it's like to run the most popular social media platform in a country like Iran.
+- It's my responsibility to support the team behind Telegram.
+- In my past, it looked like I could get into trouble in Russia - but I was not afraid then, and I'm not afraid now. Fear paralyses you and doesn't let you go forward.
+- One thing Telegram does is make mass surveillance impossible.
+- I don't like the idea of beating birds. I'm vegetarian.
+- The first thing that we wanted to make clear is that nobody has to trust anybody. We don't take people's trust for Telegram for granted.
+- Despite this ever-increasing evidence of WhatsApp being a honeypot for people that still trust Facebook in 2019, it might also be the case that WhatsApp just accidentally implements critical security vulnerabilities across all their apps every few months.
+- This is a big debate concerning the values of the society in question: Whether the risk of a terrorist act is more important than the 100 percent right to privacy.
+- Unless you are cool with all of your photos and messages becoming public one day, you should delete WhatsApp from your phone.
+- I believe the role of the government is too big. Society must be more decentralized.
+- I realized I don't have a safe means of communications. That's how Telegram started.
+- I have a clean conscience and ideals that I am willing to defend.
+- I consider myself a legal citizen of the world.
+- Any government that likes to call themselves democratic should welcome Snowden and allow him to live in their country.
+- Maybe we shouldn't be too dependent on politicians trying to make us believe that we are safe only because of their actions.
+- Armed police at my apartment doors in 2011 was scary, but the sudden - and not exactly legal - takeover of 48 per cent of VKontakte, that coincided with a fabricated case against myself in April 2013, was more frightening.
+- Political oppositionary activity on the Russian Internet caused the government to pass laws limiting both service operators and users. As a result, the Russian tech environment became much less liberal, losing freedom as one of its competitive advantages.
+- I'm a peaceful creature; I'm vegetarian. I don't like wars.
+- VK is famous for its competitions among third-party developers who build alternative versions of VK on its open API.
+- We are not willing to compromise our values in order to increase our market share.
+- Our growth relies solely on our users suggesting to their friends to download and use Telegram.
+- If you have WhatsApp and your phone goes down, you don't have access to your messages. You can't send documents and it's not private.
+- Telegram's popularity is spread evenly across continents. We have a substantial user base in Spain, Italy, Netherlands and Germany. Also in Brazil, Mexico and Guatemala in Latin America, India, Malaysia, Singapore, South Korea, Saudi Arabia, Iran, Iraq and Uzbekistan, across Asia.
+- The best legislative initiative - is the absence of one.
+- My brother is a genius. When we went to Italy, he was on the local television channel as a prodigy, who could solve very sophisticated mathematical equations. He was only seven or eight years old but he could solve mathematical problems for fourteen year olds.

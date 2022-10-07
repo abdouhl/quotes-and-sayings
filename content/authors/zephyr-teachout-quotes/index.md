@@ -1,0 +1,106 @@
++++
+author = "Zephyr Teachout"
+title = "Zephyr Teachout Quotes"
+quotes_len = "100"
+description = "the best 100 Zephyr Teachout Quotes"
++++
+- And my whole life I've been focused on questions of anti-corruption laws, on constitutional law, and it's essential that the power of this office be maximized to stop corruption at the national level.
+- I hope that we increasingly shift power to local governments.
+- Women are routinely demeaned, dismissed, discouraged and assaulted. Too many women's careers are stymied or ended because of harassment and abuse. In politics, where I have worked much of my adult life, this behavior is rampant.
+- I care about dental care, and ending mass private and public surveillance, and funding schools so they can have small class sizes.
+- I'm an FDR Democrat, and I really believe that the most important thing is the institutions of political parties, and engaging in those institutions, and, where you disagree with them, speaking up and sharing your disagreement.
+- One of the more important things the Bernie Sanders campaign did is reach people who are political but not electorally political. They're political in either non-profits or community groups, but didn't see how important it was to get involved in electoral politics.
+- Normally, politicians lie because they want to persuade us of the truth of what they are saying. A candidate for Congress will claim that he earned a medal of honor when he did not, so that we will love and revere him.
+- So the job of building structures, building a constitutional structure, is not just to punish those who behave badly but actually to protect people from their own temptations.
+- Anti-corruption is a core constitutional value. It always has been.
+- The attorney general of New York state has a special authority and responsibility to preserve the integrity of businesses and nonprofits in New York under the state's own laws as well as under the U.S. Constitution.
+- We, as lawyers, must point out that unrestrained power is almost always abusive.
+- If we don't have a responsive democracy, all the debates about charter schools, and fracking, and high-stakes testing, and the militarization of police forces - all of which are issues I care about – they aren't real debates.
+- I'm going to Congress to break down the doors of power.
+- The Internet is an important organizing tool. But the goal of a campaign isn't to use the Internet for organizing; the goal is always to win, and to change policy and politics.
+- We need to pressure lawmakers to hold hearings on pending mergers, and pressure federal and state enforcers to use their full powers.
+- So paid media is when you buy an ad - typically in a presidential campaign that will be in Iowa, New Hampshire, the early states. It costs some money to make the ad, but the greatest cost is in actually placing the ad on TV.
+- Every politician should go and spend time and visit prisons and jails. Because if you are choosing to exercise this kind of power over another person's life, there's a role for that, but you have to know the kind of power you are exercising.
+- President Trump is taking foreign money through his businesses, which is in violation of the Emoluments Clause of the Constitution.
+- I represented a man on death row whose lawyers had spent all of eight hours looking into his claim of innocence. I met men whose lawyers had never looked into their backgrounds.
+- New York has really thrived both upstate and downstate when there are tens of thousands of small businesses all representing their different creative impulses.
+- My first job out of law school was representing people on death row in North Carolina, where I often saw the impact of hasty prosecutions.
+- Congress is corrupt, gridlocked, broken, dysfunctional. It's not working and we need it working again. It's not going to get fixed by people who are deeply, in one way or another, inside this really broken system.
+- A government should not become too big to fulfill one of its most basic functions: representation.
+- I joke about it being a millstone, but it never hurts to have a name that sticks out.
+- The federal government has shown little willingness to stand up to corporate monopolies, and use its powers under the existing antitrust statutes, including the powerful Clayton Act and Sherman Act.
+- I think a lot of campaigns mis-learned the lessons of Obama 2008. They overly focused on the particular tools, and less so on the fact that the Internet enables a kind of culture of trust to be translated into real power.
+- You may think of Google as a single organic entity, but in 2011 it bought a different company every week.
+- In my view, we need to break up Facebook from Instagram and the other potential competitors that Facebook bought up.
+- Corruption requires looking into someone's soul and making judgments about their intent.
+- The corruption that hides in plain sight is the real threat to our democracy.
+- Every constitutional standard is engaged in difficult but important line-drawing.
+- The public should have access to unfettered communication and commerce, and the Internet is increasingly the medium where that takes place.
+- I don't think we should reduce the corporate tax rate.
+- In the absence of relative equality - quid pro quo - a court might question whether there was an actual contract. If I give you a dollar, and you give me a mansion, our contract would lack quid pro quo.
+- I am not Pollyannaish about the depths of the challenges we face.
+- When elections are not democratic, even the most populist discussions become superficial, disconnected from real power; they are theatre.
+- Every district is going to be different, but if you wanted me to give advice to those candidates: Run your own campaign, the DCCC does not run your campaign. Figure out ways to raise money from small-dollar donors, and put some real energy into that because that will give you freedom to say no to big donors.
+- The key to fixing public financing is to free politics from big money.
+- So one of the things I want to focus on is how we can show how taking on private financing is taking on this fundamental democratic threat.
+- The tools Facebook provides make discrimination easy. Facebook has monopoly profit margins, so it could easily provide real staffing to protect against discrimination, if it wanted to. It doesn't want to.
+- A real economic development policy would address the root issues hampering business growth, like access to credit and marketplaces so dominated by giant companies that it is impossible to compete.
+- As attorney general, I would work with my colleagues in other states to launch a major antitrust investigation to look into the ways in which Facebook and Google are wielding and may be abusing their duopoly powers.
+- Creating systems where people feel like they're being punished for things they didn't do wrong breaks all kinds of trust and makes people feel like they're not being treated with dignity.
+- Quid pro quo has an interesting history. It's originally a contract law term, not a criminal bribery term.
+- Politicians are expected to spend half their time talking to funders and to keep them happy. Given this context, it's not hard to see how a bribery charge can feel like a technical argument instead of a moral one.
+- Everybody's always going to have some self-interest. When it passes a certain point, that's when it become corruption.
+- And increasingly, as people live online, we are used to making really snap judgments about somebody's character based on their Facebook page or the way their blog feels or look.
+- Mom and pop shops paying taxes while Amazon got billions just to come to town didn't seem right, and, post-FoxxConn, people are less likely to fall for the promised jobs numbers.
+- I hope the true public servants learn from this that they should not be afraid and they will get incredible grass-roots support if they call out corruption.
+- You build massive databases, you learn everything you can about the people in those databases, you figure out exactly how they can be useful to your campaign, and you ask them to donate money, door-knock, the virtual equivalent of being a sort of army of stamp lickers.
+- I propose a full day of live one-on-one debates on unannounced issues, with no aides to help or reply. Each candidate would be paired with another candidate for seven 60-minute sessions.
+- The work of being a citizen is hard and annoying, but it can pay off.
+- Dependence on private money to run campaigns causes pain to Republicans and Democrats alike - and business owners. It's time we did something about it. And public financing of elections should be the first step.
+- Most of the corruption in Albany is legal corruption, not illegal bribery. It comes from campaigns being funded by millionaires and corporations.
+- The core of my platform is to change the role of money in politics, support public education and break up monopoly power. All of these are fundamental prerequisites to a responsive democracy.
+- Parties are fun, but they don't create community.
+- Wealthy individuals have always had the capacity to influence politics, of course, but only after two key campaign finance cases - Wisconsin Right to Life and and Citizens United, have they been able to do it in such a large and blatant way.
+- I mean this is a revolution in how campaigns work - more money was spent by super PACs than by either myself or John Faso. So what that means is that if you're a voter in this district you are more likely to have heard from a super PAC than from me or my opponent.
+- It is an honor to join 'The Nation's esteemed editorial board.
+- One of the things I care about a lot is public financing in elections.
+- The structure of private campaign finance has essentially pre-corrupted our politicians, so that they can't even recognize explicit bribery because it feels the same as what they do every day.
+- After Citizens United, unlimited money could go directly to a corporate entity that can tell people who to vote for, with names and polling places included.
+- If the publicly passed campaign finance laws had not been struck down by the Supreme Court, Club for Growth Action would be illegal, and Heritage Action wouldn't have the SuperPAC threat to back up its small ad purchases.
+- The Internet doesn't just enable cool avatars and the shorter form. It also allows the deeper form: cross-linked blog posts, extensive research, simultaneous screens and raw debate footage that anyone can scan online, at any time.
+- There's this myth out there that self-perpetuates that candidates believe that although the populace cares about corruption, they're not going to vote on it.
+- When I was in college in the late 80s-early 90s, there was a sense that history was on a straight path toward democracy everywhere. Well, that's not true. It was also not true that there's a single era of oligarchy, because we showed we could do something about it.
+- Women's voices need to be in politics, and shaping politics from the very beginning, not serve as an afterthought.
+- It's always a fun game to go back and guess what long-past people would think.
+- Amazon's outsized power is looking less and less like smart business and more and more like oppressive politics - one company bullying us all.
+- A lot of organizations have pointed out that under public financing systems, you see a lot more candidates of color and a lot more women. But you also see the power base behind these candidates is more representative and far less exclusively wealthy.
+- Talking to Republicans who aren't leaders - that's not very difficult both on anti-trust and on campaign finance reform. I think it's a lot more complicated when you talk to highly funded leaders - that's the innate, deeply problematic part of our politics.
+- Facebook is a known behemoth corporate monopoly. It has exposed at least 87 million people's data, enabled foreign propaganda and perpetuated discrimination. We shouldn't be begging for Facebook's endorsement of laws, or for Mark Zuckerberg's promises of self-regulation.
+- We need to ban outside income for elected officials. Transparency alone is not enough; it doesn't solve the problem of creating outside dependencies.
+- Facebook and Google are essentially an advertising duopoly, and we have almost no idea how their algorithms work.
+- To be fair, money and politics never work in a directly straight line.
+- The science doesn't prove Common Core's effective. So I guess what I mean is science is an essential part of any decision-making process, and so is public involvement. And in the long-term, you lose legitimacy and power if you don't directly engage with the public.
+- It's one of those secrets that not a lot of politicians realize: The Internet is not a 10th-tier policy issue. It's not an add-on policy. It's something that affects everybody's life.
+- Refusing to grant clemency is a failure of one of the most basic jobs of being governor.
+- An intuitive part of the American ethos is a kind of protectiveness of the public's fear. We have to remember how unique that is. As scandal-ridden as we may be, we start with a basic expectation that it's not your job in public service to use it to help your friend.
+- Google has established a pattern of lobbying and threatening to acquire power. It has reached a dangerous point common to many monarchs: The moment where it no longer wants to allow dissent.
+- My family lives in Vermont. I'm a law professor and I spend summers researching and writing in Vermont.
+- The way we fund campaigns is a feminist issue and a race issue. If you want more representation, you can't say it's going to be really expensive to run for office and you need a rolodex of billionaires.
+- In some states, the attorney general is appointed, but in New York state it's an independently elected position. The New York attorney general has an obligation to the people first, to her conscience and to the rule of law, not to the governor, and not to the legislature.
+- It is time to call out Google for what it is: a monopolist in search, video, maps and browser, and a thin-skinned tyrant when it comes to ideas.
+- At a policy level, we can support protecting and serving as opposed to militarization or disproportionate response. Step one is making sure we don't militarize and actually call for a review of military equipment in New York police forces.
+- Voters have a responsibility to make a judgment with whatever facts are available on Election Day.
+- People traverse the dangerous journey to the US because of deep fear. They are often escaping brutality, even life-or-death situations.
+- It's said that history inevitably marches toward democracy, but it only leaves the possibility of democracy, and the constant threat that it would be eroded by big money.
+- At their best, new media are chaotic. The new technologies disrupt political pomp and glamour and engage people in an unpolished and unpredictable give-and-take. They also give citizens access to a surprising depth of raw information.
+- New York state's Donnelly Act gives power at least as great - many think greater - than that of the Sherman Act. We have strong consumer protection laws that can be used to protect against scams and frauds by corporate monopolists.
+- Corruption is when people in public office use that public office for private or selfish ends. This is one of the most central debates in the last 40 years in law, what is corruption.
+- I see the job of attorney general as the single most important legal office in the country when you can't trust the federal government.
+- There is so much we don't know about Facebook. We know we have a corporate monopoly that has repeated serious violations that are threatening our democracy.
+- Until the 1980s, candidates spent a fraction of their time talking to donors; just a few weeks a year, a little more right before an election. True, they'd fund raise from the wealthy interests, as they do now, but it was a minuscule part of their job: policy and constituent services were the heart of the work.
+- Amazon's capitulation to those opposed to their expansion in New York City is an epic moment for people power over an enormous corporate bully.
+- Collective decisions about health care and education are best answered on a local level.
+- One of the things that is so important, critical I think, in reading not just the founders but thousands of years as you put it, that discussion about corruption, is that you can't talk about the problem of corruption without talking about human nature.
+- I have always wanted to run for Attorney General, and I always wanted to have a baby, but I did not think I would be doing them at the same time.
+- Political corruption is eating our democracy out from the inside. Most Americans know that. But democratic and economic health can't be easily disentangled.
+- We fought a revolution to free ourselves from arbitrary power and the whims of a monarch.

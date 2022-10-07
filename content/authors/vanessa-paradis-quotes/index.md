@@ -1,0 +1,63 @@
++++
+author = "Vanessa Paradis"
+title = "Vanessa Paradis Quotes"
+quotes_len = "57"
+description = "the best 57 Vanessa Paradis Quotes"
++++
+- There are forms of art that I might not like to do myself, but I still have respect for the artists who create it.
+- When you meet the love of your life, it's just obvious and natural and easier.
+- I understand those who don't like me.
+- Love is the strongest and most fragile thing we have in life.
+- The red carpet is not something I really know how to work. It intimidates me. I feel very tiny.
+- I'm super lucky because I come home and I don't have to run errands and clean the house and do all that.
+- It's not my style to judge anybody.
+- Cafe De Flore speaks of love, its joys, its pains and its dramas - to love and to lose. This story upset me, I was upside-down, in the depths of myself.
+- When I started to record, I could sing in pitch, but that was maybe about it.
+- Sometimes you could be in an unhappy relationship; you are very much in love with someone, but it's making you unhappy and you think things can change and you can work it out.
+- I don't believe you can say 'forever'; I don't believe it exists.
+- My mum told me to have patience. It's about realising that when things aren't going the way you want them to, or you don't have inspiration, it will come.
+- The movies and the parts I'm being offered are becoming better and better.
+- You keep learning all the time.
+- I was for sure not prepared for fame when it happened.
+- I was born in a suburb of Paris, and I grew up there until I was 16, so there were always a lot of barbecues, a garden, friends.
+- The idea of a soulmate is beautiful and very romantic to talk about it in a movie or a song, but in reality, I find it scary.
+- You know, when I eat three peas, I'm pregnant. When I visit a city, I'm buying a house.
+- Nothing is ever for sure, but when something in love doesn't work from the beginning, it's never going to work. Don't push it.
+- I love clothes but I have spent so much of my professional life creating an image of one kind or another that it is nice not to care about it in life and let your skin breathe.
+- My daughter loves singing above all else.
+- Not everyone is lucky enough to be given space and trust.
+- Well, my type is obviously creative. Creative, with burning eyes and a pretty mouth.
+- I am a complete sentimentalist when it comes to clothes. I have so many memories attached to them that I can't throw anything out.
+- I realize how unique my path has been. And I'm thankful for that.
+- 'Singin' in the Rain' was the one for me. Yeah. I mean, Gene Kelly could just sway and never fall. He'd just sway and sway as he danced.
+- It's a courageous thing to do something that doesn't have rules or limits.
+- You fall for who the chemistry is with.
+- How many times do I have to repeat this: my childhood was fantastic.
+- If your heart is in love, you can do anything.
+- As long as you're fully present in what you're doing at the moment, you're doing it.
+- I was an only child until I was 11 years old, which is when my sister was born. So for 11 years, it was just me.
+- I'd rather sing a good lyric written by someone else than one of my own that is terrible.
+- I do sometimes strongly hope that in a past life, my most recent life before this, I was absolutely horrible, evil, hideous. Because otherwise - well, hell, to even things up next time around, I'm going to have to pay for this one, am I not?
+- I liked to play dress-up.
+- In the winter I separate, in the summer I marry. It's been 15 years since I've been getting married every year.
+- The songs from your childhood, when you hear them you get chills all over.
+- It has been extraordinary, wonderful, I've been three feet off the ground since I made that first record.
+- I mostly want to be friends with my children.
+- If you have the support of people with a heart and a brain, then you're good.
+- Fear can make all of us do the wrong things sometimes.
+- I just like putting outfits together without much thought and seeing what the outcome is.
+- Who said that artists should sell their soul, expose everything about themselves?
+- It amuses me when I'm described as 'chic.'
+- I don't like things set in stone.
+- I could sing in English before I could understand it because I phonetically learned it from the musicals.
+- It's difficult when you want it all.
+- People don't get through to the essence of you right away - it's always the famous 'girl' or the famous 'girlfriend'. I'd rather be known for myself.
+- I love the romance of 'let's get married,' but then, when you have it so perfect... I mean, I'm more married than anybody can be - we have two kids. Maybe one day, but it's something I can really do without.
+- I hate, for example, whenever you hear someone say, 'You have work at being a couple.'
+- Life is like the ocean, it goes up and down.
+- Women are the real superheroes because they're not just working. They have a life and everything.
+- My children are grown now, they are more independent.
+- I don't have famous neighbours and if I did, I'd avoid them. I don't live the jet-set.
+- I love what I do.
+- I don't have the recipe for happiness, but I think the engine is simply having the desire.
+- The only thing I want to say is, I know I'm not Einstein, but I'm not the queen of the imbeciles either.

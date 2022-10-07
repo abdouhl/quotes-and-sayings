@@ -1,0 +1,74 @@
++++
+author = "Emma Weymouth"
+title = "Emma Weymouth Quotes"
+quotes_len = "68"
+description = "the best 68 Emma Weymouth Quotes"
++++
+- The funny thing about living at Longleat is that there's no 'typical' day, but I usually wake up around 6:45 A. M.
+- I absolutely love watching 'Strictly' every weekend and I can't believe that I'm getting the chance to be on this series.
+- I just call myself Emma.
+- I will forever be grateful for 'Strictly' and put my heart into each routine.
+- I'm different to how I used to be but then I think having a baby changes everyone.
+- Everyone is just so wonderful at 'Strictly.'
+- I gave up ballet when I was four because I was so shy.
+- I did 'Strictly' with my whole heart, my whole soul. I genuinely put everything into it. To be part of it is so amazing.
+- I got called back for 'Game Of Thrones,' and they nearly cast me.
+- I am so grateful for my boys. They're my entire life.
+- Oh no, I would never presume to give anyone advice, I would not be so bold.
+- I went to hospital and they gave me an MRI scan and thought it was a non-cancerous tumour, because I had bled in my pituitary gland. It was very painful, so they ended up delivering John early. That whole process was terrifying. All I cared about was John.
+- I'm not super-easily offended, but it's a problem when someone's making you feel different or separate because of your race.
+- I'm like a cookie-making machine sometimes - they go so quickly and I have to make more.
+- I'd forgotten how tiny new babies are.
+- There is no textbook guide to family life. You just have to try to find a way through it.
+- Do I believe in soulmates? I certainly hope so.
+- I have two boys with Nigerian heritage and that's the most important thing but race shouldn't define you. You just have to have a thick skin.
+- I feel like having children - and the illness I had when I was pregnant - is probably more important than anything else to the person I am now. I'm massively aware of how we can take everything for granted - how fragile life is.
+- So many people struggle to have children and it's not unusual to go down a slightly different path if you need to.
+- I just want to live to see my children grow up.
+- My race was never an issue in my life until C and I got engaged, after that, no one could stop talking about it. I pray for the day when it becomes less remarkable because race does not define you.
+- One minute I'm inside this magical glitter bubble, then it's straight back to mum-life. Literally. That is my life!
+- I wouldn't have liked to have gone to boarding school, but for boys it's different. Boys can thrive at boarding school. I assume they really love it.
+- I never imagined 'Catwoman' would be part of my 'Strictly Come Dancing' journey. But when I turned up to the first of my top secret meetings about joining the show in April, that was the codename I had to whisper to hotel staff, just in case anyone found out that I was set to be a part of it.
+- Inclusiveness is about freedom and fairness.
+- Pomellato Jewellery makes such timeless pieces. I have a chunky gold bracelet that goes with everything.
+- I am athletic and I exercise a lot, so I might look like I dance, but I don't.
+- Having a baby is the best thing in the world.
+- Ceawlin is good at both business and the fun side. We laugh at the same old jokes, and the boys get funnier every day.
+- I have long held the ambition of my own TV chef programme.
+- But the more honest you are, the more people open up in return.
+- I was taken aback by the amount of interest, due to my colour, that exploded when we got engaged. It has developed into a good conversation which has changed the way Britain is adapting. I am glad to be part of that, though I didn't do it on purpose! I just happened to fall in love.
+- I have a real passion for food - I love to cook for my family and friends and relish any opportunity to entertain.
+- I like the traditional way of doing things.
+- It's important for children to understand how important their diet is. What you eat impacts on how you feel, as well as staying fit and strong, so it's great to get that into your children's consciousness as early as possible.
+- My mum was very hands-on - she was a brilliant mother - and I think when I have children I will probably be the same.
+- I've been lucky that I haven't encountered much adversity growing up in London and having friends from all different backgrounds.
+- There are so many different ways to make your family. I'm just super-grateful to have my children.
+- My mum originally taught me to cook.
+- It has been my ambition, for some time, to bring the heart of the house back to life. 'Emma's Kitchen' is the result of that ambition - a space for me to share my passion and some of my favourite recipes.
+- I was made more 'aware of myself,' from the outside in, when I got engaged.
+- I really enjoyed being pregnant up until the point when the terrifying pains began.
+- When you fall in love and get married you're excited just to be in love and getting married.
+- My race was never talked about until I married into this family.
+- Just get on with it.' That's a life motto.
+- I've always, always wanted to present my own food show - one that includes a little bit of lifestyle, too. That's my ultimate goal.
+- Making crumble is one of my favourite things in the world - I add oats, berries, honey and cinnamon.
+- It's unique living in a situation where your house is open to the public and you are part of the attraction - or at least that's what it feels like.
+- I would love to keep dancing. Doing 'Strictly' has been so wonderful.
+- My dad's Nigerian and I grew up in London, and that's just how it is.
+- If I'm in London I might meet with the fashion brands I work with or be at Vogue, where I'm a contributor.
+- Not in my wildest dreams did I imagine I would be living in a safari park!
+- Whatever I've done, if it's to represent something, to move something forward, if that's how it's being put, I'm thrilled. But it's really about our children's generation. They're three and one. Can you imagine, when they're in their 30s, what things will be like?
+- I could keep McQuiston, but growing up it was a hard-work surname. Everyone would always ask me to spell it or just get it wrong. I could call myself Emma Weymouth, or maybe I should take the family name and become Emma Thynn.
+- It's exciting to hear lions roaring deeply at 11 P. M. at night. It's mad.
+- I do believe in fate - I think you have to. It helps make sense of things.
+- I'm always cooking and can be found in the kitchen rustling up something for myself and the boys.
+- There has been some snobbishness, particularly among the much older generation. There's class and then there's the racial thing.
+- I hope I dance with more life than a cleaning implement.
+- I want to be a young mum.
+- You forget everything, nothing else matters once you have a baby.
+- Do you know what, before 'Strictly,' I've always regretted not training as a dancer.
+- I'm a big believer in honesty, and in this Instagram world, it's important to remember that not everyone's lives are perfect.
+- I auditioned for everything. It was daily, relentless. Independent films, chewing gum commercials, television shows.
+- I'm a London girl.
+- I'm having my portrait painted, for example, so that will be then put up at Longleat and hopefully stay here for a long time. You become part of a long line that goes back and will hopefully continue. That's what you want. You just want the house to survive, and you do everything you can to maintain it, look after it and support.
+- While I'm very into fitness, I'm much more used to swinging kettlebells around than my actual body.

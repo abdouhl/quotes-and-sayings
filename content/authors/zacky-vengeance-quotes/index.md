@@ -1,0 +1,93 @@
++++
+author = "Zacky Vengeance"
+title = "Zacky Vengeance Quotes"
+quotes_len = "87"
+description = "the best 87 Zacky Vengeance Quotes"
++++
+- If we were to find a drummer that we were comfortable with and who we felt could really become a part of what we're about, it'd be great. But would we ever rush to find a guy just get back on the road? No. I think we'd rather go down with the ship.
+- Iron Maiden and Metallica are bigger now than they ever were. They're playing stadiums across the entire planet. Even though it seems like their heyday was back when MTV and the radio played their songs all the time, the truth is that they've gotten bigger now because they play all the time, and people know they're going to get a great show.
+- Once you can get a fan to listen to an album a handful of times and really have a lot of substance for them to grasp, then you're looking at having a fan that really appreciates what you do for life and can appreciate coming to see it live.
+- We go out there every night, and we fight the battle. We don't care about people who don't think we're true metal. We hope to change their minds. I have total faith.
+- There's people that have never heard our album. The most they've seen is either our video on 'TRL' or our picture on the cover of magazines.
+- There are so many people involved in making an album, and naturally, all you want to do is show it to your friends and family. You just can't do any of that because all it takes is one morsel of information on the Internet. Within seconds, it's around the whole world.
+- That's what bands like Pink Floyd and bands like Rush and even the Metallica of this world have, which is long, ambitious songs that pull in all different directions.
+- Basically, we're just a bunch of kids who got together and try to use what we have and try to learn from each other.
+- My dad played some guitar, and both my parents are fans of music and have huge record collections.
+- A great way to get your rhythm playing together is to work with a drummer, preferably someone that has a good groove and plays solidly in time.
+- We're always talking and plotting and discussing what we can do to give our fans the best possible experience and leave everyone going home with having an amazing time and a memory that will last a lifetime.
+- I've had the chance to watch Metallica's James Hetfield from the side of the stage night after night, listening to his monitors, and his playing is so perfect. Slash is an amazing lead guitarist, but when you listen to his rhythm playing, you can hear how he pulls everything together with such a great feel, which is the most important thing.
+- We're in the business of making fans that will last with us a lifetime. In order to do that, you've gotta give them something special.
+- We didn't say, 'Hey, we're gonna pick a bunch of cover songs,' or, 'We're gonna write an original song that has to sound like this, because we're a metal band, so we're gonna cover some metal songs.' We did the opposite. We just said, 'We're gonna have fun with these songs, and we're gonna try different things.'
+- Everyone likes to have fun. But when I look back on my life, I'm not going to say, 'Oh, we're the crazy party animals.' I'll look back and say, 'Wow, we did take this seriously.' We had fun while we were out doing it, but it's just the only thing you read about: 'They're a bunch of party animals.' To be honest, that's not true.
+- All the song choices that we've picked are unique in their own right. They're fun, and it's really just to engage our fans.
+- We're trying to do something nobody else is doing right now.
+- We wanted to write the kind of songs that can really cross any language barriers, any borders, and resonate with fans around the world.
+- Everyone loves to complain that there are no real bands on MTV, yet no one wants to step up to the plate and try to change that.
+- When you start running out of things to do on a guitar, you have to find other ways of making music with your instrument.
+- We've never tried to write radio hits. If I hear our song on the radio, it's cool, and I'm proud, but it's never a goal.
+- I think everyone's trying to come up together and bring up other bands along the way, and we've always been really blessed to have bands like Metallica and Iron Maiden take us under their wing and say nice things about us.
+- We had to take full advantage of the fact that we wanted to be one of the most creative bands out there that's getting backed by one of the biggest companies.
+- I worked a lot on our album cover, and I didn't just want to post it on our website one day and move on. We wound up breaking it into 18 pieces and hiding them on fan sites all over the Internet and then posting clues, so fans could put together the puzzle.
+- Not everyone is going to love you. Not everyone is going to like what you do, and you see a lot of people don't want to let go of the bands that they love. They don't want to move forward. They don't want to let new things come in; they're scared of change. They're scared of new bands taking over their genre. They're just scared of change.
+- The first review our band ever got - when I was 17 years old and we had just released our first EP, and this tiny little magazine wrote a review on it, and for that month, we were the best album of the month, and we were also the worst album of the month. We won best and worst album of the month in the same magazine.
+- Basically, everything I've learned on guitar, I've learned from listening to my favorite albums. I never had any formal training. My teachers were Dimebag Darrell and Slash and the guys in Rancid and Slayer.
+- I wanna keep people on their toes, and that's just kind of how we've always operated.
+- On our first album, 'Sounding the Seventh Trumpet,' we were listening to more obscure heavy metal bands and hardcore bands.
+- It was a big deal for us to be on Ozzfest, especially as one of the main headliners and being the band that wasn't announced: the mystery band. We'd never played the second stage at Ozzfest, and all of a sudden we're on the main stage.
+- In terms of content and instrumentation, I feel we have been extremely ambitious on every one of our albums going back to high school. We were the first screaming hardcore band to put a big ballad on our record.
+- When you see a band, you want to see characters.
+- We're very historically tried and true when it comes to our albums. We pick the best songs; we get rid of the songs we feel don't fit on the album, and we don't work on remixing or remastering albums.
+- We're focused on making our fans happy, keeping each other happy, so we can do this forever.
+- When we called each other and got the call that Jimmy had died, literally, it all ended right there. Everything we've ever known as human beings, everything we've ever known as a band, changes at that moment, and you can't think clearly.
+- To be honest, we never, ever let business weigh down the creativity of this band.
+- From day one, we've always gotten backlash for certain outlandish ideas that we've had and presented. That's also kind of been the driving force that's pushed us forward.
+- Everything an artist does is scary, but we do it anyway. If someone tries to steer you off-course, push them outta the way and get back on course. Never giving up - that's what I truly believe all the greatest bands have done.
+- We wanna go back to Southeast Asia and just do it right for them.
+- I'd like to think that we will have had something to do with a shift back to heavy rock. That's what we've wanted all along, and we knew there'd be fearless steps to take to achieve that.
+- 'Waking the Fallen' truly encompasses everything that Avenged Sevenfold was at that time. It was us being fearless, us showing our roots in heavy metal, punk, rock n' roll, and not being afraid to try everything under the sun when it comes to writing music.
+- We're not a Screamo band.
+- I absolutely remember when I decided upon playing Ernie Ball strings, and it was right then and there at the guitar store up in Seattle when I picked up my first guitar ever. They said, 'What kind of strings should we put on it?' And I just looked at the brightest color package and said, 'That one!'
+- With every album, I write above my ability, and my job as a guitarist is to catch up and be able to play it live. The thing about practicing is that once you master something, you don't have to remaster it. You just keep moving forward.
+- A lot of people have ideas and opinions on what Avenged Sevenfold should be or what we should do, and I think our No. 1 rule is to always make sure we never listen to any of that and to always do what we believe.
+- You carry on knowing that there's something so much more important than yourself to deliver to millions of fans across the world, to all your friends, and to yourself.
+- After 'City of Evil,' the world was still kind of apprehensive about Avenged Sevenfold. They didn't know if we were a serious band or just some kids trying to play really ambitious music with crazy guitar parts that would be here one minute and gone the next.
+- I love listening to Led Zeppelin and classic rock albums from the Seventies. They're just so brilliant because they breathe.
+- We have been harnessing every aspect of what makes Avenged truly unrelenting and building off of that.
+- What makes Avenged so exciting to me musically is that people either love us or hate us, but nobody sounds like us.
+- I have no formal guitar training whatsoever, so it's been fun learning sweep-picking techniques. Working on these types of licks has thrown a whole new collection of tricks into the mix.
+- To be honest, we spent many years at Warner, and in the very beginning, there was a very passionate team that worked alongside us on a daily basis. Every year that went by, we would lose just about every single person that worked directly with us, to the point that I honestly couldn't have picked up a phone and gotten one person who knew me.
+- We've shown everyone we are musicians first and foremost: we'll produce our own albums and play The 100 Club. We earned people's respect. We're not the band on MTV, wearing a bunch of makeup. We've proved we're the real deal.
+- We wanna be on the frontlines of everything new and exciting. The old world order of putting out four singles before you release an album is so boring to us.
+- Mike Elizondo had an incredible array of guitars in the studio, but they were all right-handed.
+- I like being able to do dueling leads, and it's fun to be able to shred.
+- There's always going to be haters, but those people are few. We're not too worried about it.
+- You always have to try new things, and that's the one thing that we've learned from all the greats - every album isn't gonna be every fan's favorite, but as long as you keep switching it up and making new fans, it's really about being persistent.
+- It's just so obscure to take a folk song in a different language and be a pretty well-respected English-speaking rock band and totally take a song and twist it around and have fun with it.
+- We like to be in touch with our fans, but we're also very private. 'Cause, to us, it's not about Zacky or M. Shadows or Synyster Gates. It's about Avenged Sevenfold; it's more important than any one of us.
+- I remember when I was a kid, every time the Beatles were on the radio, my dad would say he'd give me a dollar if I could tell him what band it was. So by the time I was about nine, I knew to just say 'The Beatles,' and I'd get a dollar out of it.
+- With any success, a lot of voices come out, and you start hearing a lot more opinions on the matter. We've provoked very strong reactions in both directions since day one.
+- I think there's a whole group of kids out there that don't relate to the glitz and glamour of hanging out in clubs and partying all the time. So I think some people are just more real than that, and I think our fans are those kind of kids that need something to relate to, and I think we're the band to do it.
+- I think, as long as people have a strong opinion, whether they love or hate us, I think we're doing something right.
+- I remember what it felt like when I was young, and I looked up to someone, and they would pay me just an ounce of attention. And some of the bands I listened to when I was young probably never even sold any albums, but it didn't matter to me. If I'd go up and say, 'Great show,' it would be amazing that they even would acknowledge me.
+- Just by nature, we're always filled with so many ideas and want to cram as many ideas into a song as we can, and I think that gave us a lot of our signature sound.
+- One of our biggest pet peeves is listening to bands that use harmony guitars for the sake of it. If you can't figure out how do something different than Maiden, UFO, or even Boston, then what's the point?
+- We really wanted to create an album that had no boundary or limit to it. There's nothing to say that we couldn't release a song that belongs on 'The Stage' 20 years into our career. We want it to be an album that constantly grows with what we want to do, and that's what we did.
+- I can honestly tell you, if it wasn't for our fans, there would not be Avenged Sevenfold right now.
+- I think we are really in touch with what's going on around us in the world of music, trying to push the bar forward and try new and exciting things that our fans can react to.
+- I've always loved big riffs and chunky guitars.
+- Only a world spinning out of control could inspire the music and vision we have now.
+- Even when we were at that point when we had very few fans, we never felt like a small band. We always felt like we had a big purpose.
+- We're not the kind of people to just take a break and say everything's going good, you know, let's rest on our laurels, act like rock stars - we take it very seriously, and we certainly aren't just celebrating and doing a victory lap.
+- I can't honestly say with a straight face that every Avenged Sevenfold album is my favorite.
+- When we were recording, sometimes I wondered if what we were doing would even be possible to play live.
+- That is one thing about playing with Guns N' Roses and Metallica: everyone wants to interview you.
+- I think the most important thing to putting on a good show is to always mix things up. Sometimes we wear makeup; other times we don't. The point is, you'll never get the same Avenged show twice. I think it's really important to be theatrical. I mean, look at Iron Maiden!
+- This country is filled with remarkable people. One of my best friend's families is from Iran, and they're the most American family of all time. Some of the best people that I've ever met are immigrants.
+- With 'Hail To The King' - our last album - we obviously wore our influences on our sleeve, and it was a blatant attempt to turn on our younger generation of fans to more classic-sounding metal.
+- For us to dial back a little bit and have a little more straightforward, singalong appeal was a challenge. In order to do that, we had to throw away a lot of stuff.
+- It's always been a conscious thing for us to do whatever will separate us from the pack and make us happy musically.
+- Our first radio single, 'The Stage,' was eight-and-a-half minutes long. Unabashedly, we wanted to push the limits musically, lyrically, and instrumentation-wise.
+- We wanted to incorporate lights and the like to really accentuate the music. We play mostly small venues, so we don't use it overboard by any means. The most important thing is the music. I think we do a good job of letting that show.
+- I think people have the right to love whoever they want, and I think that women have the right to do whatever they wish to their bodies given the circumstances.
+- We wanted to write songs that we really like that incorporate everything. It seems a lot of bands want to stick with one thing. We didn't want to be scared to do anything that we wanted to do. We didn't want anything to hold us back. We wanted no boundaries.
+- When we were trying to come up with a concept for our music video for 'The Stage' we basically run through a lot of different ideas, and ultimately, I sat and studied the lyrics that Matt had written - and they really resonated with me.

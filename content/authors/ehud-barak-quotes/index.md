@@ -1,0 +1,93 @@
++++
+author = "Ehud Barak"
+title = "Ehud Barak Quotes"
+quotes_len = "87"
+description = "the best 87 Ehud Barak Quotes"
++++
+- Unfortunately, you cannot let your neck be kind of cut as a gesture for your neighbor, even if it's a good neighbor.
+- We are living in an open world. There is a freedom of speech and, clearly, freedom of speculation.
+- The Middle East is a region where predictions go to die.
+- I'm not afraid of elections. I've won every election I've fought in.
+- If Israel does not find the way to disengage from the Palestinians, its future might resemble the experience of Belfast or Bosnia - two communities bleeding each other to death for generations.
+- I am confident the Obama administration will work professionally with any Israeli government.
+- Israel will continue to act proactively to prevent the transfer of heavy missiles or advanced air defense systems from Syria to Hezbollah in southern Lebanon, which, of course, carries the risk of a military showdown.
+- I'm not a tycoon or anything like that. Does my property amount to several million dollars? Of course it does.
+- The Syrian rebels, weakened by infighting, have also been victims of the growing rift between the U.S. and its closest Arab allies.
+- I hope any government formed in Egypt will understand there is no choice but to maintain the framework of international agreements, which include the peace agreement with Israel.
+- In Israel, generally speaking, politics is much more familiar than any other place. We all know each other.
+- Saddam Hussein has set an example of defiance, especially against the first President Bush, that other Arab leaders cannot and should not emulate; the example leads only to empty gestures and developmental stagnation, both of which the Arab nations have had enough of already.
+- Israel is the strongest nation in the Middle East, but we have to apply our strength wisely.
+- Ladies and gentlemen, the relevant question is not when Iran will get the bomb. The relevant question is at what stage can we no longer stop Iran from getting the bomb.
+- I believe President Obama means everything he says about sticking to the unprecedented backing of Israel and keeping all options on the table against Tehran, as well as countering its adventures in Syria, Yemen, and Iraq.
+- When you launch a surgical operation, you must already be well deployed to follow it through with larger forces. That complicates matters: you need to be ready for a full-fledged campaign on the operational level and have the diplomatic backing lined up as well.
+- In Israel, there is a peace camp that can convene 200,000 people in central square of this city, on very short notice, and there is a major movement among academics, politicians, thinkers, and public leaders for peace, even at a painful price. On the Palestinian side, you can find them individually here and there, but there is no public movement.
+- I respect General Halutz very much so.
+- The first intifada, I was then commander of Central Command, commanding the West Bank, basically. And I know to what extent the first intifada was a popular uprising.
+- I became a prime minister within four-and-a-half years, the shortest kind of career ever in Israeli political history.
+- As long as in this territory west of the Jordan river there is only one political entity called Israel, it is going to be either non-Jewish or non-democratic. If this bloc of millions of Palestinians cannot vote, that will be an apartheid state.
+- Assad wanted Israel to capitulate in advance to all his demands. Only then would he agree to enter into substantive negotiations. I couldn't agree to this.
+- Who can guarantee that if we allow the Palestinians to establish a state, we won't find rockets there as well, half a mile from the airport or 10 miles from Tel Aviv?
+- International legitimacy is a fundamental source of power for Israel nowadays.
+- I don't feel opportunistic ever, in anything.
+- There is a need to accept a limited disruption of civil liberties in order to penetrate terror.
+- I will not discuss future hypothetical situations.
+- Prime Minister Menachem Begin ordered the destruction of an Iraqi nuclear reactor near Baghdad in 1981. This action delayed an Iraqi bomb by at least 15 years. The whole world condemned Israel - only to realize later how farsighted it had been.
+- Israel cannot afford to be duped.
+- I think first of all that Iran is a problem for the whole world.
+- As prime minister, I was the Israeli leader who walked the greatest distance in his offers to the Palestinians.
+- The Palestinian Authority cannot hold the stick at both ends: to incite violence, to participate in it, and to tell the world how - what kind of underdog they are.
+- The Islamization process in Arab countries is very disturbing.
+- ISIS has never fought a real battle.
+- There is a thin line between peace of the brave and peace of the hostage... between compromise - even calculated risk - and irresponsibility and capitulation.
+- Once Iraq becomes a nuclear power, the very decision to go to war against it would become a totally different ball game.
+- If you establish a right unity government, you create an effective platform to make... decisions because you have wider support of your own party.
+- Israel fits into the zeitgeist of our era. It is true that there are demographic threats to its existence. That is why a separation from the Palestinians is a compelling imperative.
+- Either we destroy world terror or world terror will destroy us.
+- Russians in top positions always told me, 'We don't want to deal with our allies the way that the Americans dealt with Mubarak,' which is a very live example in the minds of many.
+- Since the Six-Day War, the whole world, which is the real arena of battle between us and the Palestinians, believes that Israel is right in regard to procedure, namely problems and disputes should be solved around the negotiating table.
+- I don't hate people. I just accept missions.
+- I know that I am absolutely reliable. Absolutely.
+- A strong, responsible Israel can become a stabilizer in such a turbulent region.
+- If I were a Palestinian of the right age, I'd eventually join one of the terrorist organizations.
+- I do not believe the efforts of the international community to stop Iran's nuclear program will bear fruit.
+- War is no picnic. Wars should be prevented, and if you can't prevent them, you have to put them off.
+- Toward the Palestinians, Israel can only give. But when dealing with the entire Arab world, Israel can get a lot.
+- There is a perception across the Middle East that America is weakened. I believe the perception is wrong. The United States remains the world's mightiest military, economic and diplomatic power by far, with reach and abilities beyond rival.
+- I'm in the government to make sure that if there's an opportunity to make peace, it won't be missed.
+- I delivered lectures, and I was also a consultant for international companies in finance, both private equity and big venture capital funds.
+- One of the lessons learned in the Middle East is to never try to anticipate the other side's moves.
+- I don't do anything to impress anyone, quite successfully I can tell you.
+- We want peace, but not at any price.
+- An independent, strong, thriving and peaceful State of Israel is the vengeance of the dead.
+- With the globalization, it's difficult for governments to impose decisions on private companies.
+- I tend not to believe radical Muslim movements.
+- Iran sees India, China, Pakistan and, allegedly, Israel around them with nuclear weapons.
+- Hezbollah will support Assad to the end because his continuing hold on power is critical to its own survival.
+- It's the role of a government to defend its soldiers and its citizens.
+- I fought against Palestinians. I saw them.
+- The aim of the Palestinian terror is not just to kill Israelis but also to break the will of Israeli society in order to dictate a political solution. Israel should never yield to this terror campaign.
+- Israel's secret services are allowed to profile.
+- To think that you can - as a Zionist, Jewish independent state at the end of the 20th century - rule over another people for generations without having any consequences - it's ridiculous.
+- Israel is much more effective when the Israelis are convinced that we are on the moral high ground: that we are acting not just out of might, but also out of right.
+- Iran poses the most serious long-term threat to regional stability.
+- You can easily justify to anyone about the need to keep supporting Israel. We get very generous support. We need it.
+- Benjamin Netanyahu seems to avoid any initiative.
+- The red line must be drawn on Iran's nuclear enrichment program because these enrichment facilities are the only nuclear installations that we can definitely see and credibly target.
+- When an army doesn't want to fight, you don't need much experience to win.
+- I know Fiat plans to start manufacturing cars in Iran. This is wrong.
+- I'm such a failed politician that all of my rivals have disappeared, on both sides.
+- Sometimes you have to subordinate strategic considerations to tactical needs.
+- History never repeats itself in the same way.
+- I have acquired - some would say deservedly - quite a few rivals: former Israeli politicians, some of whom at their height were stars beloved by large parts of the public. But today, they aren't in politics, and when they sit alone in their room, they say to themselves that Barak is the one who showed them out the door.
+- Try to think for your own why the Russians and the Chinese do not like the idea that whoever takes aggressive steps to keep order within his sovereign borders should not accept others to intervene physically.
+- I am the Israeli leader who met most with Arafat.
+- They say in the Middle East a pessimist is simply an optimist with experience.
+- Leadership can change its mind; leadership can open its eye. Leadership can even be replaced.
+- Yes, the world is short of perfect.
+- The Labor party under my leadership is working to bring the Israeli people together from all nationalities in the spirit of the scroll of independence.
+- I'm no wealthier than Bibi Netanyahu or Arik Sharon. I don't feel that I'm more hedonistic than Ehud Olmert, or Yitzhak Rabin or Shimon Peres.
+- I don't think that the Iranians, even if they got the bomb, they're going to drop it immediately on some neighbor. They fully understand what might follow. They're radical, but not total mishuginas.
+- I cannot penetrate the soul of Arafat. I cannot know in advance whether, behind all the masks, he's the kind of leader who can reach an agreement or whether he wants to be the Moses of the Palestinians, staying in front of the river and not crossing into the promised land.
+- I think that Jordan is strong. I think that they will hold on. I believe that they've already opened their parliament and their system, the press and others, to many voices... And I hope and wish that they will remain stable for a long time.
+- Israel always has a special filter to look at things, and that is the attitude toward Jews.
+- There is no entity in the world that will dare attack Israel with chemical weapons.

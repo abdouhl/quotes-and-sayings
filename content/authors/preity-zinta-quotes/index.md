@@ -1,0 +1,51 @@
++++
+author = "Preity Zinta"
+title = "Preity Zinta Quotes"
+quotes_len = "45"
+description = "the best 45 Preity Zinta Quotes"
++++
+- I lost my father when I was 13 years old. He was a great man, my father, and very intelligent. I love him very much. I believe it's very important that parents have a personal connection with their children. It helps kids feel more secure, have a feeling of family, makes them feel loved.
+- I'm an actor, and I keep observing people and their reactions to figure out what they are thinking. There's only so much you can do on your own, so you have to keep learning. Art imitates life.
+- I moved to cricket at a time when I was at the peak of my career, and I can guarantee you that no one else from Bollywood would have done that.
+- You know what's the worst part about being an actress? It's the pressure to look gorgeous all the time and to behave perfectly. But I'm not perfect; nobody is.
+- Yes, you have to be brave enough to take steps that your heart is telling you to take. Because when I decided to go into cricket, not one person told me I was making the right move. At that time, nobody thought the IPL would become so big. I was nervous at that time, because suddenly I was in an uncomfortable spot.
+- When you step away from doing something that you have always been doing and then you return to it, you have a different perspective. You get that desire and the will to strike at everything.
+- My mother always tells me that when I was a little kid, my first ambition was to be a truck driver, and after that, I went through everything from wanting to be a Prime Minister to an air hostess, but never an actor. So I became one, and it was a great journey. I learnt a lot, worked very hard.
+- To act, you must know pain. You must know what it means to be in love, what it means to be rejected.
+- I have this whole thing that when God gives you more that you have imagined, you should give it back.
+- I still love Delhi but get scared of the madness sometime. I know that my fans love me. But it gets a bit tough to handle when, in their excitement, they start touching and poking you to see if you're for real.
+- I cannot starve myself. I'm a foodie! I make fabulous pastas, Indian food, parathas and club sandwiches!
+- If some actress thinks she is sexy and she can dance, it's her choice. I do what I want to do, and I set my own benchmark. I will never compare myself with anyone.
+- If there is honesty in your face, the battle is won. It doesn't have to be the most beautiful face in the world. The audience can relate to you then. They feel love, not lust, for you.
+- I've learnt that there's a soul mate somewhere in this world. Till you don't find that person, the search goes on.
+- It's not that acting was something I'd always wanted to do. I had no formal training; I'd never really imagined I'd be an actress. Business was something that had always been in my mind, but when I got into acting, I learned everything on set, and for me at that point, I wanted to excel at what I did.
+- If women want to be treated equally, then they can't ask for sops and whine about not being treated equally. All I'll say is no guts, no glory for men or women.
+- Shopping is a lot of fun, but I hate trying on clothes because I think I've done too many costume fittings and trials. I hate trying on clothes. Shoes I love. I mean, I love shoes. Anywhere, any place, any time, you take me to a shoe store.
+- I'm glad I made business investments, because it gave me the confidence financially to make brave choices. If I hadn't done that, I'd still have been trying to play 19-year-olds in films. I know there are other avenues for me.
+- I have grown up in Delhi in a way, and I keep coming here often. But, and I am sorry to say, I'll always be nervous when in Delhi. In my college days, I have had my bum pinched around so many times. So yes, in Mumbai, I can just walk around and do what I want to do, but in Delhi I'll always be scared.
+- Two things in India are religion - one is cricket, and one is movies - these are two things.
+- In my career as an actress, I have never got involved with anybody from the world of films. I have always kept my professional and personal life separate, as that's my policy.
+- What I've learnt is never to work with the person you are in a relationship with because sometimes you need a break.
+- Acting can truly take a toll on your nerves. I mean, we have to be larger than life. Worse, I've seen actors acting off the sets, too.
+- People in India like to touch a lot. It's not very nice for any girl to be touched by strangers wherever they want. You wouldn't do that to your sister or mother, but just because one is an actor, they think she is your property.
+- Just like a script, you need to keep a business plan to yourself.
+- I am always friendly with people. When media asks me for a picture or interview, I readily do it. However, I wouldn't like them clicking my picture when I am eating or when I visit a temple. I don't want to be big in front of God.
+- In 2008, I just decided that there will come a time when I am dead and gone, and I only have a body of work to show. That was when I did films like 'Last Lear' and Deepa Mehta's 'Heaven On Earth.' They were serious roles.
+- Luck always favours the brave. And you must remember that brave are the people who follow their heart; brave are the people who take chances in life. Which also means you have to say no sometimes. I believe the power of no is greater than yes.
+- I think no one but me has the right to write about my life as I want to write it in a particular way. I don't think any other person will be able to tell the story of my life like how I have approached it. It works best when it's written by someone who has experienced it herself.
+- Films are a part of my being, they don't define me.
+- As an actress, I never went to film school, and I think if I had gone to film school, I would have started with a great advantage. If you have a strong intent to do anything in life, you can do it, but it always helps to have formal training.
+- If I can be my crazy, wild self in front of a person, and he still likes me, that's romantic.
+- There will always be competition, especially in showbiz. There's always someone younger and hungrier standing behind you; there's always someone with more contacts; there's always someone whose grandfather or father is a filmmaker. I think your job is just to be there 100% - you work hard, and there are no shortcuts to success.
+- I feel really humbled because I decided to go on Twitter, and all of my fans on Twitter say one thing consistently every single day, and that is, 'When are you coming back in movies?' I didn't even think people missed me that much.
+- I am very reactive towards everything. There are some who don't react at all, they absorb everything quietly, while I'd go all out and show my expressions. This is not part of some tamasha I do; I do it because it's part of my personality. To each his own.
+- When I entered films, I rose to the top. In business, too, I want to be at the top.
+- Film is my first love. It wasn't something I intended to fall in love with, but I grew to love it.
+- I'm not somebody who plans. There were times I planned a lot in my life, and it never turns out how you plan it. So I think it's important not to. I'm a very spontaneous person.
+- L.A. is wonderful. They have something called sleep dentistry. You just go there, and they put you to sleep and go, 'Drrrrrr,' and by the time you wake up a few hours later, you have a whole new set of teeth. I mean, whatever you want them to do.
+- In the end of the day, you are human. Film is a job which is not an individual job; you have tons and tons of people behind you - you have a whole crew of people working. But, an actor is the face of a film, so you get all of the good things, but you get the bad things, also.
+- I'd love to be an award-winning, commercial successful actress! I would love to push myself to the limits as an actress and experiment with playing really interesting women.
+- I stay away from negative relationships. They are energy-sapping vampires. I can't handle them.
+- People will always have an opinion, but you have to live life the way you want to. It's very easy to tell others what to do, but difficult to implement it on yourself.
+- I've never cheated or been cheated upon. I've seen my parents together and secure. So I feel the same way. Infidelity stems from low self-esteem. You want to cheat when you don't feel good about yourself.
+- I always follow my heart and my guts. If I want to do something, I have immense belief in hard work and myself. I have it in me to do well anywhere and in anything I do. I have a deep desire to excel in everything I do.

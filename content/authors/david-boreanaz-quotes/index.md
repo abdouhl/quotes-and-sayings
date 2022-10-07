@@ -1,0 +1,40 @@
++++
+author = "David Boreanaz"
+title = "David Boreanaz Quotes"
+quotes_len = "34"
+description = "the best 34 David Boreanaz Quotes"
++++
+- I could easily escape to a hotel for a weekend and do absolutely nothing.
+- Growing up, I saw my dad do charity work for children with health issues. That had a profound effect on me.
+- I've just always liked hotels. I like the bed and the sheets and everything that comes along with it.
+- It's a blessing to be a part of such great shows that they're so recognizable.
+- I've never really been concerned about being typecast, for me it's just about enjoying my work and being very professional in taking things on.
+- I'm a sock guy.
+- I was always one who was clowning around in school and getting in trouble.
+- I went to Ithaca, found the Grateful Dead and my life was changed.
+- I haven't been faithful to my wife. Our marriage has been tainted with my infidelities. I was irresponsible.
+- I think it's always challenging to look at a script and make it your own while maintaining the sense of what the style of the show is.
+- I didn't grow up as child actor.
+- I'd like to do an independent film.
+- I'm glad that I'm able to entertain and be a part of people watching shows and enjoying the work.
+- I have a very clear vision as to what I want at the end of my prep, and then I throw it out and let the creative process take over.
+- I see L.A. as a beautiful blonde with dirty underwear.
+- I had my shortcomings - crazy hair, braces, bad skin and all that stuff. I went through it all.
+- I don't do serious.
+- I'm a bit of a chameleon with the whole entertainment industry so to speak.
+- I love going over to Europe.
+- I didn't come from a traditional background of studying theater and doing Shakespeare.
+- To have that opportunity to direct under my belt was fantastic, so I'm glad I did it.
+- Shooting a television show can be very difficult and at times can really wear on you. If you keep reminding yourself that it is a job and you show up together as a team and as a whole, you can prevail.
+- In a sacred ground like marriage, you find yourself out of it at certain times for reasons unknown that can be destructive. There could be a demon that kind of comes out and overtakes you.
+- I like to direct for the big screen.
+- I like to escape to hotels.
+- I'm a fighter. I'm a lover.
+- I seem to get recognized more in London and Europe than over here in the States.
+- I was associated with a woman who I was involved with and had a relationship with. She asked for money. I felt as though I was being blackmailed or there was some sort of extortion.
+- I wanted to play sports my whole life. That's all I really wanted to do.
+- I'm a sports guy. Football, God, I flip out.
+- Do I believe in giving up? No, I don't.
+- I believe in letting each person find what they need and not getting involved with their destiny.
+- I hate TiVo, I hate DVRs. I do not get them.
+- I want to make films and write films, which will happen, I'm just taking a different route right now. I'm a bit of a chameleon with the whole entertainment industry so to speak.

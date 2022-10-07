@@ -1,0 +1,13 @@
++++
+author = "Derek Sivers"
+title = "Derek Sivers Quotes"
+quotes_len = "7"
+description = "the best 7 Derek Sivers Quotes"
++++
+- For some reason, ever since I was a little kid, I wake with the most energy of the day, and it slowly declines from there.
+- Everything I ever wanted to know I just ask a search engine and there's the answer. So the least I can do for my clients is share what I've learned.
+- There are plenty of millionaires who would pay millions to hang a Van Gogh painting on the wall, but hardly one that would have ever had the crazy nut over for dinner. I feel like the big companies are like that with musicians. They'll say, 'We love music! It's all about the music!' - but if a musician shows up at the door, they call security.
+- I'm so into music that I just stop and listen, whenever there's music on. That's the problem with being a musician for so long. I can get lost in the bassline, fascinated with the arrangement, curious about the production. I can't shut it out.
+- A work-only zone does wonders for your productivity. So, I prefer working at the office now. I spend 8 focused hours there, then I go home to be present with my family.
+- The purpose of money is to trade for things that make you happy. So if you can bypass money and get directly to the happy, you've saved a lot of trouble. And it makes others happier, too, when you organize your business around non-monetary things.
+- Distributing the music is so easy it's moot. So now the delicate art of calling attention to your music means everything. Marketing is distribution.

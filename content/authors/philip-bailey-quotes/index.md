@@ -1,0 +1,106 @@
++++
+author = "Philip Bailey"
+title = "Philip Bailey Quotes"
+quotes_len = "100"
+description = "the best 100 Philip Bailey Quotes"
++++
+- You can get jaded in the music business, but I have so much passion, and I try to do music with different people to 'reset.'
+- In the group setting, I had a role to play, it was like being on a team. In a solo setting I'm forced to pull out all the stops.
+- At the height of Earth, Wind & Fire's success, I felt an emptiness and void. I studied lots of philosophies and cults and I prayed to God. God made it plain that Jesus Christ died for my sins.
+- I really like electronic stuff. I was enamored with that whole genre of music.
+- I'll Uber to who has the best expressos, and I'll take my iPad and go get a coffee... It's really given the touring situation a whole other layer of enjoyment.
+- I'm an espresso junkie.
+- God had always been beckoning me. Early on as a kid, I just felt a strange and close connection with the Divine and then later on it became a more personal thing through my Christian witnesses, people in my life who got a chance to talk to me, bring me to the knowledge of Jesus.
+- As you live you evolve and grow and discover, and I don't like to look at anything as an arrival. I always like to look at it as a discovery and an evolutionary process.
+- You're always discovering other things you're capable of doing if you're out their singing. I just try to stay open to learning more things as the voice expands and grows.
+- I didn't want just a squeaky-clean book that just illuminated my stardom. For me, that would just be such a waste of time. I wanted my book to reflect real life - the highs and lows.
+- The first time I heard a professional jazz quartet practicing in a house down the street it was almost like an out-of-body experience.
+- We never overthought the message aspect of Earth, Wind & Fire. We pretty much were all raised the same... We just wanted to contribute positivity in our music and humanity.
+- We never considered ourselves a funk band.
+- My faith in God has been the rudder that has allowed me to soar above the fray and to stay grounded and to learn from my mistakes.
+- Fellowshipping really is about loving all people of like mind, affirming your faith in that relationship.
+- The songs resonate with a positive hue. That's a positive thing. People feel good singing 'Sing a Song' or 'Shining Star.'
+- My solo albums have given me confidence in myself and a broader understanding of what I had to offer.
+- When you see one of your kids really has a gift, you can't fight it, because you start to understand what a blessing it's been to you.
+- I never put a ceiling on what I'm going to do or where I'm going or where God's going to lead me.
+- People want to dance, and they need something to dance to.
+- Because of my register, Miles Davis' trumpet playing has always been a big influence on my singing. I've always been intrigued by the way he can start anywhere and make it right.
+- You have to refresh yourself with anything that you do all the time and re-tweak it, so the level of integrity associated with what people have learned to love is still the same. And so we don't get bored and fall asleep.
+- Many times, periods of struggle are more blessed times.
+- When I was 9 years old, growing up in Denver in the 1960s, I'd spend hours listening to my friend's mother's record collection.
+- I'm real meticulous.
+- I think that there's certain music that instead of saying a lot of different things that are on my psyche, I just say, 'I've aged out.' Because that is the best way of putting it, because a lot of things I simply don't understand and will not understand and can't see any intrinsic value in.
+- You just hope to do music that people will embrace... music that will be cutting edge and will be recognized.
+- Everything repeats itself. There ain't but so many notes on the scale, there ain't but so many chord changes, for real, and there ain't but so many beats. So things come back to you a different way. Don't matter what they call it.
+- The music has allowed me to see the world, make a lot of friends and learn a lot about life.
+- We weren't that big fans of Disco.
+- I do listen to more jazz and gospel than anything else, but my ears are still very much open and listening to stuff that comes out. And a lot of times my kids turn me on to stuff.
+- Music is a very strong force when it comes to making a difference, as well as entertaining, soothing, and encouraging.
+- At an early age, I understood music... the rhyme schemes, melodies and harmonies.
+- I was always mimicking high-register singers as a kid but I also studied operating as a baritone because I'm a natural baritone.
+- Being a musician was not my choice; it was really a God-ordained thing, so I'm still passionately chasing after the pursuit of that whole journey and musical expression and discovery.
+- Well, the one thing is nowadays because of Pro Tools and the Internet, when you're starting on an idea, you can really continue on that path until the whole idea is developed and completed, as opposed to before when those were separate processes.
+- A lot of us have classical and jazz training, and it would be hard for us to work with a hip-hop artist who doesn't know a lot about the technical aspects of music. But when you listen to Wyclef's records, you hear bridges, chord changes and real structure. You can tell he has big ears.
+- We hope we've been inspiring.
+- I loved the title of 'Blue in Green' - as if the color blue was seeping into green, slowly changing it and creating a new color.
+- The music departments in the public school system gave me a really extraordinary foundation and music appreciation that I still draw from, even today.
+- I can't lie: We have made some dogs over the years. Every album we did wasn't great, you know.
+- Christian songs are more my personal testimony. I don't say things I don't believe in on secular records, but I am going for the hit record.
+- If you get the basics right, you can freshen things up, you don't want to just regurgitate the past. But we gotta stay true to our historic selves.
+- Jazz has always been my first love. It has this timeless effect on me. It's pretty odd that I didn't become a jazz musician. I went another way because I needed to earn a good living to support my large family.
+- I love the clothes, I love the discipline. It's all encompassing. You play golf for two hours and you feel like you went on a two-hour vacation. It's like meditation.
+- There's a side of me vocally that people didn't know existed. I had to get it out of me.
+- I don't want to give up pop music. It's how I earn my living. I've got a family to take care of.
+- Buying into the hype can get you into a lot of trouble, believing your own press.
+- I try to have to different experiences with different people and energies and do things that will challenge me.
+- We tried to make music that had a very diverse collection of genres - jazz, pop, Latin, even the blues. We tried to have a gumbo soup of expressions. We wanted to create music that would have people dive into a pool of artistic beauty and feel good. And I think we have been really blessed.
+- I work out several days a week at the gym to be able to exist and move properly.
+- I'm a natural baritone, so I had challenges in that middle range, which would be that tenor area, singing in my natural voice. And I worked on that. But basically the falsetto thing, I didn't even know it was a falsetto until a music teacher commented on it, that I had a very nice falsetto. I didn't even know what it was. I said, 'Oh, OK.'
+- The person I call my secret weapon is an arranger, pianist and musical director, Herman Jackson.
+- Sampling has definitely introduced the music to younger generations - helped the music evolve and kept it relevant.
+- Well, for Earth, Wind & Fire, we would often say that the band was more dynamic live than on record.
+- We're very privileged to collaborate with people to keep ourselves fresh and it gives us a shot in the arm to do things a different way.
+- Well, I can't sing like James Brown and stuff and go do a gig. I'm not a roughhouse singer.
+- It used to be that Denver was one of the most stressful cities to play because I was very nervous at coming home.
+- My career would not exist if not for the arts in the schools when I grew up.
+- When we came up, Clive Davis and other record execs would do anything to keep Miles Davis, Aretha Franklin, even Johnny Mathis intact, because they wanted to keep alive a musical legacy. As a result, those artists were able to spend 30 to 40 years in the business and still make a living, still have a fan base.
+- Rhythm, melody, message, that's what matters. Our main concern coming out of the gate is to make sure those foundations are strong, the songs are speaking to us. Everything else, horns and strings, is sweetening.
+- Music is Unity is a foundation that my daughter Trinity Bailey and myself founded over 10 years ago. It's a foundation that benefits foster youth who are aging out of the system. A portion of our proceeds, ticket sales and donations go to funding organizations helping youth with necessities for life, support, and inspiration.
+- I'm a strong believer in God. Always have been. I've always believed that he directed my path from the time I was a kid. He has always been my source of strength.
+- I've been in the mix of great projects for such a long time, I know what it takes.
+- It's really sad that you have more infomercials on TV to adopt a dog or a cat, or save a whale, then you do millions of flesh and blood human beings.
+- I try to watch what I eat and not go overly crazy. I listen to my body, and am grateful for the blessings of God for my health and strength.
+- That's one thing I loved about coming up when we came up. When you had groups like Mandrill and Earth, Wind & Fire, Sly Stone, and on and on and on, the Brothers Johnson, whatever. Everybody, Ohio Players. Groups wanted to be just themselves.
+- I wanted to do a project that was seamless and had all the ingredients from start to finish, from conception to mixing and mastering.
+- I call Earth, Wind & Fire my day job and my solo career my night gig.
+- Relationships are so complicated, and anything but perfect.
+- I can't imagine my loved ones being in this world without anybody to turn to, without any support or encouragement, guidance in any shape, form or fashion. But there's such a large population of people and that's their plight. Through no fault of their own. Sometimes parents die, sometimes parents can't take care of them - all kinds of misfortunes.
+- I am who I am. I can't do anything that doesn't have nuances of all the music I've done in the past.
+- There was never anything in particular that led me to music. Music is in my DNA.
+- One way or the other, keep it real. Know what's good, what's bad and what's different.
+- I have a relationship with Christ and it is ongoing. I study my Bible, I do fellowship at a Church, it's a life thing.
+- People don't want classic bands to sound anything other than classic.
+- We try to do music with a conscience. We'd never look back and say, 'We are embarrassed or ashamed.' It paid off for us.
+- Interestingly enough Miles Davis was an influence, and the way he approached harmonics. And one of my biggest influences was Dionne Warwick, early Dionne Warwick.
+- Music was the thing that caught my soul's attention from the earliest I can ever remember.
+- I am a big gospel guy myself and I listen to a lot to gospel music. It inspires me. It encourages me. It uplifts me.
+- When I'm on the road I get to read, play golf and do what I love to do - play music. Not a bad life.
+- For me, I listened to a lot of female jazz artists. And of course, the Motown and Philly sounds, all that stuff was very influential. And church and gospel.
+- We all have things in which we look back and say, 'If I had a chance to do it all over again, I wouldn't do certain things.'
+- More than anything, Earth, Wind and Fire forced me to become more aligned with the truth. After the experience of working in that band, it became clear how fleeting and deceptive fame can be. I realized that there is no better form or reference than the word of God, and it was my responsibility to be accountable for my faith.
+- I love singing gospel. It's fulfilling but in a different way than singing pop music.
+- We're a band that struck on a really fantastic formula. We were able to carry it through.
+- Just because you are having difficulty in a relationship doesn't mean the love you feel in a relationship is not necessarily real. Or just because you actually can't be together in a relationship, doesn't necessarily mean the relationship is not real.
+- When we came up, groups and bands and performers were interested in being their own thing. They wanted to make sure that they had their own identity.
+- I think that there are some fantastic musicians out there - very, very talented musicians.
+- For me, it's always been about doing different things... If you're still jazzed about the possibilities, the chances of you coming up with stuff that has flavor is more conceivable. It keeps you going. Like working with the younger artists. It reminded us of who we are. Sometimes you need that.
+- Life can be very challenging. But I've always believed that God is always in control, even when you are going through challenges. Nothing catches him by surprise. It's all part of his plan. I rely on that even during the toughest of times.
+- Interestingly enough, I'm an earth sign, and my personality is pretty much in keeping with that, and Verdine is definitely a fire sign. And even though Ralph is a water sign, he would definitely be the wind side of the equation.
+- I've been really fortunate. I haven't had any issues with my voice.
+- It's important to refresh the way of thinking and doing things musically. You can get so stuck in what you've done in the past that you can't move on into the future.
+- I'm a real snob when it comes to coffee.
+- Because I'm a Christian, when I write things are going to have a certain flavor. When you're writing songs you try to be careful. You make sure there are no conflicts with what you believe, especially when you've been real vocal about being a Christian.
+- It wasn't an instant success. It wasn't like I got into Earth, Wind & Fire and we stopped eating oatmeal and McDonald's. But it was definitely a clear path on the right direction to be my own man.
+- As young musicians, we cut our teeth on doing gigs at clubs and functions and colleges. That was really the proving ground for young musicians, learning songs, doing covers of different songs that were popular, learning different genres of music.
+- I'm really glad we came up when we did. When we got started, the record companies were concerned with building careers. They made sure you could put on a live show before you put a record out. And if your first album sold 100,000 to 200,000 copies, they were happy, because they figured you had your foot in the door on a way to a long career.
+- I mean, I strive every day, man, to just be the best that I can be.

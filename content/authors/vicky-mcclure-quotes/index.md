@@ -1,0 +1,25 @@
++++
+author = "Vicky Mcclure"
+title = "Vicky Mcclure Quotes"
+quotes_len = "19"
+description = "the best 19 Vicky Mcclure Quotes"
++++
+- If Madonna asks anybody to go and hang out with them for a month, they'd all do it.
+- I get to have Sunday lunch at my mum's, pick my nephew up from school now and then: it's a very normal life.
+- There are lots of people who haven't been to drama school who have great talent and can be discovered.
+- I'm not slim. I'm a curvy girl: I've got thighs and a bum. I don't mind baring the fact that I've got a bit of cellulite because everybody has. I find it off-putting when everybody on telly is the same size or looks the same build. For me, it's important for people to watch someone normal.
+- I'm strong. I like to mother people, look after people. I lead the gang.
+- Oh, I love Nottingham. I know some people go, 'Oh God, there's not much going off there,' but I like staying in and going round to my mum and dad's for a Sunday roast.
+- I'd like to do something where there's a strong female character and some action. I've done a few stunts in the past.
+- I don't need a trailer; I don't need to have the luxuries of what is Hollywood, which is why I'm probably not so desperate to get there.
+- I just feel like I'm such a normal person in an industry that is so chaotic and crazy. I am what I am, and I can't change it. And I don't want to change it.
+- I know that people who have been to RADA and LAMDA can smash accents and do Shakespeare: all those things that I never really trained in.
+- My first job ever was on 'Peak Practice.' I just had to walk up the stairs. They kept the take where I slipped slightly, which was annoying.
+- Eventually I just want to live a normal life. I want to get married and have children and cook, wash... all the things that I do now. My background is very normal and steady, and that's what I like.
+- If you have a passion and love for something, it's hard to give it up. I had jobs where the people were helpful and let me go to auditions, and I'd make up the hours another day. I was lucky in that respect: I could afford to get to London.
+- It is Method on 'This is England;' it is. But it can't be Method on every job because it just doesn't work for everything.
+- I've always been a happy-go-lucky person. I haven't got any dark tales, I didn't draw on my own past, I'm from a very normal stable background and had an amazing childhood, and I haven't got any complaints really.
+- Yes, I certainly look for strong characters - whether that means they're strong in their vulnerability or strong in the way they might be attractive to lots of blokes.
+- A journalist can make or break a case, in a way, because they can figure out things the police can't, or they can destroy people's lives.
+- When I watch cop shows, I really enjoy them because you can really follow the story and get involved, and the characters are always really interesting.
+- I danced from the age of three, so I was always going to do something performance-related. I got into the Television Workshop drama group in Nottingham when I was 11 and went there for ten years.

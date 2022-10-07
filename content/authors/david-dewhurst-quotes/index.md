@@ -1,0 +1,17 @@
++++
+author = "David Dewhurst"
+title = "David Dewhurst Quotes"
+quotes_len = "11"
+description = "the best 11 David Dewhurst Quotes"
++++
+- This is a choice, ladies and gentleman, between Texas and Washington. Most of Ted Cruz's money comes from Washington, from outside the state of Texas, and they've run millions and millions of untrue ads against me.
+- You know some people are all about talk. I'm about results. Every victory, every conservative victory, I've had, I've had to bleed and fight to accomplish it, always adhering to our conservative principles, and refusing to take no for an answer.
+- Normally, I've found in my life that the louder you speak, probably, the less of a fighter you are. All the fighters I've had a chance and the honor to serve with didn't pat themselves on the back, were pretty humble men and women.
+- I support secure borders both north and south and I support a guest worker program for those here today illegally. Labor and skilled workers are critical to our Texas economy.
+- If you like Texas and you like our economy, I helped create all that and all those jobs and you will love it when David Dewhurst goes to Washington.
+- When I came back from Bolivia, my Spanish was in some ways as good as my English. I am rusty today. But I am comfortable talking in Spanish. I am not flawless or fluent, but I am comfortable. It takes me a day or two speaking a lot of Spanish to get back into a rhythm.
+- Once we secure our borders - and the federal government has not done a good job - then Congress, I believe, needs to take up the issue and look at how we try and identify those people that are here, that are national security risks to the United States.
+- If we don't change the way Washington operates we're going to bankrupt our children and grandchildren.
+- I've never supported a wage tax and I've never supported a payroll tax.
+- Over the last several years, I've passed defunding Planned Parenthood, the sonogram bill, voter ID. I passed the TSA anti-groping bill, sanctuary cities, loser pay, border security, and the toughest Jessica's law in the entire nation against sexual predators.
+- We need a human presence at the border and a humane presence at the border.

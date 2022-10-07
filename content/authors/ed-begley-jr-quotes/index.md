@@ -1,0 +1,32 @@
++++
+author = "Ed Begley, Jr."
+title = "Ed Begley, Jr. Quotes"
+quotes_len = "26"
+description = "the best 26 Ed Begley, Jr. Quotes"
++++
+- We run around so much - with the best intentions: I want to save the rain forest. I've gotta clean up the oceans. I've gotta save the dolphins. All worthy efforts, but if you're not centered and you don't have the serenity in your life you need to accomplish that task, you're not going to do a very good job.
+- I was a typical Valley teen, in smoggy Van Nuys.
+- By 1990 I went back to no gasoline; I was just riding around on my bike, taking the bus. I had a tiny little electric car that didn't go very far or very fast. People thought I'd lost my mind. Even my own family thought I'd lost my mind.
+- People don't want to give up their SUVs. They don't want to turn the thermostat down in the winter and up in the summer.
+- If you're not buying recycled products, you're not really recycling.
+- I bought my first electric car in 1970. Its top speed was 15 mph and it had just a 15 mile range - it was essentially a golf cart with a windshield wiper and a horn.
+- California has always led the way on environmental protection and always reaped the benefits, pioneering everything from catalytic convertors on cars to stationary source reduction.
+- As someone who has grown up living in Southern California, I know all too well about the costs and scarcities of water.
+- I started composting in 1970 by taking my food scraps out behind where I lived and burying them in a hole next to the railroad tracks - and green things started to grow there!
+- I can trace my environmentally-friendly lifestyle back to my childhood. My father was a conservative Republican that liked to 'conserve'.
+- For my own health, I thought it was better to eat a plant based diet. I'm going to be 60 soon and I have boundless energy and I feel really good, so I'm all for it.
+- When I was single, I was down to $100 of power a year.
+- My father also encouraged my love of nature. He urged me to become a Cub Scout, and later a Boy Scout, and I found I really liked being outdoors.
+- I've lived a slower and less expensive life going off the grid, and I'm happier because of it.
+- Los Angeles is a city known as much for it's sun as for its stars and it's dirty air.
+- I've been in movies with Meryl Streep, Jack Nicholson - but I was on 'The Simpsons,' and finally, in the eyes of my children, I was a star.
+- I'm not a wealthy person because I was never a star. I was a working actor and a supporting actor.
+- One of the regular intervals of meditation in my life, believe it or not, is in my car.
+- It takes less land to grow a pound of broccoli than it does a pound of beef. Less land to grow a pound of grain than a pound of beef. Less water, less energy.
+- The environmental crisis is all a result of rushing.
+- I ride my bike for transportation a great deal - occasionally I ride it for fun. But I also have a generator bike that's hooked up to my solar battery pack, so if I ride 15 minutes hard on my bike, that's enough energy to toast toast, or power my computer.
+- The film 'Tapped' illustrates quite clearly how we've been getting 'soaked' for years by the bottled water industry.
+- My favorite form of transportation is walking. I live in a neighborhood where you can walk to restaurants, banks, and shops.
+- People are overwhelmed looking up at the Mount Everest of environmental challenges that we face. But you put one foot in front of the other and you recognize that not everyone is Sir Edmund Hillary.
+- I'm a strong proponent of green tech for anyone who can afford it, having spent the last 40 years working toward achieving a smaller and smaller eco-impact for myself.
+- For decades, community colleges have been the backbone of American workforce training. Because they are nimble and closely attuned to local community needs, they are inherently positioned to be influential leaders of the movement for a sustainable economy.

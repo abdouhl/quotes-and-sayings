@@ -1,0 +1,21 @@
++++
+author = "David Shuster"
+title = "David Shuster Quotes"
+quotes_len = "15"
+description = "the best 15 David Shuster Quotes"
++++
+- Critics of Fox News have pointed out that Fox News does partisan propaganda, and there's ample evidence on a daily basis.
+- I think when Fox News goes to the Megyn Kellys, the Bret Baiers, and people who don't have much experience who haven't covered campaigns, the result is sometimes you have these inane questions that come out and, frankly, waste everybody's time.
+- But doesn't it seem like Chelsea's sort of being pimped out in some weird sort of way?
+- I've always been a firm believer in local news, because it's an opportunity to connect with the community where you live.
+- 'Meet the Press' is the oldest and most treasured public affairs show on television.
+- I think Shep Smith is probably the premier anchor/journalist of my generation. He's terrific, and he does the news straight and let the chips fall where they may.
+- MSNBC will never be as liberal as Fox is conservative.
+- I've anchored my share of live coverage over the years, including car chases. At MSNBC, I often prayed the 'delay switch' would actually work as promised. And, I frequently wondered what I would do or say if a violent and graphic incident accidentally aired on my broadcast.
+- Their coverage on the Fox News Channel has been atrocious. The stuff that comes out of Sean Hannity's mouth has been infuriating. The stuff that Bill O'Reilly says has been illogical. You go up and down the schedule and it's insanity over there. The number of lies, perpetuated, promoted by Fox News is just shameful and it hurts everybody.
+- I consider part of lower Manhattan to be hallowed ground. Nearly 3,000 people lost their lives in the World Trade Center towers... and for that reason alone, our nation should make absolutely sure that what gets built on 'Ground Zero' is an inspiring tribute to all who loved the Twin Towers, worked in them, and died there.
+- There are a lot of folks at Fox News who bring a certain level of sophistication to their understanding of politics.
+- If Michael Steele doesn't make you sad, well, then there's radio host Rush Limbaugh, no longer content with wanting the President to fail, Rush is now calling out Mr. Obama as a girly man.
+- Too many radio stations, all they do is syndicated programming, it's just piped in from some satellite someplace, and they don't have much of a connection to the community.
+- Most conservative and progressive talk radio is primarily just that - bloviated opinion and whacky viewer calls.
+- Most of us entered journalism and joined 'news organizations' because we care about the greater good. We strive to comfort the afflicted and afflict the comfortable.

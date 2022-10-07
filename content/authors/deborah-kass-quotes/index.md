@@ -1,0 +1,13 @@
++++
+author = "Deborah Kass"
+title = "Deborah Kass Quotes"
+quotes_len = "7"
+description = "the best 7 Deborah Kass Quotes"
++++
+- Appropriation was the language of my generation in many ways. It came out of Duchamp, Warhol, Johns, Lichtenstein.
+- My work since the late '80s specifically questioned what was presented as the 'natural' order of things in the history of post-war-N.Y. painting.
+- I have that memory of dancing on my father's feet to all the music my parents used to listen to.
+- A lot of Broadway has that immigrant narrative of America as a place where you can become something else against all odds.
+- Coming out as a Barbra Streisand fan was way more embarrassing than coming out as a lesbian. To be an artist of my generation willing to be unhip - artists were supposed to be like cowboys.
+- Social issues have been used to distract Americans from their own self interests since Nixon's southern strategy, and now people are paying the price.
+- I am not alone in thinking that we are at a tipping point ecologically and morally and politically. Democracy cannot survive without a vibrant middle class, yet the policies of one of the parties has been committed to wiping it out for 30 years.

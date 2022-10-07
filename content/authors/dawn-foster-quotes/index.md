@@ -1,0 +1,106 @@
++++
+author = "Dawn Foster"
+title = "Dawn Foster Quotes"
+quotes_len = "100"
+description = "the best 100 Dawn Foster Quotes"
++++
+- Disasters can also be averted, which is why the rigorous approach after Ronan Point was the correct response.
+- Empathy is an uncomfortable force in politics.
+- The homeless often feel invisible, allowed to plummet through widening holes in the social safety net, then hidden in doorways from which people avert their eyes.
+- Whenever rent controls or increased tenants' rights are raised, naysayers wail that doing so will cause landlords to flee the rental market. Firstly, that is a canard: if a landlord charges £1000 for a room, and you tell him from now on he can only charge £900, he won't decide to instead earn nothing.
+- Conservatives have always embraced the idea of grammar schools - that giving a top tier education to bright children from working class backgrounds provides them with the opportunities their middle class counterparts take for granted.
+- Faith is about offering emotional and practical help to your neighbours while expecting nothing in return: you do so simply because you think it's needed.
+- The impact of punitive government measures is long-lasting and widens inequality and social discord.
+- Almost all the people I've met in temporary accommodation fell behind with their rent because of benefit cuts, or found their landlord was no longer willing to keep them on since their income had been frozen.
+- I've read enough dreary campus novels to know more than I ever wanted to about the punctured Oxbridge academic psyche, and feel as if I've been through a mid-life crisis dozens of times, purely because I've foolishly grabbed a paperback by an author I've vaguely heard of.
+- Council housing works because it pays for itself relatively quickly: the rent paid by tenants covers the building costs in the long term, and eventually makes a profit for the local authority, which continues to invest in the local area. The money continues to circulate within the community rather than simply boosting the profits of landlords.
+- Focusing on the gifted always leaves people behind, and portrays working-class people as a repellent hinterland that 'gifted' and 'talented' children need rescuing from.
+- If Freemasons won't be completely open about their membership, should we not say that in all cases membership is incompatible with public service? Asking public servants to either confirm they are not a member of a masonic organisation or to be open when they are won't fully excise the backroom deals or the stench of privilege.
+- Making it compulsory to show identification before voting risks compromising a basic human right by creating further barriers for people who may no longer have an acceptable form of ID, thanks to the often unpredictable and chaotic lifestyle homelessness can cause.
+- Children are more perceptive than we give them credit for: the poorest kids know their place as surely as the wealthiest children are aware of their station.
+- I was one of the few journalists who was quite pro-Corbyn from the beginning.
+- In one of my secondary schools, the single kindest thing I remember was a teacher who quietly offered to wash the uniform of a friend who was being hounded by children saying he 'stank': his mother was unemployed and couldn't always afford to take his clothes to the launderette.
+- Reading is a pleasure, yes, but not without effort: choosing to read novels purely because they mirror your own experience is stultifying.
+- Human life is fragile, and the threat posed to individuals in politics cannot be overlooked.
+- Codes and signals are as important as explicit messages, and the two are linked. The bore pressing someone to tell them 'where they're really from' will see themselves as different to the aggressive stranger barking at someone to 'get back to their own country,' but the subconscious, if not explicit, message is the same.
+- If Theresa May is a white woman who is very well-educated and very wealthy, she's more likely to act in the interests of, say, a very wealthy white man than she is a working class poor black or immigrant woman.
+- The luxury of time to write, and the confidence to do so, make it easier for the more affluent and when the most decorated novels all begin to resemble each other the tacitly accepted view of what a good novel must be (and must be about) shifts imperceptibly.
+- No one joins the masons for the handshakes. It must be for the benefits it can bring.
+- Most people pass through the doors of a hospital as a last resort. By the time you reach a bed, you've probably made a lot of small-scale decisions that, if they didn't cause your affliction, may have exacerbated your symptoms.
+- Hospitals are often grim places: being stuck on a ward is excruciatingly boring, especially when you're too ill to follow the plot of a book, and struggling to sleep through the guttural cries of people writhing in agony in adjacent beds.
+- The academisation of schools under New Labour helped the Conservatives bring free schools into being. They said the new model would allow enthused parents to open schools. Instead, most free schools and academies are run by large chains that can outsource their IT facilities, cleaning services and other non-teaching jobs.
+- If we have a right to healthcare, we should also have a right to the most fundamental of human needs: shelter.
+- Women can be as destructive, possessive and prone to rage as men, it turns out: but discovering that is what terrifies them, while exhilarating women.
+- Working within newspapers, so many of them are so used to the status quo, they're so invested in lobby journalism, and assuming that all politics happens in Westminster... but doing social affairs, I spend a lot of time out of London speaking to people who have been hit by cuts, or disabled, or who have been made unemployed.
+- For children with special educational needs to receive the help they need to thrive in education, councils need targeted funding that properly addresses the costs of including children in mainstream classrooms with support, or creating space in specialist schools.
+- It's rare for news of even the most geriatric male celebrity becoming a father to warrant several paragraphs of panicked speculation about a 'growing trend' of older parents.
+- Historically marginalised people - by gender, race or nationality - aren't willing to be silent any longer on the crimes of the past and the continuing misrepresentations of historians.
+- People never know what to do with women who write, especially about lust, in a way that isn't sanitised and held back.
+- The bedroom tax turfed people, many of them disabled, out of their homes, while the government disseminated myths about people living it up in council houses the size of small mansions.
+- None of us are as insulated from poverty as we think.
+- The mental baggage involved in attempting to feed yourself when poor is immense. Being able to go into a supermarket and buy what you both need and want is incredibly freeing, but it's a luxury not appreciated by anyone who hasn't experienced longterm hardship.
+- Illness, especially chronic illness, can be very isolating. Not only does it limit how and when you can socialise, it causes you to feel unattractive.
+- Many regard freemasonry as an 18th-century boys' club, all funny aprons and comedic handshakes. That's good for the masons themselves, but it's our mistake. The most senior figures are listed, but surely that's a sop because, all the while, the vast majority of lay members, 'the brotherhood,' remain anonymous.
+- Exceptional teaching requires more time and space for teachers to address the differing needs of a classroom, with assistance in staffing and funding.
+- Passing a beggar who asks for money causes discomfort - and so it should. The act of facing and acknowledging human suffering and hardship on this scale ought to imprint itself on a society that has such glaring divides in income and comfort.
+- The human cost of austerity goes far beyond the period in which a country's economy endures those methods.
+- Every rough sleeper is the product of political decisions that have created a safety net riddled with gaping holes. No one wants to sleep outdoors in sub-zero temperatures, but far too many will, while politicians continue to cut welfare provision and bludgeon councils with austeritymeasures.
+- It should be obvious that banning begging or criminalising rough sleeping will do little to combat homelessness.
+- Learning that Jeremy Corbyn had a fondness for cold beans, it's impossible not to think of him in 'The Young Ones.' Hippie, long-haired Neil?
+- The police have spent years pursuing Islamic extremism while too often overlooking the growing violent threat posed by the far-right.
+- Bullying leaves permanent psychological scarring and young people become adept at learning what hurts, verbally and psychologically. Looks, personality and status are all easy targets, and particularly difficult to change.
+- For men, the Right Time to become a parent seems to be any time after reaching the age of consent.
+- Social mobility has always been a slippery term, with nebulous markers of success: how many state school children have to achieve postgraduate degrees, or fill higher professional jobs, before society is deemed to have achieved the requisite degree of mobility to consider prejudice or injustice a thing of the past?
+- Everyone should have a right to a home.
+- Cooking requires time, effort and fuel: increasing numbers of people I've visited can't even afford to turn on the kettle for a cup of tea as they eke out every penny to feed their extortionate gas and electric meters.
+- Many benefit cuts hit single parents hardest and punish children by forcing their families into destitution.
+- Technology can help us connect to people and viewpoints we'd never otherwise experience: using it as a way of avoiding awkward but straightforward conversations that are part of everyday life just increases our isolation and disconnection from each other.
+- As austerity has drained the blood from public services, preventive services have been the first to suffer.
+- Part of the failing of mainstream history has been a reverential air often appended to the colonial era, underpinned by a rose-tinted nostalgia for a lost empire.
+- That 'woman becomes a mother' still makes a headline in 2015 reminds women that, for all their personal and collective achievements, society is still more interested in the limitations of biology, and rapt at the fact that women can - and do - make a wealth of choices about if and how they become a parent.
+- Here's why people don't live on oats and water: if you're cash poor, you're likely also time poor, and speed is of the essence when your job starts at the same time as your children's day at school.
+- The majority of us don't do what's best for us all the time because life is complicated and busy - and creating excuses is so much easier than getting on with the business of wellbeing.
+- A smart society recognises the benefits of treating problems before they escalate, either through helping people quit smoking or moving them out of mould-blighted bedsits. A compassionate society also tries to limit human misery and suffering wherever possible.
+- Any attempt to redress the inequities and injustices that plague our society has to start with the reality that we will never live in a genuine meritocracy as long as the wealthy are able to protect their own interests.
+- Decades of anti-migrant rhetoric in parliament and the press has resulted in few voters having realistic ideas of the genuine level of migration, on both a national level and in their local community.
+- As long as almost no new social housing is built, gross inequality will persist, and class structures will grow ever more constraining.
+- I've had grateful messages from people thanking me for being open about health on social media: from others with epilepsy who feel less alone; from a man who shows his daughter my tweets and Instagram pictures, and says she feels much less of a pariah knowing others are in the same boat; and from people asking for coping mechanisms and tips.
+- Modern life undermines any attempt at building communities and making connections with people without commerce.
+- Growing up poor is precisely as demeaning as you'd expect, and while forgiving bullies is easy, reliving those experiences emotionally is deeply upsetting.
+- The best books I read as a child were set in far-flung places, but also portrayed characters experiencing a life far removed from my own.
+- Standing in mass on Sundays with 500 other people, shaking hands with the people around you, catching the eye of small children, entertaining the prospect of causing a scene, to make them laugh, is an opportunity to feel part of something bigger than yourself, and rooted in your community.
+- Tory housing policy is the epitome of tinkering with the deckchairs while the ship is listing.
+- The long-term effects of privatising both rail and housing, aside from ensuring we live in a country of crumbling infrastructure (in contrast to mainland Europe), is one of diminished social and personal opportunities.
+- Throughout the west, the rise of populism has shaken establishments, with politicians and commentators asking why there has been a resurgent interest in socialism, and a growth of the far right on the opposite side.
+- Homelessness can be complex, and some rough sleepers will refuse help when living on the street becomes entrenched. But fining people, confiscating tents, and forcing people to move on from certain areas will do nothing to combat the core issues that cause homelessness.
+- Fewer people than you might think seem to have truly enjoyed their formative education and, for those who did not, one theme in particular recurs: the breathtaking cruelty of children.
+- We can find any number of ways to criminalise begging, but when we do so, aren't we attacking the problem from entirely the wrong angle? Banning begging or rough sleeping treats street homelessness as a lifestyle choice that can be discouraged through threats of legal action and heavy-handed policing.
+- There is no golden age of public spending for the working class under any form of Conservative future, only the endless pursuit of tax breaks for the comfortably-off.
+- Housing, not buying, should be a right - and available and affordable for all. Right to buy is devastating our housing system, just as rail privatisation has devastated our transport infrastructure.
+- Psychologically, it's difficult to ever shrug off the effects of extreme hardship or poverty, family bereavement, chronic ill health or the memory of violent conflict.
+- Sitting on public transport is an occasionally exasperating experience if you have the temerity to attempt travelling while female.
+- Public opinion isn't formed independently, but driven by narratives from the political class and the media.
+- Renters didn't used to be cursed: social housing offered millions of people a steady, safe and secure home for an affordable price.
+- Joining a union makes it more powerful and in turn strengthens the rights of all workers.
+- While, legally, universal suffrage has been achieved for all undetained citizens over the age of 18, many people still find it difficult to vote in elections.
+- Towards the tail end of primary school, I was pulled aside by my headteacher and told I was joining a scheme for 'gifted and talented' children, that would run from my 10th birthday until I was 16.
+- Many people are unable to see friends and family as often as they'd like due to the cost of rail travel.
+- Women, when they do break into power or succeed, can expect to have their lives scrutinised for clues to how they managed it exactly because these women are, alas, still exceptions to the rule.
+- If you're in a meeting and a man talks loudly over you, rather than copying that behaviour and normalising it, what you could do is say 'Can everybody stop doing this and instead put up a hand when we talk?'
+- Housing is predominantly presented as a generational issue: millennials aren't able to get on the property ladder in the same way their parents were. But while it's true that intergenerational fairness is an issue, this way of presenting the housing crisis glosses over much.
+- For years I avoided loose fruit and veg - an absolute minefield - simply because it was impossible to tell how much they would come to at the till.
+- I'd no more listen to a physicist's advice on my fertility than I would let a mechanic cut my hair.
+- Winter is always the hardest period for rough sleepers because of the climate and the post-Christmas dip in generosity towards anyone begging. And there's a genuine risk to life for anyone having to sleep out as temperatures plummet.
+- Supporting and publicising the campaigns of smaller unions pressures bosses to accept workers' demands.
+- If shelter is a human right, why not create a national housing service to provide homes for everyone who doesn't have one?
+- I want to know when my friends need help, as well as when they're happy; when they're vulnerable, as well as when they feel strong.
+- I'm learning to believe that my epilepsy doesn't disbar me from being considered attractive, so if I think I look palatable in A&E I'll damn well Instagram it.
+- There's a thin line between mockery and endorsement.
+- Focusing only on street homelessness is resource-intensive, and acts after the rough sleeper has already endured significant hardship and trauma. Acting before people are homeless makes far more sense, economically and for the long-term wellbeing of a household.
+- If the Government put people before markets, it would build more council housing - a form of public investment in housing that pays for itself while offering refuge to those who most need it.
+- For homeless and formerly homeless people, losing their ID and then having to apply for and afford new ID is insurmountably difficult.
+- Christopher Isherwood's eponymous character in 'Mr Norris Takes the Train' reminds me of Boris Johnson, who seems to have stumbled and bumbled into power.
+- Good policymaking is evidence-based, and preventing crime and antisocial behaviour involves fixing the society we all live in, identifying risk factors and demographic characteristics that make some people more likely to become involved in certain crime, and then preventing those offences taking place as often as possible.
+- Supporting people to stay in their homes is surely a better method of reducing homelessness than acting after the fact.
+- Equality legislation, and audits on gender pay gaps, ethnicity and disability, - within companies and public authorities - all aim to stamp out the informal transfer of power through social networks, in favour of appointment through genuine merit.
+- Poverty is a trap: it should be eradicated. It's no real answer just lifting a few children from families stuck on low wages into a different social milieu.

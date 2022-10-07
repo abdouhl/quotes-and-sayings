@@ -1,0 +1,24 @@
++++
+author = "Emma Mclaughlin"
+title = "Emma Mclaughlin Quotes"
+quotes_len = "18"
+description = "the best 18 Emma Mclaughlin Quotes"
++++
+- If I could give a shout-out to anything in the childhood world, I have to say 'Daniel Tiger.' I want to write a love letter to everyone on that staff. It is so perfectly, thoughtfully, lovingly done. And as a parent, it is the one thing out of everything that we dip in to that really helps.
+- I think just because you're a mom, it doesn't negate - if anything, you're probably more enhanced - that you're a woman trying to find your place in the world.
+- A Hallmark card with paragraphs about my beauty written by a stranger is vaguely depressing.
+- It's funny, we started writing chick-lit when it was just becoming a crowded marketplace, and now the same thing is happening with YA. It really used to just be one shelf at the library - Nancy Drew and Judy Blume.
+- Read at a time when everything feels intense, seminal, and like you're the first person to discover it, freshman year of college, Carol Gilligan's 'In a Different Voice' made my hair stand on end with awe.
+- Between finishing emails, loading the fridge, unloading the dishwasher, getting our son to eat his chicken nuggets and my dog to swallow her pill, it takes approximately 32 days for my husband and I to complete a discussion and 46 to wrap up a fight.
+- Studios will tell you that they can't turn a profit on female-driven entertainment. Which is like the Gap saying no one is buying clothes anymore. No. No one is buying your clothes.
+- Cameron Crowe can write dialogue and shoot it with warmth and humor like nobody else.
+- As a rule, I try to steer clear of opinions pertaining to your parenting. I assume you're doing the best you can, and God bless.
+- My writing partner, Nicki, and I became obsessed with a monologist who performs unscripted shows equipped with nothing more than scribbled bullet points and a glass of water. We wrote him a fan letter and found ourselves sharing lunch and eventually a friendship.
+- For a blink of an eye, there was so much media glare. It was unexpected, and I don't think we realized the magnitude of the message we were imparting with 'The Nanny Diaries.' There was also this added challenge that some of the media power players whose publications were doing stories on us perceived us to be sniping at their lifestyles.
+- I think something that really shocked me as a nanny were parents who sort of assumed the worst from the get-go. People who didn't accept the benefit of the doubt.
+- We 'chicks' have munched our popcorn while romantic comedies became just comedies, and then each female protagonist got recast for Matthew McConaughey or Seth Rogan.
+- Valentine's Day: Rubbing singles' noses in their lack of a mate and the noses of couples in their lack of time.
+- We really set out in all our books to say something. Every one is an effort to bring the reader over and show them our theory as to why what we're talking about needs to be talked about.
+- Before novels written by women were relegated to their own 'genre,' I was introduced to Jane Smiley by a dear professor who raised my awareness of what female authors were bringing to the table of contemporary fiction.
+- I can't listen to anything when I write, not even the TV. I do have to listen to music when I drive, though.
+- The more Mommy blogs going nuclear over playground etiquette I read and birthday parties of glazed adults munching cupcakes like demoralized zombies I attend, I realize this is what my friends who conceived before me meant by, 'You just won't care.'

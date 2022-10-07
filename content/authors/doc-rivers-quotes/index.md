@@ -1,0 +1,13 @@
++++
+author = "Doc Rivers"
+title = "Doc Rivers Quotes"
+quotes_len = "7"
+description = "the best 7 Doc Rivers Quotes"
++++
+- Everybody likes each other until things get tough. Then you will find out what kind of team you have, and I understand that as much as anyone.
+- I love Courtney Lee. He's a very good player. I know that sounds very simple, but it's true. He does things well. He's a good defender, a great team defender, and he shoots the ball very well.
+- The thing a player has to ask himself: 'Do you want to choose winning over standing out?' Dwyane Wade made that choice, and I don't think he gets enough credit.
+- I don't think you should ever run from history. You should learn from it and embrace it.
+- You've got to coach worrying about your entire team: whether that gets you a championship or whether that gets you fired. I think it allows you to coach free. You're coaching with freedom because you know you're doing what you think is right.
+- As a coach, you've got to do what's best for the team. If guys don't like it, they're going to leave. If they stay and don't like it, well, your team's going to suck anyway. Even if this happens, you still have to do it. You can't coach worrying about any individual.
+- You're always growing as a coach, and I am not done growing, and hopefully I'm not done winning.

@@ -1,0 +1,15 @@
++++
+author = "David Tudor"
+title = "David Tudor Quotes"
+quotes_len = "9"
+description = "the best 9 David Tudor Quotes"
++++
+- I persist in performing.
+- Most electronic equipment uses the principle of amplification. You need filters, modulators and mixing equipment which have gain stages. By piling these components up, I was able to work without any sound generators and I made several pieces in that manner.
+- If you put yourself in a situation of unpredictability and then find that it's completely possible to accept it, then you become an observer.
+- The basic notion was the idea that the loudspeaker should have a voice which was unique and not just an instrument of reproduction, but an instrument unto itself.
+- I've never been able to arouse any interest in myself for digitally produced sound, and so the computer turns me off.
+- Loudspeakers should be made to be destroyed and... disposable.
+- I've always felt that there's a point where a piece seems to be alive, that is, living. And that's the point where I know the composition is finished.
+- Performing is very much like cooking: putting it all together, raising the temperature.
+- I am perfectly willing for my music to exist with somebody else's taste.

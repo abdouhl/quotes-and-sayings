@@ -1,0 +1,13 @@
++++
+author = "Peter Nygard"
+title = "Peter Nygard Quotes"
+quotes_len = "7"
+description = "the best 7 Peter Nygard Quotes"
++++
+- I started stem cells when I wanted to find a cure for my mother, who I loved very much, and western medicine was not able to cure her. If I had discovered stem cells a year before, I think that she would still be here with me.
+- Stem cells are being used for anti-aging, and the University of Miami is doing a study about that to prove that it is true. They are looking at me, and my markers have shown exactly that I have been actually reversing my aging and getting younger. I am taking perhaps more stem-cell treatment than anybody else in the world.
+- If in sports you have a life cycle for 10 or 15 years, in fashion, you have no cycle; you're in it forever as long as you stay healthy. And I want to be in it forever.
+- When I'm creating, that's my heaven. If I haven't designed something every day, it is a failed day - that's how much I love fashion.
+- I actually ended up in fashion as opposed to sport because I needed the money. And it turned out that it tapped all my skills.
+- I knew nothing about the industry, I didn't go to fashion school, but I was brave enough to do things in a different way.
+- I may be the only person in the world who has my own embryonic cells growing in a petri dish.

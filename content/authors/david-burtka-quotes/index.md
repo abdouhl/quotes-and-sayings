@@ -1,0 +1,33 @@
++++
+author = "David Burtka"
+title = "David Burtka Quotes"
+quotes_len = "27"
+description = "the best 27 David Burtka Quotes"
++++
+- Working with Sam Mendes was a dream come true. He's unbelievable as a director.
+- It's been a long road. A humble Dearborn beginning. Secretary mom, dad teaching handicapped children. Working for what they had. Eventually, I moved to L.A. but, not good for me, I felt rejected. So I stopped acting and, needing to feel good inside, became a chef.
+- I think there's something to be said for being at home with your family and having all the things you like around you. I think my kids would say the same.
+- Being back in New York is so exciting!
+- I always thought that family was the most important thing in life, and no matter what I do, whether being a chef or an actor or a dancer, being a dad is what I do best.
+- Room service is a hard thing to pay for. That's, like, oatmeal for $12? That makes me mad.
+- I love getting anything homemade - anything that's from the heart. If you can make or craft your own something, that always goes above and beyond, like, a candle - which is great, but if it's homemade, that's so much better for me.
+- I hate getting flowers. I can't stand when I get a bouquet of flowers, because I have to stop what I do, cut the flowers, put them in a vase - if you're going to bring flowers, bring them in a vase already!
+- I'm emotional, so if I see something I like, that's it, and I want it.
+- I don't love being thought of as Neil's barnacle. It's a strange shadow to follow.
+- As a chef, I like to be totally prepared. I'm so big on lists. I love lists.
+- In every relationship, you have to be a team.
+- I always have poached shrimp and blanched vegetables on hand.
+- I'm happy ever since stepping back to New York.
+- Neil and I have always been big fans of drag, emerging theater, and anything that is really 'out there' in terms of performance.
+- A relationship is work, and it changes. And you go with the changes. It's more good times than bad times, but it's not always good. You have to overcome those issues and move on.
+- The kids are really great at baking cupcakes, cookies, of course - that kind of stuff - but I love delegating responsibilities for dinner so you have them picking herbs, or I have plastic knives for them so they're learning sort of how to chop. It's pretty great.
+- The problem - not problem, but main thing - for me has been adjusting my kids... Four-year-old twins! I'm waking up in the morning for rehearsal, taking them to school, and then having to go to rehearsal - trying to do a 15-minute warm-up, even on the subway.
+- My face couldn't play Jewish.
+- I'm a chef, so I really like knowing where my food is coming from.
+- My kids are crazy eaters. They have incredible palates.
+- Life for me in Los Angeles required medication. I spent nine years being sad and down in the dumps. L.A. doesn't work with my chemistry.
+- I ended up breaking with my boyfriend, and a week later, Neil and I had a date. We started hanging out every single night, and after three months, it was just non-stop. We talk on the phone at least eight times a day and text at least 25 times a day. He's my lifeline in an amazing way. Without him, I can't breathe.
+- It's really great to get your kids involved in the kitchen. Not only will they have an appreciation for food, but their palates will expand.
+- People under-salt their food, and they think it's bland, but salt brings out flavor.
+- I've always wanted to do a cabaret.
+- I'm pro Instagramming... but sometimes it's annoying if I'm really hungry.

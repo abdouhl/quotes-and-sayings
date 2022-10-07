@@ -1,0 +1,17 @@
++++
+author = "Donald Berwick"
+title = "Donald Berwick Quotes"
+quotes_len = "11"
+description = "the best 11 Donald Berwick Quotes"
++++
+- We have really good data that show when you take patients and you really inform them about their choices, patients make more frugal choices. They pick more efficient choices than the health care system does.
+- It boggles my mind that the same people who cry 'foul' about rationing an instant later argue to reduce health care benefits for the needy, to defund crucial programs of care and prevention, and to shift thousands of dollars of annual costs to people - elders, the poor, the disabled - who are least able to bear them.
+- Competition makes things come out right. Well, what does that mean in health care? More hospitals so they compete with each other. More doctors compete with each other. More pharmaceutical companies. We set up war. Wait a minute, let's talk about the patient. The patient doesn't need a war.
+- It is, I guess, politically correct, widely believed, that to say that American health care is the best in the world. It's not.
+- As a doctor, an educator, an innovator and someone who has dedicated his professional career to making things work better and to helping people - I am ready to lead.
+- I have two grandchildren. I want to hand them a planet and community that is really thriving.
+- The chronically ill and those toward the end of their lives are accounting for potentially 80% of the total health care bill out there. There is going to have to be a very difficult democratic conversation that takes place. The decision is not whether or not we will ration care. The decision is whether we will ration with our eyes open.
+- The decision is not whether or not we will ration care. The decision will be whether we ration care with our eyes open.
+- I am worried about the potential effect of casinos on communities.
+- Any health care funding plan that is just, equitable, civilized and humane must - must - redistribute wealth from the richer among us to the poorer and the less fortunate. Excellent healthcare is by definition re-distributional.
+- I think health care is more about love than about most other things. If there isn't at the core of this two human beings who have agreed to be in a relationship where one is trying to help relieve the suffering of another, which is love, you can't get to the right answer here.

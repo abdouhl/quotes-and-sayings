@@ -1,0 +1,50 @@
++++
+author = "Daniel Ek"
+title = "Daniel Ek Quotes"
+quotes_len = "44"
+description = "the best 44 Daniel Ek Quotes"
++++
+- Spotify is a platform: it could be expanded to other types of content.
+- My ambition is we want artists to be able to afford to create the music they want to create, and if it takes them five years to sit down and make the album they want to make, they should be able to afford that. That's my goal.
+- There are half a billion people that listen to music online and the vast majority are doing so illegally. But if we bring those people over to the legal side and Spotify, what is going to happen is we are going to double the music industry and that will lead to more artists creating great new music.
+- Spotify wants to make consuming music simpler and at the same time pay the rights owners.
+- We kind of look at music as something very natural in people's lives. I mean, most of us can relate to music in some sort of shape and form, and if you think about it, most of us remember the first time we kissed someone, what kind of music was playing or the song that was playing on our friend's birthday.
+- With Spotify, people don't get it until they try it. Then they tell their friends.
+- The main reason people want to pay for Spotify is really portability. People are saying, 'I want to have my music with me.'
+- It disturbed me that the music industry had gone down the drain, even though people were listening to more music than ever and from a greater diversity of artists.
+- I'm not an inventor. I just want to make things better.
+- I was born in Sweden, and in Sweden we are known for the piracy services.
+- Buying sports cars, going to expensive nightclubs, spraying people with champagne and things like that - what I learnt is that it wasn't for me, and, in fact, I feel pretty empty after doing that.
+- I was deeply uncertain of who I was and who I wanted to be. I really thought I wanted to be a much cooler guy than what I was.
+- I'm not saying you can't be successful in the music industry without Spotify. But when I look at the future of music, I don't think scarcity is the model anymore. We have to embrace ubiquity - that music is everywhere.
+- This is a way for artists to communicate directly to their fans. If you think of an artist like Bruno Mars, he's using Spotify, creating playlists and listening to music through it.
+- For me, as someone growing up in a working-class suburb in Stockholm, I couldn't afford all the music. So back in '98, '99, I was really thinking about how I could get all the music and do it in a legal way while at the same time compensating the artist.
+- We are passionate about making it so that users enjoy the music that they want to enjoy but at the same time fairly compensates artists. That's not the same as saving the music industry.
+- We look at the sharing of music as really, really important for our business.
+- I had always wanted to belong, and I had been thinking that this was going to get solved when I had money, and instead, I had no idea how I wanted to live my life. And no one teaches you what to do after you achieve financial independence. So I had to confront that.
+- Put your consumers in focus, and listen to what they're actually saying, not what they tell you.
+- Music isn't like news, where it's what happened five minutes ago or even 10 seconds ago that matters. With music, a song from the 1960s could be as relevant to someone today as the latest Ke$ha song.
+- I actually bought a travel guitar, and that guitar is really cool. You can actually fold the guitar, and you can plug headphones into it, but it's acoustic, or semi-acoustic.
+- I was the first real generation to have their teens on the Internet.
+- At the end of the day, I want the music industry to be larger than what it is today.
+- People just want to have access to all of the world's music.
+- Piracy was kind of hard: It took a few minutes to download a song. It was kind of cumbersome. You had to worry about viruses. It's not like people want to be pirates. They just want a great experience.
+- With Twitter and other social networking tools, you can get a lot of advice from great people. I learn more from Twitter than any survey or discussion with a big company.
+- I don't think we see ourselves as the savior of the music industry.
+- When I think about music in the future, I don't make a distinction between what's radio, what used to be the music library, and so on.
+- If you write to me and it takes a day for me to write back, don't take it personally.
+- We're focused on growing the pie so the artists can go back to making a meaningful amount of money.
+- I'm just interested in building a company that doesn't necessarily change lives but adapts people's behaviour.
+- I realised that you can never legislate away from piracy. Laws can definitely help, but it doesn't take away the problem. The only way to solve the problem was to create a service that was better than piracy and at the same time compensates the music industry - that gave us Spotify.
+- If you look at Adele, the reason she did so well was she created great music. It wasn't about a clever marketing trick.
+- It's hard to criticize someone who's hugely successful.
+- At Spotify, we really want you to democratically win as a musician. We want you to win because your music is the best music.
+- What we do is wake up every morning and think about how we get more music out to people; how do we get better music? We breathe, eat, and sleep music.
+- In order for a service to be social, you've really got to start from the ground up. The fact that almost a third of the U.S. population have even heard of Spotify is really because they've seen it on Facebook and friends have been sharing.
+- I listen to jazz, pop, rock, R&B. It really doesn't matter to me.
+- I had two passions growing up - one was music, one was technology. I tried to play in a band for a while, but I was never talented enough to make it. And I started companies. One day came along and I decided to combine the two - and there was Spotify.
+- I get to meet really interesting people.
+- There are millions of people who consume music illegally every month. Just getting them into a legal service will make the music industry way bigger than it's ever been before.
+- In general, people are comfortable sharing their music. There are two exceptions, though - Lady Gaga and Britney Spears.
+- A playlist can be very versatile, almost like a programming language.
+- We really do believe that we can improve the world, one song at a time.

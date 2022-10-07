@@ -1,0 +1,15 @@
++++
+author = "Sydney Madwed"
+title = "Sydney Madwed Quotes"
+quotes_len = "9"
+description = "the best 9 Sydney Madwed Quotes"
++++
+- Every man is the architect of his own life. He builds it just the way he wants it. However, after he has built what he wants, he sometimes decides that he doesn't like what he has built and looks for someone or something to blame instead of changing himself.
+- It is not the hours we put in on the job, it is what we put into the hours that counts.
+- Poor is the man who does not know his own intrinsic worth and tends to measure everything by relative value. A man of financial wealth who values himself by his financial net worth is poorer than a poor man who values himself by his intrinsic self worth.
+- Words can be like baseball bats when used maliciously.
+- The world will change for the better when people decide they are sick and tired of being sick and tired of the way the world is, and decide to change themselves.
+- If you want to be truly successful invest in yourself to get the knowledge you need to find your unique factor. When you find it and focus on it and persevere your success will blossom.
+- Would you want to do business with a person who was 99% honest?
+- When you have too much month for you paycheck, then what you need to do is realize that there is abundance all around you and focus on the abundance and not your lack and as night follows day abundance will come to you.
+- Every goal, every action, every thought, every feeling one experiences, whether it be consciously or unconsciously known, is an attempt to increase one's level of peace of mind.

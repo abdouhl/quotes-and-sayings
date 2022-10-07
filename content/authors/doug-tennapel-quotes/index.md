@@ -1,0 +1,16 @@
++++
+author = "Doug Tennapel"
+title = "Doug Tennapel Quotes"
+quotes_len = "10"
+description = "the best 10 Doug Tennapel Quotes"
++++
+- The difference between graphic novels and web comics is even greater than graphic novels and story boarding. Web comics really is a legitimately separate genre.
+- When we go to see comedians or funny movies, they don't address the wall behind them; they face us. This is why a game's first job is to entertain through gameplay and secondarily through humor, drama, or other traditional entertainment devices. The humor has to be a gentleman. I mean, it needs to be squeezed in around the game.
+- When I play a game, I want to play, not necessarily laugh. If you try to make me laugh at the expense of interactivity, then you've just created another funny game that isn't very fun. The videogame medium itself is a terrible place for complicated humor, drama, and character development.
+- Making modern games funny would be easy as pie if it was anybody's goal to actually make a funny game.
+- I have a traditional view of the afterlife... heaven, hell and judgments. But the accounts of those places are scant, and I believe it's on purpose. We aren't supposed to try to figure out the architecture of the afterlife, since the big game is here in this life.
+- If you read 'Lord of the Rings' and dismiss it as a lie because it has orcs and elves, you're missing the whole point of the story. If children don't have to be concerned about strangers because there's no such thing as a Big Bad Wolf dressed like Granny, you're missing the point.
+- It's a dirty little secret that I'm pretty self-conscious about coloring my own work. I just see so many people who love color more than me that I get freaked out every time I hit Photoshop. Black and white? I know exactly what to do, but color offers a million solutions to problems I don't even know exist.
+- I'm not the most famous guy in the world; my work is spread out across different mediums, and I never write the same kind of story and rarely even do the same character from one year to the next.
+- The point of view is the biggest problem with games, because what we play must be clearly presented in the best way for me to have an immersive game experience.
+- A page a day means I need to focus on a gag a day, and that's great for laughs but bad for plot, and I'm primarily a plot guy.

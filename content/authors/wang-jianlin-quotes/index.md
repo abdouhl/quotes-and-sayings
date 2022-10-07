@@ -1,0 +1,33 @@
++++
+author = "Wang Jianlin"
+title = "Wang Jianlin Quotes"
+quotes_len = "27"
+description = "the best 27 Wang Jianlin Quotes"
++++
+- Wanda and Reliance are two of the largest private conglomerates in their respective countries. By joining our strengths together, we hope our cooperation will bring mutual benefits and great results.
+- I know Bo Xilai well. But our relationship was based on our work; we didn't have a personal relationship.
+- Cultural industries will be the next engine for growth after real estate, and Wanda will make cultural industries our long-term focus.
+- The future of the world's film industry is in China because we have 1.3 billion people.
+- China's movie industry is growing a lot faster than that of the U.S.
+- Foreign politicians don't have resources - or limited resources. It's useless dealing with them.
+- I was born in a family with a strong military background, so I chose to be a soldier.
+- Real estate deals a lot with the government. It isn't like manufacturing, logistics, home appliances or the auto sector, which deal with consumers.
+- The basic principle is I command, and my employees carry it out immediately.
+- Remain close to government and away from politics. It means deal more with the authorities. And less with individuals.
+- Don't ally your personal interests with the development of the company.
+- There are not many companies in China that dare to say in public, 'We don't offer bribes', or companies that operate only by market rules.
+- The London property market has excellent investment opportunities.
+- There's no single company in the whole world that has a big-scale production base and at the same time has screening and distribution channels. Wanda Group is the first one in the world.
+- China is a government-oriented economy. No one can say he can run his business entirely without government connections. Anybody who says that he or she can do things alone... is a hypocrite.
+- China has set its cultural industries as pillar industries.
+- Among the world's 500 largest companies, not one has completely relied on its own growth to develop.
+- The U.S., especially Hollywood, is so strong for film production.
+- If Wanda can control more than 20 per cent of the world's three most important film markets - the United States, Europe and China - then it will have an empire with great voice in the industry.
+- Chinese people today have strong demand for culture, but we need effective supply, and China needs innovative cultural products.
+- If you are only big in China, you are only a local Chinese company.
+- In setting goals and executing a strategy, Wanda is sophisticated. We have good systems and departments. If targets are not reached, a yellow light goes off.
+- Investing in Chicago property is just Wanda's first move into the U.S. real estate market.
+- Chinese consumption, particularly high-end consumption, is booming.
+- Acquiring Sunseeker deepens Wanda's international influence and represents an important step forward for the development of the business.
+- Sunseeker is well placed to take full advantage of opportunities in China, one of the world's fastest growing luxury yacht markets.
+- I am not a person who pursues luxury. I am not like those people who, once they have money, compulsively squander it or show it off.

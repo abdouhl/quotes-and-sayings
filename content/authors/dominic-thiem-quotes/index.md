@@ -1,0 +1,34 @@
++++
+author = "Dominic Thiem"
+title = "Dominic Thiem Quotes"
+quotes_len = "28"
+description = "the best 28 Dominic Thiem Quotes"
++++
+- Guys like me, we have a different style that makes it hard to break in easily. When I was 18, 19, I felt like I was just a boy, body-wise and mentality-wise. I had to fix everything together.
+- On grass, many players can be dangerous because one break can decide a whole set.
+- I always wanted to be a professional player, but when I started playing well in Challengers and, for the first time, I did well at ATP tournaments, I saw that these guys are also beatable.
+- If you always experience new and better things than before, then you don't get tired at all.
+- The speed you have, you can't practice it. You have to be fast from your birth on. There are other things you can practice, like flexibility or the little steps needed to stand good to the ball, but to be fast is a gift you get.
+- I like to play tiebreaks, as that is when it gets interesting. Even when I was young, I enjoyed these kind of matches.
+- Movement is one of the most important things. My consistency, everything - there's a lot to improve. Coaches are never happy. But I'd like to keep improving, go deeper in the tournaments, and get as high in the rankings as possible.
+- I think I didn't win a match for one, one-and-a-half years.
+- Against Novak, it's really tough for me to play, I mean, because he doesn't give me any time. I don't really like to play against him because he has a game style which doesn't fit me at all.
+- It's a joke how tough it is to win a Slam.
+- I think I'm a very powerful player; I can hit good groundstrokes.
+- The less top players that are in the draw, the higher the chances get for us, obviously.
+- The Olympics are very important only if you gain a medal, and that's a very difficult achievement.
+- I just don't feel the Olympic spirit.
+- I'm a player, or I'm a person who needs to practice a lot; otherwise, I don't play well.
+- The one-handed backhand helps you to be more aggressive in the points.
+- I prefer playing ATP tournaments and Davis Cup competition rather than Olympic Games.
+- It was a big pleasure to play a Grand Slam match on my birthday.
+- My family are tennis coaches, and they always brought me to the tennis club. I basically had no other option than to start playing tennis.
+- You always have to continue working, because everybody is. Once you stop, the others will overtake you.
+- In the juniors, you are kind of a star, but just because you are a good junior doesn't mean you will be a good pro.
+- I'm not a big fan of the Olympic Games. The ATP calendar is a bit complex due to the Olympic event.
+- I like the tournaments at home. The crowd is always behind you.
+- My strokes are safer when I hit full power. They are unsafe when I hold back; it's more that I force myself to go full power all the time.
+- I think you have to improve every day a little bit so you don't have one day where there's a big thing coming.
+- I was never the person who came up with a boom somehow. I worked slowly and consistently, making my way up the rankings, so there wasn't one special moment.
+- I don't mind to speak about myself until a certain point, but I think there's also stuff which is for myself that nobody has to know.
+- When you win in straight sets, where is the challenge?

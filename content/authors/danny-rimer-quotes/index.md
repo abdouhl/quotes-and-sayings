@@ -1,0 +1,16 @@
++++
+author = "Danny Rimer"
+title = "Danny Rimer Quotes"
+quotes_len = "10"
+description = "the best 10 Danny Rimer Quotes"
++++
+- In the Valley, what's happened is you have entrepreneurs that just want to fill a hole in the market and have a rich exit.
+- The best companies are the ones that offer their products for free.
+- The reality is institutions that invest in high growth have offices globally and talk across offices.
+- Is Amazon truly the best online buying experience? Absolutely not. Is eBay the best platform for auction? Probably not. Are dating sites like match.com really a reflection of the way people date? Probably not.
+- The overall experience Skype provided was superior to other folks because of the underlying architecture and the ability to provide a superior experience.
+- To be an entrepreneur in Europe, there is a stigma attached to it. There's a reason why England is known as a nation of shopkeepers. Part of it is the idea that it's better to have a shop and keep it up and running than close the doors and try to do something much more significant.
+- It's pretty shocking that the guys in Europe who cover traditional media will cover Google, whereas in the U.S., there are five different equity analysts that will cover the internet universe.
+- The next Google is more likely going to come from outside the U.S. Whether it's in Europe, I am not sure. A lot of things have to change.
+- I'm always thinking as an outsider, and I'm always mindful of whether a company can be impactful on a global basis. Frankly, I'm paranoid about anyone anywhere who could be a competitive threat.
+- In Geneva, I was seen as an outsider. In the U.S., I was considered Eurotrash. And in London, I'm seen as an American.

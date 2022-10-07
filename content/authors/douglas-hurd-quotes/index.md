@@ -1,0 +1,30 @@
++++
+author = "Douglas Hurd"
+title = "Douglas Hurd Quotes"
+quotes_len = "24"
+description = "the best 24 Douglas Hurd Quotes"
++++
+- But Germany will always suffer, I fear, from the intensely dramatic character of the crimes of the Third Reich.
+- There is no consensus even today on the merits of Napoleon - and certainly no agreement on the rights and wrongs of the origins of the First World War.
+- People know they are lacking something, they are constantly wanting some kind of spiritual guidance.
+- Wisely used history can give pleasure and provide us with a useful tool; but we should not become its slaves.
+- People are very interested in politics, they just don't like it labelled politics.
+- Margaret Thatcher, growing up in a bombed and battered Britain, derived a distrust which has grown with the years not just of Germany but of all continental Europe.
+- We should be wary of politicians who profess to follow history while only noticing those signposts of history that point in the direction which they themselves already favour.
+- A genuinely democratic Iraq might well act as a fresh spur.
+- We, Britain and Germany, can neither of us be happy about our handling of the Iraq war.
+- No military timetable should compel war when a successful outcome, namely a disarmed Iraq may be feasible without war, for example by allowing more time to the UN inspectors.
+- I may be wrong in that, but not I think in putting the questions. In our modern democracy the government needs not a unanimous but a general support for war before it orders our forces to fight.
+- It was essentially for self defence that we went to war in Afghanistan and would go to war in Iraq.
+- The tragedy of 9/11 galvanised the American superpower into action, leaving us in Europe divided in its wake.
+- There is nothing false or arrogant about German pride in German technical and business skills.
+- The first two Prime Ministers whom I served, Ted Heath and Margaret Thatcher drew strikingly different lessons from the Second World War.
+- Men like Hitler and Stalin and their immediate lieutenants cannot plead in defence of their actions that these were justified by the accepted values of that time.
+- Despite this lamentable lack of balance in our education I do not believe that either children or adults in my country are permeated by a widespread hostility to Germany.
+- We must admit that history is enjoyable to a large extent because it enables us to pass judgement on the past.
+- There are thus great swathes of the past where understanding is more important and reputable than judgement, because the principal actors performed in line with the ideas and values of that time, not of ours.
+- It is normal for politicians in all countries to profess themselves the pupils of history, anxious to draw the right lessons from her teaching.
+- Margaret Thatcher was fearful of German unification because she believed that this would bring an immediate and formidable increase of economic strength to a Germany which was already the strongest economic partner in Europe.
+- But it cannot follow that because weapons and troops are now being deployed we are bound to go to war.
+- It depends on how it is done but what we are drifting into, which is that people grow up without any sense of a spiritual dimension to life, is just impoverishing.
+- History provides no precise guidelines.

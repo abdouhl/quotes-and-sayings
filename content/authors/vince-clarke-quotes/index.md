@@ -1,0 +1,15 @@
++++
+author = "Vince Clarke"
+title = "Vince Clarke Quotes"
+quotes_len = "9"
+description = "the best 9 Vince Clarke Quotes"
++++
+- I started writing songs at age 15.
+- I'm actually doing a show. from my shed. on the internet. but it won't be music or anything, it's more to do with drinking and smoking. it's an art piece.
+- I went on iTunes and looked at versions of Christmas songs. Everyone has done them!
+- When I was 20, I thought anyone in the music business over 25 is past it. Then at 30, you think anyone still doing it at 35 is ridiculous. Suddenly, you find yourself at 48 and still doing it, so I don't know what to say, really.
+- I used to do all my programming on a BBC computer. It was limited to 16 tracks, and you used the keyboard, not a mouse, to input, but I was using it so long, I got quite fast at it.
+- I'm a lover of songs.
+- With a track like 'White Christmas,' everybody has done that song in every format you can imagine, so I just looked at the chords at that particular song and what chords would make it work. That's kind of quite a sad song, and I had this idea of someone singing it in the subway, someone who is homeless, old and sad.
+- Collaboration is no longer painful - or precious.
+- When we start to write for a new record, we never really know what we're doing. We don't come into the room with a set of ideas, but miraculously, a song comes out of it.

@@ -1,0 +1,75 @@
++++
+author = "Edgar Ramirez"
+title = "Edgar Ramirez Quotes"
+quotes_len = "69"
+description = "the best 69 Edgar Ramirez Quotes"
++++
+- Love is also a very violent thing. Totally violent. Suddenly, you are, like, at this party your friends invite you to, and you meet this person, and your life is turned upside down, and the next day you can't stop thinking about them. That's violent. Hopefully, it's for the better, but it's a violent thing.
+- Imagine stepping into the shoes of Roberto Duran, one of the most legendary boxers in the history of the sport, and definitely the most legendary Latin American boxer, and then having 'Raging Bull' in my corner. I mean, imagine that? Just having Robert De Niro to play the trainer in the movie, that was fantastic.
+- You get to a new school, and you're the new guy, or you're the foreigner, or you're the guy with the funny accent. That first day at school was a whole new opportunity to create a new persona.
+- I come from Venezuela, from the independent film arena, and you work with one camera.
+- I met Alejandro Gonzalez Inarritu years ago during my college days, and I was in charge of international promotion of this movie festival he was invited to as part of the jury, and then he saw my work on a short film that was directed by a friend of mine.
+- I thought I knew how to work out before I immersed myself into boxing. I now know what an extreme workout really is.
+- That's what happens in a good horror movie: there are always metaphors of greater subjects like humanity and empathy and compassion. It's not about the action and scary moments: You really care about these characters because they're mirrors of our own reflections.
+- War is a tragedy. It's not pretty, and in my opinion, there are no winners. Everybody's a victim, from the one who's suffering pain to the person inflicting it.
+- I've never lived in an English-speaking country, ever, but I lived in Austria. So, my second language is German. And when I went to school, I had a lot of classes in English.
+- Boxing is all about how cool and controlled and clear your mind is. Violence only gets in the way of you winning a fight. It's a sport that's more about the strategy than anything. You lose or you win in your head.
+- I think that, in the end, the military behavior and intelligence services are not very different from each other. It's an attitude of hunters; they're observing the prey.
+- It's been a teenage fantasy of mine to play Bodhi.
+- I think that every male actor fantasizes with a boxing film.
+- Men are taught that if we are not the ultimate provider, we are a complete failure. We have to be number one in everything we do. There is nothing more delusional or paralysing than what I have just described.
+- We use the term 'fight' very lightly - 'I've been fighting so hard to get my car, I've been fighting so hard to get that job, I've been fighting so hard to get that girl.' But the reality is boxers do fight bitterly to get whatever they want or whatever they need in life, and most of them come from nothing, which is the case of Roberto Duran.
+- I majored in political communications, so I intended to be a diplomat.
+- I have a huge promotion: you've heard from me on 'Vantage Point' and also with 'Cyrano Fernandez' - that is a Venezuelan movie that I star in and co-produced, and it's based on the romance of Cyrano de Bergerac. And it's set in a Venezuelan slum. It's a free version of the French play.
+- I'm not an aggressive person at all. But I know how to fight.
+- Whenever someone comes up to me saying, 'I saw you in 'Carlos' and then I saw the rest of your movies,' for me, it's an expression that we might be doing something well. So my life hasn't changed that much. I just try not to go to very crowded places if I'm not in the mood.
+- To portray not only a boxer but a boxer like Roberto Duran, I needed to understand all the difficulties and the pressures of the sport itself.
+- I am a very active audience member. I want to be moved. I want to be confronted. I want to feel.
+- I remember I would always joke among my friends about a remake of 'Point Break'. I would say, 'You know what? Whenever there's a remake of 'Point Break', I'm going to do it.'
+- I think, for an actor, the whole world is a place of work because if you focus on characters and on stories, they are everywhere, so yeah, I feel very privileged to have had this great opportunities in the international cinema and especially in the American cinema.
+- Carlos, on paper, and Carlos, the guy who was in jail, is known to be a cultivated guy, the guy who handles big amounts of information, and for me, that was very important.
+- If you get conquered by ego, then you are losing the fight.
+- Boxing, in the most general terms, is a poor man's sport. All you have is your hands to make a living.
+- Carlos was a character, a character fabricated by Ilich Ramirez Sanchez, fabricated by the secret services of the epoch, fabricated by the governments of the epoch, by the radical groups of the epoch, by the communications media.
+- Panamanian boxing is unique - it's very musical. It's almost like a dance. It has a lot to do with being in the Caribbean and with salsa. When you see a Panamanian boxer, there's a style. There's a playfulness in the way you throw the punches.
+- I'm just the second Bodhi. I think there will be more. I have the feeling this is only the first re-imagination of 'Point Break'.
+- For me, no ideological or political conviction would justify the sacrifice of a human life. For me, the value of life is absolute, with no concessions. It's not negotiable.
+- I belonged to the 'Point Break' generation - I watched the original when I was 13 years old. It's basically the story of the rescue of the human spirit, and we continue to fight that same spiritual battle, but with a political expression.
+- Bodhisattva is enlightened in the Buddhist philosophy, religion, tradition. He's enlightened. It's fine - I don't really fight it - but many people use the term 'zen' and terms like 'nirvana,' 'enlightenment' in an almost superficial way. It's not that complicated.
+- I had to understand the whole bounty hunting thing, because we don't have that in Venezuela. Nothing similar at all, at least not legal.
+- I always try to look for the hidden face of the character, the hidden face that we all have.
+- You can't judge your characters or otherwise; it's not about you, it's about them.
+- The reality is that not only were we massively hit in 2008 when the bubble burst, and then we realized how deep the social gap, the economic gap in the world is between the super rich and the poor; also, we realized how impacted the environment has been. So there's been a physical consequence of that.
+- Feminism is nothing but equality, and actually, feminism benefits men because it liberates us and it releases us from many stigmas imposed by the macho culture on us as well. So if more of us could understand that it's nothing but equality, I think many agendas in terms of equality would have advanced quicker because it really helps us as well.
+- I'm definitely interested in exploring human contradictions. Contradictions are what make us human - it's what defines us as human beings. Contradictions are what make characters interesting, and I've been lucky to be presented with characters who have a lot of contradictions.
+- The truth is not a bidimensional thing; it's not flat. It's rounded; it's like a sphere, so there's always a hidden face. There's one that is revealed because there's light reflecting on it, but there's always a hidden one, and once you go around to see the hidden one, it moves, and that's life.
+- In boxing, there are no bad guys or good guys. Just people trying to make a living and trying to live up to their pride and to try to become someone.
+- I have a deep fascination with human nature, with all its virtues and all its defects.
+- Being enlightened is just being aware. It's just being aware of something that you weren't aware before.
+- There's never a dull moment on a David O. Russell set. But that's the beauty of it. That's the magic.
+- We are all seduced by charismatic people, whether it's in your office or in the bus or in the train. There are people who just, like, come through the door, and everybody turns around and looks at them and feels drawn to them.
+- I believe in the will. I believe in discipline. I believe in the organization. I believe in the rigor that gives us work. I believe in love as an engine of all things. I believe in the light. I believe in God. I believe in kindness.
+- If my subject is alive and is willing to talk to me, I will do it. But I always try to find people who were close, like lovers and family members and work colleagues - because we are what we think we are, but we're also the perception that others have of us. The truth is a sphere. There's always a hidden face.
+- The tale of 'Point Break' is about doing what you love and committing to what you love. It's relevant to me as a Venezuelan, to you as an American, to any Chinese person watching the film.
+- I think, for any actor, dealing with the paranormal is intriguing.
+- Boxing combines, in perfect proportion, strength, speed, and endurance. Normally, most sports are either about one of the three: either about speed or endurance or strength. Boxing combines all three of them. It's really intense.
+- What drew me to the character is that Roberto Duran is the son of an American soldier - a Marine - stationed in Panama and a humble Panamanian mother, and he was abandoned.
+- There's no way to reconstruct reality. It happened once. What you do is reinterpret and recreate. Even if you have the person who lived it and did it next to you, the event happened just once.
+- One of the pillars of 'Cyrano' is recreating a love story and, like any archetype, these great stories tend to be captivating, among other things, because they are made of those universal things that move us.
+- In order to understand the mindset of a boxer, I needed to become a boxer myself.
+- For me, it was very important to be part of a boxing film that actually explores the psychological aspects of the sport, more than just the physical aspects. I haven't seen boxing movies very often that really go so deep into the minds of the boxers. It really puts out how much it is about strategy and tactics and technique.
+- I'm restless. I'm all the time here and there and trying to get myself busy and creative. It's something that's part of my personality since I was a kid.
+- Everything goes in waves. Evolution goes in waves. The ocean goes in waves. Energy goes in waves. Sound travels in waves.
+- I think there's no creative process that goes without injuries and scratches and punches. You get beat up somehow, and that's part of the commitment. You have to be open to that.
+- My father was military, so I traveled a lot, so I had 13 to 15 first days in new schools. Bullies transcend culture, unfortunately, and I had to deal with them wherever I went. I knew how to defend myself. But I didn't know how to fight.
+- I remember when I first met Katherine Bigelow for 'Zero Dark Thirty' - actually, we met for another movie, and that never got made, and then she called me and invited me to 'Zero Dark Thirty'.
+- Duran is a mythological figure in Latin America. He grew up in a time of turbulence because Panama was basically occupied by the United States. So he felt obliged to fight Americans in the ring. He felt the whole pride of his country and the need for cultural and political emancipation in his hands.
+- Bolivar's legacy has always been a part of the Venezuelan/Latin American imagery, especially in the countries that he liberated or he helped to liberate. He's been a very prominent figure.
+- I look for roles that allow me to immerse in different worlds, immerse in worlds that are different from mine. Then, when you finish a film, you're a different person. I look for that. I look to be impacted, to be transformed, changed by my roles. That's why I do this.
+- I'm acting for the same reasons I wanted to become a diplomat. I've thought about it a lot and concluded that I wanted to become a diplomat because it was a way to explore human nature. For the same reason that at one point in college, I wanted to be a sociologist.
+- I think that the 'Bourne Trilogy,' it's definitely redefined the genre and took it to a new level. It was really great to be part of that experience. It is a very smart movie and a very smart script, great director, and great, you know, fellow actors.
+- My father was a military attache, so I've been traveling all my life.
+- I'm very physical. I love to work out; I'm very athletic. It's a great therapy, not only for my body, but for my mind.
+- Who said that being Latino is to be a stereotype? Characters are stereotypes when making plans or without shades. I do not believe in the picture or model established in the movies.
+- Panama is a country that's been dealing with issues of identity since its very birth. It was born on Wall Street. It was born out of engineering construction. It was the canal. Because of the canal, the country was born, so the country has been divided into pro-canal and against-canal people for so long.
+- We all have very personal relationships to what happened on 9/11 and the events after tracking Osama bin Laden. Nobody can escape from the influence of that.

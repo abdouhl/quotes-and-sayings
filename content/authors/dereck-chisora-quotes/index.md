@@ -1,0 +1,106 @@
++++
+author = "Dereck Chisora"
+title = "Dereck Chisora Quotes"
+quotes_len = "100"
+description = "the best 100 Dereck Chisora Quotes"
++++
+- Trust me, everybody likes to come forward with me, but they all just tire out.
+- I don't cry about results, I don't really care.
+- To get a fighter like Usyk is a lie and for him to get a fighter to spar like me is a lie. I didn't need anyone to box like Usyk, what I wanted was southpaws to see the way they stand and the way they move their feet.
+- Dillian Whyte hasn't got any power. He hit me with his best shot, didn't even bother me, and he knows that. I hit him with my best shot and he was asleep and I hit him with another one and I woke him up.
+- We do everything for money.
+- It's what you bring to the table for downloads and how many pay-per-views you can get. For an up and coming heavyweight, it's difficult to break into that scene. You have to take a pay cut.
+- You don't want athletes who are as dry as a bone, you don't want to turn your TV on and see someone boring.
+- Everyone else who has fought the Klitschko brothers has been scared.
+- I like to go to peoples backyards. I'm a better fight on the road than at home.
+- If you could have had a fighter with David Price's body and my mind, you would have had the Great White Hope the United Kingdom has been waiting for for years. With my will in his body, we would have had this giant Scouser knocking everybody out.
+- Del Boy' is no more, I am not playing, I am not cutting corners or looking for the short cuts, I have realised I need to live the life of a professional if I am to achieve what I know I am capable of.
+- Every time I have lost, I have rebuilt myself.
+- I like fighting.
+- Believe me, I'm more afraid of my mother than any opponent in the ring.
+- Takam is tough. I realized I couldn't trade with him toe-to-toe. I knew the overhand right could catch him.
+- If you don't have your gameplan right, as a big man against a little man, you are in trouble.
+- I'm from the streets.
+- I know one day I will be the world heavyweight champion and that Britain will be proud of me.
+- This is the boxing game. There is no ducking and diving.
+- If I was Mayor of London, I would take the congestion charge off. I'd keep the bike lanes. And buses free on a Thursday.
+- I used to spar Dillian when he was doing kick-boxing.
+- I have changed. I was born again, I've been going to church.
+- I'm actually a very nice guy.
+- I'm not rich, I'm not poor.
+- If you run you are a chicken.
+- The people, the fans, the pundits, the people who watch on TV, they are the judges.
+- I grew up in Zimbabwe and we didn't have much. My dad worked away for the whole week as an engineer, came back on Friday with his pay and gave the rent money to my mum. He'd put aside money for food and stuff and he'd keep the rest. That's how Africans lived, but there was enough to go around.
+- I don't care if people are booing me. They can boo all they like.
+- I might lose nine or 11 rounds but who knows what's going to happen in the 12th round?
+- Sometimes you think you've prepared and it turns out it's not enough.
+- Fighting behind closed doors is like going back to be an amateur, or your early days as a professional. Up and coming fighters can do it but for your bigger guys like Anthony Joshua, Tyson Fury and me, I don't think we can do that.
+- Loads of people wrote me off.
+- When you lose badly, when you get knocked out and the ref has to stop it, that's when you know it's been a bad fight. But when you lose a fight having over the 12 rounds and you don't look like you've done any rounds, that's when you know it's quite good.
+- We want to try and get Joseph Parker, as long as he doesn't run like an Australian chicken.
+- Every fighter goes into the gym to be a world champion.
+- As long as I can wake up in the morning and want to train, I will fight.
+- I really want to fight Deontay.
+- I've known Dillian since we were young.
+- I left Zimbabwe when I was 16.
+- Every time I go to the judges, I never get it.
+- I did probation for three years.
+- I'm not the best fighter but I'm the craziest fighter.
+- I used to be a crazy man.
+- Most guys are defeated before they step into the ring with the Klitschkos. They start shaking with fear in their boots.
+- I enjoy fighting, I love boxing.
+- Muhammad Ali wasn't loved, people forget that, but people paid for tickets to see him fight. In retirement, he's loved. As long as people are talking about you, that's a good thing.
+- The simplest thing is - Dillian Whyte can't hurt me.
+- The title game is too hard.
+- I'm a rude person. But men are hunters. We look. We like. We approach. Women don't like the fact I do it with a swagger. They don't like me walking into the room like I got a million dollars in my pocket, when I ain't. But as a boxer you need that swagger.
+- I prefer to not be soft.
+- I'm an entertainer.
+- I don't have a gun, I've never owned one and never will.
+- Why would I want anyone to advertise on the soles of my boots? The only time you'll see the soles of my feet is when I'm dead.
+- After I retire I don't want to say 'I could have done this and that.' I just want to give it all while I can.
+- I say what I like to say. Most people don't want to break people's feelings, but I just say how I feel.
+- Some of the fighters I've boxed, I've forgot their names.
+- I've won, I've failed - so many things have gone wrong for me. There's been ups and downs.
+- I knew Szpilka from around 2004, after he had stopped being a football hooligan and I was over in Poland for business. We did some filming together for about 10 minutes and hung out afterwards, he is a cool guy.
+- People who have never boxed before, never worked hard in boxing, and they are starting to come in and people forget about the real boxers.
+- An elephant is the king of the jungle for the simple reason a lion is only brave when there is loads of them.
+- If you lose a fight you were paid £800,000 for, the next fight you'll get £100,000 so that's a big drop. If your ratings drop everything drops. I just want to make a good living for my daughter and the rest of my family and to enjoy life.
+- I'm open to fighting anyone, whether it's Tyson Fury or Deontay Wilder.
+- Boarding school forces you to grow. You have to wake up at a certain time, you have to study, wash your own clothes. We used to play rugby in whites. Can you imagine washing that? And it has to be white. If it was not white, you got punished.
+- Boxing is an entertainment, I have to entertain people.
+- David Haye is a drama queen and I don't know why more attention is being given to a drama queen but the show must go on.
+- I'm happy with my life.
+- I would like to fight Wilder because he's a great name, he's knocked out nearly all his opponents. I personally just want to fight Wilder.
+- Me, I don't know anything. Don't even know fighters in my own division.
+- Every fight is important.
+- I asked for the fight with Pulev to be honest with you. I didn't duck and dive.
+- Someone has to take the bad role and as long as people are tuning in and watching the sport that I love, I don't mind.
+- The psychology of the Klitschkos is to be nice to you before the fight and then destroy you in the ring. With them it's just business.
+- I tried sports, but I ended up being a paramedic. There was to be no rugby for me. Believe me, I did try, but I fell short. Rugby is tough, man.
+- I got paid about £5,000 for my first fight against some fat nobody in Wembley. If you're an amazing fighter you'll get between £20,000 and £50,000 for your first fight. I spent all that money on clothes.
+- For me to stand there and try to pick my punches, I can't do that.
+- Fighters just want to be the best.
+- What happened between me and Vitali, and Haye and Wladimir made the Klitschkos stars in Germany.
+- What you fear is embarrassing yourself. Anyone who says they don't fear that is lying.
+- When you're a dad you get guys who say 'I don't change nappies' but really and truly everyone changes nappies.
+- I don't really care about belts. Look at all the greats, they fight for the right to be called the best and the crowd.
+- I've lost so many fights and I've won many but you have to keep pushing.
+- I can still deliver behind closed doors, we just need to get a recording of the fans singing and shouting in the arena so I can hear them chanting.
+- I will end the Klitschko reign and cause a massive upset that will be felt around the world.
+- The Klitschkos have ruled for too long and I can't wait to get into the ring in Germany and smash the living daylights out of Wladimir first. Vitali is waiting in the background and I'll deal with him once I've dealt with Wladimir.
+- There's nothing wrong with being gay or lesbian. If my cousin was gay I'd support him. If my sister was a lesbian I'd support her.
+- I'm a big believer in cash but I'd never buy a property with cash.
+- Boxing needs me.
+- I talk to a shrink. I actually enjoy it, but it costs too much money - it's like £250 a session! It's good though, the whole nation should be on it.
+- No cares about the Muhammad Ali trophy.
+- I've lost to some great opponents, and in some I have been robbed.
+- I love being a father.
+- David Price is a big guy but he has not used his advantages, I have known him since the amateurs in the early 2000s and I would always see him in the Boxing News magazine.
+- I deliver the fans what they want. I create a jolly!
+- I'm the only black guy who lives in Hampstead. All my friends there are Jewish and you get some Arsenal players in Hampstead but they're French and don't go out much. So I stand out when I walk around. Everyone knows the 'Del Boy' in Hampstead.
+- I want that rematch with Dillian.
+- Bisexuality started a long, long time ago. You just have to support it. There's nothing wrong with it. We all bleed the same, we're all going one way in the end - six feet down. I support the gays 24/7.
+- When an elephant is by himself, he can attack lions and get away with it.
+- I'm always nervous before a fight, any fighter that says they're not is lying.
+- I just want to fight Dillian Whyte. He never beat me the first time, so I want to show the people.
+- I don't box, I bring war. I like war.

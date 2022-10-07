@@ -1,0 +1,30 @@
++++
+author = "Phoebe Snow"
+title = "Phoebe Snow Quotes"
+quotes_len = "24"
+description = "the best 24 Phoebe Snow Quotes"
++++
+- The thing that helped me come to terms with performing was an anxiety, a desperation for acceptance. There was never enough positive motivation in my life.
+- Once I get out onstage, it's the same sort of basic production that it is anywhere else. But I might be a little bit aware that there might be people I know out there, who wondered where I was.
+- A friend hipped me to hypoglycemia, which an article I read calls 'a disease for a nation of sugar junkies.' Who knows how many people in this country have it?
+- I know there's a consciousness energy that operates completely independent of the physical body you inhabit, that maintains... awareness after the body's gone.
+- There's a fascinating school of thought that some women are relationship addicts. You get really strung out on a guy who's not returning your enthusiasm and tell yourself you're going to fix him and make him better, and of course it's impossible.
+- There were times when I had maybe a couple of hundred dollars, and times I made myself think I was on top of the world.
+- Sometimes when you're overwhelmed by a situation - when you're in the darkest of darkness - that's when your priorities are reordered.
+- The most common misconception about me is that I'm basically a jazz singer.
+- The first album was a very successful record. It made me very visible and it's an immediate association, but I don't do that anymore. Now I'm true to myself as an artist again. I'm more vocally oriented.
+- It's no sin to admit that you feel vulnerable and lost.
+- I would like to do something autobiographical, set to music. I don't know how I'm going to do it, but I'm going to try.
+- I've sort of made up my mind that I have to do my career and I have to be a mother. These are my two responsibilities; of course the baby comes first.
+- All of my life, when things got too difficult, I folded up the tent and went to bed. I couldn't stand a challenge... I was terrified of confrontation. I was very laid-back, and just wouldn't get involved or fight back.
+- I faded away for a while out of necessity.
+- I'm not a folk or jazz singer, more a hard-edged pop singer - with some rock, and song hooks.
+- With my quick success, I didn't have time to learn the ropes of the music business. Because my first record was such a hit, I was terribly spoiled and I thought I couldn't do anything wrong. I was also desperate to make tons of money because of my responsibility to my daughter. And there was no longer any joy in making music.
+- Give me a strapless gown and a rhinestone-studded guitar and some 55-year-olds in my audience, along with their kids and grandkids. Don't give me 'boogie'!
+- If the baby is sick, you won't find me showing up to play my gigs. If I have a contract, there is going to be a clause in that contract saying that if the baby is sick I will not appear.
+- I realized that I've lived half my life already, and it's time to believe in - and stand up for - myself.
+- I lost interest in being in the public eye.
+- I wanted to be the greatest woman guitarist alive. I had fantasies about being a female Jimi Hendrix.
+- I was totally ignored for a while... that's a hazard of signing with a small company who say how small they are and how close to the artists they are. Suddenly they don't have any time for you.
+- Back then, I was an acoustically-oriented artist. Honestly, 'Poetry Man' wouldn't have been my first choice.
+- My life was very tenuous last year. My daughter's death, in March in 2007, was unexpected. It was a shock. I didn't know if I'd survive it.

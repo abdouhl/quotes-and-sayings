@@ -1,0 +1,32 @@
++++
+author = "Zack Greinke"
+title = "Zack Greinke Quotes"
+quotes_len = "26"
+description = "the best 26 Zack Greinke Quotes"
++++
+- To wake up when the sun comes up and enjoy that and then, when the sun goes down, to have a nice property or house where I could watch it on my porch when I'm older. It would be peaceful.
+- I could play for the worst team if they paid the most... If the last-place team offers $200 million and the first-place team offers $10, I'm going to go for the $200-million no matter what team it was.
+- If I lie, I forget what I said the first time. I won't remember the lie. I don't know how people do it.
+- I don't mind people looking at me. That's never bothered me. I don't want them looking at me in my house; now that would bother me.
+- To talk to people, I have to spend energy talking to them. If I expend my energy on talking to people and making friends, it takes away from the energy I could focus on getting ready to pitch.
+- I don't know anyone who likes the American League games better. Maybe some fans do. But if you're not an actual DH, you probably prefer the National League.
+- I don't like to just talk about nothing, or less than nothing. If it's something interesting, I'm fine with it, but, 'Hey, Zack, how is your day?' People ask that, and somebody actually tells them what happened in their day? I don't have any real interest in that.
+- Sometimes my arm wants to throw a hard fastball, but my brain doesn't want to throw it that hard.
+- I'm not a good liar. I just tell the truth; I think that's the best way.
+- Everyone watches everyone pitch. If they're doing good, you're trying to take something out of them. I've taken something from probably every average to above-average pitcher I've ever played with - what they do. You see what they do and how you can put that into your game.
+- I don't play anymore, because I know I'm not going to be a pro golfer. So there's no reason to golf.
+- I used to get so nervous and upset at stuff... I'd always be angry.
+- You're not allowed to write about me if you haven't seen 'The Shawshank Redemption.' See it and then get back to me.
+- That's our goal every year, to win the World Series, like it is at most places. In L.A., it really is.
+- There's more people to ignore in New York or Boston than there are in Milwaukee, but I would still ignore them, probably.
+- I've only kept one award in my whole life, and it's the coolest thing ever. Mizuno gave me a samurai sword for winning the Cy Young. It's awesome.
+- Baseball, in my opinion, would be a lot better if you could just make the same salary as everybody else in the world, and you don't deal with any of the other stuff. But that's not how it is. The main thing is I want to pitch against the best players in the world, and you can't do that playing in a pickup baseball league in your town.
+- In Kansas City, most of the time, if we'd have made it to the playoffs, we would have been happy. But our team wasn't that good.
+- There definitely will be flying cars, but whether there'll be flying cars for most people to use, it'll probably take a long time to straighten everything out, all the rules and hassles. It'll take a while to figure out how to keep people from crashing into each other.
+- I remember bringing some of my other friends to our table, and everyone at our table would look at them and ask me, 'What are you doing? Why'd you bring him?' It was annoying high school stuff that still goes on now. My high school was really bad.
+- I don't really think about the runs too much. I mean, if we get, like, a five-run lead, then I'll start to pitch according to that.
+- I feel like, in general, lefties hit fastballs from right-handed pitchers better than right-handers hit fastballs from right-handed pitchers.
+- I play to see what I can accomplish. I don't play for fun. I play to see how good I can be.
+- Brad Pitt has something about him to where he's played different characters in all his movies, and every single time after he's done, I want to be him.
+- I don't want people following me around, everywhere I go, people talking to me and stuff. I don't want to be walking down the street with a bodyguard. I don't think that will be an issue playing in L.A.
+- It's not easy to play 162 games and be focused the whole time. It takes a lot out of you.

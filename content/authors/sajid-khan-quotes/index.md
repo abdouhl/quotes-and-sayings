@@ -1,0 +1,106 @@
++++
+author = "Sajid Khan"
+title = "Sajid Khan Quotes"
+quotes_len = "100"
+description = "the best 100 Sajid Khan Quotes"
++++
+- I am usually frivolous and fun, but sometimes I can be dead serious in my comments.
+- It's true that friendships in the film industry are fickle but that holds true for life in general.
+- Critics never rate any blockbuster well.
+- 'Heyy Babyy' needed fast cutting and eye contact. It didn't need fancy camera angles.
+- I hope I've made a good film. And before you ask, a good film is one that I'd see three years from now and not cringe.
+- I realized I have to be politically correct and easy. I was taking myself too seriously, I had become rude.
+- When I thought of the word 'Himmatwala,' I couldn't think of anyone other that Ajay Devgn who could do justice to the role. He is a great actor and can portray emotions, anger and action effectively.
+- Among close friends and family members, I say whatever I want to. But, as a filmmaker, I have my responsibilities, and I have to look at so many things at the time of finalizing a script.
+- When 'Himmatwala' didn't work, the negativity factor attached to the reviews were more pointed towards me. That's when I realized, that something has gone wrong.
+- I eat, sleep, love movies.
+- All the nice girls in my life I have treated badly.
+- I feel that every person watching a reality show is an expert judge.
+- I have become politically correct now. I have curbed my enthusiasm. I am in my mid-40s, so it doesn't make sense to talk brashly like a 20-year-old.
+- Cinema is a medium which makes you forget your worries and present a world which you can never be a part of.
+- I wanted people to respect me as a filmmaker. 'Heyy Babyy' did well, then 'Housefull' did well, so I wanted people to take me seriously.
+- I can understand how technologically advanced action has become in our movies, but unless there is emotion or a strong story, it doesn't work. With every action sequence, there must be an emotion to justify it.
+- The biggest difficulty in film industry today is not that of getting dates, actors or finance, but writers. We don't get writers. They are like heart surgeons with whom you need to meet after fixing an appointment.
+- No man at the beginning of a relationship tells the woman the truth. Initially, he just wants to have fun.
+- I've never encountered any star ego.
+- I can't cry like Shekhar Kapur. I don't cry so easily.
+- If an actor doesn't believe in the film, the actor doesn't promote the film.
+- One host I love watching is Billy Crystal. His hosting was never scripted, it was organic.
+- What immensely touches me and moves me is cruelty against children and elder people. That is something I am sensitive about, I don't cry otherwise.
+- My mother wants me to settle down and have children! I'm aware that it's a mother's concern and I respect it. But I can't get married because I have to get married. I have to be in love with the woman I commit to.
+- I strongly believe that besides having good action, action-oriented films need to have a good baseline for the script.
+- I am a serious and straightforward person.
+- There are so many times where I may share a dirty joke or laugh at one, but the due restriction has to be there in one's head when it comes to the larger audience.
+- I am nearly 40 and still unmarried because my wife would be the one who has been a movie buff like me since she was born.
+- Sajid Nadiadwala has been the strongest guiding light in my life. He and Farah are the only two people who I give full freedom to slap me in public, and I will keep my head down because they are my elder brother and sister.
+- Maybe one day I could make a film which works at the box-office and the critics also like it.
+- My sister Farah and me, we come from a very middle-class family.
+- I don't indulge in double meaning humor.
+- Being single I feel is a boon - why do you guys want me to push me into hell by getting me married?
+- In the late '80s, as a child, I used to shoot short films on my friend's wedding camera.
+- I am not arrogant but yes I am rude.
+- By the age of 13-14, I realized that I could make people laugh. So I started dancing, doing mimicry, and even playing music.
+- We went bankrupt. My parents got divorced. I was going to a super-rich kids school and suddenly we had to shift to Shivaji Nagar slums. So I have had the experience of both lives.
+- I take myself seriously only when I'm making a film.
+- I think I had become over-confident in my approach towards my work and with people around me. I admit that I'd started sounding pompous and self-obsessed.
+- One has to be careful about the kind of content that's shown in films or on television.
+- After the success of 'Heyy Babyy,' 'Housefull' and 'Housefull 2' I was overly confident that 'Himmatwala' would set new records. Its failure was disheartening.
+- Somewhere at heart I am a kid; I have not grown, really.
+- You know that Sajid Khan is a brand name and that you will get a family entertainer from him. I will never change that.
+- After 'Humshakals,' the Sajid Khan bashing which followed, that was a little unnecessary. Genuinely.
+- True critic is someone who loves movies and understands it.
+- The truth is you may be far happier as a bachelor, but you are far more at peace as a father.
+- The biggest superstar of our country is Mr. Amitabh Bachchan, who I feel is the most gifted comedian of all times.
+- People know Sajid Khan's films as comic capers which make them laugh. They expect a comedy film from me and now I will give them only what they want.
+- The only pressure on me is that I should never disappoint my audience.
+- I am not a television actor. I'm an anchor.
+- I like the challenge of making people do things which seem unthinkable.
+- I basically hate wearing make up.
+- I don't think I can create films just for critics. It's just not me.
+- Cinema is my life and I can never make a flop.
+- I don't think Farah and I will make a film together. She is a director in her own right.
+- I'd like to believe that I'm a good son, good brother, good uncle, good friend and a good human being.
+- The idea of 'Humshakals' was already in my mind when I was making 'Himmatwala.'
+- Comedy is basically action but you get the reaction on laughter.
+- There's not a single man in this world who has not cheated on his woman at least once!
+- If anybody will ask about my ex, or exes, I will just smile. I'll never say anything negative because I think that's what being a gentleman is.
+- Re-recording 'Naino mein sapna' for me was like being a part of history. Never before has a son sung the same song in the same style which was rendered by his father 30 years ago.
+- There is always pressure. If you make a flop film then you are under pressure to make a hit film. If you make a hit film then you are under pressure to surpass your own standard or at least deliver another hit because the audience also has expectations.
+- 'Himmatwala' was a cult movie that I watched not for great cinematic moments, but for pure guilty pleasure.
+- I've been an action buff all my life. For me, action is not complete without emotion, and at the same time it's about heroism more than anything else.
+- Stand in front of the firing squad with your head held high and take the bullets. It's okay, eventually the bullets will run out. You will fall down and rise again, no big deal.
+- I would rather make a bad film which does well at the box office than a good film which does badly.
+- Nobody in the world loves cinema more than me.
+- There was only one Kishore Kumar and there will be only one Amit Kumar.
+- Some filmmakers make films to please themselves and a handful of critics, so they get 5-star reviews but their films don't run at the box office. I make films for the masses.
+- Shatrughan Sinha's career lasted because people could imitate his dialogues. You cannot be a mass superstar if people don't imitate your dialogues.
+- I love to be behind the camera.
+- I had done 17 drafts of 'Heyy Babyy' before the final screenplay emerged. It's actually based on the wild lifestyle of a friend. In fact, when he saw 'Heyy Babyy' he threatened to sue me and said I'd better pay him royalty.
+- Find me a nice girl and I will marry her!
+- I do not why the critics don't like my work. I guess I do not make films that they like.
+- I think Akshay Kumar and Riteish Deshmukh are two gifted, talented comic actors who can pull off anything.
+- I have always been a director at heart.
+- I have imbibed some Billy Crystal in me.
+- I like to make films which a family can sit and watch together.
+- My training ground has been my interest in watching movies. Unlike most other directors, I haven't assisted anyone.
+- I don't make films to say, 'See what a great director I am!' I don't go and please a particular actor. I feel it's more important that your film works.
+- There were lots of perceptions about me, right from being gay to casting couch to being a drunkard to getting violent, none of what I am in real life.
+- Hindi movies will never be liked by the critics, trust me. The main stream Hollywood film will not be liked by the critics.
+- People think I am arrogant, I don't think so. I cannot be arrogant at all... I am basically a lower middle class person by heart.
+- 'Housefull' is not a 'leave your brains behind' kind of a film. It has a very intelligent screenplay.
+- My father was a filmmaker but he made B-grade films. However, he always aimed at making a big film.
+- 'Heyy Babyy' is a modern yet very traditionally Indian film - you can watch it with your entire family.
+- I'll never ever say anything bad about a woman in public or speak negative about a woman.
+- If you are a good actor then you are good at comedy.
+- Hosting should be organic, and boring an audience with your hosting is the worst you can do.
+- 'Himmatwala' is one of my top five favorite Bollywood films and I'm very fortunate that my name is associated with the movie.
+- But, I have greatest respect for women, and I never ever mock them or the institution of marriage or a committed relationship!
+- I think when the going is good everyone will accept whatever you do.
+- I don't work on television round the clock.
+- I had to be funny while hosting the countdown shows. That was my job.
+- I can't say I am a great director but I am the greatest audience.
+- Films don't change lives, nor are they made to change anything, their only purpose is to entertain.
+- Hindi films are not made for critics, it is made for worldwide Hindi film watching audience.
+- The moment any film has song and dance sequences - where any time any character can start singing and dancing without any explanation - it can turn into a senseless film.
+- I have broken a lot of hearts, I have lied, I have cheated, I have deceived, like most of the guys do. But I was on television, I was getting successful, I was getting brasher. I was treating women very badly.
+- The kind of entry that Amitabh Bachchan had in 'Coolie,' for me, it's the entry of all time.

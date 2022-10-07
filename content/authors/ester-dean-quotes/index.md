@@ -1,0 +1,28 @@
++++
+author = "Ester Dean"
+title = "Ester Dean Quotes"
+quotes_len = "22"
+description = "the best 22 Ester Dean Quotes"
++++
+- I write by myself and then deliver the song. Everybody knows, 'Leave Ester alone when she's in her zone.' Give me a studio and the tracks, and I'll call you when the doctor is done.
+- I'm not looking to be an artist to make money. I'm looking to be an artist.
+- I'm universal. As much as I can get out a 'Firework' with Katy, I can get a 'Lil Freak' out with Usher. Or a 'Lay It Down' with Lloyd. I can get Caribbean as I did on 'Rio,' then go from there to working with No Doubt.
+- I've walked on hot coals with Tony Robbins.
+- If I'm out of town and I'm in a situation where I have to be creative, it has to be hot dogs because that's my comfort food.
+- I always wanted to be a psychiatrist.
+- People keep putting limitations on themselves and creating this reality that soul music is dead. That's only in their reality. It's not true. To me, Adele is R&B. Bruno Mars is R&B. It's just good songwriting and songs. That is going to last.
+- I'm a very emotional writer. I always need to have a boyfriend. I always need to have some food. I always need to have a heater at my feet, and I drink this thing called Cool Brew, which I found in Louisiana. It's like condensed coffee.
+- My dream is to star in an animated movie and to have a toy made after me.
+- I always tell people I write songs, but I'm a writer. It's a difference. I can write songs to music, but I can write a story. I can see ideas spark in me.
+- I will make up a crush, you hear me?! I will look at a guy and say, for two months at least, 'I think you're cute.' And then I can be psycho. I will go in my head and make a whole life with him, he don't even understand why I'm mad at him. I'm like... 'cause you came in late last night!' And he's like, 'I don't even know you.'
+- I'm a songwriter who just wants to bring people great songs.
+- It's so funny because if you tweet your lyrics and then you hear it in a song next week, you're like, 'Hey I had that same idea.' I'm very secretive with my music. We have to send emails password protected. Because once that song gets out, you aren't selling that thing.
+- I had so many beliefs against being a singer or what it takes. There was a lot of pain associated with that. The rejection of it all. I lived in a rejection state of mind. Not because of my voice; the mike never rejected me. It was harboring all those bad memories of being broke. It teaches you your worth. Nothing good comes from that.
+- I see what other people do and what songwriters don't. They don't get out and take care of themselves. Producers turn themselves into a massive brand. Songwriters tend to be under someone else's umbrella. If you're building your own legacy, it can't be under an umbrella.
+- I normally work like a vampire. Around 8 to 9 P.M., what I call 'the spirits' actually show up, and then I just go in the booth and scream on top of a track. I only sing on the mic. I don't sit down and write anything.
+- I'm the only girl songwriter that fights for a lot of things. I fight for songwriting fees, which record labels want you to shut up about.
+- There are lots of people way more talented than me - but I work more, and I wanted it more. I never waited on anyone else.
+- My nickname is Esta Bell.
+- I'm more than a songwriter. I'm a creative person. Some people you just always see. I won't allow you to see me unless it makes sense. There's a reason to see me.
+- I just write songs from the heart, and you never know who'll like the songs. I try to make sure that I don't allow anybody's expectation to weigh on me. I have my own expectation of life. I believe in letting people be free.
+- I'm limitless, spontaneous and fearless. I can take direction and also give it. And I don't dwell on celebrity.

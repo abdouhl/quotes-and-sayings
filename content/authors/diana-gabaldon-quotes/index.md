@@ -1,0 +1,121 @@
++++
+author = "Diana Gabaldon"
+title = "Diana Gabaldon Quotes"
+quotes_len = "115"
+description = "the best 115 Diana Gabaldon Quotes"
++++
+- All I had when I began writing the first book was rather vague images conjured up by the notion of a man in a kilt, so essentially I began with Jamie, although I had no idea what his name was at the time.
+- Cultural concepts are one of the most fascinating things about historical fiction.
+- From the late '70s to the early '90s, I wrote anything anybody would pay me for. This ranged from articles on how to clean a longhorn cow's skull for living-room decoration to manuals on elementary math instruction on the Apple II... to a slew of software reviews and application articles done for the computer press.
+- Where I live, there is a group of fans who take me out to tea every year to pick my brains about what's coming up.
+- I've had no fewer than three young women on separate occasions come up to me at book signings and unzip their pants, turn around, and drop them to show me that they had 'Bonnie lassie' tattooed across their rumpuses!
+- I do recall loving 'All Quiet on the Western Front,' and I know I read it in a schoolroom, but I think I was in the sixth grade at the time, so it probably wasn't assigned reading.
+- You won't have a story unless you have conflict, which means if there's no conflict in a situation, people look for a way to make some.
+- If you want to know anything about me, read my books - it's all there.
+- I happened to see a really old 'Doctor Who', the second Doctor, Patrick Troughton, and he'd picked up a Scotsman from 1745. It was an 18 or 19-year-old man who appeared in a kilt, and I thought, 'That's rather fetching.'
+- Back in the day, years ago, in 1988, the only TV I watched was 'Doctor Who' because I had children and two full-time jobs, and 'Doctor Who' was the exact length of time it took to do my nails, so I would watch 'Doctor Who' once a week!
+- There's not a lot of pictorial evidence from the Highlands, because only the very wealthy had their portraits painted - but there is one well-known painting of the two sons of the Duke of Argyll, wearing tartan.
+- I've never been willing to commit to more than one at a time, because I just don't know - I don't plan the books out ahead of time. So I have no idea how much ground we'll cover.
+- For months, people have been asking my views about the Scottish independence referendum, and I've been saying, 'It's not my country; I don't live here. Much as I love Scotland, I think it would be inappropriate to express a personal opinion regarding Scottish politics'.
+- I stagger out of bed, take the dogs outside, and then I'll get a Diet Coke and a couple of dog biscuits and go upstairs. By the time I've consumed my Diet Coke and had a quick run through the morning email and Twitter feed, I will probably be compos mentis enough to work.
+- The only thing I knew about novels from a technical point of view was that they should have conflict.
+- How you carry a story in pictures is different than how you do it in text.
+- People have been trying to make a two-hour feature film of 'Outlander' for years and years and years.
+- If you donate to a charity and save a few kids, 20 years down the line, there will be more people who exist because of you. In other words, you should consider your actions fully.
+- There are lines of geomagnetic force running through the Earth's crust, and most of the time, these run in opposing directions - forward and backward. In some places, they deviate and will cross each other, and when that happens, you kind of get a geomagnetic mess going in all different directions. I call these vertices.
+- My mother taught me to read in part by reading me Walt Disney comics, and I never stopped.
+- I've read a lot of classic literature from assorted cultures, and always glad to read more when one comes across my path - but why be embarrassed by the fact that flesh and blood has limits? Nobody's read everything.
+- I don't think I ever consciously separated 'school' books from any others; I just read anything that came across my path.
+- Now I've got a fairly good grasp of the 18th century on what was common and what people thought. But I don't write in order. I write bits and pieces and sort of glue them.
+- All of my books have an internal geometric shape, and once I've seen the shape, then the writing gets much faster and easier because I now do know where we're going, and I know what's motivating these people, why they were here, and therefore, I have some good idea how they got there, and so I can fill in the missing chunks somewhat more easily.
+- I understand what it is that actors do. They embody someone that they aren't.
+- It's important to remember that the Jacobite Risings of the 18th century constituted a religious civil war, not a nationalistic movement.
+- One of the great perks of being a writer is that you can work when you're mentally capable of it, not when someone else thinks you should.
+- I have all the time and space in the world when I write a book.
+- I read all the time. People ask, 'Do you read while you work?' And I say, 'I better.' I take two or three years to finish one of my enormous books, and I can't go that long without reading.
+- I don't plot the books out ahead of time, I don't plan them. I don't begin at the beginning and end at the end. I don't work with an outline and I don't work in a straight line.
+- Reading 'The Last Days of Magic' is like playing a well-constructed video game.
+- If nobody needs me - and usually, these days, they don't - I'll fall asleep until around midnight. Then I go upstairs and work until 4 A.M., and that's when I go back to bed for good. It suits me.
+- Whenever you're dealing with something that's difficult to describe, that you can't get across to someone in a sound bite, it sounds like the normal default is to pick what's easiest, and in the case of fiction written by women, fiction involving women, fiction involving any sort of relationship, the word that comes to mind is 'romance.'
+- It's worth noting that at the time of the American Revolution, no sane person would have given two cents for its success.
+- I think characters are going to be, if not a reflection of the author, at least some refraction of some part of their personality.
+- I was writing 'Outlander' for practise and didn't want anyone to know I was doing it. So I couldn't very well announce to my husband that I was quitting my job and abandoning him with three small children to visit Scotland to do research for a novel that I hadn't told him I was writing.
+- What underlies great science is what underlies great art, whether it is visual or written, and that is the ability to distinguish patterns out of chaos.
+- While you certainly will recognize 'Outlander' if you've been reading the books, there's also this wonderful sense of novelty and discovery about it because of all the little new touches and twists. I watch it in utter fascination waiting to see what will happen.
+- Back in the day, when I was a university professor, I used to teach a class in Human Anatomy and Physiology. This class was popular with the football players, who all took it under the tragic misapprehension that it would be easy.
+- Actors act... Their job is to become this character. And I have, in fact, seen Sam Heughan become Jamie and Caitriona Balfe become Claire right before my eyes. It was an astonishing transformation.
+- In 18th-century Scotland, the main event was the Jacobite rebellion under Bonnie Prince Charlie, so that seems like a nice dramatic backdrop.
+- We started watching 'Doctor Who' as a family because our first daughter was a cranky baby, and she would get up during the night - and it was her dad's job to stay up because I worked at night.
+- It takes me about three years to write a book. They're very complex, and they take a lot of research, but also because the more popular your books get, the more popular you get, and people want to haul you off and look at you.
+- You see one scene shot 25 times in one day, which is totally fascinating, but while you're watching it, you're remembering, 'This is what I was thinking when I was writing that part of the book,' and so it brings it all back very gradually as you're working.
+- Orkney has the kind of landscape that sort of lends itself to a relationship with the people. I think that relationship is intensified because of its remoteness and the long periods of time when there was no interaction with other cultures.
+- If you call it a romance, it will never be reviewed by the 'New York Times' or any other respectable literary venue. And that's okay. I can live with that.
+- I cannot remember not being able to read.
+- There are always people screeching and upset that I did this or didn't do that. Basically, they're upset that I didn't rewrite an earlier book they particularly liked.
+- Eight was about the age I was when I realized that people actually produced books, they didn't just spring out of the library shelves.
+- I think it's extremely important that children are exposed to reading.
+- I read some books, and I thought, 'This is better than sliced bread!' and a month later, I couldn't remember thinking about it. And I've read others that were kind of a slog, and I've put them down and come back six months later thinking, 'Wow, this is great.' So, you know, things change all the time.
+- I was 35, had always wanted to write novels, and thought that I had better do it while I was young enough.
+- If you're writing something that's clearly labelled as an alternative history, of course it's perfectly legitimate to play with known historical characters and events, but less so when you're writing an essentially straight historical fiction.
+- You are at some point exposed to a wonderful story, and you really want to know what happens next, so you learn to read in order to find out.
+- I write where I can see things happen, and then things get glued together. I do have the final scene, but that really is an epilogue. It's not part of the plot.
+- My mom would keep all kinds of materials in her classroom for children for reading. She kept comic books, newspapers, sports magazines, and books of all kinds.
+- Some time later, long after 'Voyager' was published, I came across the Dunbonnet in another reference, and it gave an expanded version, and it told me the Dunbonnet's name - which was James Fraser.
+- If you're going to write time travel stories, you have to sort of figure out how does time travel work in this particular universe that I'm dealing with.
+- The Internet has improved a lot in the last few years, but still, you wouldn't want to depend on Web sources for historical analysis. There's just something hard to beat about a book.
+- When' Voyager', the third book of the series, hit the 'New York Times' bestseller list, they very honorably redesigned the covers and started calling them fiction.
+- I work late at night. I'm awake and nobody bothers me. It's quiet and things come and talk to me in the silence.
+- I understand the visual media very well, as I used to write comic books for Walt Disney, and I've written a graphic novel. How you carry a story in pictures is different than how you do it in text.
+- My husband asked me once why I read so many mysteries, and part of it is just intellectual, part of it is the joy of any good book, but part of it is the moral stakes there.
+- I have no objection to well-written romance, but I'd read enough of it to know that that's not what I had written. I also knew that if it was sold as romance I'd never be reviewed by the 'New York Times' or any other literarily respectable newspaper - which is basically true, although the 'Washington Post' did get round to me eventually.
+- When you're reading, you're not where you are; you're in the book. By the same token, I can write anywhere.
+- My sixth book, 'A Breath of Snow and Ashes,' was nominated for a number of book awards, one of which was The Quill Award, and they had it in New York at the Natural History Museum.
+- A romance is a courtship story. In the 19th century, the definition of the romance genre was an escape from daily life that included adventure and love and battle. But in the 20th century, that term changed, and now it's deemed only a love story, specifically a courtship story.
+- Whenever anything bubbles up, I have to put it down. I have bits and pieces all over my hard drive.
+- I don't plan the books ahead of time. It's not like Harry Potter. I don't work in a straight line. I don't write with an outline.
+- I'm not a team player. I'm used to having total control over everything I do.
+- People ask me why I write strong women, and I say, 'Well, I don't like stupid ones.' Who would want to read about weak and whiny women? Are they people who assume women are weak and whiny? If so, why do they think that?
+- Oh, 'Pandaemonium', by Chris Brookmyre! Just fabulous - such a layered, beautifully structured, engaging, intelligent book. I love all Chris's stuff, but this was remarkable.
+- Every time I'd read about the stone circles, it would describe how they worked as an astronomical observance. For example, some of the circles are oriented so that at the winter solstice, the sun will strike a standing stone.
+- 'Rob Roy' was a great adaptation. It was a lot better than 'Braveheart.'
+- 'The Exile' covers approximately the first third of 'Outlander'.
+- The media is always looking for a story of one kind or another.
+- I began writing 'Outlander' in 1988, so the Internet as we now know it didn't exist.
+- I grew up in Flagstaff, and I still own my old family house up there, so I go up there a couple of times a month just to sit for a day or two and work without any kind of interruption, and I usually take a dinner break, and I'll watch two hours of DVD.
+- If you're going to have more than one person read your book, they're going to have totally different opinions and responses. No person - no two people - read the same book.
+- Each book develops a strong organic shape. And when that shape is complete, the book is complete. I don't know where the end is. I don't start at the beginning. It's like playing Tetris in my head in a very slow kind of way. All the shapes join up.
+- When you're an artist, you can't write with the intent of affecting anyone.
+- Conflict and character are the heart of good fiction, and good mystery has both of those in spades.
+- Mid-afternoon, I'll go out and do the household errands, come home, do my gardening, go for an evening walk.
+- I've never seen anyone deal in a literary way with what it takes to stay married for more than 50 years, and that seemed like a worthy goal.
+- At one point, some years ago, a nice gentleman had it in mind to do 'Outlander' the musical. His idea was to start with a CD of what you call a song cycle, with a dozen high points of the projected show. It turned out very well, though we had to stop doing it when the TV show came along.
+- I thought at first that I might write mysteries, but then I said, 'Mysteries have plots, and I'm not sure I can do that yet.'
+- I particularly like the bookshops at National Parks and battlefields; they often have very unusual and helpful things.
+- When I turned 35, I thought, 'Mozart was dead at 36, so I set the bar: I'm going to start writing a book on my next birthday.' I thought historical fiction would be easiest because I was a university professor and know my way around a library, and it seemed easier to look things up than make them up.
+- I took to saying, 'Look, tell you what: Pick it up; open it anywhere. Read three pages. If you can put it down again, I'll pay you a dollar. So I never lost any money on that bet, but I sold a lot of books.
+- Part of my purpose in my books has been to tell the complete story of a relationship and a marriage, not just to end with 'happily ever after,' leaving the protagonists at the altar or in bed... I wanted to show some of the complicated business of actually living a successful marriage.
+- Well, I can't remember not being able to read. I was told I could read by myself very well at the age of three.
+- My husband gets up at around 5.30 A.M., so I'll tuck him in around 9.30 P.M. or 10 P.M., and then I'll go and lie down on the couch with a book and my two dachshunds.
+- I read Tolkien when I was 11. I read 'The Hobbit' and the trilogy on a road trip with my family. I identified with the nonhumans in those books, and it never occurred to me why that was.
+- When I am at home writing, I have all the power. I am God. But TV is a polytheistic universe.
+- People assume that science is a very cold sort of profession, whereas writing novels is a warm and fuzzy intuitive thing. But in fact, they are not at all different.
+- I hated 'The Lovely Bones'. I thought her vision of Heaven was amazingly uninspired and very depressing. The book was just tedious.
+- I learned just recently, in fact, that a lot of people who read do not form a visual image from what they're reading. They just don't. They follow the events and get the resonance with the language, but they have only a vague, general idea of what the characters look like.
+- I'm a really slow writer. What I need to start writing on any given day, is a kernel, a line of dialogue, anything I can sense concretely.
+- Three of the principal cast members of 'Outlander' have come out publically for 'Yes': Sam Heughan, Graham MacTavish and Grant O'Rourke. And the 'Yes' proponents are on fire: idealistic, hopeful, inspired by the idea of change and of democratic self-determination.
+- I understand the visual media very well, as I used to write comic books for Walt Disney, and I've written a graphic novel.
+- I have never seen a script that hasn't gone through at least eight different iterations before they even begin filming, and frequently what is filmed is not what's in the script, because things change on the ground. An actor can't say a particular line. An actor will have a brainstorm and ad lib something utterly brilliant.
+- I've walked on a lot of battlefields. Most of them are not haunted.
+- I will literally read anything, regardless of genre, fiction or non-fiction, as long as it's well written.
+- The thought that you ought not to drink while pregnant came much, much later. In fact, I had my first child in 1982, and I was still told by nurses and so forth, 'Have a glass of wine with dinner. It'll help you relax.'
+- In a great many stories that deal with time travel, there's usually somebody who knows how time travel works. They lay out the rules.
+- There's always a temptation, I think, among some historical writers to shade things toward the modern point of view. You know, they won't show someone doing something that would have been perfectly normal for the time but that is considered reprehensible today.
+- Partly because of the way I write - I don't work with an outline or in a straight line. I work where I can see things happening, and so I get lots and lots of little bits to start with, and I'm doing the research at the same time.
+- Normally, it takes me about three years to write one of the big books. It is usually four years between releases because of the huge amount of travel and PR and just nuisance going on around them. I have a lot of pressure from publishers and agents.
+- My parents were both born in 1930. They grew up during the Depression. They wanted their children to have secure lives, to have a good salary and a pension plan. If I could've guaranteed that I'd be a best-selling writer, that would've been one thing, but nobody could say that. So I knew better than to say that was ambition.
+- I'm not one of these writers who says, 'Oh yes, the next book is due out in one year and three days.' I just say, 'You're gonna get it when it's done. It's gonna be good, but you're not going to get it until it is good.'
+- I don't work in a straight line. I don't write with an outline. I write where I can see things happen, and then things get glued together.
+- Cultural concepts are one of the most fascinating things about historical fiction. There's always a temptation, I think, among some historical writers to shade things toward the modern point of view. You know, they won't show someone doing something that would have been perfectly normal for the time but that is considered reprehensible today.
+- I have friends who are writers who have had movies made of their books, and they are almost uniformly horrified about what's been done - or, at least, dissatisfied.
+- At one point, some years ago, a nice gentleman had it in mind to do 'Outlander The Musical.'
+- I discovered that, given the indescribable nature of what I write, the only way to sell it is to give people free samples.

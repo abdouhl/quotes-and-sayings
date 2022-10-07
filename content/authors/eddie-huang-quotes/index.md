@@ -1,0 +1,36 @@
++++
+author = "Eddie Huang"
+title = "Eddie Huang Quotes"
+quotes_len = "30"
+description = "the best 30 Eddie Huang Quotes"
++++
+- I like a walking culture; I need to be in a city where you can walk everywhere.
+- I'll always be Chinese first. It probably isn't politically correct to say or something that the majority understands; I can change my shoes, I can swap my passport, but, I'll always have this face.
+- I want everybody to run at the same speed as me. But some people are more conscientious, they think more and they plan more. And they're more careful.
+- BaoHaus is idiosyncratic, creative, and artistic. My restaurant doesn't look like a Taiwanese restaurant.
+- I get so disenfranchised reading the news, because global borders and lines we've created are completely unnecessary. That's just another person on the other side, and it's his bad luck that he was born there and it's my good fortune that I was born here. It's all kind of illogical.
+- I'll always be American in my world view and allegiance. American in the naive way I go to other countries and tell them how they should treat their poor or clean their water.
+- I wanted to inspire people not to work under a bamboo ceiling. Whatever you are - yellow, black, white, brown - you don't have to allow your skin to define who you are or how you operate your business. There's not one face to anything.
+- I don't think people understand the model-minority stereotype is negative. You are boxed in. You have to untangle that to find your own path.
+- I don't want to get burned when I'm cooking. To avoid getting hit when pan-frying, I stand far away and use chopsticks that are almost two feet long. I learned it from my mom, who does the same thing.
+- I choose to be American, I choose to live in the Lower East Side of Manhattan, I choose to have Puerto Rican/Jewish neighbors, and I choose to maintain my Chinese identity.
+- I blog because I have something to say.
+- I've never said I was a chef - I think I make great food. I will never open a restaurant to do, like, tasting courses.
+- My only goal as a comedian was to stomp the life out of the model-minority myth.
+- I saw an opportunity to use a restaurant to identify a lot of my issues and concerns with being an immigrant in America, and Asian in America, and a young person in America.
+- I don't like labels. I don't understand the need for them. When you define yourself a certain way, people have expectations.
+- I want to prove you don't need to have academic syntax to be intelligent.
+- I'm so sick of people misunderstanding Asians in America and what we're about.
+- I have more to say as a writer than from behind a wok.
+- There is a lot of food culture that goes on in the home and in the community in non-traditional ways. Food is a lot more than restaurants.
+- I had no desire to be a chef, but I had a desire to be someone who was heard.
+- Sundays are for Dim Sum. While the rest of America goes to church, Sunday School, or NFL games, you can find Chinese people eating Cantonese food.
+- People talk about perfect timing, but I think everything is perfect in its moment; you just want to capture that.
+- When I feel off, I read the 'Tao Te Ching' to get my equilibrium right. I started reading it in the eleventh grade.
+- I don't think people in America understand race, and how deep the hooks of whiteness there are in our consciousness.
+- New York felt to me like what America should be - a representation of the world in this small pocket.
+- But what I'm very interested in, whether it's writing, whether it's hosting a show, whether it's cooking food, I'm just into the discussions of identity, culture and the politics of culture.
+- For me, juicing isn't about binging and cleansing; I try to incorporate it into a balanced diet.
+- Black culture has been a huge influence in my life.
+- I like being on camera, performing, seeing what people have in common.
+- I wasn't meant to be an attorney, but I was meant to go to law school.

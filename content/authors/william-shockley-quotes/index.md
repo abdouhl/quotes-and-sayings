@@ -1,0 +1,12 @@
++++
+author = "William Shockley"
+title = "William Shockley Quotes"
+quotes_len = "6"
+description = "the best 6 William Shockley Quotes"
++++
+- Frequently, I have been asked if an experiment I have planned is pure or applied research; to me, it is more important to know if the experiment will yield new and probably enduring knowledge about nature.
+- My decision to come to Bell Telephone Laboratories immediately after obtaining my Ph.D. in 1936 was strongly influenced by the fact that my supervisor would be C. J. Davisson.
+- The objective of producing useful devices has strongly influenced the choice of the research projects with which I have been associated.
+- I was not allowed to take spherical trigonometry because I'd sprained my ankle. Because I'd sprained my ankle, I had an incomplete in gym, phys ed. And the rule was that if you had an incomplete in anything, you were not allowed to take an overload.
+- A basic truth that the history of the creation of the transistor reveals is that the foundations of transistor electronics were created by making errors and following hunches that failed to give what was expected.
+- An important fraction of United States industry adheres to the idea that research of a fundamental character is worthwhile from a practical point of view.

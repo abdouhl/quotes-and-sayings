@@ -1,0 +1,102 @@
++++
+author = "Poonam Dhillon"
+title = "Poonam Dhillon Quotes"
+quotes_len = "96"
+description = "the best 96 Poonam Dhillon Quotes"
++++
+- It was a unique experience, living in 'Bigg Boss' house for 84 days. It would have been fantastic had I won but I am not sad that didn't.
+- Life is not just about profit and loss. One should follow one's conscience and listen to the voice of one's soul.
+- I am not someone who will bare my soul on Twitter. If I am angry with somebody, I will abuse them there, if I am happy, I will express it there.
+- It is very painful to talk about my dear friend Rishi Kapoor in 'past tense.'
+- I am a quiet person, not too loud or dramatic.
+- As an actress, it is so easy to spread happiness with just a smile. That is a gift I will always cherish.
+- Filmstars endorse beauty products, which at times they might not even use. We endorse the product and make innocent people in India spend their money on buying the same products.
+- I wanted to do my doctorate. I got honorary doctorates which made me feel very fulfilled.
+- After my first play, I realised that comedy was my forte - rather than being a dukhi heroine, I would rather do comedy.
+- For me, education is very important. It opens up vistas of life and makes it easy for you to deal with it, because if you learn from other people's experiences, it enhances your life.
+- My teachers made me what I am today. I remember they used to instill confidence in me and stress on remaining focused.
+- Success is very enjoyable in any field. But for me, success is not in terms of financial gains.
+- I want to do my bit for my city and my country.
+- I have realised that TV is extremely gratifying in the sense that people see you in their houses, and they get very attached to you.
+- I launched my website when many in my fraternity had not even heard of the concept. Then I tried my hand at make-up business which has made life simpler for actors.
+- Theatre is a more difficult visual medium than films. You need to hold the attention span of the audience without goofing up and be able to express yourself as vividly as possible.
+- I feel very strongly that the country needs dedicated people who have passion... rather than those who are in politics only for a career.
+- I count something as successful if it pleases the audience.
+- The things I've ventured into have always been ahead of time!
+- After winning the Miss India title at the age of 16, I resumed my studies.
+- I am a bit fussy when it comes to films.
+- I enjoyed working in films.
+- My friends tell me that I have the wrong temperament for politics.
+- In my opinion, boys should not start with films before they are at least 24 years of age, because emoting on screen needs a certain amount of maturity, and a lot rides on an actor's shoulders.
+- I don't want to be in any rat race.
+- I have read a lot of spiritual works and believe that our body is just a place for the soul to dwell.
+- Women are given their due, and I think female-centric roles are also well-written. But it doesn't matter who is in the centre - a male or female. As long as it is an entertaining, gripping film, people just enjoy it.
+- I was never a warring parent who prejudiced the child against the other parent. We are a family wherein everyone cares for each other.
+- I was studying in a school in Chandigarh when Yash Chopra discovered me and cast me for 'Trishul.'
+- TV creates good viewership because it generates interest by being entertaining.
+- If your work is really successful, it should attract the audience to you beyond just the premier.
+- My mother got married at a very young age, but she did her B.A., B. Ed and M.A. after marriage.
+- Over the years people would ask me which co-star have you been a fan of or admired. I have always said Rishi Kapoor and Kamal Haasan. They are my two co-stars from whom I have really learnt a lot. I have been a great fan of both of them.
+- Human beings are human beings, irrespective of barriers.
+- Television is all about deadlines.
+- Over the years, I've not had the courage to get into theatre, but after I did my first play, 'The Perfect Husband,' I couldn't wait to be on stage again.
+- I make sure that I spend some time every night with my children and it's great to hear them say, 'Mom you are my best friend!' Only a child can make you feel that special.
+- I feel I am good at getting things done.
+- I started my career when girls of my age were going to school.
+- All I can tell Ashoke Pandit is that I don't go tom-tomming my work; all my social activities are for the betterment of my city and country.
+- I did theatre when it was not considered prudent for film actors to be seen on stage.
+- Life is not about going from man to man.
+- Actors are citizens like any other person in the country. People idolize them and follow their activities. So, our involvement in social services comes from this feeling of social commitment and responsibility. We don't do all this to be in the news.
+- I was one of the first few film people to ever do television.
+- The government is a machinery manned by human beings.
+- I always wanted to direct a film.
+- You can be in films and have a lot of dignity.
+- I value my friendships and go out of my way to commit time and energy to them.
+- People often ask me whether I plan to apply for a job after an MBA, but I tell them it is just to gain knowledge.
+- Most of my formative years were in Chandigarh.
+- In films, the camera catches each nuance of expression in close ups. On the stage, it is less subtle, you have to act with your whole body.
+- I feel our life is a miracle, it is finely tuned, computerised and run by one master. You can call him by any name. It is one universal power and hence I would say that God is everywhere.
+- You cannot say the whole industry is bad. There are bad people, but there are many good people as well.
+- I used to brush aside when people used to say 'Poonam, you're different.' It was much later that I realised, I was different.
+- I was a bit hesitant in theatre initially, but ever since I jumped into it, I have been pretty enthusiastic.
+- I want to play good characters, not glamorous ones.
+- I left Chandigarh more than 30 years ago. I studied at Carmel Convent and we used to live in Sector 9. My fondest memories are all centered around this city!
+- A person's school and teachers help lay a strong foundation, which leads to success.
+- We cannot generalise anything in life. We cannot say media people are like this, film people are like this, or doctors are like this.
+- I was looked upon as this privileged actress who was like Yash Chopra's family. He was my second family. Whatever I have achieved is because of him.
+- Unlike movies, on stage there are no second chances. Everything is live. If someone messes up, forgets a line, gives the wrong cue, you need to have the presence of mind to move the play along.
+- My children and their generation are not aware of the stardom I had enjoyed during my younger days.
+- I cannot forget the day when I gave the first screen test of my life. The film was Gulshan Rai's 'Trishul' and I was selected. I was just 16.
+- Even if I am working 12 hours a day, I want to be working, not sitting in my room for eight hours waiting for my shot.
+- Television is a very powerful medium and I am open to doing any type of shows on television.
+- Who doesn't like having love, companionship, care and affection? I get plenty of that from my family and friends. But I'm not averse to marriage.
+- I was just 15 years old when I came from Chandigarh, which was a very small town then. I became part of the entertainment field after winning the Young Miss India contest.
+- Anywhere in the world I have travelled to, people would tell me 'Yeh Vaada Raha' is one of their favourite songs. People would even convey the same on Insta and Twitter.
+- I was never in an acting school. But I learned everything on the job like memorising lines, all the technicalities of theatre, how to use your voice and eyes and more.
+- I definitely feel that films and TV shows can bring about social change.
+- Truly, dogs are quite lucky for me.
+- Since I belong to Chandigarh, I love coming to Punjab.
+- I've realized that I've pioneered many things and have been a front-runner in a lot of things. I did many things ahead of time.
+- Jaipur has definitely turned into a very beautiful city.
+- I think God is sending us messages all the time but we get so busy fulfilling our ambitions or in our day-to-day tasks that we forget to connect to God.
+- I did a show called 'Andaz' many years ago which was produced by Himesh Reshammiya.
+- Bringing up children always has a bigger role for the mother.
+- I've been doing work for the farmers of Maharashtra.
+- Even the older generation are able to understand things when they see it on TV and identify with it. A lot of people are able to empathise with the characters. They can also distinguish between good and bad.
+- As far as films are concerned, I would take up only those roles which are challenging and have some substance in them.
+- I was a science student and was aiming to be an IFS officer. But, fortunately, my destiny had some other plans for me.
+- I'm a good learner. I am fond of reading and educating myself all the time.
+- I had a very good experience while working in regional films. I have been very fortunate that way. There is no doubt that the South Indian film industry is very much at par with Bollywood.
+- I in fact started doing theatre before a lot of film people started doing it and I started my website before anybody else.
+- I don't mind playing a mom, but if I'm just somebody in someone else's love story, then I'm not interested.
+- I wasn't overtly ambitious, or tried to get films by hook or crook. I always did things at my own pace.
+- From my experience, I will rate Carmel Convent as one of the most prestigious schools in the world.
+- I am constantly sleep-deprived.
+- I was barely 16 when I started working. And I worked extensively. But you can work extensively till a point.
+- When you are lonely, you get desperate to find a companion. My advice is instead of seeking Mr Right, use the time to hone your talents or workout at a gym. You may just meet someone special along the way.
+- I would love to do more reality shows.
+- On stage, you have to hype yourself for two hours. It takes up a lot of energy, leaving me totally exhausted.
+- At one time, especially during the era of action heroes, women took a bit of a secondary role because heroes were doing most of the action.
+- I understand that for an average working mother it is difficult to take out lots of time for their child. But make sure that when you are with them, you cuddle them and listen when they share their day to day activities.
+- Actually, I didn't take up acting. Rather, acting chose me.
+- Education is a daily growth. It's not about the degrees but about the kind of person it makes one. I feel it makes a human being complete.

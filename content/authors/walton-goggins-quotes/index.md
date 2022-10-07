@@ -1,0 +1,26 @@
++++
+author = "Walton Goggins"
+title = "Walton Goggins Quotes"
+quotes_len = "20"
+description = "the best 20 Walton Goggins Quotes"
++++
+- I really believe that when you're playing a character that everything is contained in the script. If I'm pulling from things from my own life, then I think I'm being disingenuous to the character and the story.
+- I quite like antiques. I like things that are old and the history they bring with them. I would rather fly to Morocco on an $800 ticket and buy a chair for $300 than spend $1,100 on one at Pottery Barn.
+- I think I'm much too earnest to be as cool as 'Boyd Crowder'.
+- Whenever you show up on a set where you haven't been from the beginning - at least myself - I'm kind of quiet. I just watch the politics and how everything unfolds.
+- The life of a character doesn't just exist between action and cut.
+- I do not have the angst and the anxiety of my youth. I've gotten to a place where I'm very comfortable with who I am.
+- I wrote about wasting time, which I suppose is a part of the great human journey. We're supposed to wallow, to go through the desert without water for a long time so that when we finally drink it, we'll truly need it and we won't spill a drop. It's about being present.
+- I aimlessly travel, meaning I have no agenda other than to get small in the world, be quiet and observe people.
+- I try to leave a light footprint. I'm involved with Global Green, which aims to educate people about sustainable building and the greening of schools. I try to be aware about the consumption of unnecessary things in a consumptive culture.
+- You know, I'm from the South, and I wasn't interested in perpetuating a stereotypical southern character.
+- But probably my favorite music, believe it or not, is sad music.
+- I like storytelling, and I feel more confident as the years have gone on about my ability to do that.
+- No, but there are people I grew up with from the foothills of the Blue Ridge Mountains that would give any person on 'Justified' a run for their money in the scary department.
+- I'm drawn to villains that are three-dimensional and raw and that I can kind of see in my own life.
+- I listen to music cinematically. I think about music and how it would make me feel when it's put to an image, a moving image, and I love it.
+- I'm not good at telling a joke, but I can say a line in a certain way that makes people uncomfortable because they don't know whether to laugh or not, and I love that comedy.
+- 'The Portrait of Dorian Grey' beautifully articulates how the altruistic part of ourselves clashes with our essentially narcissistic state.
+- Like everybody, I've had a lot of pain in my life and I'm a work in progress. You must have a true desire to see the world from a different point of view, and that comes with growing up.
+- My heroes are Robert Duvall, Forest Whitaker, Ed Harris, Tommy Lee Jones, Anthony Hopkins and Sean Penn.
+- I don't take a scene or word for granted.

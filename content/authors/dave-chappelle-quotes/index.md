@@ -1,0 +1,65 @@
++++
+author = "Dave Chappelle"
+title = "Dave Chappelle Quotes"
+quotes_len = "59"
+description = "the best 59 Dave Chappelle Quotes"
++++
+- I think every group of black guys should have at least one white guy in it.
+- If I put forth a legitimate effort, then I feel like, if that doesn't work out, that's all I can do.
+- When I'm on stage, I get real happy there. Maybe that's the only time in my adult life I feel like myself.
+- I care about the work I do. But I'm not going to say that money's not an issue.
+- Comedy is a very approval-oriented field.
+- Stand-up is the kind of gig that'll show you where you're at.
+- People don't know what it's like standing up there onstage, when you have a wall of people smiling at you.
+- You can become famous but you can't become unfamous. You can become infamous but not unfamous.
+- I don't care if I ever work in TV again.
+- I get a little heated when I talk about the past. But I wanted to be clear - I'm not mad at anybody - not anymore.
+- I love Ohio.
+- The hardest thing to do is to be true to yourself, especially when everybody is watching.
+- Every black American is bilingual. All of them. We speak street vernacular and we speak 'job interview.'
+- I felt in a lot of instances I was deliberately being put through stress because when you're a guy who generates money, people have a vested interested in controlling you.
+- If I can make a teacher's salary doing comedy, I think that's better than being a teacher.
+- America, I appreciate you liking me.
+- Something about New York, man: You can do more comedy there probably than you can anywhere in the world. If you're interested in being funny, New York is the place to go.
+- My generation is under-entertained.
+- I got a lot of positive people around me.
+- I got real important relationships in my life that are very empowering relationships.
+- I don't normally talk about my religion publicly because I don't want people to associate me and my flaws with this beautiful thing. And I believe it is beautiful if you learn it the right way.
+- The only thing harder than leaving show business is coming back.
+- Whether it means having a show, or a movie, or just being on a stage, I need an avenue to say what I have to say.
+- The higher up I went, the less happy I was.
+- I enjoy my own thoughts sometimes.
+- I don't want the money. I don't want the drama. I just want to do my show. I want to have fun again.
+- If you don't have the right people around you and you're moving at a million miles an hour you can lose yourself.
+- I'm famous today. People like me today. Might not like me tomorrow. You can't count on it.
+- The world can't tell you who you are. You've just got to figure out who you are and be there, for better or worse.
+- Most of the people around me have a vested interest in how much money I make. You know, so a celebrity could find themselves in a position where people could have meetings about their life without them involved. And when I say 'their life' I mean not their professional life either. They could talk about their personal life.
+- The language you are about to hear... is disturbing.
+- You got to be careful of the company you keep.
+- The way the people around you position themselves around you to get in your pockets and in your mind is infuriating to me.
+- I want to tell my jokes. I want to have time with my children. I want to entertain people. And at one point, I'll walk away from show business. But I don't want to walk away empty-handed.
+- One of the things that happens when people make the leap from a certain amount of money to tens of millions of dollars is that the people around you dramatically change.
+- I've been a comedian since I was fourteen. But I've never really been a CEO.
+- You can't get unfamous. You can get infamous but you can't get unfamous.
+- Because I was surrounded by so much negativity at some point that it took me going back and doing stand-up to realize, you know, people really like me.
+- I love my jokes.
+- I'm an introspective dude.
+- Being famous is great, it's not like bad or horrible or anything.
+- You know you must be doing something right if old people like you.
+- I've done 10 or 11 pilots for network television, which is ridiculous.
+- I was doing sketches that were funny but socially irresponsible. I felt I was deliberately being encouraged and I was overwhelmed.
+- There's a lot of people who don't want anything from me but to laugh and have a good time. You see them at the show and they like - they dress up to come see your show and stuff. And they pack these auditoriums and it's a lot of fun, man. It's like, this is how I started, and it's still fun for me.
+- Everyone around me says, You're a genius! You're great! That's your voice! But I'm not sure if they're right.
+- There's something about doing stand-up that's cathartic.
+- Fame for me is like a place, a country I'm taking a tour through.
+- My father told me 'Name your price in the beginning. If it ever gets more expensive than the price you name, get out of there.'
+- I think extreme sports are really good for relieving stress.
+- After a while, a joke, if you say it too much, just becomes contrived, or fake-sounding.
+- I still think people do have racial hang-ups, but I think one of the reasons I can joke about it is people are shedding those racial hatreds.
+- You know, be able to do something great in your life, you're gonna have to realize your failures. You're gonna have to embrace them and figure out how to overcome it.
+- You can't get un-famous. You can get infamous, but you can't get un-famous.
+- I love being famous - it's phenomenal.
+- My wife asked me once if I weren't a comedian what I would do. I couldn't answer the question. I never imagined doing anything else.
+- The worst thing to call somebody is crazy. It's dismissive.
+- I'm cool with failing so long as I know that there are people around me that love me unconditionally.
+- I just always loved stand-up. It's like magic. You say something, and a whole room full of people laughs together. Say something else, they laugh again. The fact that people come to see that and participate in that... I don't know, it's just like magic.

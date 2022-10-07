@@ -1,0 +1,106 @@
++++
+author = "Urijah Faber"
+title = "Urijah Faber Quotes"
+quotes_len = "100"
+description = "the best 100 Urijah Faber Quotes"
++++
+- Things change when you're fighting the best guys in the world.
+- After a loss, you have to reassess a little bit and be realistic.
+- This is why I go into this sport: to fight the best guy in the world.
+- I knew I was a world champion and a top contender at the highest level for over a decade, but I think I'll be remembered as somebody that was an ambassador for the sport, someone who helped build something bigger than myself, and also for the team I've been able to build.
+- As a kid, I loved contact sports, especially American football and boxing.
+- Aside from being a fighter, I am a relaxed person. It is a lifestyle thing for me. I don't stress too much.
+- I looked up to action heroes such as Bruce Lee, Chuck Norris, and Jean-Claude van Damme because I liked the attitude and determination they portrayed.
+- I think the California mentality is laid-back, and I definitely embody that.
+- I had a two-hour VHS tape of Sakuraba and all his crazy stuff. He was doing crazy double flying chops with both hands and undressing the Gracie family one shoulder at a time, and probably my favorite fight of all time was when he fought in Heroes and was rocked and kind of out of it, and they stopped him and kind of shook him in bounds.
+- I train in Muay Thai, kickboxing, traditional boxing, wrestling, jiujitsu, and a little bit of judo.
+- The cheaters are going to find way to cheat over and over again.
+- Dana White's awesome. He's an emotional guy, but I feel like he's a good guy. He's an emotional guy. He's like Donald Trump. He says whatever the hell he wants.
+- I know in my heart that I can compete at multiple weights.
+- I have always been a big fan of combat sports - ever since I can remember, it was something that appealed to me and something that I thought I would be good at.
+- I'm not really good at worrying. I think I get that from my pops. He can be in some really dire straights and be a real optimist, so I don't sweat the petty stuff.
+- I've told the UFC brass I want big fights: fights that are going to put money in their pockets and money in my pockets and staple me as one of the best of all-time.
+- I work my butt off and have a positive attitude.
+- I've never been knocked unconscious in my entire career.
+- You get notoriety when you fight.
+- Ribs are a real tricky thing: you don't really know when they're going to heal, especially when mine weren't broken. I don't know what it was, exactly - either a deep bruise or cartilage.
+- For me, fitness is a lifetime commitment; I don't remember ever being out of shape.
+- I'm poised to take any opportunity, I'm poised to keep myself in tip-top shape because that's what I love to do.
+- I've always wanted to be the best.
+- I'm a guy who has put my heart and my soul into something, into everything that I do.
+- Jens Pulver was a former UFC champion. He's a guy who I followed and looked up to. It was my first big fight in the Sacramento arena.
+- I've fought the guys that didn't do anything for me, didn't move the needle a bit, people weren't excited for it, I was having trouble getting excited for it. I've fought those guys because that's what was given to me.
+- For sure, I'd fight B. J. Penn. He's one of my buddies, also, but I think we could fight each other.
+- You can't make mistakes against top guys.
+- I didn't get into too many fights when I was younger. I think I got into, like, one fight when I was in high school, and that was because someone was being rude towards my mom, and that was it.
+- I'm going to stay training every day. I'm going to stay sharp, because that's what I love to do.
+- My parents named me after Uriah the Hittite, one of King David's mighty men in the Old Testament of the Bible, who was known for his fearlessness. I've thought about it, and there may be a connection between my name and my personality.
+- Training is a lifestyle for me, so I'm always in good shape.
+- The Jens Pulver fight was one that was on a massive level: I was a world champion fighting a former world champion, and a guy that I looked up to. We had a great fight.
+- For me, Sakuraba was my favorite fighter when I first got into the sport.
+- It's kind of a weird thing when you've been at the top of a division you've been in your entire career to kind of take a backseat because of friendship.
+- The longer you stay out of this sport, the less sharp you are, and I've been aware of that; that's why I've stayed and haven't wanted to retire and come back - because you skip a beat.
+- One of the guys I've always said was one of my favorite fighters to watch was Sakuraba. He's always been really creative. He's got a great attitude, and I think he has the right approach of just going in there and letting it all hang out.
+- I've held the title for years and years.
+- The rankings - they don't mean crap, to be honest.
+- If someone gets into the Super Bowl, should they stop trying to get back into the Super Bowl? You gotta be kidding me.
+- I'm a very lucky guy.
+- I've never said no to any fight the UFC has asked of me.
+- This is why people love to watch me, is because I fight. I'm here to fight. I'm not here trying to protect anything, not trying to protect a legacy or anything. I'm here to fight.
+- This guy Jimmie Rivera, I like his attitude. I like what he represents. He's a hard-working guy, he's a respected guy, a respectful guy.
+- My first reaction to any fight opportunity is yes, just out of instincts. That's why I'm in this sport.
+- I've had plenty of fights where the guy's virtually unknown and very tough. I mean a lot.
+- I'd be down to go to 135. I've competed most of my life at that weight.
+- Kid Yamamoto is a guy that has star power.
+- Fighting Raphael Assunaco isn't that exciting to me. I have nothing against him; he's a good guy and a good fighter.
+- The world is not equal, unfortunately.
+- I know Barao is a tough, skilled competitor. So am I.
+- I'm kind of - I guess you could say - a momma's boy.
+- I enjoy competing, and I love to get out there, and I feel like I could compete with anyone in the world, and it took me a long time to get like that.
+- We all go through things in life. You try to stay positive, but you can't ignore bad things that happen. You just try to work through them.
+- I want to be remembered as just basically somebody who fought with a lot of passion.
+- I fight guys that no one has ever heard of; I fought guys who are legends, like Frankie Edgar.
+- I don't want to be the guy who, 'Oh, he's falling apart. He's a little punchy. Maybe it's time to stop.'
+- There's only a certain amount of times in my life where I'm going to get to experience every single person directing their energy and focus on you, screaming at you.
+- I need guys who are dangerous to go out and have my best performance.
+- I have to have an attitude of gratitude and not miss opportunities.
+- I love this fight game. I'm passionate about it. I feel great about it.
+- I love this sport. I love what I do. I love fighting and combat, and I love to train hard. But I want to be at my best.
+- I'm a guy that follows my heart and my passion. I do what I love.
+- Everything in life that is good, I have.
+- I do try to stay positive and maintain a positive environment for my team.
+- I'm not a party animal.
+- This is the one sport you don't want to be one foot in one foot out.
+- When I was 23 years old, I had just finished my wrestling career. I was top 12 in the nation in the NCAA. And I was top 12 in the state in California.
+- I've kind of lived the same lifestyle I've had since I was a little kid. Basically, working out and hanging out with my friends and competing. I feel like a really lucky guy. I haven't had to do anything I don't want to do in life, and that's not the case with everyone.
+- This sport is not very forgiving.
+- Money shouldn't be the driver for where you spend your time.
+- I feel really lucky about being able to live a life that revolves around my passion. People are really supportive, and I've got some great fans.
+- I've loved just being a part of other people's success.
+- Fighting Michael McDonald was awesome.
+- All the businesses that I've been a part of throughout my fighting career have come out of a need.
+- Mike Brown is a big guy; he's very durable. He's extremely strong and very well-rounded.
+- As far as fighting, I just love to fight and enjoy my life more because of that. I think that it is pretty apparent to those who know me that I do this because of the love. I am not looking to get famous or acquire a bunch of cash. I am following my passion, and that's what is about for me.
+- People want to see me fight all sorts of people out there.
+- There's guys who train hard. There's guys who believe they're real tough. But there's only a certain amount of guys who believe - like, really believe - they should be the champion. I know I have that mentality, and I know other guys who have that mentality.
+- When you're at world championship level, you're fighting other guys who are at a world championship level.
+- That's the biggest part of our sport, is self-confidence, and self-belief.
+- Our team is the best team in the world, and I'm going to maintain that, and I'm not going to let anybody break that up.
+- I'm a very hard working guy.
+- You look at teams in college, the MMA world, and beyond that allow bullying, where guys get jealous during training and stuff like that. You need to have a space where everyone feels like they have an equal opportunity - like they have support, people watching out for them.
+- I don't think Conor's scared of anything. He's game to fight.
+- I've had a great run. I've been a world champ. I've been a top contender. I've been a poster boy for the organization, for sponsorships, been able to do a lot.
+- There's some weirdos out there, a few stalker fans out there, but nothing I can't handle. People are just going out of their way to hunt down information and get a hold of me. People call obsessively or things like that.
+- Time is something you can't get back.
+- When I face an opponent in the cage, it doesn't really matter who they are. Whether they're my buddy, like Scott Jorgensen, or someone I don't like, like Dominick Cruz, I'm going in there and realizing this guy is trying to hurt me, and that's what I'm going to do to him. I try to keep it real basic.
+- The most important thing in a fighter is his mentality. Do you really believe that you're the baddest dude on the planet?
+- I was 133-pounder all through college, and that's probably my natural fighting weight, but if it isn't broken, why fix it? I've been a champion at 145.
+- On occasion, it's rough for me to sleep because I have a lot of things on my mind, so I'll need to get a little more sleep sometimes. I'm up late because I've got a lot of energy and a lot of things on my mind all the time, and I'm up early 'cause I've got things to do, so that's the only thing. That's how I like it; I like to be busy.
+- I'm a big fan of 'The Last Dragon' - Bruce Leroy and Sho'nuff - that's one of my favorite movies growing up.
+- I was raised in a bit of a hippie environment.
+- I love watching other guys fight.
+- For me, I treat everyone like an equal.
+- The reason we get into the fight game is the same reason why we stay too long sometimes. It's because we enjoy it.
+- If you want something, you gotta fight for it.
+- I'm a passionate guy.
+- This is a mean world, and everyone likes to jump in and kick people when they're down.

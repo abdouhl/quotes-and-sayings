@@ -1,0 +1,57 @@
++++
+author = "David Hume"
+title = "David Hume Quotes"
+quotes_len = "51"
+description = "the best 51 David Hume Quotes"
++++
+- Human Nature is the only science of man; and yet has been hitherto the most neglected.
+- That the sun will not rise tomorrow is no less intelligible a proposition, and implies no more contradiction, than the affirmation, that it will rise.
+- Accuracy is, in every case, advantageous to beauty, and just reasoning to delicate sentiment. In vain would we exalt the one by depreciating the other.
+- What a peculiar privilege has this little agitation of the brain which we call 'thought'.
+- It is seldom that liberty of any kind is lost all at once.
+- And what is the greatest number? Number one.
+- No testimony is sufficient to establish a miracle, unless the testimony be of such a kind, that its falsehood would be more miraculous than the fact which it endeavors to establish.
+- Every wise, just, and mild government, by rendering the condition of its subjects easy and secure, will always abound most in people, as well as in commodities and riches.
+- Avarice, the spur of industry.
+- The law always limits every power it gives.
+- Be a philosopher but, amid all your philosophy be still a man.
+- To be a philosophical sceptic is, in a man of letters, the first and most essential to being a sound, believing Christian.
+- The heights of popularity and patriotism are still the beaten road to power and tyranny.
+- No advantages in this world are pure and unmixed.
+- To hate, to love, to think, to feel, to see; all this is nothing but to perceive.
+- Any person seasoned with a just sense of the imperfections of natural reason, will fly to revealed truth with the greatest avidity.
+- Beauty in things exists in the mind which contemplates them.
+- Men often act knowingly against their interest.
+- Reason is, and ought only to be the slave of the passions, and can never pretend to any other office than to serve and obey them.
+- Belief is nothing but a more vivid, lively, forcible, firm, steady conception of an object, than what the imagination alone is ever able to attain.
+- The rules of morality are not the conclusion of our reason.
+- A purpose, an intention, a design, strikes everywhere even the careless, the most stupid thinker.
+- There is not to be found, in all history, any miracle attested by a sufficient number of men, of such unquestioned good sense, education and learning, as to secure us against all delusion in themselves.
+- The Christian religion not only was at first attended with miracles, but even at this day cannot be believed by any reasonable person without one.
+- It is not reason which is the guide of life, but custom.
+- Generally speaking, the errors in religion are dangerous; those in philosophy only ridiculous.
+- This avidity alone, of acquiring goods and possessions for ourselves and our nearest friends, is insatiable, perpetual, universal, and directly destructive of society.
+- There is a very remarkable inclination in human nature to bestow on external objects the same emotions which it observes in itself, and to find every where those ideas which are most present to it.
+- I have written on all sorts of subjects... yet I have no enemies; except indeed all the Whigs, all the Tories, and all the Christians.
+- A wise man proportions his belief to the evidence.
+- The life of man is of no greater importance to the universe than that of an oyster.
+- The chief benefit, which results from philosophy, arises in an indirect manner, and proceeds more from its secret, insensible influence, than from its immediate application.
+- Nothing endears so much a friend as sorrow for his death. The pleasure of his company has not so powerful an influence.
+- Heaven and hell suppose two distinct species of men, the good and the bad. But the greatest part of mankind float betwixt vice and virtue.
+- A propensity to hope and joy is real riches; one to fear and sorrow real poverty.
+- The advantages found in history seem to be of three kinds, as it amuses the fancy, as it improves the understanding, and as it strengthens virtue.
+- The corruption of the best things gives rise to the worst.
+- It is not contrary to reason to prefer the destruction of the whole world to the scratching of my finger.
+- Everything in the world is purchased by labor.
+- He is happy whom circumstances suit his temper; but he Is more excellent who suits his temper to any circumstance.
+- Truth springs from argument amongst friends.
+- It is a just political maxim, that every man must be supposed a knave.
+- Beauty, whether moral or natural, is felt, more properly than perceived.
+- It's when we start working together that the real healing takes place... it's when we start spilling our sweat, and not our blood.
+- Custom is the great guide to human life.
+- Eloquence, at its highest pitch, leaves little room for reason or reflection, but addresses itself entirely to the desires and affections, captivating the willing hearers, and subduing their understanding.
+- Scholastic learning and polemical divinity retarded the growth of all true knowledge.
+- A man acquainted with history may, in some respect, be said to have lived from the beginning of the world, and to have been making continual additions to his stock of knowledge in every century.
+- Men are much oftener thrown on their knees by the melancholy than by the agreeable passions.
+- Nothing is more surprising than the easiness with which the many are governed by the few.
+- Philosophy would render us entirely Pyrrhonian, were not nature too strong for it.

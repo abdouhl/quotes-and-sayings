@@ -1,0 +1,51 @@
++++
+author = "Sidharth Malhotra"
+title = "Sidharth Malhotra Quotes"
+quotes_len = "45"
+description = "the best 45 Sidharth Malhotra Quotes"
++++
+- No offense, but I don't get the whole concept of arranged marriage. I'd rather know the person who I'll settle down with.
+- We don't come back home being stars. Your family will treat you the same way.
+- There is a big market for horror in India, but people don't explore that much.
+- My endeavour in most of my movies is to inspire people.
+- When I look back at my journey, it gives me a sense of confidence. I have been through an odd journey from Delhi to Mumbai, struggling, not having a job, shifting houses... Today, I am giving interviews. So it does give me gratitude and confidence. The fear is gone.
+- I think believing in eternal love or growing old together, people might think is a bit old fashioned. I am bit old fashioned, and I truly believe that it can happen provided that you do find the correct person.
+- There will be people who don't like you or aren't convinced. I'd rather let my work talk than justify in words.
+- If I don't have a meaning to what I am doing, I am not convinced to be a part of that activity.
+- As an actor, when you don't have a reference to pick from, you experiment, try out new things. And what comes of it eggs you on. You realize your capabilities and push your limits.
+- The future of filmmaking is to make the canvas bigger, something you can't enjoy on your phones or computers.
+- I'd like to have a different look for every film. As an actor, I think I should put more emphasis on my performance than on my looks.
+- The thing I crave for the most is appreciation for my acting.
+- It's tough to do a romantic scene with someone you don't like. I have been lucky so far.
+- Yes, there is an image people have of me, that I did only sweet boy roles. With 'Ek Villain,' I got the opportunity to break out from this image. It is a way of answering my critics, to tell them I am here to perform and not just for glamour.
+- I think we need a superhero in India that needs a great amount of writing and character behind it. if someone manages to crack it and approaches me, I would love to play a superhero which has a number of series behind it.
+- I would never refuse a film or do a film for a certain amount of money.
+- A picture can say a thousand words but maybe not the correct ones.
+- You can't force people to feel in a certain way, and the sooner you understand that,the better. I feel everything has its way of working.
+- I grew up on action movies. I love the James Bond and Jason Bourne movies.
+- I'd rather have a small part in a big film or good story than do a solo film just for the sake of it.
+- Nothing beats Delhi when it comes to food. It has some fantastic restaurants and street-food joints.
+- The idea is to be different with every film, and I'm glad my mother and my brother, who were sitting besides me during the screening of 'Ek Villain,' forget it was me on screen after the first 15 minutes.
+- I have some really nice memories of Delhi. Going swimming, roaming around in Defence Colony, cycling in its beautiful, wide lanes, and enjoying good food.
+- Growing up, I always wanted to play a fighter.
+- If you are the kind who has an active lifestyle and are not hellbent on looking all buffed up, I'd think a vegetarian diet is the way to go.
+- I believe in, 'I do it my way, and you do it your way, and then see what works' pattern. I think that comes with me having worked as an assistant director earlier, which I really enjoyed.
+- Picking up 'A Gentleman' was pretty easy. It had everything that I like watching in a film. And it has everything that audiences like to see me doing.
+- Sometimes, I remember, for action continuity or to get all warmed up for an action scene before giving a close-up or saying a dialogue, I would do push-ups. I didn't know any other way to get my body mechanism going.
+- I just have to attend someone's birthday party or go out for dinner with someone else for us to be in a relationship. That's not going to stop me from socialising, but tell me, which girl would want to be with a guy who goes to bed early and gives more importance to the gym?
+- I have had my set of fears in most of my movies. But the fun lies in overcoming them.
+- Years down the line, when people look at my filmography, I'd like them to see a legacy of new-age content films.
+- I used to play rugby, which requires a lot of physical strength. The game requires you to get aggressive.
+- I would rather know about different cultures, read about them, and understand them than just blindly follow their rituals. All cultures in India have their own logic.
+- I enjoy eating Italian and Japanese cuisine, and abroad, I love Zuma, Nobu, and Cipriani.
+- I believe things have a way of working out, and if they don't work out, maybe it's not the right thing.
+- One thing that I have learnt from many senior actors is that you can never take anything for granted. Whether one is working with the best director or a first-time director, every experience teaches you a lot.
+- For me, the most difficult move was when I chose to quit modelling and applied for a position of an assistant director.
+- It is very essential as an actor to be a perfectionist and have a knack for doing different roles over a period of time to keep their fans entertained.
+- I don't come from a film background. so I am grateful to everyone who loves my work.
+- I am still getting used to stardom. It's a great place to be in.
+- Infidelity in a serious relationship? No, I have never had that kind of a conflict. My conflicts have been time elements, geographical elements.
+- At home, I am a private person, and I like keeping it that way. Maybe that is why I come out as being guarded about my personal life.
+- One day, I received a mail from a female fan saying she had named a star after me. She even mailed me the certificate for it!
+- I think all actors are professional liars.
+- As a kid, I remember my mother always experimenting with bizarre combinations of food such as gulab jamun and pickle! Surprisingly, many years down the line, I have adapted the same.

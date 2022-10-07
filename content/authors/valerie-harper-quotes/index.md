@@ -1,0 +1,113 @@
++++
+author = "Valerie Harper"
+title = "Valerie Harper Quotes"
+quotes_len = "107"
+description = "the best 107 Valerie Harper Quotes"
++++
+- My mother was a Book of the Month Club devotee. I remember she always looked forward to Pearl Buck's books.
+- As physics has proven, we're ultimately particulate matter, which means we are all one. That's why racial and gender bias is so ridiculous.
+- I really look at my life as blessed.
+- I think I have too little to hide to be interesting.
+- With imagery, as actors know, you can make up anything you want to. You can put yourself in icy water to get rid of this or that.
+- What we really wanted to call it was 'I Rhoda Book.'
+- Talk about a woman of a certain age - Pearl Buck was a great prototype of continuing to work. She was in the hospital dying of cancer, and in the next room was her secretary, typing out her next book.
+- I don't have a reputation of being a super-witch who demands pink rugs in the dressing room.
+- Life is amazing; live it to the fullest. Stay as long as you can.
+- Life does not owe me a shred.
+- Really appreciate the sunset as you're driving home, cursing all the terrible drivers on the road. Be where you are when you're there rather than out there in the future or back there in the past.
+- I don't know a great deal about Alzheimer's - just what it does.
+- I never did stand-up. If I've been funny ever, it was with other actors.
+- I danced in choruses from about 1959 to 1967, in 'Take Me Along,' 'Wildcat,' and 'Subways Are for Sleeping.'
+- There are times when I cry. I'll sit in the chair and feel the depression, let it seethe. Then it starts to go away, and I find myself laughing, saying, 'Well, that was dramatic.'
+- I don't see anything degrading about marriage or homemaking, but my husband and I pool the money we earn, along with the jobs around the house.
+- Death is out there for all of us.
+- Above all, learn to live when you're dying.
+- I don't wake up saying, 'Oh, I'm going to die.' It's a waste of time. It really is.
+- Do not tell somebody how to vote, just go up to them and tell them what Fahrenheit 9/11 meant to you. Fahrenheit will probably not win an Academy Award, but if you put it first on your list, it will become a nominee.
+- I love sitting at home. I love laying in bed watching television.
+- I've had very deep moments of sadness. What I do is really sob, really cry, do whatever it is, and then kind of release it. Then I can go cook dinner or make a phone call to a friend.
+- 'Incurable' is a tough word. So is 'terminal.'
+- When I wake up in the morning, I don't say, 'Oh, I have cancer. I say 'Another day. How you feeling? Good? Good.'
+- Daddy was a salesman and away a lot, always working. My mom took me to the movies on Thursday nights because it was dish night, when they gave you a free dish along with your movie ticket.
+- I've had a lot of great stuff - spectacular stuff - happen to me. I've got to not be a pig about life.
+- I am pretty heavy into causes. I'm an active Democrat, I boycott grapes, and I work for prison reform.
+- Live fully in the instant.
+- Miracles occur, or people die the next day.
+- I have had acupuncture regularly, and I engage in visualization, which is actually an actor's tool, visualizing myself kicking out the cancer, making up scenarios.
+- The movie that really 'did it for me' was 'All About Eve.' The backstage feeling, the authenticity, the passion those people had for their lives in the theater. I must say, the movie 'All About Eve,' what a great movie! 'All About Eve' had a profound effect on my life.
+- Anything I can give women to help them feel better about themselves, that's what I want to do.
+- You have to look life in the face, doing what you can where you can.
+- I never smoked in my life. Neither did my mother. And so many women I meet whose mothers or aunts or whoever who have gotten lung cancer were no-time smokers.
+- Comedy is saving me.
+- I think drama and comedy are pretty much all the same, and the issue is whether or not you have a sense of humor.
+- Pearl Buck was my mother's favorite author.
+- I'm painfully middle class.
+- I'm now the poster child for not believing everything I'm told.
+- Rhoda Morgenstern gave a wonderful impetus and propulsion to my career.
+- Life has sweetness to it and a beauty and a power that I wanted to celebrate.
+- I was a dancer, but I was always a little overweight. I'd say, 'Hello, I'm Valerie Harper, and I'm overweight.' I'd say it quickly before they could... I always got called chubby. My nose was too wide; my hair was too kinky.
+- I had always wanted a steady job in this business, a show that lasted.
+- Whatever happens, who cares.
+- At an ERA fundraiser years ago, one of my favorite buttons was the one that said, 'Every mother is a working mother.'
+- The disease I have is quite a rare cancer, and it is located in a limited area - a very widespread area, but narrow. So a lot can happen if the cancer starts getting really aggressive, pressing on parts of the brain and causing me to lose either my speech or my ability to think, etc.
+- I've always been a team player.
+- Sometimes I yell at my cancer cells, sometimes I make myself laugh.
+- Actors often want to look like they're comfortable. You want to go into an audition saying, 'I'm your gal. I'm what you need.' Yet you don't want to push.
+- As long as you're alive, you can do something.
+- Though I'm 75, I'm not looking forward to death, but it's there for all of us.
+- That's very unusual for an actor, to have gainful employment that they are secure in, that they know is going to be there year after year.
+- Every five minutes, every hour, every day, every year that you waste worrying about your cancer - you have forfeited time that you could have been alive having fun.
+- We all have a way to contribute, to your community, to your family, whatever it is you can do.
+- I have had a magnificent run.
+- I know there are a whole bunch of 'Rhoda' rooters out there.
+- Women and young girls are constantly judging themselves by standards that aren't real.
+- I'm a perfect person to tell people not to give up.
+- I really want Americans, and all of us, to be less afraid of death, and know that it's a passage, but that - don't go to the funeral before the day of the funeral.
+- If I wake up in the night terrified, I try to find a way to not let the fear have me. Every moment you spend in fear of cancer is a moment you've wasted enjoying life. Replace that fear - get in the moment and enjoy it.
+- All of us have the same thing coming - death. It's waiting. But I don't want to go. I want to live to be 102!
+- I'm basically an actress, not a comedienne, and if something comes along that appeals to me, I'll do it.
+- It can be frightening. I think, 'I don't want to go.' But I give myself room to grieve.
+- I have cancer. It's in my brain... What are you gonna do about it?
+- Knowing that you have something you have to deal with, rising to the occasion, builds character.
+- I'm trying to live every moment as much as I can.
+- I've always done character roles and tons of movies as the so-called star, but I always felt I was one of the team.
+- Cancer reminds me of a very bad but tenacious performer who, although no one wants to see, insists on doing an encore, having a return engagement, making a comeback and, worst of all, going on tour.
+- Keep your chin up, and don't go to the funeral - mine or yours or your loved one's - until the day of the funeral because then you miss the life that you have left.
+- Don't waste the time you do have.
+- I felt sharing my experience may be of value or assistance in some way to others.
+- I have an intention to live each moment fully.
+- On 'Rhoda,' they wanted my husband, Joe, to wear a pajama top when we were doing love scenes. They finally let him take it off as long as the audience saw him get into bed wearing pajama bottoms so they didn't think he was completely naked underneath.
+- Magazines airbrush everything. If you think it's an illusion, then it probably is.
+- I am a cancer patient, and I continue to fight with the hope that a cure may be just around the corner. I am grateful to my family, friends, loved ones, and to fans that I am in their thoughts and prayers. That support gives me great hope.
+- I first met Rhoda Morgenstern in the spring of 1970.
+- If you die, you're not a failure.
+- My husband is the best caregiver in the world.
+- Stop working so hard at being interesting and focus on what's outside yourself. There are universes out there that need to be explored. And, an interested person is extremely interesting.
+- I loved working in the theater.
+- Don't accept or be crippled by the media hype that aging is bad or shameful.
+- Mine's called leptomeningeal carcinomatosis. It's incurable. It's terminal. And it's in a tiny space - a huge area all around the brain and up and down the spine. But it's small area where the spinal fluid is. It's microscopic. You can't see it. It isn't lumps that they can say, 'Oh we can zap that.'
+- We think it's food that matters the most, but exercise and food both matter.
+- It's really important that we don't hang up the membership to the human community at menopause.
+- I really got the 'Rhoda' flavor from studying my stepmother, Angela, who's Italian, not Jewish. There's really so little difference between the speech patterns and family attitudes of Jews and Italians in the New York area, anyway.
+- I really developed an early love for ballet. Like most dancers, I am still 'first' a dancer. I'm very proud of it. Once you are a dancer, the physicality never leaves you, nor does the strength. Hopefully, it keeps you like an athlete.
+- Luck is not an acceptable substitute for early detection.
+- I used to get some ego thing out of saying I wasn't a star, just an actress. Forget it. I'm a star. I wanted it. I worked for it. I got it.
+- I'm happier because I had to face what all of us try not to face: that we're going to die. It's a fact.
+- My stepmother Angela is an Italian from New York City. I based Rhoda on her and a Jewish friend named Penny Ann Green. People often said that Rhoda seemed to be Italian. That was the Angela seeping through.
+- We're all terminal; none of us are getting out of this alive.
+- I'm talking about enjoying and finding pleasure and interest and happiness and curiosity every moment.
+- When I heard 'incurable'... incurable is a tough word.
+- When you age, you can do all kinds of roles. You don't have to look great. You can be the mom, the aunt. You can have a small part. You're an actor.
+- We have a lot of fear around death, and I thought maybe I can help somebody... I want people to be less scared.
+- The first Broadway play I ever saw was 'The Bad Seed' by Maxwell Anderson and with Patty McCormack. 'The Bad Seed' was from an extraordinary novel by William March.
+- I think you just take each day and get the best out of it and do what you can and have fun.
+- We don't know what's around the corner.
+- I've had a good run; what more can I ask for?
+- The body is just a rooming house.
+- I'm not dying until I do.
+- Forgiving is giving up the wish that things could have been different. They weren't. That's the past. Let it go.
+- I wouldn't give people advice except to share with them what I'm doing, which is, You're alive - stay alive.
+- All of us are going to die. Every single one of us. So, while you're alive, be alive.
+- I've always felt very strongly about human rights for blacks, women, and gays. Our Constitution is about equality for all - that's got to mean something to all of us.
+- Don't go to the funeral until the day of the funeral. Live this day.
+- Don't live in fear of dying.

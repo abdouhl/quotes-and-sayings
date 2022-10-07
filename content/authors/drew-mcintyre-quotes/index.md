@@ -1,0 +1,106 @@
++++
+author = "Drew Mcintyre"
+title = "Drew Mcintyre Quotes"
+quotes_len = "100"
+description = "the best 100 Drew Mcintyre Quotes"
++++
+- Why would I ever be bitter and negative and focus on the past?
+- I love tag team wrestling.
+- The WWE and World Heavyweight Titles are the ones everyone is aiming for, and if you're not aiming for them, you are in the wrong business - and I like to think that when the time is right, I will get my shot.
+- For me, the obvious examples of tag teams I was a big fan of, Arn Anderson and Tully Blanchard. I would watch them and be blown away by how incredible they were.
+- It would have been very hard to grow if I hadn't stepped outside the WWE bubble and gain a clear perspective on everything.
+- The first ever VHS I ever owned, my brother and I, was WrestleMania VII. We watched that thing to bits - I think the tape chewed itself up.
+- The goal is become the top person on 'Raw,' the example on 'Raw,' the John Cena, the ultimate workhorse of 'Raw.'
+- I was a boy that grew up in front of the world on television. Now I'm a man.
+- I used to travel for 12 hours to learn to wrestle when I was 15.
+- There are superstars that deserve to be at the top and do give everything.
+- I have always been a big rock fan and remember dressing up as Guns N' Roses' Axl Rose for my high school Halloween disco when I was 17. My teacher painted tattoos on, and I wore a small leather waistcoat and not much else.
+- I used to be around John Cena all the time in WWE, and I watched him and the way he worked. John is a guy who has been at the top longer than anyone else in history, and I'm lucky to have the opportunity to train at Cena's gym and go to him for advice.
+- I've been very fortunate - not many people have left WWE and then had the chance to reinvent themselves.
+- When you're relaxed, the crowd can see it. They can feel it. They can tell when you're being real, or they can tell when you're forcing it.
+- I focus very much on the job and my goals and dreams.
+- I've been lucky that I've got myself through various opportunities and platforms and people believing in me - my wife helping in a lot of different areas - and growing up a lot, I've shown I am ready now to be a top guy, to hold that position for the company and show what it is to represent a giant, publicly traded company like WWE.
+- I'm not a 'Yes Man,' and I've always preferred to go back and forth and find something we both agree on so I can do it to the best of my ability. That was taken in WWE as trying to do what was best for me. In reality, I was trying to be different.
+- It was very clear I wasn't giving my all in the past - not even close.
+- I appreciate when people give us some positive feedback, and in the past, when I was younger, I might have allowed it to get to my head and have a bit of an ego.
+- I've experienced the highest of highs and been in every single position, and that has taught me so much.
+- I feel like an eagle eye when I watch my fellow talent because I believe in grass roots, putting 100 percent in when the camera is on or not on.
+- All I know is professional wrestling and sports entertainment. This is all I know, and I wanted to give it everything that I had.
+- I went through ups and downs in this business and in life, and when I was released by WWE in 2014, I knew I had a wealth of knowledge and an opportunity.
+- When you are against a guy like a Bobby Lashley, you have to be smart because he can snap a leg in one second. I treat him with that respect.
+- 'WWE' Raw is the No. 1 sports-entertainment show in the world. If it starts to suffer, the rest of the sports-entertainment world starts to suffer.
+- I see it as my responsibility to start trying to help wrestling because if I don't do something, wrestling is going to die - like, wrestling as we know it.
+- The response Cena elicits from the crowd is unreal. And critically, AJ Styles has been considered one of, if not, the best in the world. Together, it's magic.
+- I think that a lot of people forget they're in WWE and get complacent.
+- When Vince McMahon said I was going to be a future world champion, he didn't say when.
+- I never get nervous before a show, but I get nervous when we come to Scotland.
+- Promoters believed in me and gave me a platform, and then the fans started believing in me. It went from me trying to show the fans what I was all about to growing companies around the world. I got to be the face of so many companies, like EVOLVE and Insane Championship Wrestling in Scotland.
+- When it comes to the southern states, I used to actually live in Louisiana for a year.
+- I am happy to do anything that comes my way, and I will always do my best in anything that presents itself.
+- You want to earn that opportunity to be part of WrestleMania, the biggest show of the year.
+- The fans in Scotland are great, but in New York, the fans are also great: they are mental.
+- For me, the big target is to get into the Hall of Fame, but I'd like to win the heavyweight title first.
+- AJ Styles is the best in the world.
+- I was a big Hart Foundation guy as a kid. Bret was my favorite wrestler. I loved their dynamic.
+- I was a big fan of Bret Hart growing up, and Shawn Michaels, the Undertaker, Triple H. I've probably drawn from them when I was younger.
+- Undertaker, right up until his last day, was working full time constantly, even when he was beat up, had fire in his eyes. If he couldn't walk, he was flying around, and he was The Undertaker in every way. That was such an inspiration.
+- I started wrestling at 15 and signed with world's biggest company by 21 and then had to rebuild myself again.
+- I want to inspire people and show people no matter what happens, no matter how much you get knocked down, you can pick yourself up. Just keep pushing forward, keep being positive.
+- Wrestling equals ratings. It seems sometimes that TV stations don't like to make money.
+- That's all I ever wanted - to go out as myself and have the success or failure fall on me.
+- Roderick Strong - we've had some of my favorite battles.
+- I want to be surrounded by the best possible wrestlers, and Evolve, from top to bottom, there is no filler on that roster.
+- I built my business, and WWE brought my business in. I want to be successful in my business and, in turn, make WWE successful.
+- Wrestling is my life, and if I'm not training or in the gym, then I'm watching videos to learn more about it.
+- I treat everyone how I would like to be treated, and I try to treat this industry and this job with the respect it deserves.
+- Aleister Black - we've battled in the past, across the world. I've enjoyed his build, to watch his evolution as well.
+- He was one of my childhood idols, and I hope I can get in the ring with him one day. I'd love to batter The Rock.
+- Keeping a secret in the social media age often is impossible.
+- Partying isn't as important to me anymore like it was when I was younger.
+- I was 21 years old when I first signed with WWE. I finished my university degree and came straight to America.
+- I sent away to America for 'The Inside Secrets of Wrestling' that Percy Pringle and Dennis Brent wrote, and Volume 1 told me to keep kayfabe of the book. So I used to keep it in a briefcase, and I'd go to school every day, and everyone would talk about wrestling, and they didn't know what was going on, but I knew what was going on.
+- On the road to WrestleMania, this is where everyone's giving 110 percent.
+- William Regal is one of my mentors, and I had been talking with him the whole time I have been away from WWE.
+- Everything I do has a purpose for my goal, which is to create a buzz.
+- The big thing for me is no longer is trying to impress people around me.
+- When you're by yourself and not with WWE, you are your own business. And I was very successful in that business because of all the lessons I learned.
+- Johnny Gargano is someone I've known for years - we've been EVOLVE Tag Team Champions together; we've wrestled each other many times over the years.
+- I wanted to look in the mirror and be accountable to only one person. The only person is me, and that's the only thing that drives me. The only person I'm in competition with is myself.
+- I truly learned how to be a top brand myself and be what I needed to be.
+- I moved from home in Scotland to home in WWE, and that was the first time being out on my own in my life.
+- To win the Royal Rumble, you don't want to go over the top rope, obviously. But game-play-wise, hopefully you draw a later number.
+- There is so much more than just what you do in the ring and what you do on the microphone.
+- I was in FCW for about six months. It was roundabout 2009; a lot of guys started to retire, and they didn't have guys coming in from other companies to replace them.
+- I know this business better than most people, and I'm extremely passionate about it.
+- RVD is the most chilled man on planet Earth - if he was any more relaxed, he'd be asleep - and he is a really nice guy, too.
+- Anything can happen in pro wrestling.
+- I started training when I was 15.
+- The Shield is fantastic. They're everything they say they are.
+- NXT is the top roster in the world as far as I'm concerned, the work ethic and fans.
+- I was part of Evolve as they were beginning to make their name, and I was lucky enough to help it grow worldwide as WWE got involved.
+- You can't just be the same character forever. You've got to add some layers, show some personality.
+- I became one of the top wrestlers outside of WWE in the world, and it all happened because I started giving it my everything.
+- From a boy who left university as a student straight to WWE - those experiences, those ups and downs in life and work shaped the wrestler and man I am today.
+- I achieved more than anyone or myself could ever have dreamed.
+- Most people jump for joy when WWE come calling, and rightly so.
+- There's so much more to being a 'top guy' than what you see on screen that I really learned.
+- I am very passionate about this business, and I always have been.
+- Opportunities came because WWE built my name, and I've made the most of it.
+- The Shield has been up at the top for so long now, they're just living in their own little world. They're not working for the boys; they're working for each other.
+- My goal is to actually top him and be bigger and busier than John Cena.
+- If I agree with something, then I do, and if I don't, then I don't. It's as simple as that.
+- I may look like the stereotypical, prototypical wrestler, but I've always wanted this my whole life.
+- In WWE, a lot of people took my passion as me thinking I was better or knew more.
+- I was always impressed by the Road Warriors and Legion of Doom. They were just so large and bigger than life in every possible way.
+- All I want is wrestling to grow while living my dream, and if I can help, then that's beyond my dreams.
+- I've been so lucky with people giving me an opportunity to showcase the real Drew.
+- In OVW, it was like a different world, pretty much. They had the talent ready to stay around for a while, with guys who weren't over yet and guys who weren't retiring yet. With FCW, WWE were a bit more hands-on with the writers.
+- I will never say anything negative about WWE.
+- I tell people that the best thing that can ever happen to you is getting fired, and you can either sink or swim, and I swam like hell. The reason why I swam the way I swam was because there was nothing else for me.
+- I'm still the biggest wrestling fan there is; I'm the biggest mark in the land. I just took it further and started doing it!
+- There are a lot of people very sure of themselves that need to be brought back down to Earth. As good as they think they are, they're really not.
+- Being a Paul Heyman Guy wouldn't be such a bad thing!
+- Oney Lorcan is such a hard-hitting dude, just like me. We go in there, two hard-hitting dudes, and the crowd are going to be taken aback, and that's our goal.
+- The live events are more interactive for the fans. With TV, you have the cameras there, commercial breaks where the fans can tell there's a down moment. At the live events, it's non-stop. We get to play with the audience; the crowd gets to get involved a little more. It's a very intimate feel.
+- I've wrestled since I was 15 years old, and it's the one thing that I know I do very well.
+- I want to take that top spot in WWE, and I'm gunning for number one.

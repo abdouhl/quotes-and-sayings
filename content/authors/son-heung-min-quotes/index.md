@@ -1,0 +1,55 @@
++++
+author = "Son Heung-Min"
+title = "Son Heung-Min Quotes"
+quotes_len = "49"
+description = "the best 49 Son Heung-Min Quotes"
++++
+- Competition makes us all better and better.
+- Unless I play like Lionel Messi or Cristiano Ronaldo, it'll be hard to give myself 100 out of 100.
+- I may play poorly at times, but I'll always try to give my best effort.
+- I'm a really luck guy to play in the Premier League and have so many fans, so many supporters. This is a really lucky guy.
+- When I was at Hamburg, 17 or 18, Ruud van Nistelrooy signed, and he helped me a lot. He saw my first training session, and he talked to me. He told me I was a good player. He gave me confidence, and I want to thank him for that.
+- I've been a bit unlucky with small injuries.
+- When I play, I just try to score goals or assist someone - that's my job.
+- Football sometimes goes up and down, and we need to accept the result.
+- It's difficult for an Asian to play in the Premier League.
+- He's always with me; I'm always asking. He can be my father, or he can be my coach, or he can be an ex-player. I can ask him so many things. He teaches me a lot, and I'm really thankful.
+- Winning the Asian Games is about the most important thing I have achieved for my country, and seeing the delight on the faces of the people back home is something that will last with me forever.
+- If I'm on the bench, I want to be ready.
+- When I went to Germany, all I knew were German swear words.
+- I would like to score goals in every game.
+- I have scored some goals, but that is not everything, is it? Football is more than that.
+- Kyriakos Papadopoulos is really funny. So is Karim Bellarabi. They are full of jokes in the dressing room.
+- Every player's dream is to play Champions League and the World Cup.
+- I always give 100% for my country.
+- It's not easy, but I play with my body, and I can feel how important it is to get 100 percent fit to play. This is an important thing to play in the Premier League.
+- I'm playing Premier League, but I'm still very hungry.
+- In every country I've gone to, if you smile at people, they are going to be happy. This is my attitude.
+- Paolo Guerrero is a good player - and Mladen Petric also. I think both are really good and even better than me.
+- At Tottenham Hotspur, we can share the pressure, but on the South Korea team, some of the players have more pressure than others.
+- I try my best, and I want to help my team-mates every game.
+- Premier League is not an easy league; it's one of the best.
+- I'm a very lucky guy to play for my country, and I'm very happy and lucky to have this country.
+- Harry Kane is one of the best strikers in the world.
+- When I am playing for my country, there is not a single match that I can take lightly.
+- I want to play football until my body says, 'You can't run anymore: you're dead.'
+- I want to be a top player.
+- Football is about scoring, and if you want to do that, you have to go forward.
+- Since we are not robots, we can't always perform well.
+- If I'm on the pitch, I want to just try to give my best performance every game.
+- I'm always hungry. I can be better always.
+- I watched the Olympics in 2012 in London, and there were so many great performances there, so many people, so many sports.
+- I'm never happy with my performances. I always want to prove more and more things.
+- Without team-mates, it's difficult to play well.
+- I wouldn't have become the player I have without my father.
+- Harry Kane is, of course, a very important player for England because he's the best player in the world.
+- It is good to play strong teams.
+- It doesn't matter who scores as long as we win the match. I'll obviously try to get on the board, but the more important thing is to be prepared for the match.
+- I feel great when people say good things about me. But what's important is that I have to show it on the pitch.
+- Football is about tackling, about winning the ball.
+- I like lots of Korean music that most people have probably never heard of. I also enjoy hip hop.
+- I really actually started when I was 10 years old, but before that, I loved to play with Father because he played as an ex-player. I just enjoyed it, so I started at 10 years old with Father to be a proper football player.
+- Mum's cooking is still the best thing. It's very healthy.
+- I'm happy at Tottenham.
+- Football is my happiness.
+- I love Korean rice and Korean food in general. Korean barbecues are cool - there's a table with a hole in it with fire coming through, and we throw meat on it.

@@ -1,0 +1,15 @@
++++
+author = "David Mccandless"
+title = "David Mccandless Quotes"
+quotes_len = "9"
+description = "the best 9 David Mccandless Quotes"
++++
+- Information design has been around since the 1970s. Pioneers like Yale University design guru Edward Tufte and design agency Pentagram have long known and used its power. But now with the rise of the Internet, it's having something of a second birth.
+- In an endless jungle of websites with text-based content, a beautiful image with a lot of space and colour can be like walking into a clearing. It's a relief.
+- I feel that every day, all of us now are being blasted by information design. It's being poured into our eyes through the Web, and we're all visualizers now; we're all demanding a visual aspect to our information. There's something almost quite magical about visual information. It's effortless; it literally pours in.
+- Data is the kind of ubiquitous resource that we can shape to provide new innovations and new insights, and it's all around us, and it can be mined very easily.
+- Over the years, online, we've laid down a huge amount of information and data, and we irrigate it with networks and connectivity, and it's been worked and tilled by unpaid workers and governments.
+- Personally, I find visualisations great for helping me understand the world and for sifting the huge amounts of information that deluge me every day.
+- By visualizing information, we turn it into a landscape that you can explore with your eyes: a sort of information map. And when you're lost in information, an information map is kind of useful.
+- What I love - and I'm a journalist - and what I love is finding hidden patterns; I love being a data detective.
+- I love information. I want to stay current. I don't want to be under-informed. But I'm busy. Sometimes, I need an instant overview of a situation that I can grasp in a second.

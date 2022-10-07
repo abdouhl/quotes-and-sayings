@@ -1,0 +1,69 @@
++++
+author = "Walter Dean Myers"
+title = "Walter Dean Myers Quotes"
+quotes_len = "63"
+description = "the best 63 Walter Dean Myers Quotes"
++++
+- I didn't even know for years that people ever even got paid for this, because they don't teach you that in school. They don't say Shakespeare got a check.
+- I was a good student, but a speech impediment was causing problems. One of my teachers decided that I couldn't pronounce certain words at all. She thought that if I wrote something, I would use words I could pronounce. I began writing little poems. I began to write short stories, too.
+- I think that what we need to do is say, 'Reading is going to really affect your life.' You take a black man who doesn't have a job, but you say to him, 'Look, you can make a difference in your child's life, just by reading to him for 30 minutes a day.' That's what I would like to do.
+- One of the lessons learned during the Vietnam War was that the depiction of wounded soldiers, of coffins stacked higher than their living guards, had a negative effect on the viewing public. The military in Iraq specifically banned the photographing of wounded soldiers and coffins, thus sanitizing this terrible and bloody conflict.
+- When we think of war, the tendency is to picture young soldiers only in their military roles. To a large extent this dehumanizes the soldiers and makes it easier for society to commit them to combat.
+- I remember one time being told I could not play in a basketball game at the College of William and Mary because I was black, even though I was playing with a United States Army team.
+- I'll never live to write all the stories I have in my head.
+- My younger brother's death in Vietnam was both sobering and cause for reflection. In 'Fallen Angels' I wanted to dispel the notion of war as either romantic or simplistically heroic.
+- I came to Harlem from West Virginia when I was three, after my mother died. My father, who was very poor, gave me up to two wonderful people, my foster parents.
+- As a child I wanted to be a professional athlete or lawyer.
+- I write in a small office at home.
+- New York is my favorite city.
+- People still try to sell books that way - as 'books can take you to foreign lands.' We've given children this idea that reading and books are a nice option, if you want that kind of thing. I hope we can get over that idea.
+- I read a lot of comic books and any kind of thing I could find. One day, a teacher found me. She grabbed my comic book and tore it up. I was really upset, but then she brought in a pile of books from her own library. That was the best thing that ever happened to me.
+- I admired the work ethic of the cowboys I read about. The idea of these young people taking on this much responsibility was impressive. I would like modern readers to have an appreciation of this.
+- The most difficult idea to reconcile in war is the notion that anything is going to be solved by killing a stranger, or in risking your life for a cause anchored in some distant political arena.
+- I like people who take responsibility for their lives.
+- America believes what's good for us is good for the world. It's very difficult to understand that that's not necessarily true.
+- As a kid I didn't see black cowboys on the screen. What that said to me was that there were things I couldn't do or be because of my color. What we see others like us do gives us permission to expand our own horizons.
+- One of the problems is that kids who don't read - who are not doing well in school - they know they're not doing well. And they want everyone to be in that same category.
+- I am very much interested in getting parents to read to children, and trying to get people mentoring children. If I can do both I'll be happy.
+- From my foster parents, the Deans, I received the love that was ultimately to strengthen me, even when I had forgotten its source. It was my foster mother, a half-Indian, half-German woman, who taught me to read, though she herself was barely literate. I remember her reading to me every day from 'True Romance' magazine.
+- I wrote for magazines. I wrote adventure stuff, I wrote for the 'National Enquirer,' I wrote advertising copy for cemeteries.
+- Fifty percent of all meaningful education takes place in the home. What do you share with your child? You share your interests. I was a book person. I read with my son. My wife is an artist. She dragged his little butt around to museums. He's an illustrator of children's books.
+- We need to tell young people that America was built by men and women of all colors and that the future of this country is dependent on the participation of all of our citizens.
+- Children have adopted a consumerist attitude - I dare you to entertain me.
+- I would enjoy having dinner with the poet/playwright Derek Walcott.
+- When my family fell apart, it was such a troubled part of my life... I think I could understand what I was going through, but I didn't have the vocabulary for it.
+- Like the Negro League players, I traveled through the segregated south as a young man. Because I was black, I was denied service at many restaurants and could only drink from water fountains marked 'Colored.' When I went to the movies, I would have to sit in the Colored balcony.
+- And I see the - you know, when I go to the juvenile detention centers and prisons, I see people who can't read now. And I know that when they leave those prisons and those detention centers, they're not going to be able to make it in our society.
+- I was teased if I brought my books home. I would take a paper bag to the library and put the books in the bag and bring them home. Not that I was that concerned about them teasing me - because I would hit them in a heartbeat. But I felt a little ashamed, having books.
+- I had seen the ballet of 'Swan Lake' as a child but it was as an adult, when I saw a production featuring Erik Bruhn, that I first noticed how significant a part the ever-present threat of violence played. This juxtaposition of great beauty and grace with a backdrop of pure evil stayed with me for years.
+- There were two very distinct voices going on in my head and I moved easily between them. One had to do with sports, street life and establishing myself as a male... The other voice, the one I had from my street friends and teammates, was increasingly dealing with the vocabulary of literature.
+- I was raised in Harlem. I never found a book that took place in Harlem. I never had a church like mine in a book. I never had people like the people I knew. People who could not find their lives in books and celebrated felt bad about themselves. I needed to write to include the lives of these young people.
+- I think it's difficult for young people to acknowledge being smart, to knowledge being a reader. I see kids who are embarrassed to read books. They're embarrassed to have people see them doing it.
+- There have been two areas identified as being vital to reading - and that's for very young children between the ages of one month and five years and for teenagers. I've been trying to find ways of approaching both groups.
+- I couldn't speak well. I went to speech therapy for 10 years. And I was sort of frustrated in that sense.
+- If what I read doesn't reflect my life - whether I'm gay or Latino or on welfare - doesn't that really mean that my life is not valuable?
+- I keep threatening to keep a formal journal, but whenever I start one it instantly becomes an exercise in self-consciousness. Instead of a journal I manage to have dozens of notebooks with bits and pieces of stories, poems, and notes. Almost every thing I do has its beginning in a notebook of some sort, usually written on a bus or train.
+- Thinking back to boyhood days, I remember the bright sun on Harlem streets, the easy rhythms of black and brown bodies, the sounds of children streaming in and out of red brick tenements.
+- There was a time I was no longer going to be black. I was going to be an 'intellectual.' When I was first looking around for colleges, thinking of colleges I couldn't afford to go to, I was thinking of being a philosopher. I began to understand then that much of my feelings about race were negative.
+- After so many books and so many years of writing, I have a good idea of my strengths and weaknesses. I love the process of writing and, if I allowed myself, I would write far too much every day. One weakness which I've struggled to overcome is my tendency to having my characters ruminate for pages.
+- Growing up in Harlem, I had the chance to practice with a Negro League team. At fifteen, I was over six feet tall and a fair athlete, but my skills didn't come close to some of the players I saw.
+- Within the black community, roughly 60 percent of children are born to single moms. Moms don't have the emotional wherewithal to deal with their children. Their English is atrocious. Their speaking is atrocious. The dropout rate is horrendous.
+- I want young people to be hesitant to glorify war and to demand of their leaders justification for the sacrifices they ask of our citizens.
+- I joined the army on my seventeenth birthday, full of the romance of war after having read a lot of World War I British poetry and having seen a lot of post-World War II films. I thought the romantic presentations of war influenced my joining and my presentation of war to my younger siblings.
+- I live intimately with my characters before starting a book. I cut out pictures of them for my wall. I do time lines for each major character and a time line for the entire novel: What is going on in the world as my characters struggle with their problems?
+- As a young man, I saw families prosper without reading because there were always sufficient opportunities for willing workers who could follow simple instructions. This is no longer the case. Children who don't read are, in the main, destined for lesser lives. I feel a deep sense of responsibility to change this.
+- As a writer, I absorb stories, allow them to churn within my own head and heart - often for years - until I find a way of telling them that fits both my time and temperament.
+- We all know we should eat right and we should exercise, but reading is treated as if it's this wonderful adjunct.
+- With my writing, what I want to do is humanize the young people I write about.
+- My dad was a janitor for U.S. Radium Corporation, and he stayed there for 37 years. So he didn't read.
+- There is a crisis involving reading in certain communities.
+- What I found fascinating was just how quickly the best of the young Negro League players were drafted into the major leagues once Branch Rickey broke the color line by hiring Jackie Robinson. It was clear that all of the major league owners already knew the talents of the black ballplayers that they had refused to let into their league.
+- Each generation seems to invent its own reasons for war.
+- We need to tell kids flat out: reading is not optional.
+- I talk to myself out loud at times, and feel embarrassed when people overhear me.
+- I began going to juvenile prisons. And some of these kids face some very, very tough lives. How do they handle these lives? Do they even know that if their life is bad, that they're still OK? Do they know that? Do they know that someone is thinking the same way that they're thinking?
+- So many organizations have a mentoring arm, but they don't really do it. Their idea of mentoring a kid is giving them general advice. But what they need to do is read with children.
+- To fight for one's country, to offer one's very life to promote the well being of the United States, is truly a noble undertaking. But so is the vigilance of the citizen who carefully examines our leaders to see if political problems are being solved by wars simply because this seems to be the easiest solution.
+- I know what falling off the cliff means. I know from being considered a very bright kid to being considered like a moron and dropping out of school.
+- Now, my mom did not read well and she read 'True Romance' magazines, but she read with me. And she would spend 30 minutes a day, her finger going along the page, and I learned to read. Eventually, by the time I was four and a half, she could iron and I could sit there and read the 'True Romance.' And that was wonderful.
+- I don't want to approach reading from the viewpoint of that it's a pleasant adjunct to your life. I want to approach it from the idea that you have to read or you're going to suffer. There's a difference to be made - and you can make it if you read with your child.

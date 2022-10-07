@@ -1,0 +1,15 @@
++++
+author = "Peter Abelard"
+title = "Peter Abelard Quotes"
+quotes_len = "9"
+description = "the best 9 Peter Abelard Quotes"
++++
+- Logic has made me hated in the world.
+- By doubting we are led to question, by questioning we arrive at the truth.
+- Are you not moved to tears and bitter compassion, when you behold the only Son of God seized by the most impious, dragged away, mocked, scourged, buffeted, spit upon, crowned with thorns, hung upon the infamous cross between two thieves, finally in such a horrible and execrable manner suffering death, for your salvation and that of the world?
+- The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.
+- The men who abandon themselves to the passions of this miserable life, are compared in Scripture to beasts.
+- I preferred the weapons of dialectic to all the other teachings of philosophy, and armed with these, I chose the conflicts of disputation rather than the trophies of war.
+- Our redemption through the suffering of Christ is that deeper love within us which not only frees us from slavery to sin, but also secures for us the true liberty of the children of God, in order that we might do all things out of love rather than out of fear - love for him that has shown us such grace that no greater can be found.
+- It is by doubting that we come to investigate, and by investigating that we recognize the truth.
+- The Son of God took our nature, and in it took upon himself to teach us by both word and example even to the point of death, thus binding us to himself through love.

@@ -1,0 +1,36 @@
++++
+author = "David Duval"
+title = "David Duval Quotes"
+quotes_len = "30"
+description = "the best 30 David Duval Quotes"
++++
+- We might not make what athletes in other sports make, but we have greater longevity and we do have certain freedoms to do things they can't do. Like stay home one week and play the next week.
+- Maybe that's some of the reason I feel so good today. Maybe I finally realised that it's just a game.
+- What I'm saying is that, unlike a lot of portrayals of me, I'm not hiding behind the sunglasses. I'm out there working. I'm not trying to sell anybody anything, but I do realize we're entertainers.
+- I've seen the bottom and I know the difference between good golf and bad golf.
+- The best way to explain it is that I'm not yearning anymore, on or off the course. I appreciate what I have. I feel like I'm blessed.
+- I may not look it when I'm playing, but I think I'm a fun guy to hang with when I'm relaxing.
+- But just like I've always said when people complain about tee times, 'I just want a tee time. Just give me one so I can play.'
+- You don't have to hit perfect shots all the time here. The variety of shots you get to play, the shots you sometimes have to hit along the ground, it's just a lot of fun to me.
+- I know the other side. I know what awful golf is.
+- I didn't do anything spectacular when I won the Open in 2001. I hit the ball good, not great. I putted good, not great, but I think I missed maybe two putts inside eight feet all week.
+- You do what you need to if you're serious about playing great golf.
+- I realize what it means to be financially comfortable, and I want to be that. But I'm lucky enough to be in that position. And I'm also careful. I save 38 percent of my earnings after expenses, before taxes.
+- You've got to make an effort on your own. Some people don't even try.
+- Confidence is such a fragile and precious thing.
+- I love competing.
+- I've just been working hard, trying to get some good stuff to come out.
+- I think about what I say. I don't give stock answers. I'm not trying to cultivate an image with the public, like several of the top players do.
+- We're often portrayed as rich, spoiled athletes who play a game for too much money.
+- And if people do like me, I think it's because I'm a stand-up guy.
+- But you know, I'm just not a quitter.
+- I'm content. I want to have better success in the tournaments than I've had, but I know I'm playing well, so I'm happy with that.
+- It's a silly old game.
+- I slowly continued to compensate for the physical problems I was having and ended up completely destroying my swing, my set-up, my posture. Everything was gone.
+- When I'm swinging well, nobody hits the golf ball any better than I do.
+- I love hitting the ball, controlling the ball. And yeah, even the roar of the crowd. I enjoy the roar of the crowd probably less than some players and more than some. But I'm not out here to be a celebrity.
+- I was in the middle of the golf tournament trying to make birdies and I was just having a blast. So that probably qualifies as having a greater appreciation.
+- The way I grew up playing, and the way most Americans have grown up, is that you hit the ball up in the air and then it stops where it lands.
+- I went to Q-school knowing that I could play well and get through.
+- But more than that, I wanted my wife and my family to see how I can actually play this game. They haven't seen me at my best, and I want them to.
+- At the U.S. Open, you're going to make bogeys.

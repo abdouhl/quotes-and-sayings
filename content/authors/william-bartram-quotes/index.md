@@ -1,0 +1,17 @@
++++
+author = "William Bartram"
+title = "William Bartram Quotes"
+quotes_len = "11"
+description = "the best 11 William Bartram Quotes"
++++
+- First I shall name the eagle, of which there are three species: the great grey eagle is the largest, of great strength and high flight; he chiefly preys on fawns and other young quadrupeds.
+- The attention of a traveller, should be particularly turned, in the first place, to the various works of Nature, to mark the distinctions of the climates he may explore, and to offer such useful observations on the different productions as may occur.
+- Turkeys, quails, and small birds, are here to be seen; but birds are not numerous in desart forests; they draw near to the habitations of men, as I have constantly observed in all my travels.
+- Having contemplated this admirable grove, I proceeded towards the shrubberies on the banks of the river, and though it was now late in December, the aromatic groves appeared in full bloom.
+- On the recollection of so many and great favours and blessings, I now, with a high sense of gratitude, presume to offer up my sincere thanks to the Almighty, the Creator and Preserver.
+- If we bestow but a very little attention to the economy of the animal creation, we shall find manifest examples of premeditation, perseverance, resolution, and consumate artifice, in order to effect their purpose.
+- The parental, and filial affections seem to be as ardent, their sensibility and attachment, as active and faithful, as those observed to be in human nature.
+- It may be proper to observe, that I had now passed the utmost frontier of the white settlements on that border.
+- My progress was rendered delightful by the sylvan elegance of the groves, chearful meadows, and high distant forests, which in grand order presented themselves to view.
+- Some tribes of birds will relieve and rear up the young and helpless, of their own and other tribes, when abandoned.
+- Animal substance seems to be the first food of all birds, even the granivorous tribes.

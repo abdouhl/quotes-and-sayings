@@ -1,0 +1,64 @@
++++
+author = "Sarah Palin"
+title = "Sarah Palin Quotes"
+quotes_len = "58"
+description = "the best 58 Sarah Palin Quotes"
++++
+- We need leaders who will stand up for the little guy and listen once again.
+- We say keep your change, we'll keep our God, our guns, our constitution.
+- Despite what the pundits want us to think, contested primaries aren't civil war, they are democracy at work, and that's beautiful.
+- Each of us knows that we have an obligation to care for the old, the young and the sick. We stand strongest when we stand with the weakest among us.
+- To win this war, we need a commander in chief, not a professor of law standing at the lectern.
+- I am a conservative Republican, a firm believer in free market capitalism. A free market system allows all parties to compete, which ensures the best and most competitive project emerges, and ensures a fair, democratic process.
+- Polls? Nah... they're for strippers and cross country skiers.
+- Buck up or stay in the truck.
+- Americans expect us to go to Washington for the right reason, and not just to mingle with the right people.
+- I think President Obama is trying to deceive the public in pretending that he was not a part of Congress that has made some decisions in the past that got us to where we are today.
+- We don't need to fundamentally transform America. We need to restore America.
+- Sometimes even the greatest joys bring challenge, and children with special needs inspire a very, very special love.
+- Here's a little newsflash for those reporters and commentators: I'm not going to Washington to seek their good opinion. I'm going to Washington to serve this great country.
+- Common sense tells us that the government's attempts to solve large problems more often create new ones. Common sense also tells us that a top-down, one-size-fits-all plan will not improve the workings of a nationwide health-care system that accounts for one-sixth of our economy.
+- Politics isn't just a game of clashing parties and competing interests. The right reason is to challenge the status quo, to serve the common good, and to leave this nation better than we found it.
+- We need independents, we need the GOP, we need Reagan Democrats.
+- I came to office promising major ethics reform to end the culture of self-dealing. And today, that ethics reform is a law. While I was at it, I got rid of a few things in the governor's office that I didn't believe our citizens should have to pay for. That luxury jet was over-the-top. I put it on eBay.
+- I love those hockey moms. You know what they say the difference between a hockey mom and a pit bull is? Lipstick.
+- In politics there are some candidates who use change to promote their careers, and then there are those like John McCain who use their careers to promote change.
+- We know that the far left and their media allies can't beat us on the issues, so instead they'll distort our records. Let's not do the job for them, OK, Republicans? OK, independents?
+- We tend to prefer candidates that don't talk about us one way in Scranton and another way in San Francisco.
+- America is looking for answers. She's looking for a new direction; the world is looking for a light. That light can come from America's great North Star; it can come from Alaska.
+- I'm pro-life. I'll do all I can to see every baby is created with a future and potential. The legislature should do all it can to protect human life.
+- People have a constitutional right to burn a Koran if they want to, but doing so is insensitive and an unnecessary provocation - much like building a mosque at Ground Zero.
+- The administration says, then, there are no downsides or upsides to treating terrorists like civilian criminal defendants, but a lot of us would beg to differ.
+- We need a foreign policy that distinguishes America's friends from her enemies, and recognizes the true threats that we face.
+- The only place that the left hasn't placed the blame is on their agenda, so some advice for our friends on that side of the aisle: that's where you've gotta look because that's what got you into this mess.
+- Well, I'm not a member of the permanent political establishment, and I've learned quickly these last few days that if you're not a member in good standing of the Washington elite, then some in the media consider a candidate unqualified for that reason alone.
+- The lesson of the last year is this: foreign policy can't be managed through the politics of personality, and our President would do well to take note of an observation John F. Kennedy made once he was in office - that all of the world's problems aren't his predecessor's fault.
+- We need American sources of resources, we need American energy, brought to you by American ingenuity and produced by American workers.
+- We're red, white and blue, and President Obama, we are through with you.
+- The fact that drilling won't solve every problem is no excuse to do nothing at all.
+- Assange is not a 'journalist' any more than the 'editor' of al-Qaeda's new English-language magazine 'Inspire' is a 'journalist.' He is an anti-American operative with blood on his hands.
+- We eat, therefore we hunt.
+- To reduce deficit spending and our enormous debt, you reign in spending. You cut the budget. You don't take more from the private sector and grow government with it. And that's exactly what Obama has in mind with this expiration of Bush tax cuts proposal of his.
+- I'm just one of many moms who will say an extra prayer each night for our sons and daughters going into harm's way.
+- A changing environment will affect Alaska more than any other state, because of our location. I'm not one though who would attribute it to being man-made.
+- My fellow citizens, the American Presidency is not supposed to be a journey of personal discovery.
+- To the families of special needs children all across this country I have a message for you: for years you have sought to make America a more welcoming place for your sons and daughters, and I pledge to you that if we're elected, you will have a friend, an advocate, in The White House.
+- I've said it since the day he made the sacrifice to hit the campaign trail: Voters crave the anti-status-quo politician. Everything about Donald Trump's campaign, it's avant-garde. He is crushing it in the polls.
+- Obama's capitalism is a capitalism of connections.
+- I guess a small-town mayor is sort of like a community organizer, except that you have actual responsibilities.
+- For a season, a gifted speaker can inspire with his words, but for a lifetime John McCain has inspired with his deeds.
+- I say to the Occupy protesters - you're occupying the wrong place, you're protesting the wrong thing.
+- Our government needs to adopt a pro-market agenda that doesn't pick winners and losers, but it invites competition and it levels the playing field for everyone.
+- In America, we believe that competition strengthens us.
+- The challenge is not to replace Obama but with who. It's not enough to just change up the uniform, if we don't change the team and the game plan, we won't save our country.
+- When we talk about fighting for our country, we're talking about our vote, our vote is our arms.
+- The Republican Party would be really smart to absorb as much of the Tea Party movement as possible.
+- Folks, this government isn't too big to fail, it's too big to succeed.
+- When oil and gas prices went up dramatically and filled up the state treasury, I sent a large share of that revenue back where it belonged - directly to the people of Alaska.
+- New terms used like, 'overseas contingency operation' instead of the word 'war' - that reflects a worldview that is out of touch with the enemy that we face. We can't spin our way out of this threat.
+- America's finest - our men and women in uniform, are a force for good throughout the world, and that is nothing to apologize for.
+- Washington has got to, across the board, lower taxes for small businesses so that our mom and pops can reinvest and hire people, so that our businesses can thrive.
+- Candidate Obama promised to fundamentally transform America and that's one promise he has kept. Turning a shining city on a hill into a sinking ship.
+- We believe every child is created equal with the right to life.
+- People know something has gone terribly wrong with our government and it has gotten so far off track. But people also know that there is nothing wrong in America that a good old-fashioned election can't fix.
+- They think that, if we were just smart enough, we'd be able to understand their policies. And I so want to tell 'em, and I do tell 'em, Oh, we're plenty smart, oh yeah - we know what's goin' on. And we don't like what's goin' on. And we're not gonna let them tell us to sit down and shut up.

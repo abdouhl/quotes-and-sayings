@@ -1,0 +1,34 @@
++++
+author = "St. Jerome"
+title = "St. Jerome Quotes"
+quotes_len = "28"
+description = "the best 28 St. Jerome Quotes"
++++
+- Beauty when unadorned is adorned the most.
+- Haste is of the Devil.
+- Keep doing some kind of work, that the devil may always find you employed.
+- Act as if the maxim of your action were to become through your will a be general natural law.
+- The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart.
+- My native land is a slave of heathenism, men's god is their belly, and they live only for the present. The richer a man, the holier.
+- I am like the sick sheep that strays from the rest of the flock. Unless the Good Shepherd takes me on His shoulders and carries me back to His fold, my steps will falter, and in the very effort of rising, my feet will give way.
+- It is not enough for us to restrain from doing evil, unless we shall also do good.
+- The friendship that can cease has never been real.
+- Marriage is good for those who are afraid to sleep alone at night.
+- What good is speed if the brain has oozed out on the way.
+- Be ever engaged, so that whenever the devil calls he may find you occupied.
+- The scars of others should teach us caution.
+- Love is not to be purchased, and affection has no price.
+- Being over seventy is like being engaged in a war. All our friends are going or gone and we survive amongst the dead and the dying as on a battlefield.
+- Virginity can be lost by a thought.
+- They talk like angels but they live like men.
+- Those who persevere in sin are those who are held in abhorrence by God, but those who abandon the ways of sin are loved by the Lord.
+- Why do you not practice what you preach.
+- True friendship ought never to conceal what it thinks.
+- A fat stomach never breeds fine thoughts.
+- Someone may ask, 'How is justice greater than all the other virtues?' The other virtues gratify the one who possesses them; justice does not give pleasure to the one possessing it, but instead pleases others.
+- I am that prodigal son who wasted all the portion entrusted to me by my father. But I have not yet fallen at my father's knees. I have not yet begun to put away from me the enticements of my former riotous living.
+- Catch, then, O catch the transient hour; Improve each moment as it flies!
+- Let your daughter have first of all the book of Psalms for holiness of heart, and be instructed in the Proverbs of Solomon for her godly life.
+- Action without a name, a 'who' attached to it, is meaningless.
+- A friend is long sought, hardly found, and with difficulty kept.
+- Good, better, best. Never let it rest. 'Til your good is better and your better is best.

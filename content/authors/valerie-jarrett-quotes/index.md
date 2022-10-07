@@ -1,0 +1,134 @@
++++
+author = "Valerie Jarrett"
+title = "Valerie Jarrett Quotes"
+quotes_len = "128"
+description = "the best 128 Valerie Jarrett Quotes"
++++
+- But if I were to sum up who Barack Obama is and how he plans to meet this moment with one word, that word would be 'responsibility.' Responsibility to each other, our families, our communities, our country, and our world.
+- Part of what makes America strong is our resilience, tenacity, innovation and our willingness to be optimistic about our future. I know that President Obama is absolutely the best president to lead our country in the right direction.
+- The whole issue of healthcare is very complicated. There have been seven Presidents who've tried to get healthcare reform passed.
+- The President has been a big proponent of the public option since the campaign.
+- There are certain things that Americans expect their government to do. Our infrastructure is vitally important. Putting people back to work with construction is important. Our roads, our bridges, our sewers, our waterways, our dams - this is what makes our country so special.
+- By 30, I was separated from my husband, and I clearly remember sitting in my lovely office with a magnificent view, staring at a very lucrative pay stub, and bursting into tears because I was just miserable. So I had to make a decision: Keep following my plan, or be honest with myself and search for my true passion.
+- Where I underestimated the opposition was how willing Republicans in Congress would be to put their short-term political interests ahead of what they knew was good for their country. That was extremely disappointing.
+- There's a strong body of evidence that shows that the more diligent we are in ensuring that guns are in the appropriate hands, the safer our communities will be.
+- We know the threats - from global terrorist networks to the spread of deadly weapons. Yet we also know that embedded in this time of danger is the promise of a new day, if we have the courage and commitment to work together.
+- I'm kind of old to change. But if somebody were to come to me and say, 'You know what, Valerie? I think if you were to do this it would be more helpful,' of course I would listen to that.
+- What we wouldn't want to see is just a piece of legislation on border security and high tech immigration without focusing on the path to citizenship for the 11 million people who are here, and other provisions.
+- Encouraging the next generation is really where my heart is.
+- President Obama stands ready to work with everyone, because that's what the American people expect and deserve - not for the short term political advantages, but the long term health of our country. We don't spend time trying to figure out what's in the minds of Republicans, we try to keep our focus on the American people.
+- If you're in a family unit... and the boys are having a particularly hard time, the impact on the entire family is troublesome.
+- Barack's mother was very important to him, but he spent a great deal of his life living in a different place. So, as all kids do, you always have a fantasy of what perfection would be. And my guess is that Michelle's childhood was his idea of perfection. It allowed him to anchor himself with her and with her family.
+- Our democracy... is only as good as the American people demand it should be.
+- Sexual orientation and gender identity are not a choice, and anyone who knows me and my work over the years knows that I am a firm believer and supporter in the rights of LGBT Americans.
+- The impact of solitary confinement can have a devastating consequence to the psychology of the people who are affected.
+- I'm always trying to improve. I think I take criticism constructively.
+- Our whole philosophy is one of transparency.
+- The question is, does the punishment fit the crime? So we're not saying that we shouldn't punish people. We're not talking about a society that tolerates lawlessness. We should be very tough on people who are perpetuating violent crimes, for example. But we should make sure that it's tailored and not arbitrary.
+- We want to make sure that we incentivize the health care system to be designed to provide you the best quality health care possible.
+- We are a country that believes in free speech and the open debate of ideas. We're a country that also believes in the Second Amendment and our ability to have guns. But we've got to figure out a way to keep America safe.
+- Throughout the health-insurance reform process, we have had a frequent and consistent dialogue with the business community - small, medium, and large - to analyze and evaluate the impact that reform would have on them. It has been a very instructive and productive dialogue.
+- I don't play golf. I don't play basketball. I don't really like cards. I don't think anybody questions whether or not I have a role to play here. And so I think it is irrelevant whether the president wants to do that in some of his free time. What's really important is, when we have something to say, does he listen to us?
+- Equal pay, paid leave, paid sick days, workplace flexibility, and affordable childcare - everywhere I go around the United States, as I talk to working families, these are the issues they raise... We have over 43 million Americans who don't have a single day of sick leave, but everybody gets sick. Everybody's children get sick.
+- The American people want change. They don't want the same old health care system that's not affordable, that doesn't offer coverage to everybody, that keeps escalating in cost. And what we've seen from the Republicans is, really, a desire to have the status quo.
+- The United States is a strong and ardent ally of Israel. The fact of the matter is that friends can disagree. I think what's important is that world leaders are able to sit down with one another, have frank conversations and move forward.
+- What makes a lot of sense is that, while people are incarcerated, give them the tools they need to be able to have a productive, lucrative living when they leave so they can provide for their families and break that cycle of recidivism.
+- The Recovery plan will put money in the pockets of the American worker, create and save millions of new jobs and invest in crucial areas such as health care, education, energy independence and a new infrastructure.
+- One miscalculation I made is I did not fully appreciate that the Republicans in Congress were going to just say no to everything. Even when there are ideas that have traditionally been bipartisan.
+- I vividly remember early on in my career when I was eight months pregnant, working literally around the clock, and worrying that each trip to the restroom or my need to catch the occasional catnap was causing my colleagues to question whether I could keep up.
+- Please be assured that as we move along through the implementation of health insurance reform, making sure that we find efficiencies within the existing system, is foremost on the President's mind.
+- Do you want to get rid of the rules of the road? Do you want to let everybody just do whatever they want to do? Or do you want to really look out for the consumer, look out for the American people, and figure out ways to create and foster an environment where companies want to double down on America?
+- No one will be forced to take the public option. The word option means choice.
+- As we try to compete in this global marketplace, we need to rebuild our infrastructure. We need to rebuild our schools. We need to make sure that teachers and first responders and veterans who are coming home from serving our country so proudly have jobs waiting for them.
+- Given the daunting challenges that we face, it's important that president elect Obama is prepared to really take power and begin to rule day one.
+- We have to tell the stories of the everyday Americans who are adversely impacted by these policies. That's how we were able to keep the Affordable Care Act from being repealed. People told their stories; people showed up at Town Hall.
+- Every woman needs to know when she's being discriminated against and what the reasons are why she isn't getting equal pay so we can close that pay gap.
+- Employers who recognize the importance of investing in their workforce have a more productive workforce, a more efficient workforce, a more loyal workforce, less turnover, and, in the private sector, more profitable.
+- I want everyone to feel empowered. Everyone can do something.
+- I wasn't burdened by a personal history of prejudice. It's part of why I thought Barack could win.
+- The biggest strength we have as Democrats is encouraging people to speak up about what is in their best interest.
+- When you break glass ceilings, you're going to get minor scrapes by a shard or two from the glass.
+- My daughter is, of course, perfect. Everyone's child is, but mine really is perfect. But I could not have raised her without my parents. From the time she was seven months until now, I have been a single parent.
+- If left unchecked, global change will create violent conflict, torrential storms, shrinking coastlines, and irreversible catastrophe.
+- I just worry a lot. I'm a worrier. Michelle and Barack are really dear to me. I mean, I love them. And I don't want to see them get hurt. Just the nature of politics is hurtful. So every time they are hurt, I get hurt. It's a lot to ask of people, and it's a lot to see your friends go through. It's hard not to get emotional.
+- I will admit that I often spend weekends after each 'House of Cards' season is released binge-watching the show for hours. But I watch it because it is entertaining, not because it reminds me of my day-to-day.
+- If you are not diverse and you are not listening to all voices and have your ear to the ground, you're not going to make the best decisions.
+- President Obama celebrates diversity, yet instinctively seeks common ground and builds on that common ground to make progress.
+- Nondiscrimination has been the law of the land for over three decades, yet, in some workplaces, the standard for treatment of pregnant women has remained in the dark ages. Some are fired or demoted, with no hesitation, when a modest accommodation would allow them to continue to work and support their families.
+- When you compare the relatively modest tax that will ensue from prohibiting companies from receiving a subsidy and deducting that subsidy, the benefits dramatically outweigh the costs.
+- What keeps me up at night is worrying about the moms who depend on ACA for all of the preventive care and not to mention prenatal care, the wellness visits, and the cost of delivery.
+- It's never too early to start thinking about tuition.
+- No child should be expelled from preschool. And so we are calling on school districts around the country to end that practice. That benefits every child.
+- You can have it all, but not all at once.
+- A big part of our agenda is to position the United States for long-term sustainable growth and health, and those jobs come from the private sector.
+- When you're a member of a team, when I was member of a team, whether I ultimately agreed or disagreed, once a president makes a decision, everybody, in my opinion, has to go with that decision, or you shouldn't be a member of the team. Your reputation rises and falls with the person who's the leader of the team.
+- We need to be investing in manufacturing and small businesses. We need to be creating a workforce where Americans can compete in a global marketplace because they have the necessary skills. And we need fairness, and we need a sustainable, strong economy that's durable for the future.
+- With a rich history, a world-class interdisciplinary program, and a vibrant student experience, I can't think of a better location to continue my own lifelong learning than the University of Chicago.
+- Overcoming adversity not only makes you stronger, it makes you more hopeful.
+- I don't want to just tell my story - I want to share the experiences, life lessons, and values that have shaped who I am and my ideas for the future.
+- I had my daughter when I was pretty young, 28, and I had to sacrifice not going out with my friends, and I had to figure out how to juggle both raising her and also a very demanding job.
+- When you are in local government, you are on the ground, and you are looking into the eyes and hearts of the people you are there to serve. It teaches you to listen; it teaches you to be expansive in the people with whom you talk to, and I think that that engagement gives you political judgment.
+- I realize that I was being the kind of parent that I thought my daughter needed. I was a good role model for her on what a working mom can do.
+- You can't just shuffle people around like they're deck chairs on a ship. You have to help them change their lives, and you have to give them the requisite resources to do so.
+- Let's figure out ways of keeping our children out of the juvenile justice system and in the classroom so that they'll thrive. Because if you're in the juvenile justice system, the chances of your going into the adult penal system are greatly increased.
+- Many of our advances in science and technology were seeded through government.
+- A new era of responsibility is here.
+- I didn't think I'd even know a president of the United States, let alone work in the White House. Even though my parents always said you can do whatever you want to do, I never dreamed of this kind of an opportunity.
+- We wouldn't take a gun away from a law-abiding citizen. We wouldn't take a gun away from anyone.
+- Financial regulatory reform is one of the top legislative priorities of the Obama Administration.
+- I am both delighted and honored to return to the University of Chicago as a Distinguished Senior Fellow and embark on this new journey with the students, faculty, and wider Chicago community.
+- What are we going to do to make sure people get the skills they need if they are incarcerated so that when they are released to hit the ground running? And what are we all going to do to give people who've earned a second chance, a second chance?
+- What do we do to just rebuild and focus on creating a big and inclusive tent, where we're focusing on making sure every child gets that fair shot, that every woman gets to compete on a level playing field, that we are true to the core values of our country, and we're making sure that we honor those values?
+- Life is full of trade-offs. At different phrases in your life, you're able to do certain things that you can't do at other phases. And you make choices.
+- Each generation has an obligation to pick up the baton. We want young people to feel a sense of responsibility to take that baton and run with it.
+- We do have to ask ourselves as a culture, what do we want to be? You know, what are our founding values? And if we are a society where everybody should have that fair shot and get a second chance, then we should take the necessary steps to implement that and make it a reality.
+- I was very lucky - I grew up with two parents who loved each other and gave me unconditional love. They set high expectations for me, and they gave me an infinite amount of support. So I stand on their shoulders; I follow their example in every way.
+- We have every confidence that people within the White House have behaved appropriately.
+- My goal in the new administration is to engage all of the stakeholders, everyone who can help us meet the challenges of the 21st century, and ensure that we work together.
+- One of the major goals of health insurance reform is to bring down the cost.
+- If I take a bump or bruise along the way, that's nothing compared to the sacrifices that the women whose shoulders I stand upon made along the way.
+- The tech community has taken the first step by recognizing that diversity is a strength and realizing that many of them have to work on their culture.
+- For those that are working part time, in small businesses, or who are unemployed and do not currently have health insurance, we want to make sure that you are covered.
+- In any given day, our administration has about 2 million employees, and things happen. We put in process procedures to make sure if there has been any wrongdoing, there will be appropriate consequences, and we will move on.
+- For me, the passions and issues I care so much about are ones that lend themselves to work whether you're in government or outside of government.
+- Married in 1983, separated in 1987, and divorced in 1988. Enough said.
+- I know it may be hard to imagine given how broken and gridlocked our politics truly are, but from the White House to, yes, Congress, the government is filled with hard-working, idealistic public servants working incredibly hard on tough issues, trying to make people's lives better and move the country, and our world, forward.
+- We don't want to get distracted by looking back; we need to move forward.
+- Let's put in place programs to ensure that all of our children are reading by third grade.
+- I finally said, 'I don't care if you're the first person in your family to be a lawyer.' Everybody thought what I was doing was really exciting, but it was not moving me one bit. And that's when I decided to join city government in Chicago, and that changed my life.
+- Working parents, working families, and expectant workers are vital members of our workforce. Ensuring their success is how we maintain our global economic advantage.
+- To know the first lady is to love Michelle.
+- I certainly hope that we can all continue to be forces for good after leaving the White House.
+- The long term sustainable growth in job creation comes from the private sector. It is important that the Obama administration partner with the private sector and come up with the best possible ideas for creating jobs.
+- Own your choices. Don't feel ashamed about what you're doing, trust yourself that you're a good parent, don't let anybody else shame you, and, certainly, don't shame yourself.
+- I'm a beneficiary of an extraordinary education, and I believe that no matter where you live, the access to education is key to social mobility.
+- That's what America's all about. Entrepreneurs who can start a business in their basement and have it grow into a global company - that's exactly what we want.
+- I am hopeful about our future and sure that, despite our challenges, engaging our government remains essential in the journey toward perfecting our union.
+- When I finished law school, I had a 10-year plan. My plan was to go to a law firm, fall madly in love, have a baby by the time I was 30, make partner, and live happily ever after.
+- People are struggling. They're trying to make ends meet, and they're looking for Washington to deliver for them. And they don't feel that that's been happening as quickly as it should. We share that frustration. There's no one more frustrated than President Obama.
+- The United States is a great, great country, but it's not the only country, and we can learn a great deal beyond our own shores.
+- Companies have told us that they have employees who are near retirement age. We created a $5 billion reinsurance pool to help them bear the cost of those employees on the brink of retirement.
+- I care so passionately about improving the quality of life for women and girls, not just here in the United States, but internationally as well. I am a single mom and I raised a daughter who is now a young adult.
+- I don't know how to code. I should know how to code.
+- My theory is this: Rather than having commentaries from the cheap seats, get involved and see what you can do. What can you do around your own community, within your own family, to try to improve race relations in our country? I think this is a responsibility that we all have as citizens.
+- The last six months of the Bush administration lost four million jobs and the first six months of the Obama administration lost another four million before any initiatives of the president could take action.
+- I still vividly remember the moment I let go of an embrace with my daughter on her college campus - that, in her opinion, probably lasted far too long. I left the most precious thing in my life in the care of an institution, and that's a very hard thing to do.
+- With women composing nearly half the American workforce and increasingly serving as the primary breadwinner for families, we can't afford to treat pregnant women differently than their counterparts, especially when slight job modifications could help them stay in the workforce at no risk to their health.
+- Just because somebody says no doesn't mean that you have to listen. You can do what you think is right.
+- I was very heartened by Rupert Murdoch's passionate interest in immigration reform. He is an immigrant himself. He understands from a business perspective how important immigration reform would be to our economy.
+- I moderated a panel focusing just on women and the specific challenges that women entrepreneurs face. And we found that around the world, the challenges are the same, whether it is gaining access to capital, risk-taking, or the ability to expand beyond a small business and grow.
+- Instead of sitting on the sidelines, President Obama has made it clear that the US is ready to lead a global effort to combat climate change.
+- One of the problems I have with the administration is that they're not tough enough. They are waiting for BP to say, 'Oh, we've got a new plan to stop the oil leak.' They need to stop it, contain it, clean it up.
+- It's a big, complicated democracy, and one of the strengths of our country is... its rich diversity.
+- I've had people say to me, 'Well, I enjoy going to the firing range and using the assault weapons.' But the pleasure derived from that compared to the horrendous damage that it can do, we believe that the damage warrants banning assault weapons.
+- I wouldn't trade the best days of my life in the private sector for the worst days of my life in the public sector.
+- I had a very good friend who was two years older than I was, and she was in law school, and she said, 'It's a great thing to do when you have no idea what you want to do.' And she was right. I learned a lot, I practiced law for 10 years. I've never looked back once I stopped practicing law, but it was a really good experience.
+- Some people might have different ideas about what progress looks like, and some are cynical and place their short-term political interests ahead of what is good for our country. But many of them aren't cynical and try hard to do their best.
+- I'm uncomfortable with men making decisions that affect women's health.
+- We have held forums here at the White House on workplace flexibility, and the first major bill signed into law by President Obama was the Lilly Ledbetter Fair Pay Act. Lilly was here a few weeks ago because we were trying very hard to push paycheck fairness through the Congress. Unfortunately, we fell two votes short.
+- So much of what I do is so strictly confidential that it's nice to be able to discuss or vent or laugh about something and not read about it in the newspaper the next day.
+- My view has always been that marriage means love, and an excellent way of describing your love for another person is to make that permanent commitment.
+- We have programs that are outdated and no longer effective - we need to get rid of those programs.
+- Every president learns in the course of your time in office, but the American people have the right to expect that you walk in the door prepared for the job.
+- I saw a complete lack of courage in Washington to tackle some of our biggest challenges.
+- I want spend some time continuing to be a force for good.

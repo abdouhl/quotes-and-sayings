@@ -1,0 +1,18 @@
++++
+author = "Peter Hollingworth"
+title = "Peter Hollingworth Quotes"
+quotes_len = "12"
+description = "the best 12 Peter Hollingworth Quotes"
++++
+- I was no great achiever at school, either academically or in the sporting field... I was always tending to be in trouble.
+- I think the truth is, we are all racist, really, when it comes down to it. I think all of us have to check ourselves from time to time, and say, 'Look, that sort of attitude isn't good enough.' It takes discipline to keep our prejudices out.
+- I can cite a few cases of where people have tampered around with magic and witchcraft that they've been very severely frightened and traumatised by some of the outcomes. I mean we are playing with fire, and I had to say that.
+- All human kingship risks a denial of the sovereignty of God.
+- Some people are a natural administrator. They actually enjoy doing it. I find it a chore. I'm not a details person. I go for the big sweep.
+- I enjoy ritual and ceremony. What I don't like is when it's badly done or sloppily done. This is actually a theological issue - the forms we adopt, the actions we take, the way we do things, are, as it were, a sacrament.
+- I didn't do very well at school, and I suppose I've always had this sense, you know that, of being average, so I've been a bit low on self-confidence in my ability.
+- There are no training courses to make people bishops. You have to learn on the job.
+- I'd have to say, and I think that most Christians would hold the view, that there is such a thing as evil, and there are evil forces at work. You can articulate that by talking about Satan or the Devil; that's sound, Scriptural teaching.
+- Over the years I've tried to be clear about the things that are important in life, the things that matter, and I've tried to pursue them, and, I've had a certain sense of 'stickability,' hanging in there, and I suppose that's me.
+- I'm not over-reacting, but I do think people have to be a bit cautious when they say all kind of activities associated with witchcraft are harmless.
+- I just think in this world of extreme religious pluralism, the great spectrum of things ranging from the healthy and the respectable, and the balance and the true and tried, you go down to quite bizarre things which are very risky for people, particularly people who are young or vulnerable or unable to discriminate.

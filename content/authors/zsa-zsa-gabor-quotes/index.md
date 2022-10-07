@@ -1,0 +1,69 @@
++++
+author = "Zsa Zsa Gabor"
+title = "Zsa Zsa Gabor Quotes"
+quotes_len = "63"
+description = "the best 63 Zsa Zsa Gabor Quotes"
++++
+- I am a marvelous housekeeper. Every time I leave a man I keep his house.
+- I don't accept gifts from perfect strangers - but then, nobody's perfect.
+- One of my theories is that men love with their eyes; women love with their ears.
+- I believe in large families: every woman should have at least three husbands.
+- I don't remember anybody's name. How do you think the 'dahling' thing got started?
+- You must be independent and able to do for yourself. Then you do not have to marry a rich man; you can marry a poor one. And if it is wrong, you can go.
+- I've never been jealous. I've never had to be.
+- I tell you, in this world, being a little crazy helps to keep you sane.
+- Conrad Hilton was very generous to me in the divorce settlement. He gave me 5000 Gideon Bibles.
+- I never really mind what people say about me - I am far too unconventional and far too dedicated to being true to myself to let other people's disdain or nastiness upset me for long.
+- I am a horsewoman. I am a princess. I am Zsa Zsa.
+- I never hated a man enough to give him diamonds back.
+- Every girl should be married at least once in her life. It's a must. Because once you have been married, you are a Mrs., and even if the marriage doesn't work out, they can't take that away from you.
+- I call everyone 'Darling' because I can't remember their names.
+- How many husbands have I had? You mean apart from my own?
+- I love to put on diamonds and beautiful evening gowns and make my girl-friends upset.
+- Love should be an inspiration, not an obligation.
+- To a smart girl men are no problem - they're the answer.
+- Diamonds are a girl's best friend, and dogs are a man's best friend. Now you know which sex has more sense.
+- Of course I love being in love - but it is marriage that really fulfills me. But not in every case.
+- There is no bigger aphrodisiac than power.
+- If you can fight directly with your mother, you can save a fortune in psychiatrist's bills.
+- I pay all my own bills... I want to choose the man. I do not permit men to choose me.
+- A girl must marry for love - and keep on marrying until she finds it.
+- I only cook when I'm in love.
+- The minute I understand a man, he is no longer exciting and a challenge to me. And the last thing in the world I want is for a man to understand me and know what's always going on inside my head. It takes away from all my mystery, which, as I've told you before, is the most important thing between a man and a woman.
+- I deserve attention not because of any talent, but just because of who I am.
+- I know nothing about sex, because I was always married.
+- You never really know a man until you have divorced him.
+- Men fall in love with their eyes - they like what they see - and women fall in love with their ears - they like what they hear!
+- I am not a name-dropper. I can't help it if everybody I know is famous.
+- If you like a man and he likes you, you should get married as fast as you can. Otherwise, you both are going to change your minds. There's plenty of time for that after marriage.
+- When I'm alone, I can sleep crossways in bed without an argument.
+- I have learned that not diamonds but divorce lawyers are a girl's best friend.
+- Any woman who diets all the time can't help but be grouchy. Nobody can be amusing or entertaining on a diet.
+- Getting divorced just because you don't love a man is almost as silly as getting married just because you do.
+- The women's movement hasn't changed my sex life. It wouldn't dare.
+- I'm not a girl who sits home and knits, you know.
+- As a teenager, I preferred the company of boys to girls, focusing always on the most indifferent male and flirting with him until he became my slave.
+- All my life, I have been a positive thinker... I have always been able to survive by telling myself that no matter how bad things are, they will one day be better. And that out of every event - no matter how tragic - one can always find a way to survive and even, perhaps, to be a little bit happy.
+- I think I'm very old-fashioned.
+- The only way to learn a language properly, in fact, is to marry a man of that nationality. You get what they call in Europe a 'sleeping dictionary.' Of course, I have only been married five times, and I speak seven languages. I'm still trying to remember where I picked up the other two.
+- I admit I have a Hungarian temper. Why not? I am from Hungary. We are descendants of Genghis Khan and Attila the Hun.
+- What is really important for a woman, you know, even more than being beautiful or intelligent, is to be entertaining.
+- Being jealous of a beautiful woman is not going to make you more beautiful.
+- My advice is not always so logical and consistent. But then, love is not logical and consistent. So why should my advice be? If you want that kind of thinking, go to a computer. Computers are always logical and consistent, and you see how often they get proposed to.
+- I was hired because I am Zsa Zsa Gabor, but when I go to work, directors try to force their methods on me. John Huston's intense, precise directions tortured me.
+- Husbands are like fires - they go out when unattended.
+- I always liked parties. You meet people; you can have fun.
+- I like a mannish man: a man who knows how to talk to and treat a woman - not just a man with muscles.
+- It's never as easy to keep your own spouse happy as it is to make someone else's spouse happy.
+- It's not hard to find a new husband, but someone who is, for an example, a good bridge partner for you comes along once in a lifetime.
+- There is nothing wrong with a woman encouraging a man's advances, as long as they are in cash.
+- We were both in love with him. I fell out of love with him, but he didn't.
+- I'm a compulsive buyer. Anything beautiful I see I want. That's how we got the Waldorf Astoria. I told Conrad Hilton, 'I want the Waldorf,' and he bought it. The only problem was I divorced him before the escrow was finished.
+- Macho does not prove mucho.
+- A man in love is incomplete until he has married. Then he's finished.
+- To be loved is a strength. To love is a weakness.
+- I wasn't born, I was ordered from room service.
+- I want a man who's kind and understanding. Is that too much to ask of a millionaire?
+- A woman who tells her age tells everything, and I won't tell it.
+- The feather in your cap is to get a man you love who'll marry you.
+- Being jealous of a beautiful woman is not going to make you beautiful.

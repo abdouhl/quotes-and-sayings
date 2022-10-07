@@ -1,0 +1,32 @@
++++
+author = "Sarah Snook"
+title = "Sarah Snook Quotes"
+quotes_len = "26"
+description = "the best 26 Sarah Snook Quotes"
++++
+- If you can make it as a children's party fairy, you can make it anywhere.
+- If we discovered, emphatically, that ghosts were real, I probably wouldn't be surprised.
+- I really like photography, and I'd like to do more of that kind of thing. If I had to choose a different job within the industry and do it well, I would love to do cinematography.
+- I went back to Australia to do a show called 'The Beautiful Lie,' which is a retelling of 'Anna Karenina' in a six-part mini-series - a modern, contemporary version.
+- The thing I really love about film is there's a really big sense of teamwork, and everyone has to do their job to the best of their ability to make the film work in the first place.
+- I think if I could be a man in any time period, I would be a pirate. You know, go climbing in the rigging, sword fighting. I'd like to do that.
+- I was the understudy to the understudy in a year-two production of 'Big Chief Red Feather.' The boy who had the lead broke his arm, and then the understudy got chicken pox. And I loved it. I got to wear the most feathers in my headdress.
+- It's always nice to have somebody with the same accent when you're working in a foreign country.
+- We have a lot of American TV in Australia. I grew up watching 'Seinfeld,' 'The Simpsons' and those prime time TV shows over the years that feature grown-ups and high school kids. We had a saturation of American voices.
+- It's important to make art that you intended to make. If it gets compromised later, that's not a good thing.
+- In 'Sisters of War,' I got to do one of my own stunts. Running out of the building because the Japanese were firing, with all these little spark plugs are going off, looking like explosions and bullets flying down. That was really fun.
+- You know when you have a party as a kid, and your mom hires a fairy, princess, or superhero to come host the party? I was Fairy Lavender. I loved it. It was good training for theater.
+- I've been really lucky in the work that I have done so far, to work with good female actors in lead roles. Lisa McCune in 'Blood Brothers' and Claudia Karvan in 'Spirited' and then Susie Porter in 'Sisters of War.' They've been working, and they've got good lives around them as well.
+- I love playing characters with different accents. It's a lot of fun.
+- I always wanted to do some sort of action film - even a superhero movie - and when 'Lucy' came out, I was like, 'That's what I want to do.'
+- There are 365 days in the year, and as a working actor, you might only work 17 of them. You might only need to do two ads and you can afford to live for the year, but it doesn't make for a very satisfactory or fulfilling life. The point isn't to not work - it's to work.
+- I think some things are just meant to happen; you can't change your fate. Maybe we have a small amount of control.
+- What I've found I really like about sci-fi is it can look at philosophical questions about humanity but in a different context. It can really make you think. That's what 'Doctor Who' does, even if it's a bit silly some other times.
+- I was always like, 'No, I don't like sci-fi,' and then I started watching it and thought, I didn't know that's what it was. I think I'd somehow got it confused with action and space-travel action - that sci-fi could only be like 'Star Wars.'
+- You just have to keep your head down and do your work and hope that audiences respond.
+- I like a bit quirky, a bit strange, but then at the same time, I love putting a dress on... and a pair of high heels. It's like a costume.
+- I've learnt that there's acting for film, acting for theatre, and acting for an audition.
+- I've had something sort of like angel cards where you pull out an angel card that turns out, like, grandmother was watching over me. And I believe, in some way, I haven't been brave enough to engage with tarot cards mostly because they always end on a bad note. I'm sure if I understood tarot cards more I wouldn't be as fearful.
+- It's very easy to say that men think about things more simply, but it kind of is true. And that's not actually a bad thing. Approaching things in a more logical, practical fashion. This is a massive generalisation, but women tend to think about things more first, then act afterwards.
+- Kate Winslet is incredible. She's so lovely and so flexible, and she's got three kids, and she's flying internationally to work. It's amazing to see strong women doing what they want to do and doing it well.
+- I'm the youngest of three sisters. We were always performing plays for each other.

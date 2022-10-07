@@ -1,0 +1,46 @@
++++
+author = "Suzanne Collins"
+title = "Suzanne Collins Quotes"
+quotes_len = "40"
+description = "the best 40 Suzanne Collins Quotes"
++++
+- Director Gary Ross has created an adaptation that is faithful in both narrative and theme, but he's also brought a rich and powerful vision of Panem, its brutality and excesses, to the film as well. His world building's fantastic, whether it be the Seam or the Capitol.
+- I think it's very uncomfortable for people to talk to children about war, and so they don't because it's easier not to. But then you have young people at eighteen who are enlisting in the army, and they really don't have the slightest idea what they're getting into.
+- My mother tried really hard to protect us, but occasionally, after afternoon cartoons of whatever was on... the nightly news would come on, and I'd see footage from the war zone, and I would hear the word 'Vietnam,' and I would know my dad was over there, and it was a very frightening experience for me.
+- When I was young, I was trained in stage fighting and rapier and dagger for several years.
+- If your parent is deployed and you are that young, you spend the whole time wondering where they are and waiting for them to come home. As time passes and the absence is longer and longer, you become more and more concerned - but you don't really have the words to express your concern. There's only this continued absence.
+- It's amazing to see things that are suggested in the book fully developed and so brilliantly realized through the artistry of the designers.
+- Whenever I write a story, I hope it appeals to both boys and girls.
+- In 'The Hunger Games,' in most people's idea, in terms of rebellion or a civil-war situation, that would meet the criteria for a necessary war. These people are oppressed, their children are being taken off and put in gladiator games. They're impoverished, they're starving, they're brutalized.
+- Telling a story in a futuristic world gives you this freedom to explore things that bother you in contemporary times.
+- One of the reasons it's important for me to write about war is I really think that the concept of war, the specifics of war, the nature of war, the ethical ambiguities of war, are introduced too late to children. I think they can hear them, understand them, know about them, at a much younger age without being scared to death by the stories.
+- 'The Underland Chronicles' is an unnecessary war for a very long time until it becomes a necessary war, because there have been all these points where people could have gotten off the train but they didn't; they just kept moving the violence forward until it's gone out of control.
+- I'm thrilled with the work Tim Palen and his marketing team have done on the film. It's appropriately disturbing and thought-provoking how the campaign promotes 'Catching Fire' while simultaneously promoting the Capitol's punitive forms of entertainment.
+- I have a pretty big TV background, and I have clocked so many hours in so many writers' rooms over the years.
+- There's a basis for the war, historically, in the 'Hunger Games,' which would be the third servile war, which was Spartacus' war, where you have a man who is a slave who is then turned into a gladiator who broke out of the gladiator school and led a rebellion and then became the face of the war.
+- The cast, led by the extraordinary Jennifer Lawrence, is absolutely wonderful across the board. It's such a pleasure to see how they've embodied the characters and brought them to life.
+- I started as a playwright. Any sort of scriptwriting you do helps you hone your story. You have the same demands of creating a plot, developing relatable characters and keeping your audience invested in your story. My books are basically structured like three-act plays.
+- I think people respond to dystopian stories because they're ways of acting out anxieties that we have and fears that we have about the future. So much media's coming at you over the Internet, your brain gets overloaded. You don't know what to do with it. And one thing you can do with it is read a story.
+- My father was career military. He was a veteran, he was a doctor of political science, he taught at West Point and Air Command Staff and lectured at the War College.
+- 'Lord of the Flies' is one of my favorite books. That was a big influence on me as a teenager; I still read it every couple of years.
+- Kids have so much screen time, and it's a concern. I know how overloaded I can feel sometimes.
+- If I have to pick one story that most influenced 'The Hunger Games,' it would be the Greek myth of Theseus, which I read when I was about 8 years old. In punishment for past deeds, Athens periodically had to send seven youths and seven maidens to a labyrinth. In the maze was this Minotaur, and it would eat them.
+- When I got out of undergrad, I had a degree in theater and telecommunications. My first job, I was a news reporter for the local stories for NPR. Then I was a country-western DJ. I did data entry for a yearbook company. In my mid-20s I went back to grad school at NYU, and I specialized in playwriting.
+- I think we put our children at an enormous disadvantage by not educating them in war, by not letting them understand about it at an early age.
+- If I took the 40 years of my dad talking to me about war and battles and taking me to battlefields and distilled it down into one question, it would probably be the idea of the necessary or unnecessary war.
+- Any time you read a book and get attached to the characters, to me it's always a shock when it goes from page to screen and it's not exactly what was in my head or what I was imagining it should be.
+- I'm not comfortable around cameras.
+- Katniss Everdeen owes her last name to Bathsheba Everdene, the lead character in 'Far From the Madding Crowd.' The two are very different, but both struggle with knowing their hearts.
+- It's embarrassing to admit how many times I've reread the following: 'A Tree Grows in Brooklyn,' '1984,' 'Lord of the Flies,' 'The Heart Is a Lonely Hunter,' 'Germinal,' 'We Have Always Lived in the Castle,' and 'A Moveable Feast.'
+- I've just had the opportunity to see the finished film of 'The Hunger Games.' I'm really happy with how it turned out. I feel like the book and the film are individual yet complementary pieces that enhance one another.
+- All the writing elements are the same. You need to tell a good story... You've got good characters... People think there's some dramatic difference between writing 'Little Bear' and the 'Hunger Games,' and as a writer, for me, there isn't.
+- I'm not a very fancy person. I've been a writer a long time, and right now 'The Hunger Games' is getting a lot of focus. It'll pass. The focus will be on something else. It'll shift. It always does. And that seems just fine.
+- In high school for a couple years we did archery.
+- I sort of half read Thomas Hardy's 'The Mayor of Casterbridge.' It was assigned in 10th grade, and I just couldn't get into it. About seven years later, I rediscovered Hardy and consumed four of his novels in a row.
+- I loved 'A Tree Grows in Brooklyn.' I read it later as an adult, but I loved 'We Have Always Lived in a Castle.' And that brings you around to 'The Lottery.' You can't pretend - it's a lottery in which you draw a name and people die. That's a short story, but it's such an incredible short story.
+- I don't write about adolescence. I write about war. For adolescents.
+- Both the 'Gregor' series and 'The Hunger Games' are what I call lightning-bolt ideas. There was a moment where the idea came to me. With 'The Hunger Games,' the lightning bolt sort of hit at a moment when I was channel surfing between reality TV and the coverage of the Iraq war.
+- I try to catch flies in cups and put them outside. After I wrote 'The Underland Chronicles'... well, once you start naming cockroaches, you lose your edge.
+- The film opens up the world beyond Katniss' point of view, allowing the audience access to the happenings of places like the Hunger Games control room and President Snow's rose garden, thereby adding a new dimension to the story.
+- I wrote 'The Hunger Games' in a chair, like a La-Z-Boy chair, next to my bed. I had an office, but my kids sort of took it over.
+- One of the most memorable things I hear is when someone tells me that my books got a reluctant reader to read.

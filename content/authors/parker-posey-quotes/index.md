@@ -1,0 +1,109 @@
++++
+author = "Parker Posey"
+title = "Parker Posey Quotes"
+quotes_len = "103"
+description = "the best 103 Parker Posey Quotes"
++++
+- It's really weird to be taken seriously for what you're wearing. It makes me want to wear a uniform.
+- I love the romcom. I thought I had a career playing the best friend. What happened to that? It's really sad to me.
+- My aunt in Texas, when she did the hazing things, they had girls swallow oysters. They'd wrap an oyster in dental floss, swallow them, and then pull them back up.
+- The culture is eating nature; it's overpowering storytelling. Movies are turning into games - it's abut the image, not nuance.
+- I traveled to Morocco once, and I only saw one television when I was there, but I did go into this dirt cave and I saw this kid chopping tomatoes and pita, and he had a picture on the wall of Jean-Claude Van Damme holding a gun. That connected with him on the other side of the world, so no wonder these big movies are made - they have a mass appeal.
+- It sounds so dramatic, but I'll say it: Hollywood just doesn't know what to do with me. And it's not for lack of trying.
+- I have a twin brother, so I was around guys like a sister. It was comfortable to me.
+- I like finding things in locations where I've worked and things from down South and things from flea markets or even the sidewalks.
+- My first lead role was probably 'Party Girl' in 1994.
+- I have a brass bed that's very 'Bedknobs and Broomsticks.' I got it on eBay. It's from the early 1900s.
+- How movies are financed, it's a world market now... I feel like, you know, the independent film way of working is something that was in my bones. It's like being a part of a punk band, but no one's singing punk rock anymore. Only a few bands are able to play, and Woody Allen is one of them.
+- We didn't do cotillions or anything. My family made fun of the pageants.
+- I was raised Catholic, but the devil was never with a pitchfork.
+- When I did 'Guffman,' it was terrifying. I didn't know what to say. I started talking, and it just came out.
+- When my parents were dating, they were very poor, so my dad couldn't take my mom out. They would go to the grocery store and pick out funny looking vegetables. When I grew up, we'd still go and find the ones with personality.
+- I thought I'd have a career playing women in the vein of Ruth Gordon, and we've seen that type almost disappear.
+- I like to support local record stores.
+- People have more dimensions to them than we give them credit for. The person you meet on the street that you think is someone, and it's someone else. I'm mistaken for someone else all the time.
+- I got into the whole Ayurvedic thing. It was really cool.
+- I learned how to play mandolin for 'A Mighty Wind!'
+- I had dreams of conehead aliens when I was little. Before 'Saturday Night Live' did it. And then they came out with them, and I went on to be a glorified extra in the movie. When everyone else was laughing, I was scared.
+- Being an indie queen, people think I have all these choices. Like I've just been sitting around waiting for the best indie film that I deem acceptable.
+- I like sitting close to windows.
+- It's always the girl comedy and the guy comedy. It bums me out. You'd think there'd be a progression, from James L. Brooks and Nora Ephron into more subtle humor and behavior and psychology. All these interesting things people can learn about themselves by watching talented writers comment intelligently on someone else's emotional life.
+- We shot 'Party Girl' on film, and I remember being told, 'We need to get this in two takes because we don't have a lot of film in the mag right now!'
+- Hey, the TV was my friend. As a child, I always said, 'I want to live in there someday.'
+- People see images now more than they see movies.
+- I approach these people from a standpoint of love. How were they loved? How do they love? What's going on in their heart? There's that that I think about with every role.
+- What's the difference between a personality disorder and a personality? You know? That's what I wanna know!
+- I love bayou life.
+- It was just such a demeaning thing to do, being in silent movies. They'd call you up and tell you, 'Hey, jump off this building!' and they'd give you a hundred bucks, and you'd do it.
+- I like bears. I like bear people. I like bear-type men.
+- It hasn't really made it easier getting film work. It's not like I can call up a studio or a producer and say - insert haughty voice here - 'It's Parker. I guess you might know me as the indie queen. I'm wondering if you have any projects for me to be in.'
+- I work with directors who haven't had the experience of being on sets as much as I have. I feel like, in a way, if it's an independent movie, I can teach the crew to kind of relax, or create a vibe. It really is about a vibe.
+- I care about being creative and expressing myself.
+- How can we have our privacy? How can we have our independence now in these times with these cameras? Because I think privacy and our solitude is really important.
+- I think to do a proper independent movie, in my experience, it takes 22 or 23 days to shoot. That was 'Party Girl' or 'House of Yes.' But now with the digital camera, the budgets have gotten smaller, and the days have gotten shorter.
+- I'm the character actor in Hollywood movies, the girl who has to be annoying so the guy can go to the other girl.
+- I would love to do something like 'Fishing With John.'
+- There are roles out there and women out there that are fascinating to me, and there are things in our culture that I see that I want to express. It's my passion to express that.
+- I've seen deer. I have lots of woodchucks on my property. And bluebirds. Foxes.
+- I love New York.
+- I don't Twitter, although sometimes I think that I should.
+- It's not really cool to be singled out.
+- I make a lot of soups, and I love stews. My mother's a big foodie. She went to culinary school in New Orleans and has an oyster-artichoke soup recipe that has no cream in it but it tastes so creamy.
+- I was reading this book called 'Close Encounters of the Fourth Kind.' It's really, really good if you want to believe in that stuff.
+- With 'Dazed and Confused,' I got the high school experience I didn't get to have.
+- Every time I do something, I worry it's my last job.
+- Being in a Woody Allen film. I cherish it.
+- They love putting me in the 'indie queen' box. I had some high standards in my 20s that I don't have anymore.
+- But it's fun to be something, have that, and you don't have to be real. It's like, comedians. They go on and they're doing all these jokes. I would be like that if I were more awake.
+- I want to do horror and action, and I'm only being slightly facetious.
+- I'm kind of a robot in a way. Or a Tron.
+- Mainly I love working on good writing.
+- Acting is a really strange thing to do; it's very strange.
+- I just want to balance myself holistically and see what different foods do what to me.
+- I like the two worlds coming together in the Internet space, which is so up for grabs... It all struck me when I heard about Twitter and Instagram, how it's like notes you pass in class. If someone's passing you a note, you really should be doing something else, and instead you're like, oh, 'What are you doing?'
+- Do you know why I don't like doing press? I have trouble condensing things. I'd rather have a conversation.
+- My grandmother is this amazingly theatrical woman. She acted like a movie star, as far as looks and attitude, kind of like Susan Hayward.
+- I love playing a woman suffering, thinking about the choices that she's made and obviously wanting more. It's classic.
+- I'm glad I'm Southern. I'm the Southerner who's very Southern in that she left to move to New York.
+- I kind of grew up in the indie world, and now that sort of writing and material is on television.
+- There have been periods of my career that I haven't worked for a really long time, like seven or eight months.
+- Why are women always described as 'desperate,' while men are just... irrational?
+- Sometimes I go to movies, and it's just a bombardment, and I'm not entertained by them - I'm assaulted by them! And I know I sound like such a drama queen, but I find that really strange.
+- I'm a good girl, you know? But I'm from the South, and there are some powerful women down there, and very theatrical.
+- You have to have a certain amount of limitations, I think, to make art and to make something that can be alive on film. Money can get in the way of that.
+- I'm an actor, so I like costumes.
+- I find myself listening to Talk Talk on repeat while I'm doing gardening in upstate New York. Their music is so languid, and I just love his voice.
+- I wouldn't say I was a queen. Maybe a little elf.
+- I like trying different foods. I've done vegetarian stuff, and I've gone through meat phases, and then I do no bread, and then I eat bread. I'm really all over the place in the way a lot of actors are.
+- I really liked playing a vampire. Their hunger is insatiable. Even when they eat someone, it's never enough.
+- I love 'Fishing With John' so much.
+- I feel like there's such a responsibility, when you make a film, to enlighten people, to make them think, to make them laugh, or even just to be entertaining.
+- My dad recently reminded me that my grandfather's cousin was Lefty Frizzell.
+- You really don't get paid in these independent movies, no matter how many people see them.
+- You can get money and make a really cheap movie. You can, from independent financers who are just giving you money to support artists. This is what was happening in the '90s, and I was very fortunate to be a part of that.
+- They're like a weird couple. If you were to personify the artichoke and the oyster, they would have a great date. They would totally get along.
+- Louis C.K. was able to make it happen. His producers don't bug him. He's able to go into his cave and write exactly what he wants to write, and there are no decisions made by committee, and you have a singular voice, and everyone's like, 'Oh my God! We love this.'
+- It's really fun to see a movie that you've heard about that's really good.
+- I can do comedy, so people want me to do that, but the other side of comedy is depression. Deep, deep depression is the flip side of comedy. Casting agents don't realize it but in order to be funny you have to have that other side.
+- There are so few movies that still cast on chemistry. Now it's often, like, this person's movies make this amount of money, and this person's movie makes that amount of money, so let's put them together.
+- As an artist, you're always going to be yearning and wanting and never satisfied. I never feel like I've really achieved something.
+- I really like this trend of songwriting that is honest and intelligent and serious and longing.
+- I sang in 'Waiting for Guffman,' and I sang in 'A Mighty Wind.' I can carry a tune, but I don't like that Broadway singing.
+- I think people probably think I self-start, but I don't... I'm an actor, and I like to be of use to the director. To be a muse.
+- I'm trying to work in studio movies, but they won't hire me.
+- Indie movies got co-opted by the studio system. The studios insisted that only stars could make movies successful.
+- Getting into Sundance is such a big platform for a director.
+- I like 'MacNeil/Lehrer.'
+- The sound of a golf game is very different than the sound of a football game.
+- I wonder if people who see 'Blade' will have even seen my other movies. But I don't want all my movies to be in a vacuum. I need a balance because one pays, and the other doesn't.
+- I usually play character parts in Hollywood films.
+- There are all these scripts where the women, if they're working, are prostitutes and lawyers with an angry streak who'll kill you. It's a reaction to women leaving their men and men being angry about it and saying it on some subconscious level.
+- The five patients in 'Rethinking Cancer' share with us the path of their recovery: the courage to take their own lives in their hands with a natural approach to healing their bodies.
+- Imagine if every airport would blast Brian Eno. I bet going through security wouldn't be as difficult. I can't imagine someone being aggressive with me with Brian Eno music pumping through the terminals at LAX.
+- I get to enter into the world the director has created: to live these different lives on top of my own life.
+- In case you don't know this, we're not in the '90s anymore. Indie cinema does not reign.
+- There are so few stories being produced that are human. I suffer with the loss of that. I feel kind of out of place, even though I've continued to work.
+- I like soap opera acting. If it's done really well, there's nothing better. It's old school. It's like what those melodramas in the '30s and '40s were like.
+- Chris Guest has his own form. It's a way of working that is really intense, and you can commit a lot, and you focus a lot. You get to bring a lot. You get to bring things maybe you haven't seen before. You're asked to care a great deal for these people who you're playing and create heart and empathy.
+- You know, it's a really adult thing, for some people, to choose to not be with the one that you love.
+- Everything has its own kind of theatricality and its own drama.

@@ -1,0 +1,49 @@
++++
+author = "Will Durant"
+title = "Will Durant Quotes"
+quotes_len = "43"
+description = "the best 43 Will Durant Quotes"
++++
+- As soon as liberty is complete it dies in anarchy.
+- Every science begins as philosophy and ends as art.
+- Science gives us knowledge, but only philosophy can give us wisdom.
+- To speak ill of others is a dishonest way of praising ourselves. Nothing is often a good thing to say, and always a clever thing to say.
+- Education is the transmission of civilization.
+- Bankers know that history is inflationary and that money is the last thing a wise man will hoard.
+- We Americans are the best informed people on earth as to the events of the last twenty-four hours; we are the not the best informed as the events of the last sixty centuries.
+- Moral codes adjust themselves to environmental conditions.
+- Woe to him who teaches men faster than they can learn.
+- We are living in the excesses of freedom. Just take a look at 42nd Street and Broadway.
+- Education is a progressive discovery of our own ignorance.
+- Inquiry is fatal to certainty.
+- Man became free when he recognized that he was subject to law.
+- There is nothing in socialism that a little age or a little money will not cure.
+- Knowledge is the eye of desire and can become the pilot of the soul.
+- In my youth I stressed freedom, and in my old age I stress order. I have made the great discovery that liberty is a product of order.
+- The most interesting thing in the world is another human being who wonders, suffers and raises the questions that have bothered him to the last day of his life, knowing he will never get the answers.
+- Nature has never read the Declaration of Independence. It continues to make us unequal.
+- Tired mothers find that spanking takes less time than reasoning and penetrates sooner to the seat of the memory.
+- Civilization begins with order, grows with liberty and dies with chaos.
+- Our knowledge is a receding mirage in an expanding desert of ignorance.
+- When liberty becomes license, dictatorship is near.
+- Sixty years ago I knew everything; now I know nothing; education is a progressive discovery of our own ignorance.
+- To say nothing, especially when speaking, is half the art of diplomacy.
+- The ego is willing but the machine cannot go on. It's the last thing a man will admit, that his mind ages.
+- Civilization is the order and freedom is promoting cultural activity.
+- There have been only 268 of the past 3,421 years free of war.
+- Every form of government tends to perish by excess of its basic principle.
+- The family is the nucleus of civilization.
+- If man asks for many laws it is only because he is sure that his neighbor needs them; privately he is an unphilosophical anarchist, and thinks laws in his own case superfluous.
+- I am not against hasty marriages, where a mutual flame is fanned by an adequate income.
+- One of the lessons of history is that nothing is often a good thing to do and always a clever thing to say.
+- Civilization exists by geological consent, subject to change without notice.
+- We are what we repeatedly do. Excellence, then, is not an act, but a habit.
+- The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.
+- The love we have in our youth is superficial compared to the love that an old man has for his old wife.
+- The political machine triumphs because it is a united minority acting against a divided majority.
+- Truth always originates in a minority of one, and every custom begins as a broken precedent.
+- A statesman cannot afford to be a moralist.
+- Every vice was once a virtue, and may become respectable again, just as hatred becomes respectable in wartime.
+- History is mostly guessing; the rest is prejudice.
+- Most of us spend too much time on the last twenty-four hours and too little on the last six thousand years.
+- It may be true that you can't fool all the people all the time, but you can fool enough of them to rule a large country.

@@ -1,0 +1,104 @@
++++
+author = "Om Malik"
+title = "Om Malik Quotes"
+quotes_len = "98"
+description = "the best 98 Om Malik Quotes"
++++
+- When it comes to the mobile web, the technology industry seems to be split between two camps - native apps and HTML5 web-based apps.
+- Some media companies that rely on advertising revenue are tying journalist compensation to the traffic their story generates. It doesn't work because it de-prioritizes writing.
+- Mindfulness is natural when you do not need to think about minor daily problems like making a living!
+- By now, we all know that our every move online can be tracked and traced, and that, ideally, services learn from and adapt to customers based on an artful deployment of that data.
+- Writing works when publications are writing and serving the best interest of their users; numbers are good yardstick but not a way to compensate a person.
+- In the touch-based mobile device era, folks need to think of ways to have a single technology stack married to the ability to create unique experiences for different devices.
+- In cities like New York, it is common to find taxicabs with wireless-enabled card readers.
+- Fog is my weakness, and every time there is low fog, I am out and about with my camera.
+- Computers in general, and software in particular, are much more difficult than other kinds of technology for most people to grok, and they overwhelm us with a sense of mystery.
+- A platform is essentially a business model that thrives because of the participation and value added from third parties with only incremental effort from the owner of the platform.
+- Apple has always been, and always will be, a hardware-first company. It produces beautiful devices with elegant designs and humane operating-system software.
+- Photography has always been about capturing light.
+- Snapchat works because using a selfie is way easier than texting or tweeting. Stories should adapt to the medium and do so without cheapening the story.
+- In the digital realm, companies are free from the friction of producing physical goods, and as a result, we see companies like Google go from zero dollars in revenues to billions at a much faster rate.
+- Everybody's trying to repeat the past with the new network, with new devices and new tools. Why not make something brand-new?
+- Compared to Apple, Internet companies like Google and Facebook don't have strong perspectives on the way they want the world to work.
+- We live in crazy times - that is true - and things have gotten crazier, but it still doesn't feel like the turn of the century.
+- Cameras can look down from on high and predict crop yields, traffic in Walmart parking lots, and travel patterns on Labor Day weekend. On the ground, they form the foundation of autonomous-driving systems.
+- Facebook, Amazon, Apple, and Microsoft are building their own versions of the future. And they get bigger and bigger.
+- In a way, digital cameras were like very early personal computers such as the Commodore 64 - clunky and able to do only a few things.
+- Internet, for all its faults, exposed me to a lot more music.
+- It is becoming harder for us to stay on top of the onslaught - e-mails, messages, appointments, alerts. Augmented intelligence offers the possibility of winnowing an increasing number of inputs and options in a way that humans can't manage without a helping hand.
+- When I look at Kickstarter, I see small businesses that have been funded by their customers. I see the acceleration of this shift away from the industrial manufacturing ideology to more of a maker economy. And I also see an idea so powerful that the company name has become a verb.
+- Most competition in Silicon Valley now heads toward there being one monopolistic winner.
+- Google came of age when search was inefficient and cluttered, and made it simple and easy to find what you wanted online.
+- Sure, we all like listening to music on vinyl, but that doesn't mean streaming music on Spotify is bad.
+- The digitization of our society is a challenge that is both legislative and philosophical.
+- I love my paper and ink, but I see the benefits of the iPad and Apple Pencil.
+- I worry about Google's data ethics and about the idea of handing over the corpus of my life, but I can't deny that it is exceptional at making sense of my ever-growing photo library.
+- Finding your soul begins by discovering our ability to listen! Alternatively, by sharing a smile, a laugh and just by being human to everyone - from friends, colleagues, family, and especially strangers, including those who are not from the same station in life as you.
+- Many companies that become verbs actually end up modifying our behaviors, and companies that modify behaviors end up becoming behemoths.
+- Our entire society is rooted around the idea of more, and longer has become the measure of success.
+- As someone who has been wrong often, I can tell you one thing for sure: hindsight reminds you of your follies every day.
+- My definition of media? 'Anything which owns attention.' This could be a game or, perhaps, a platform. Ironically, the media tends to associate media with publishing - digital or otherwise - which, in turn, is too narrow a way to consider not only the media but also the reality of the competitive landscape and media-focused innovation.
+- The lens through which I view the media world is pretty simple: If you are in the business of sucking up attention, then you are in the media business.
+- Most of the stress we feel here in Silicon Valley is self-inflicted.
+- Unlike Facebook or Instagram, Twitter's core experience isn't about photos. It's a world of text, with occasional embedded photos, animated gifs, and short video clips.
+- There is better than a good chance that while relaxing on a beach somewhere or sipping a martini in your favorite lounge, you have heard music that makes raise your eyebrow and ask, 'What kind of music is that?'
+- Its definition can be a bit murky, but to me, native advertising is a sales pitch that fits right into the flow of the information being shown. It doesn't interrupt - native ads don't pop up or dance across the screen - and its content is actually valuable to the person viewing it.
+- Looking back, Google's success came from the fortuitous timing of being born at the cusp of the broadband age. But it also came about because of the new reality of the Internet: a lot of services were going to be algorithmic, and owning your own infrastructure would be a key advantage.
+- As an online journalist, newswire journalist, newspaper writer, I wrote every day. My whole thing was, 'I have to write and report and write every day.' That was my thing.
+- If you're texting a friend about dinner, Google will give you restaurant reviews and directions automatically.
+- For a while, I have had this theory that we, as a society, are coming to the end of the mass production, industrial phase of the human race.
+- Before we had the Internet, we would either call or write to our friends, one at a time, and keep up with their lives. It was a slow process and took a lot of effort and time to learn about each other.
+- For the longest time, computers have been associated with work. Mainframes were for the Army, government agencies, and then large companies. Workstations were for engineers and software programmers. PCs were initially for other white-collar jobs.
+- Porsche's and Apple's design philosophies are similar. Much like the 356, the original iPhone was about defining a foundation for the future.
+- Technology is now part of the social fabric; it is what is causing dislocation. It is the cause of fear amongst all of us.
+- Living a 24-hour news life has come at a personal cost. I still wake in middle of the night to check the stream to see if something is breaking, worrying whether I missed some news.
+- Apps have become a preferred way of accessing information on mobile devices.
+- The funny thing is that I used to be a blogger, but it wasn't known as 'blogging' at that time. This was in the '99/2000 time frame.
+- Augmented reality is the 'boy who cried wolf' of the post-Internet world - it's long been promised but has rarely been delivered in a satisfying way.
+- Ideally, Facebook would take all our clicks and information and would magically give us everything we want, without us even knowing we want it.
+- I don't think I had a role model. I just was very inspired by an article which I read in Forbes magazine around the information superhighway and the Arpanet and stuff like that. To me, that intuitively made sense, and when I decided to come to the U.S., I knew exactly what I wanted to go and write about.
+- On my end, I am still surprised that many media organizations are unable to adapt to new media formats and, more importantly, new network behaviors.
+- Having followed the wireless industry long enough, I can tell you that building and supporting an application for different platforms is as tough as climbing a straight wall of rock.
+- The possibilities that come with thinking about the camera as a portal into the realm of information and services are attractive not only to Snap but also to every other big player in the tech world. Facebook, for instance, has slowly been enhancing the visual capabilities of its Messenger.
+- Why don't we face up to the fact that many of us in Silicon Valley are living lives that involve telling ourselves a lot of lies.
+- QR codes have always been a kind of half-measure, a useful but inelegant transitional technology; the ultimate goal is augmented reality.
+- The lightbulb, the most humble and illuminating of all technologies, when combined with a network connection, transforms itself from being a bulb into a wake-up alarm, a mood alteration mechanism, and in some cases, a cupid's assistant.
+- There are days when I look at my news feed, and it seems like a social fabric of fun - a video of the first steps of my friends' baby! My nephew's prom date! On other days, it feels like a NASCAR vehicle, plastered with news stories, promoted posts, lame Live videos, and random content.
+- Twitter is short-form, real-time, and text-based. It's built for instant alerts and rapid consumption. It is an ideal system for delivering sips of information from an abundant stream.
+- From analog film cameras to digital cameras to iPhone cameras, it has become progressively easier to take and store photographs. Today, we don't even think twice about snapping a shot.
+- Facebook has gone from a nice-and-boring social network to becoming an identity layer of the web. It is where nearly a billion people are depositing the artifacts of civilization in the 21st century - photos, videos, and birthday wishes.
+- Just as two people can have similar personalities, two companies can have a remarkably similar approach to business.
+- Social sharing of photos - landscapes, selfies, latte-foam art - can spark conversations and deeper engagements.
+- A lot of what people are calling 'artificial intelligence' is really data analytics - in other words, business as usual. If the hype leaves you asking 'What is A.I., really?,' don't worry, you're not alone.
+- Everybody has a different interpretation of immigration problems, and it's a highly personal experience. If anyone tells you there is a uniform solution to it, there isn't. As far as I'm concerned, it worked for me. And I don't know how to fix the problem.
+- I want fewer interruptions in my day. I have eliminated a lot of things from my life. I'm on a declining scale of wanting things.
+- There's only one way to succeed: Show up, work hard, and do everything right. Regardless of who you might be or what kind of job you may have.
+- I know I am not alone in struggling with Facebook and how we experience it through its news feed.
+- Uber, like Google, is taking a highly disorganized business - in its case, private transportation such as taxicabs and private limousines - and ordering it neatly.
+- Because Apple's corporate DNA is that of a hardware company, its activities are meant to support hardware sales.
+- The battle between Google and Apple has shifted from devices, operating systems, and apps to a new, amorphous idea called 'contextual computing.' We have become data-spewing factories, and the only way to make sense of it all is through context.
+- The marriage of computing and connectivity without the shackles of being tethered to a location is one of the biggest disruptive forces of modern times.
+- We are splintering what was the 'camera' and its functionality - lens, sensors, and processing - into distinct parts, but, instead of lenses and shutters, software and algorithms are becoming the driving force.
+- Now every person edits the story they tell about themselves, carefully ensuring what the world looks at - whether it's over Instagram, Twitter or Facebook.
+- Sure, Google's and Apple's ecosystems look a little different, but they are meant to do pretty much the same thing. For the two companies, innovation on mobile essentially means catching up to the other's growing list of features.
+- Camera companies, like traditional phone manufacturers, dismissed the iPhone as a toy when it launched in 2007. Nokia thought that the iPhone used inferior technology; the camera makers thought that it took lousy pictures. Neither thought that they had anything to worry about.
+- Apple continues to make ever-thinner devices with a superlative build and a luxurious feel. What the company has achieved beneath the surface is worth even more praise.
+- I like the muted sounds, the shroud of grey, and the silence that comes with fog.
+- The early entrants into the world of A.R., as with its cousin virtual reality, were disappointing: the phones were too weak, the networks were too slow, and the applications were too nerdy. But now the technological pieces are in place, and a whole generation - much of which is on Snapchat - has come to consider the camera almost a third arm.
+- Facebook needs to maintain its vise-like grip on our attention to become a conduit of not only advertising but also commerce, so that it can take a cut of everything.
+- In the simplest terms, a fast-growing company can't keep growing at the same fast rate forever. It eventually has to slow down.
+- While in the early days of networks, growth was limited by slowness and cost at numerous points - expensive telephone connections, computers that crashed, browsers that didn't work - the rise of the smartphone has essentially changed all that.
+- When I see Kickstarter, I don't see a company. Instead, I see a social movement. I see people doing things for people.
+- In 1947, Porsche began work on its 356. In many ways, it was like the original iPhone. It wasn't perfect. It was underpowered. But it was streamlined and aerodynamic.
+- For me, stories are like Lego blocks. If I don't put one down, I can't put the next one down.
+- Our economy, for a long while, has been transitioning from one reliant on industrial strength to one based on digital information. The next step in this transition is a digital economy shaped by connectivity.
+- I think the emotional appeal of a platform is what works. I think the old-media entities still have not figured out that part of the game plan.
+- Pokemon Go, which involves trying to 'catch' Pikachu or Squirtle or other creatures with your smartphone, is an inherently social experience. You need to be walking around - on the streets, in public places - to catch the Pokemon.
+- Whether it is through stock-market trading or the sale of hotel rooms, the Internet has a way of bringing deflationary forces to all businesses that were hitherto inefficient and involved many middlemen.
+- Avoid the spectacle of technology and instead focus on technology and science solving real problems.
+- People pay little attention to banner ads - in fact, everyone dislikes them - and that leads to infinitesimally small click-through rates that make marketers unhappy.
+- Our ubiquitous mobile access has made time and location important data points in how businesses can now be built and managed.
+- If you look at something like Spotify, many record labels are investors in the company. So from that standpoint, the money is all going back into the labels.
+- Instead of standing in the way, technology is increasingly an enabler of emotion. A message at the wrong time at dinner can turn a gourmet dish into something insipid because of the interruption.
+- Business, much like life, is not a movie, and not everyone gets to have a storybook ending.
+- Echoes of the iPhone are everywhere. Xiaomi's phones and Google's new Pixel are designed to fool you into thinking that they just might be an iPhone.

@@ -1,0 +1,25 @@
++++
+author = "Daniel Handler"
+title = "Daniel Handler Quotes"
+quotes_len = "19"
+description = "the best 19 Daniel Handler Quotes"
++++
+- I was not a particularly brave child, I think, because I had a narrative mind, because my mind automatically went to any terrible thing that could happen.
+- I write every day weekdays for about 5 hours, mostly longhand on legal pads. It has gotten neither harder nor easier, sadly or happily.
+- I kind of always think my work is unfilmable, and when I meet people who are interested in filming it, I'm always stunned.
+- I can't think of a story that doesn't have something terrible in it. Otherwise, it's dull. So when I embarked into the world of picture books, my first thought was to do something about the dark.
+- If you are allergic to a thing, it is best not to put that thing in your mouth, particularly if the thing is cats.
+- I like writing for movies. It's nice to be alone working on fiction in your room, and then it's nice to be in a room with a bunch of people working on a movie.
+- You see failed vocabulary in the adult world so often, and it's often because once you reach a certain age you're kind of embarrassed to go look up a word if you don't know what it means.
+- I didn't like books where people played on a sports team and won a bunch of games, or went to summer camp and had a wonderful time. I really liked a book where a witch might cut a child's head off or a pack of angry dogs might burst through a door and terrorize a family.
+- I think books that are meant to be read in the nighttime ought to confront the very fears that we're trying to think about.
+- My first novel took almost six years to sell and was rejected 37 times in the interim, and then finally sold for the smallest amount of money my literary agent had ever negotiated for a work of fiction.
+- Any playlist without Prince is no friend of mine.
+- 'The Long Goodbye' is one book I like to read over and over again, and it was an enormous inspiration for 'All The Wrong Questions'.
+- When you start writing a picture book, you have to write a manuscript that has enough language to prompt the illustrator to get his or her gears running, but then you end up having to cut it out because you don't want any of the language to be redundant to the pictures that are being drawn.
+- I can cook anything.
+- I listen to Morricone, the famed Italian film composer, while I'm working.
+- I'm always interested to see what films are made of books. I kind of don't participate as a filmgoer in any kind of debate about what's better, the book or the movie. So I think it's interesting when people want to do it.
+- I like to give people novels I think they would like, on no particular occasion - just when we're in a bookstore together. I like to receive reference books on my birthday.
+- I write longhand on legal pads, about half at home and half in cafes. I drink a lot of water and eat a lot of raw carrots.
+- Blank paper has always inspired me.

@@ -1,0 +1,58 @@
++++
+author = "Wally Funk"
+title = "Wally Funk Quotes"
+quotes_len = "52"
+description = "the best 52 Wally Funk Quotes"
++++
+- I'm a positive person. Things were cancelled? So what? Wally's going on. Why are people so negative? I'm not a quitter.
+- I've been flying forever and I have 19,600 flying hours.
+- Well, 'aerospace' was really not a name in my young life. Flying airplanes was. And I got my first try at flying - just pure flying - by flying my 'Superman' cape off my daddy's barn when I was about 5 years old.
+- My first ride in an airplane was at nine years of age, and it was wonderful: the freedom, the smell of the exhaust, the air going over my hair... It was me. It was part of me.
+- A skiing accident got me into all this. Since I was a physical education major and this limited by physical activity. I took up flying.
+- You can look up, you can see the stars, the moon and the sun, and you wonder: How does it all work? I didn't have the answers, but I was thinking about all this floating amongst the stars. That is my objective.
+- We may get a few trips but it is the coming generation of women who really will perform in outer space.
+- I love flying. That's my job. That's what I love.
+- I was a very, very curious kid.
+- I've had a great life. And I want that one more thing, to be up in a Virgin Galactic spaceship with Sir Richard Branson.
+- Higher, faster, longer - that is my motto.
+- You know me, I go higher, faster, larger, as long as I can.
+- I've lived in a man's world all these wonderful years. I've been the only girl in the cockpit, in the conference room, wherever. I have learned how to kick in a lot of doors, and I have dealt with a lot of disappointments. But I will go into space one day, when God thinks it's right or I make it right.
+- Nothing has ever gotten in my way. They say, 'Wally, you're a girl, you can't do that.' I said, 'Guess what, doesn't matter what you are, you can still do it if you want to do it,' and I like to do things that nobody's ever done before.
+- I love challenges, and I like 'em hard.
+- I first flew in a plane at eight, and by the age of 10 I had mother drive me out to an airstrip to study the planes parked there.
+- I think we all know what actually happened. It was a good old boy network, and there was no such thing as a good old girl network.
+- I had to drink radioactive water.
+- I've been in the Concorde, I've seen the curvature of the Earth, the beginning of the darkness. I want more - I want to go up there.
+- I was ahead of my time.
+- It was the era when women were in the kitchen. Space travel was the old-boy network.
+- I know that my body and my mind can take anything that any space outfit wants to give me - high altitude chamber test, which is fine; centrifuge test, which I know I can do five and six G's. These things are easy for me.
+- You never forget the airplane you soloed.
+- I've done a lot of astronaut training through the world, Russia, America. And I could always beat the guys on what they were doing because I was always stronger and I've always done everything on my own.
+- I wanted to go into exploration. I've always been an explorer in my youth.
+- I got a hold of NASA, four times, I said, 'I want to become an astronaut.' But nobody would take me. I didn't think that I would ever get to go up.
+- I'm a happy kid.
+- I took probably about six or seven different tests throughout the U.S. Then I went to Russia and took the cosmonaut tests. I beat all the guys.
+- We hadn't been to space yet, so there was no idea what the human body would have to endure in terms of stress. That's why they tested us to the limit.
+- I can take anything. You can whip me and it won't bother me.
+- I've never met a stranger.
+- As a flight instructor 30 years ago, I had quite a few female police officers who wanted to be pilots. But the guys would say 'no.' They wanted those jobs to themselves.
+- I thought I was going to see the world but we weren't quite high enough.
+- I was taught that you could do anything if you wanted it badly enough.
+- I want to go up there so bad, I've had my sights set since 1962.
+- I wasn't a bra burner, I'm not a political person. I saw there was an old-boys' network, but my philosophy has always been to get over it, and move on.
+- I applied to NASA four times. And finally, they said, Wally, you know, we're sorry, but you don't have an engineering degree. I said, well, I'll get one.
+- Everything that the FAA (the Federal Aviation Administration) has, I've got the license for.
+- I've never been bitter.
+- When I went on to college, I was allowed to take flying, as my mother had dearly loved flying and her father wouldn't allow her to, so they encouraged me then to go on into my aviation career.
+- I'm still kicking in doors to keep on going.
+- I get a call - said, do you want to be an astronaut? I said, oh, my gosh, yes. And he said, be here on Monday to take these tests. I had needles stuck in every part of my body, tubes running up my bottom, so I went along with it. It didn't bother me.
+- I'm just disappointed the folks never took a picture of me when I was five years old jumping off the barn into a haystack with my Superman cape.
+- Russia will have a woman in space before the United States calls for a crash program for women astronauts.
+- I went on to Oklahoma State University, who was the best flight school in the United States at that time from the mid '50s on to the '70s.
+- I can't tell people that are watching how fabulous I feel to have been picked by Blue Origin to go on this trip. I'll love every second of it.
+- If I were growing up today, I'd want to be a Navy SEAL.
+- I was brought up that when things don't work out, you go to your alternative.
+- I like to do things that nobody has ever done.
+- And I didn't do dolls... I did outside stuff.
+- My feelings are 'Godspeed, John Glenn.' But I feel badly that he took a spot away from a young astronaut who had probably waited three or four years for that slot. He's already had his ticker-tape parade.
+- What I am already dreaming about is the roar of the take-off, followed by the absolute silence as we go into orbit, and then seeing Earth outside my window.

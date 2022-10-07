@@ -1,0 +1,105 @@
++++
+author = "Shaun Wright-Phillips"
+title = "Shaun Wright-Phillips Quotes"
+quotes_len = "99"
+description = "the best 99 Shaun Wright-Phillips Quotes"
++++
+- I don't want any QPR fans to feel I am short-changing them.
+- The only thing Chelsea and Manchester City have in common is the fact that both clubs have a lot of money.
+- Once everyone gets a taste of one trophy, it could set off an effect. People will get the hunger, and just want more and more.
+- I don't want to bring my kid to a stadium and sit next to somebody who is shouting racist chants, because it's going to make kids think that it's okay to do it. It's not only affecting players, but it is affecting kids that are growing up now, and are going to be bringing their kids in future.
+- It's really great to see all the people who've become involved in building up the Premier League, especially in the States.
+- In football there's passion so you have lifelong fans, they bring their sons up, their grandchild comes.
+- I think Callum Hudson-Odoi can go to the top.
+- Chelsea are a massive family, that is the great thing about the club.
+- Obviously, I know there are players here who earn more than twice what I do. But that's not the issue for me.
+- At City I went back there on the basis of playing for manager Mark Hughes.
+- If I am on the pitch then I am happy.
+- Sometimes it's about gritting in and getting the results.
+- I don't do too much talking. I let my feet do that for me and that's what I plan on still doing.
+- If you're a footballer there will be certain silly people in the world who try to set you down. But just focus on your football.
+- I like playing on the right because it favours me as it is my natural side.
+- For Man City, and the teams up the top or even the teams at the bottom, if you're getting into your stride at that time, the winter break can almost break it and when you come back you could be doing the opposite things.
+- I ain't flash. I'm just plain old Shaun, the same as I was when I grew up in South London.
+- All Premier League fixtures are tricky, you always need your wits about you whether you are playing top or bottom.
+- I am strong minded, a believer that you can make things happen if you really want it that badly.
+- I like the way Pulisic plays. I have kept an eye on him from when I was in the United States.
+- Everyone knows what a great player, as well as a person, David Beckham is. I am just hoping that I can learn from him. I know if I want to go far in my football career I have to do as well as him.
+- In a game I'm, like, 'Rubber Man' or something but, off the pitch, I'm the least flexible person you could imagine.
+- I wouldn't particularly say I liked rugby but it got us playing football.
+- I am not a person to quit. If something needs harder work then I will put my head down and do it.
+- Criticism is part of football. Everybody gets it at some point. I have had it, most players do.
+- Well, I like cars. Just because you have two it doesn't make you flash.
+- I don't read the newspapers, to be quite honest with you.
+- Ideally, you want a defender with Premier League experience.
+- I am never not going to want to play for England so I don't care how old I am. If I am doing well I hope I am going to get picked.
+- I think Mark Hughes is the type of manager people want to play for.
+- Keegan was definitely an attack-minded manager and at times for a fan it must have been crazy because it was entertaining but at the same time we were quite open and conceded goals as well.
+- I always try to think positive and move forward.
+- You look at someone like Jadon Sancho, he took the chance of going abroad to get more game time and now he's possibly up there with the top players, wingers, in the world.
+- When I left City I was still young and there was a lot for me to learn in all parts of my game. To come back and have learned something at a place like Chelsea is down partly to the kind of players I played alongside.
+- Playing for England in Spain was really hard but racism is still in the game, which it shouldn't be. I think when you're playing the best thing to do is block it out like you do with everything else.
+- You can always get better and always improve so that's what I do.
+- If you are hurting inside, you can't really show it because you want the team to do well because that's part of football.
+- Mourinho was good; a very good family man. If people had children and there were days we had to come in he would let you bring kids in and mess about with them while the training session was going on.
+- I first learnt to play football as a striker and it was only when I joined City that I learnt how to become a midfielder thanks to the help I received from the staff at the Academy.
+- I remember so many times, playing for City in which Man United would give us a whooping, and the fans always stood beside us.
+- I wouldn't say Pulisic is there to fill Hazard's boots. It's not fair to put that load on him. He's there to bring another way of playing for Chelsea and he will create his own footprints basically and build his own legacy there at the Bridge. He is definitely a player the fans will like. In America he is rated very, very highly.
+- Yes, when the time comes for me to hang up my boots, I would love to stay and work with the City coaching staff. It would be great to give something back like that.
+- My dad's helped me a lot as a player, encouraged me in all the right ways, kept me focussing on the right lines.
+- Carrying the ball is one of the strongest points in my game and I like to be a danger on the pitch.
+- I'm not one to give up fighting.
+- I'm always learning and you are never too old to stop learning new things and improve your game.
+- I just want to play football.
+- It's always going to have meaning if you can help your brother achieve his targets.
+- I have no regrets whatsoever about coming back to City.
+- What everybody talks about is their own problem, to be honest with you.
+- I think, as a fan, when you are sitting there in the stadium you want to be on the edge of your seat.
+- Quite simply, I want to play at City for the rest of my life.
+- I think my best spell in terms of personal performance was in 2004 - but the best team was under Mark Hughes with Elano.
+- I'm not the sort of person to entertain doubts or dwell on negative comments from other people in any case.
+- It's nice to know your manager has faith in you.
+- I first came up under Joe Royle and when Keegan took over it was even better for me because I felt his style added more to my game.
+- Only players can understand what it's like, travelling and playing every three days, it gets on top of you.
+- There is definitely an argument that Sergio Aguero is the Premier League's best ever striker.
+- In a Premier League race, it's never over until it's over.
+- I know from Chelsea that it's not about one or two brilliant performances. It is also about winning different types of matches.
+- I want to show people I can play.
+- I work on my whole game and learn from the people around me, who I've benefited from tremendously, or the new players who come in to the club.
+- I would love to retire a City player and I have my fingers crossed it is something that can still happen. When I did leave in 2005, I broke down crying on the way to sign for Chelsea, but back then, we needed the money my sale brought in.
+- The fact that on the day I came back to City we stayed in the UEFA Cup through a last-minute own goal against Midtjylland and then won a dramatic penalty shoot-out made me smile.
+- To work with the kids and help them come through from the Academy to the first team would be brilliant.
+- Football is like a rollercoaster and if you keep dwelling on what's happened in the past you're never going to move.
+- Everybody manages differently and as far as I'm concerned the results are the only thing that counts.
+- Sometimes people don't realise just how hard it is to play with 10 men in the Premier League.
+- On a personal level, I never worry - I'm always up for the challenge, especially at City, and will keep my head down and work as hard as I can to play as often as I can.
+- Express yourself in any way possible.
+- At a club like City, you cannot forget about the kids that have come through and are still emerging from the academy. We can't forget about them and we should always keep that in mind with an eye to the future.
+- I never try to prove anybody wrong. Everyone is entitled to their opinion.
+- I just thought as a kid, I'm just going to play for City forever.
+- I take every day as it comes, try to work hard and benefit from the training.
+- I saw U.A.E. play at the London Olympics for the first time and I was really impressed with how they played against the likes of Great Britain and Uruguay.
+- It's not so much frustrating, it's just that if you don't know when you are going to play, how do you focus on a game? That's part of football, though, and if you are going to be at a big club you have to deal with it.
+- I left for Chelsea to learn new things, at a new club with new players.
+- I've never been able to touch my toes. Seriously, never.
+- That's the downside of playing for one of the top teams: that no matter how well you play, sometimes you have to step aside.
+- If its proven that there's racial abuse, the team's fans where there's abuse should quit the game as a loss and the result should go to the winner basically.
+- Some people handle situations differently - some people have a reaction, some people let it go over their head.
+- Football works in mysterious ways.
+- If you let in a goal, you don't sink into your shell, you come out even harder and put people on the back foot, home or away.
+- I just want to give 110 per cent and do the best I can when I'm used.
+- Representing your country is a highlight in everybody's career.
+- Being out of a team changes you as a person. You don't realise it but, away from the game, you can be snappy with your family or friends if you're not playing. It hurts not to be involved, but I guess you have to accept it. It's part and parcel of being at a big club.
+- In any footballer's head there comes a point where he recognises that he needs to be playing more games.
+- City is a very family-oriented club. Chelsea is in the centre of London, there is a different crowd following them, maybe more business people go to watch them.
+- I prefer getting a lot of the ball.
+- City have always had families coming to watch them and we should always stick to that, but try to get other people interested too.
+- I find it quite funny to see players rolling over trying to win free-kicks or get opponents booked. I've never done that, even at an early age. My friends would have just laughed at me.
+- I've been to Dubai many times for holidays.
+- I learned a lot at Chelsea partly down to the players I played alongside.
+- Growing up, Arsenal were always such a big team, they were dominant and would always give you a tough game.
+- To an extent I agree that the FA hasn't done that much to tackle the problem of racism, but it's hard to police racism for the FA. How do they police it? Unless someone makes people aware of what has happened within a stadium, the FA would never know that it is happening.
+- I just enjoy playing football no matter where I am chosen.
+- I worked under Jose Mourinho, a manager who taught me new things and stressed I should believe in myself.
+- I get kicked every game, it's part of football, I just try to get on with it.
+- Even when I was growing up and playing with friends I used to get kicked.

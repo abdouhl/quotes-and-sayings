@@ -1,0 +1,27 @@
++++
+author = "David Green"
+title = "David Green Quotes"
+quotes_len = "21"
+description = "the best 21 David Green Quotes"
++++
+- Coming from a family of preachers, the idea of giving back has been part of my life as long as I can remember.
+- It is by God's grace and provision that Hobby Lobby has endured. Therefore, we seek to honor God by operating the company in a manner consistent with biblical principles.
+- You can't learn if you don't try.
+- You can't have a belief system on Sunday and not live it the other six days.
+- Hobby Lobby has always been a tool for the Lord's work.
+- It's so easy to make things complicated in business.
+- I realize that a lot of business leaders may disagree with me, but I truly believe that God belongs in what my company does. By putting Him first in my operations, He can bless what I attempt.
+- My father and mother had tremendous integrity, and obviously that affected me.
+- God has blessed me with a wonderful family, a successful business, and outstanding employees. I do not take these blessings lightly.
+- Giving is above what we owe God, and that is our tithes.
+- When Hobby Lobby was created in the early 1970s, I was committed to use profits to help ministry work.
+- I can't help but tell people of the greatest story ever told - God's love and our eternal life.
+- You need an attitude of service. You're not just serving yourself. You help others to grow up and you grow with them.
+- Business owners should not have to choose between violating their faith and violating the law.
+- When I take a risk, I like it to be a calculated risk, meaning I make it as small as possible.
+- If you have anything, or if I have anything, it's because it's been given to us by our Creator.
+- I want to know that I have affected people for eternity. I believe I am. I believe once someone knows Christ as their personal savior, I've affected eternity. I matter 10 billion years from now.
+- The Health and Human Services preventive services mandate forces businesses to provide the morning-after and the week-after pills in our health insurance plans.
+- This is my hobby: growing stores, adding stores. It's fun.
+- If I die without food or without eternal salvation, I want to die without food.
+- Our Heavenly Father is pleased when we don't compromise our faith and principles in times of desperation.

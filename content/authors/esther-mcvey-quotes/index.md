@@ -1,0 +1,86 @@
++++
+author = "Esther Mcvey"
+title = "Esther Mcvey Quotes"
+quotes_len = "80"
+description = "the best 80 Esther Mcvey Quotes"
++++
+- Part of the Brexit debate was about control, having a say over our laws and money and letting politicians stand up for what the people voted for, not signing away our sovereignty.
+- When I speak to young people around the country, I'm impressed with the confidence and self-assuredness with which they look to the future and the range of options they consider beyond traditional routes.
+- We know that children living in a household with someone in work do better in school, have better educational attainment, and are more likely to have a job later in life than children growing up in a home where no one works.
+- The behaviour of several male politicians against me has never been condemned by Ed Miliband, or the Labour Party, and it needs to be because in the end, it will have a long-term corrosive effect for politics full stop and for young girls who want to go into politics.
+- For too long, people have had to neutralise or lose their accent out of fear of prejudicial treatment or to fit in. This has then led to a lack of regional accents, which has allowed this lazy stereotyping and prejudicial attitudes to prevail.
+- I ran my first campaign when I was 11. My slogan was 'Vote McVey, vote the right way.' I've never surpassed it!
+- I want to give the message that anyone can succeed given the opportunity.
+- If people are coming into the country to add an extra dimension, to bring skills and expertise with them, we have always been open to that.
+- When we cannot find enough extra money for policing, yet we are having huge sums to other countries in aid, it is time to start a serious conversation.
+- It's important to know what you can do and what you can't.
+- Work experience for many is their first taste of work and an essential first step into the jobs market.
+- I believe Jeremy Corbyn getting his hands on power is a risk we cannot afford to take.
+- People no longer have one job for life, so it is right that younger generations adapt.
+- We have seen a shift in the focus of education before entering the workplace, with earning and learning the new norm.
+- I work with a host of amazing women who act as role models, who give their spare time freely to encourage these girls to give things a go, to reach out and take a chance and to explain that should they fail, well that's just a part of life.
+- Everyone deserves the chance to make their own choices. The first step on this pathway is experiencing the working world.
+- Politicians themselves, every one of us, has a responsibility to make sure that we send out a message that it is a good place to work, that it is positive, that you are transforming people's lives.
+- The people I believed in were people like William Lever, the great philanthropic industrialist - self-made men who realised anyone could achieve.
+- What you've seen from the 1980s, particularly in this country, is far fewer people doing Saturday jobs and doing jobs after school.
+- Has my accent held me back? I don't believe it has at all. I think it can be a colourful accent.
+- If feminism was a dress, it would be that essential little black number, reached for in times of need; different for everyone but a steady constant in a woman's life. Outspoken or understated, demure or provocative, worn to reflect the mood, the personality, the time.
+- Not only does work experience provide the opportunity to sample a potential career, but it also builds the essential skills often regarded as 'soft skills' that are needed to thrive in work.
+- We all have dreams, whether it be about success in our careers, improving our relationship with family and friends, or sorting out our finances.
+- We never have been closed to immigration.
+- People who have been successful in business have a huge amount to offer young people who are just starting out.
+- This is how I am. I'm happy with my friends, my family, my job.
+- Only three per cent of people are born with a disability; the rest acquire it through accident or illness, but people come out of it. Thanks to medical advances, bodies heal.
+- Life is not a theoretical problem to be solved in class.
+- My dissertation focused on the character traits and personality types of successful women.
+- Outside Westminster, political debate must seem like white noise that bears little relevance to people's everyday lives. But political choices made by the governments we elect have a real impact on how we live.
+- Our young people are some of the best and most talented in the world - they are driven, entrepreneurial, and innovative - and with the help of people who have already made it in the world of work, they can go on to be the bosses and employers of the future.
+- Lifelong learning is becoming commonplace, with people studying at different times when they see the benefits of doing so.
+- You wouldn't try and make a cake without a recipe book. Careers are just the same.
+- I've had other friends who had such a burning desire to have children: they have this biological ticking clock. I don't know what happened to mine. Nobody ever wound it up.
+- My dad started off in scrap metal, real men doing men's jobs.
+- Labour's disastrous legacy and the Conservative success did not happen by accident: it was about the choices each party made, choices that impact on everyone.
+- Growing up with a bold feminist in my mother, I witnessed her march magnificently from mini to maxi, fashions so obviously linked to powerful statements of female progression, equality and recognition. I knew no other than freedom of expression in all the forms it came in; art, theatre, fashion, literature and music.
+- If your route is that you are practically minded, and that is what presses your button, and you do an apprenticeship and you get a job that way, that is fantastic.
+- First and foremost, we have to ensure that we have to get our own kids ready for work so that employers want to take them on.
+- I guess, as a young girl growing up in Liverpool in the '80s, when unemployment was high, my ideal job would have been to have been Minister for Employment to see, can you solve these problems? Can you get people into work?
+- Labour parades compassion for the poor, but it practised casual cruelty by consigning millions to benefits. Yet there's nothing compassionate about being trapped on benefits, being robbed of the dignity of work, and shut out from the choices that brings.
+- What I like to see is people like Beyonce. Here is a woman who is bling-a-ding. Not only does she look like that and act like that - I've seen her perform, and I was blown away - but she is at the top of her profession.
+- Life teaches you it's not where you come from, it's where you get to, and work is exactly the same.
+- I've met people at the top of companies like Accenture who started off in McDonald's.
+- Politics is all about trust. Trust is like the soul: once gone, it never returns.
+- I'm forever being told, and intrinsically understand, that people want to study at different times in their lives, often inspired to do so when they see the practical benefits of their studies.
+- I come from a background where people have had their own business, where it has been incredibly tough for a long period of time, and you are only as good as the last contract you have got, as the last job you have done, where the notion of a precarious existence does exist, as it does for a lot of people.
+- If that is your route, to go to university and get a job that way, that is fantastic.
+- One of my best friends was the first U.K. female fighter pilot.
+- Most people fall upon tough times at some point.
+- David Cameron, and before him Iain Duncan Smith, went out of their way to attract women into the party. Yes, we need to sell politics to more women, but quotas are not the way forward. You set a quota, what is the right quota? What is the wrong quota?
+- My friends have always known there was this more serious side to me, and all my life, I've had Conservative values.
+- Every Labour government has left office with higher unemployment than when it entered.
+- Where I come from, from a very different point of view, it's a Labour heartland, it's a trade union heartland, and I'll have a very personal campaign against me there.
+- I was raised in inner-city Liverpool, the first in my family to go to university.
+- People shouldn't have to lose their accents to get a fair crack at the whip at a job or move up within a sector or industry.
+- Success isn't anything to do with being lucky. It's knowing what you want, taking the necessary action, and believing you can achieve anything you set your mind to.
+- We've got to be as good as our word.
+- It makes my life easier that I don't have to take my daughter or son to school, that I've not got to look after them because they are ill. But then, I'm not nurtured and cherished, so I will seek external love from other close relationships.
+- That is what we should be doing: liberating everyone's potential, whether it's a self-made individual, whether it's someone taking the university route, whether it's the apprenticeship route. They are all equal and good and worthwhile.
+- To think that we are all the same and going to follow the same journey, that is wrong. We are going to support and liberate people, to give people as many opportunities to succeed as possible without being prescriptive.
+- You only have a true choice when you know what opportunities are out there and what qualifications you need.
+- I believe most people in their life will fall upon tough times at some point.
+- I have had long relationships but have never married.
+- The government should only have one voice so the country knows what we stand for, so the world knows what we stand for.
+- You can't underestimate how patriotic the people of this country are.
+- Politics has to be a place where women want to go.
+- When I was growing up, my parents put money into food, utility bills, and the mortgage.
+- Sometimes, for girls, it's about building confidence and giving them a can-do attitude. It's seeing role models, people like yourselves, doing those jobs and achieving them, just to say, 'I can do that.'
+- Top performers in their fields such as Debbie Moore, Jean-Christophe Novelli, Deborah Meaden and Jo Malone, did not go to university and are just a handful of the individuals who show that with drive and determination, you can succeed by treading your own path.
+- That's what you've got to be to be an MP: a problem solver. How can I help you? How can I engage? What do you need?
+- I always thought, as I was growing up, that I'd be married with children. That hasn't happened.
+- It is only by giving people the tools to empower themselves will they be able to achieve their potential.
+- Universal Credit claimants who refuse to accept a zero hours contract job offer, without good reason, can be subject to a sanction.
+- There is a whole host of people that have got an accent like mine, whether they're from Merseyside or Wales or the North West.
+- What does a teacher do in a school? A teacher would tell you off or give you lines or whatever it is, detentions, but at the same times, they are wanting your best interests at heart. They are teaching you, they are educating you, but at the same time, they will also have the ability to sanction you.
+- Leaving the E.U. is an opportunity for our country.
+- Life is about hard work and getting on with things.
+- I, for one, want to make sure we give every young person the chance to find the fuel for their confidence, something that will power their ambition.
+- When I became minister for employment, that was my ideal job because it meant I was able to reflect on what I saw growing up and actually try to change it.

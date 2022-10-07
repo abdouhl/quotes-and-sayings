@@ -1,0 +1,12 @@
++++
+author = "Eunice Kennedy Shriver"
+title = "Eunice Kennedy Shriver Quotes"
+quotes_len = "6"
+description = "the best 6 Eunice Kennedy Shriver Quotes"
++++
+- People are always saying, what use are the retarded, on welfare, using up all our funds, and yet, where else is there every day a greater example of the triumph of the human spirit over adversity than these people?
+- I don't particularly want to be in the White House.
+- When you're in a big family you have to hustle all the time. But I think that's a good quality to instill in your children, for whatever they have to get.
+- For a long time my family believed that all of us working together could provide my sister with a happy life in our midst. My parents, strong believers in family loyalty, rejected suggestions that Rosemary be sent away to an institution.
+- I'm very happy doing what I do. And if I were in the White House I would be really interested in continuing to do what I do, which is working... That's a very cold answer, I guess, but I was trying to answer in terms of ambition.
+- The Chicago Special Olympics prove a very fundamental fact, the fact that exceptional children - children with mental retardation - can be exceptional athletes, the fact that through sports they can realize their potential for growth.

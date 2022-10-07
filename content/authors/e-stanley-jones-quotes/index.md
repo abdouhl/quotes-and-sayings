@@ -1,0 +1,33 @@
++++
+author = "E. Stanley Jones"
+title = "E. Stanley Jones Quotes"
+quotes_len = "27"
+description = "the best 27 E. Stanley Jones Quotes"
++++
+- Prayer means that the total you is praying. Your whole being reaches out to God, and God reaches down to you.
+- Our actions are the results of our intentions and our intelligence.
+- Prayer is aligning ourselves with the purposes of God.
+- In the ordinary church, it is suppressed by respectability, by a desire to appear better than we really are.
+- Our intentions may be very good, but, because the intelligence is limited, the action may turn out to be a mistake - a mistake, but not necessarily a sin, for sin comes out of a wrong intention.
+- You cease to move into yourself, away from others. You give up your antagonism. You begin to move toward others in love. God moved toward you in gracious, outgoing love, and you move toward others in that same outgoing love.
+- Some have said that the power of a Redeemer would depend upon two things: first, upon the richness of the self that was given; and second, upon the depths of the giving. Friend and foe alike are agreed on the question of the character of Jesus Christ.
+- We are personalities in the making, limited, and grappling with things too high for us. Obviously we, at very best, will make many mistakes, but these mistakes need not be sins.
+- If the Holy Spirit can take over the subconscious with our consent and cooperation, then we have almighty Power working at the basis of our lives, then we can do anything we ought to do, go anywhere we ought to go, and be anything we ought to be.
+- The action carries a sense of incompleteness and frustration, but not of guilt. Victorious living does not mean perfect living in the sense of living without flaw, but it does mean adequate living, and that can be consistent with many mistakes.
+- The conscious mind determines the actions, the unconscious mind determines the reactions; and the reactions are just as important as the actions.
+- Life is supplied with a basic adequacy.
+- At the cross God wrapped his heart in flesh and blood and let it be nailed to the cross for our redemption.
+- In conversion you are not attached primarily to an order, nor to an institution, nor a movement, nor a set of beliefs, nor a code of action - you are attached primarily to a Person, and secondarily to these other things.
+- Victorious living does not mean freedom from temptation, nor does it mean freedom from mistakes.
+- Here he tells us that the new birth is first of all 'not of blood'. You don't get it through the blood stream, through heredity. Your parents can give you much, but they cannot give you this.
+- Prayer is commitment. We don't merely co-operate with God with certain things held back within. We, the total person, co-operate. This means that co-operation equals committment.
+- Whatever our creed, we stand with admiration before the sublime character of Jesus.
+- To pass from estrangement from God to be a son of God is the basic fact of conversion. That altered relationship with God gives you an altered relationship with yourself, with your brother man, with nature, with the universe.
+- Prayer is commission. Out of the quietness with God, power is generated that turns the spiritual machinery of the world. When you pray, you begin to feel the sense of being sent, that the divine compulsion is upon you.
+- Being born in a Christian home does not make you a Christian.
+- God, to redeem us at the deepest portion of our nature - the urge to love and be loved - must reveal His nature in an incredible and impossible way. He must reveal it at a cross.
+- We grow small trying to be great.
+- When we think of the ideal, we do not add virtue to virtue, but think of Jesus Christ, so that the standard of human life is no longer a code, but a character.
+- Continuing a Lenten series on prayer: Prayer is co-operation with God. It is the purest exercise of the faculties God has given us - an exercise that links these faculties with the Maker to work out the intentions He had in mind in their creation.
+- Character is supreme in life, hence Jesus stood supreme in the supreme thing - so supreme that, when we think of the ideal, we do not add virtue to virtue, but think of Jesus Christ, so that the standard of human life is no longer a code but a character.
+- When the depths are upheld by the Holy Spirit, then the reaction is Christian.

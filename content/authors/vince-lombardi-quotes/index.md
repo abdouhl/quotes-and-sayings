@@ -1,0 +1,71 @@
++++
+author = "Vince Lombardi"
+title = "Vince Lombardi Quotes"
+quotes_len = "65"
+description = "the best 65 Vince Lombardi Quotes"
++++
+- Mental toughness is spartanism with qualities of sacrifice, self-denial, dedication. It is fearlessness, and it is love.
+- Confidence is contagious. So is lack of confidence.
+- Football is like life - it requires perseverance, self-denial, hard work, sacrifice, dedication and respect for authority.
+- You don't do things right once in a while. You do things right all the time.
+- Some people try to find things in this game that don't exist but football is only two things - blocking and tackling.
+- Unless a man believes in himself and makes a total commitment to his career and puts everything he has into it - his mind, his body, his heart - what's life worth to him?
+- If you aren't fired with enthusiasm, you will be fired with enthusiasm.
+- The price of success is hard work, dedication to the job at hand, and the determination that whether we win or lose, we have applied the best of ourselves to the task at hand.
+- Once you learn to quit, it becomes a habit.
+- Coaches who can outline plays on a black board are a dime a dozen. The ones who win get inside their player and motivate.
+- Winners never quit and quitters never win.
+- Practice does not make perfect. Only perfect practice makes perfect.
+- Winning isn't everything, it's the only thing.
+- Some of us will do our jobs well and some will not, but we will be judged by only one thing-the result.
+- If you can accept losing, you can't win.
+- Once you agree upon the price you and your family must pay for success, it enables you to ignore the minor hurts, the opponent's pressure, and the temporary failures.
+- The quality of a person's life is in direct proportion to their commitment to excellence, regardless of their chosen field of endeavor.
+- Character is just another word for having a perfectly disciplined and educated will. A person can make his own character by blending these elements with an intense desire to achieve excellence. Everyone is different in what I will call magnitude, but the capacity to achieve character is still the same.
+- It's not whether you get knocked down, it's whether you get up.
+- The leader can never close the gap between himself and the group. If he does, he is no longer what he must be. He must walk a tightrope between the consent he must win and the control he must exert.
+- The harder you work, the harder it is to surrender.
+- They'd better be physically tough when they start pulling on their football pants.
+- Winning is not a sometime thing; it's an all the time thing. You don't win once in a while... you don't do things right once in a while... you do them right all the time. Winning is habit.
+- At many a moment on many a day, I am convinced that pro football must be a game for madmen, and I must be one of them.
+- If it doesn't matter who wins or loses, then why do they keep score?
+- Success demands singleness of purpose.
+- A school without football is in danger of deteriorating into a medieval study hall.
+- I've never been with a losing team in my life, and I don't think I'll start now.
+- It's easy to have faith in yourself and have discipline when you're a winner, when you're number one. What you got to have is faith and discipline when you're not a winner.
+- Go back through football, and you will see that the team with the best defense wins.
+- Leaders are made, they are not born. They are made by hard effort, which is the price which all of us must pay to achieve any goal that is worthwhile.
+- I'll put the Packers' best players on defense. It's best for a team and good for its morale.
+- The only place success comes before work is in the dictionary.
+- Nobody wants to give up good players.
+- Fatigue makes cowards of us all.
+- There is no room for second place. There is only one place in my game and that is first place. I have finished second twice in my time at Green Bay and I never want to finish second again.
+- Football is a great deal like life in that it teaches that work, sacrifice, perseverance, competitive drive, selflessness and respect for authority is the price that each and every one of us must pay to achieve any goal that is worthwhile.
+- If you can shrug off a loss, you can't be a winner.
+- The measure of who we are is what we do with what we have.
+- The real glory is being knocked to your knees and then coming back. That's real glory. That's the essence of it.
+- Individual commitment to a group effort - that is what makes a team work, a company work, a society work, a civilization work.
+- Perfection is not attainable, but if we chase perfection we can catch excellence.
+- We didn't lose the game; we just ran out of time.
+- I firmly believe that any man's finest hour, the greatest fulfillment of all that he holds dear, is that moment when he has worked his heart out in a good cause and lies exhausted on the field of battle - victorious.
+- The difference between men is in energy, in the strong will, in the settled purpose and in the invincible determination.
+- There is something good in men that really yearn for discipline.
+- Why did I choose Washington among offers from other cities? Because it is the capital of the world.
+- We would accomplish many more things if we did not think of them as impossible.
+- If you're lucky enough to find a guy with a lot of head and a lot of heart, he's never going to come off the field second.
+- Every time a football player goes to ply his trade, he's got to play from the ground up - from the soles of his feet right up to his head. Every inch of him has to play.
+- Battles are won in the hearts of men.
+- Teamwork is what the Green Bay Packers were all about. They didn't do it for individual glory. They did it because they loved one another.
+- Winning is habit. Unfortunately, so is losing.
+- The difference between a successful person and others is not a lack of strength, not a lack of knowledge, but rather a lack of will.
+- The achievements of an organization are the results of the combined effort of each individual.
+- The greatest accomplishment is not in never falling, but in rising again after you fall.
+- Show me a good loser, and I'll show you a loser.
+- Some guys play with their heads. That's okay. You've got to be smart to be number one in any business. But more importantly, you've got to play with your heart, with every fiber of your body.
+- A disciplined person is one who follows the will of the one who gives the orders.
+- I have finished second twice in my time at Green Bay, and I don't ever want to finish second again. There is a second place bowl game, but it is a game for losers played by losers. It is and always has been an American zeal to be first in anything we do, and to win, and to win, and to win.
+- People who work together will win, whether it be against complex football defenses, or the problems of modern society.
+- We run to win, not just to be in the race.
+- The will to win is the only thing.
+- I'm not afraid to die - it's just that I had so much left to do in this world.
+- I don't think there's a punch-line scheduled, is there?

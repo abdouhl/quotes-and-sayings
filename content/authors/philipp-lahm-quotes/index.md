@@ -1,0 +1,106 @@
++++
+author = "Philipp Lahm"
+title = "Philipp Lahm Quotes"
+quotes_len = "100"
+description = "the best 100 Philipp Lahm Quotes"
++++
+- It's our responsibility as experienced and successful players to manage our powers in order to be able to give 100 per cent in the right moments.
+- We should not discuss refereeing performances but support decisions to help their work.
+- Always being champion, always being at the top every three days, playing great football - it's not that easy.
+- At the start of every season, I always asked myself - am I meeting my own standards? Can I still do it? I didn't want to come to the conclusion that I couldn't during a season.
+- Things can happen very quickly in football.
+- Maybe modern tactics mean that making the switch from defence to midfield is easier. Many years ago, full backs were more limited - you were just supposed to defend, and it didn't matter if you could get forward too.
+- It doesn't matter if you have the best individual players, as you need to have the best team unit.
+- If you want to measure yourself with Barcelona, Chelsea and Manchester United, you, as Bayern Munich, need a philosophy. That must be the aim of the club.
+- I believe that when Fifa hands out an award, it should not be a marketing prize that solely honours the protagonists of a media-crazy sport.
+- Anybody who has played with Mesut will tell you how intelligent he is as a player. His vision is probably the best I have ever seen and that is why it is so important to have the right striker ahead of him.
+- My first goal was to become a professional footballer.
+- We can never achieve perfect football at Bayern because the game is always changing. There are always new influences and different styles.
+- Germans have a rich history of playing well in the World Cup.
+- Generally I always take genuine criticism. It's part of football.
+- At Euro 2004 - my first as a player - Greece won the title. A team nobody thought could win it.
+- Bayern Munich is an attractive club because it has been successful for many decades.
+- If you do the job out there on the pitch and you have it under control, as in my case, you want more. You want more responsibility. You want to take care of it all. That is the case with me.
+- I consider it a privilege and duty to pass on the experience and knowledge I have accumulated in 20 years of experience at club and national team level with Bayern and Germany.
+- Fear mustn't take control of us.
+- I've always said I prefer playing on the right. But I can play at a top level on both sides so I'm happy to play wherever the manager thinks it will bringing the team success.
+- I've always said that there will never be an area that I know better than football.
+- Every single player has to take responsibility for what they do. Look at the Manchester United team that won the Champions League in 2008, they didn't have a 'leader' like Roy Keane any more.
+- Scoring first changes everything. It makes everything easier for us.
+- Thomas Muller is an excellent player.
+- History shows that it is incredibly tough for a defender to be named Footballer of the Year because over the course of a year there is normally always a forward who steals the headlines up front.
+- Sporting behaviour means fair behaviour. This is the player's task, not the referee's.
+- I have no problems with homosexuals whatsoever.
+- In football, surprises are always possible.
+- We make adjustments and changes before and sometimes also during the games in order adapt to the opposition. The manager will, for example, tell the striker to make different runs or position the central midfielders slightly differently in relation to each other.
+- If you don't score when you have chances then things start to get difficult.
+- The most important thing is that we play as a team. It means to attack together but to defend together as well.
+- To achieve success in this game you need specific talents and attributes. But we also have to adapt to the fact that we work in the public eye, with all its pros and cons.
+- In a World Cup you always intend to compete with the best.
+- Felix Magath works with pressure. At first, we didn't know where we stood with him. That prompted the players to give their best because they wanted to play, but after a while the players knew where they stood and Magath no longer received the same effect.
+- It's not enough to buy good players, one has to develop a team.
+- Even if I won so many titles, the first title is not forgotten.
+- Many great teams have players who have come through the youth system or have been at the club for a long time as their captains. I'm thinking of Steven Gerrard at Liverpool, John Terry at Chelsea, Raul at Real Madrid, as well as Puyol at Barcelona and Gary Neville at Man United.
+- Our sport needs lethal strikers, goalscorers, heroes. But football is much more than the moment of triumph.
+- Winning the Bundesliga is never a given.
+- You can never know if there will be a second Cruyff, someone with a great personality who can grow up and make it into the squad of the club they love. But what is certain is that, in the Champions League, there will be big clubs producing these players forever.
+- Big teams need a core of players who have their roots at their clubs, who grow with their clubs and who embody the culture. Representing it on the pitch and outside as well.
+- I joined Bayern at the age of 11, and from then on it was all about being up to the competition. It doesn't matter who you face, you are always the favorite. You learn this at a young age. And this continues throughout your career at Bayern Munich, you are always the favorite or one of the favorites in every competition you are involved in.
+- I do a lot of things instinctively.
+- When I think back to the 2006 World Cup on home soil, we came close but nobody really expected us to get very far. We simply lost to a better team and Italy went on to win it.
+- I'm from Munich. I was born here in this town.
+- It is something special when you play a final at home in your own stadium.
+- In every part of our society, rules have to be questioned and adapted.
+- To grow up and play for FC Bayern Munich and eventually Germany has been truly a dream come true.
+- The abolition of the double sanction for a foul in the box is a welcome change. There are times that you cannot help but stop your opponent in the box, with your momentum forcing you to make a challenge. Fouls can't be avoided in that situation but your intention was fair.
+- We have always found it easier, and still do, when the opponent plays football as well, when they don't just think in defensive terms, don't just sit inside their penalty box. It's just nicer when the opponent plays football.
+- I think that it is advantageous to join Bayern Munich at a young age.
+- Except for two years in Stuttgart, I have always worn the FCB jersey.
+- The key is developing your game in both directions: in the build-up, joining the attack at the right moment and also in defence. You have to win the one-on-one situations and need the required pace and technique. These are the decisive factors for a defender.
+- Was Effenberg a leader because he projected presence or because he had a presence? There is a difference.
+- I spend too much time sitting in an office. So I need to play sports on a regular basis, that's why I play golf and tennis.
+- Personal vanity has no place in a World Cup.
+- Why was Effenberg a leader, because he was outspoken? Or because he had a certain presence on the pitch? When that's the criteria, OK, then maybe I have a different definition of what a leader is.
+- Cruyff's idea was, quite literally, to play football - nothing more, nothing less. His idea of how football should be played was based not on controlling the opponent, but on the ball and the game.
+- Of course, the moment when the ball hits the net, that's fascinating for kids playing the game and motivates them to join a club.
+- I have always enjoyed thinking about playing patterns and I will undoubtedly continue to do so in front of the TV but to become a coach, to be thorough in football at all times, to prepare matches and training... I cannot imagine that I would find pleasure there and pleasure is essential in football.
+- Any business or club has to have a hierarchy. Everybody needs to know and understand his role in the overall structure. Bayern Munich is no different.
+- Anyone who knows me knows that I stick with my decisions.
+- What is a Fuhrungsspieler? I don't like the term. For me there is not a clear definition of the term.
+- I'll remember my first league title, my first cup, the Champions League. But also the defeats - that's also part of football.
+- I played at full-back for 10 years, I enjoyed it, and I had success there, so I can never regret being a defender.
+- As a captain, I have to be courageous but I also want to be nice off the pitch.
+- The title I most want is the 2014 World Cup.
+- Pep is a super coach! He is excellent. He is the best at analysing an opponent and the concept of a game. I don't know what impact he had on German football, but he left a mark on all of us at Bayern because of how he analysed and educated the players in each position and the way he taught us to play.
+- I had a very interesting and exciting life as a footballer, for which I am grateful.
+- I have climbed every step of the football ladder, from kicking a ball about in Munich's Olympic Park to becoming a junior at Bayern, signing professional terms, establishing myself in the first team and taking the captain's armband.
+- I have played football since I was five years old. This is my core skill and it will always remain so.
+- I'm lucky to have played two different positions. But of course the experience I gained as a full back - knowledge of defending, and taking up the right positions, helps me as a midfielder.
+- Being Bayern captain feels good and I think it's logical a player from Munich should lead FC Bayern on to the pitch.
+- Schweinsteiger has always been an important player for the national team.
+- AC Milan would never have been the same club without Paolo Maldini or Franco Baresi and they certainly would have never had the same amount of success.
+- Those who have achieved success in football have a degree of responsibility to be open and honest about our 'calling,' our passion.
+- In the past, we won tournaments with lots of fighting and lots of hard running.
+- When I played for Stuttgart, I met Manchester United and Chelsea. With United, I immediately think of the duels with Ryan Giggs and Paul Scholes and with Chelsea, it was John Terry. Those players are symbols of their clubs and the success they had at that time.
+- An openly gay footballer would be exposed to abusive comments.
+- For me it's more difficult to play against the quicker wingers, but for the team it's perhaps more difficult to face players that are good passers, because one through ball can take the whole team out of the game.
+- Looking back at my matches since 2002, there is one main criterion for me which marks a club which is successful in the long-term: big players, who have grown with their clubs, whose names are tied to the success and who have a 100 per cent identification with the team, the club and its history.
+- The Champions League is such a tough competition.
+- Of course it's not a normal thing to show a good performance every time.
+- Every Bundesliga match is a new challenge, our opponents don't make it easy for us.
+- We practically only practiced fitness under Klinsmann, there was very little technical instruction and the players themselves discussed the way they would play a game before the match.
+- We know South Americans are impulsive and temperamental and cannot lose.
+- My first club was FT Gern. I joined through my parents and friends. My father played for them and a friend from nursery school took me to training once. I was five at the time.
+- Klinsmann was the shining hero of the 2006 World Cup when Bayern took him on.
+- It's obvious that I'd like to keep the captain's armband. The job gives me a great deal of enjoyment. Why should I then give it up by choice?
+- I last played in Dubai in the summer of 2009 and it was still over 40 degrees in the evening. It was extremely exhausting and absolute madness.
+- As a young footballer I used to look up to a number of stars for inspiration and I understand what Bhaichung must have done for all young Indians aspiring to be footballer.
+- I have a clear goal: the greatest possible success, the World Cup trophy.
+- Both football and business are part of my life.
+- Clubs like Manchester United or Barcelona have a system, and then you hire personnel who fit this system.
+- I've practically grown up with FC Bayern Munich since the age of 11. In my case, a talent scout noticed me when I was playing for a local youth team at Gern in Munich.
+- I experienced how Pep Guardiola worked every day. He had football on his mind round the clock: 'What system does the opponent like to play? How do I want to set up my team, who do I want in which position?'
+- You only miss many chances when you create many chances.
+- Football is teamwork, unity, defence, assists, sacrifice.
+- As a full back, your role is just as much in playing in midfield, getting forward and creating chances, as it is stopping them at the other end.
+- We have big goals at Bayern and always want to go as far as possible in each competition and win silverware. But it is great to have won the World Cup. You are a world champion for your entire life. A lof of people talk about it and it remains very special. But it's not like I think about the World Cup each morning I wake up.

@@ -1,0 +1,14 @@
++++
+author = "Derrick Grayson"
+title = "Derrick Grayson Quotes"
+quotes_len = "8"
+description = "the best 8 Derrick Grayson Quotes"
++++
+- Under slavery, families were ripped apart, and it was a desire of black men and black women to be together with their loved ones. Family meant something. Spouses meant something.
+- The erosion of personal freedom and liberty as a result of federal policy and legislation is alarming.
+- Make no mistake about it. Gun control is not about crook control. It's about America control.
+- Race doesn't matter to the people who are violating our constitutional principles, but they make it matter to keep us divided.
+- The Second Amendment is not about hunting. It is about protecting ourselves from a tyrannical government.
+- My grandmother, who picked cotton, and my mom, who picked cotton as a child - my grandmother had a work ethic. She had 13 children that she had to raise and ended up for a time moving into the projects, but because my grandmother had a work ethic, she didn't stay in the projects... that's not how she wanted to raise her children.
+- When you go with individuals who have violated the Constitution in any fashion, you have sold your soul to them.
+- The only thing that holds the government back from just going ballistic on us is the Second Amendment. When we become disarmed, it's over. It's over.

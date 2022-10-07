@@ -1,0 +1,41 @@
++++
+author = "Vinnie Jones"
+title = "Vinnie Jones Quotes"
+quotes_len = "35"
+description = "the best 35 Vinnie Jones Quotes"
++++
+- I've always had my ear pierced with a diamond stud. I did it myself when I was 16.
+- When two people break up, it's all about them; they can't see anyone else. And the people getting smashed to bits are the kids. Then you're getting torn - your mum wants you, your dad wants you. You just get shredded. It has a long-lasting effect as well.
+- Football became my life at five or six. The earliest memory I have is of playing in my first boots, a pair of black and white Alan Balls. It was 1970, four years after the World Cup, and I scored three goals at school.
+- We all carry our past. But it is a case of getting on with your life and improving it, if you want to.
+- To me, England is past its sell-by date. It's not the country I grew up in.
+- In 'Hell Ride,' I play a biker - it's about the bikers. It's with Dennis Hopper and Michael Madsen, Larry Bishop and myself. We're bikers, and I play Billy Wings; I've got all sorts of wings, and you have to watch the movie to find out what the wings are about.
+- Over the years, I've had about 80 stitches in my head and face from football incidents and bar incidents, so I have lots of scars. I don't think I look intimidating, but I'm sure other people have their opinions.
+- There's good action stars. I'm a bad-guy action star. What disappoints me is when you all of a sudden you get a good action star and then he wants to play a comedy with kids, you know? That upsets me, and that's not being true to your fans.
+- I signed schoolboy forms for Watford when I was 12, but then my parents got divorced, and I never kicked a ball for three years. I rebelled, I left home, but getting back into football sorted me out. It was the second chance I needed.
+- I like Alaska for the salmon fishing - it's fantastic there. I usually stay in a log cabin with no one around for miles. I like to go with friends, but I'm also happy to be on my own with nature.
+- After 'Big Brother,' people came up to me in the street shouting, 'You woz robbed!'
+- I've always felt that people put me down, and I'd fight back. I played football 15 years, and nobody gave me any credit, and they never will do.
+- I always want to try new things, and 'Mean Machine' has given me that chance. I have got plans to carry on acting and would love to play all sorts of roles - you'll see that there's more strings to my bow!
+- I was offered 'I'm A Celebrity...' for a lot of money, but I don't like the level of degradation.
+- Awareness about heart disease has got to be raised.
+- The likes of Frank Lampard and John Terry at Chelsea, English players with proper status at a club, they're going to be like the dodo bird. Extinct.
+- I was captain of Wales; I've been captain of numerous football clubs.
+- I do my independent stuff where it's real acting if you like. Intense, drama stuff. I love me actions.
+- My mum calls my temper 'Devilman.' They say you calm down with age, but I don't know. It never goes away.
+- Look at me - I was the boo boy for years and years. Did I ever think I would end up in Hollywood or the FA Cup final? No, I didn't.
+- I'm a Conservative, but I talk for the ordinary working classes. I get on with the boys at the pub, but I can also mix with Prince Andrew. I understand both levels. The toffs haven't lived in council estates; they've just known big mansions. How can they understand how the postman feels? I would never say no to becoming an MP.
+- I'm lucky in that I travel a lot for work. I also manage several holidays a year. I'm not someone who sits in the sun or goes sightseeing, though. If I go away, it will be for fishing or something like that.
+- I always went to Ireland as a child. I remember trips to Dundalk, Wexford, Cork and Dublin. My gran was born in Dublin, and we had a lot of Irish friends, so we'd stay on their farms and go fishing. They were fantastic holidays - being outdoors all day and coming home to a really warm welcome in the evenings.
+- Film is like football - you join a team, get close to one or two people, then never hear from them again. I don't get emotionally involved. Do one, move on.
+- My parents split when I was 13. For a youngster, it's quite devastating. One minute you're all happy families, then everything changes.
+- Americans don't care what your language is, your race is, whatever. Everyone is there to do their own thing and be successful. I wish people in Britain would be more positive.
+- For some people, becoming a parent does change them, but it never changed me.
+- I've got the FA Cup tattooed on my leg and the Leeds United emblem, too. On my back, I've got, 'It's been emotional,' which is my line from 'Lock, Stock & Two Smoking Barrels.' I'm fond of my tattoos, and I'm still having more.
+- There are a few YouTube clips of me singing at The King's Head in Santa Monica, so you can see how bad I am.
+- People say you can get bored of the sunshine in L.A. No, you can't.
+- John Wayne never ever disappointed his fans, because he was a cowboy.
+- People say, 'I love 'Snatch,' I love 'Lock Stock,' but I want to be more than a movie name. I'd love to be more of a household name.
+- For years in football I was angry with the game, angry with pundits and, a lot of the time, angry with the journalists writing about me. All that changed when I got my break in movies.
+- I buy hats like women buy shoes. I have well over 150.
+- I'd like to be the romantic lead one day, but I've got to grow my hair first.

@@ -1,0 +1,96 @@
++++
+author = "Scott Adams"
+title = "Scott Adams Quotes"
+quotes_len = "90"
+description = "the best 90 Scott Adams Quotes"
++++
+- The most important thing when you study hypnosis is that you learn that humans are irrational. Until you understand that, hypnosis is hard to do... For me, it was this great awakening to understand that humans are deeply irrational, and it's probably the greatest influence on me in terms of my writing.
+- If you drill down on any success story, you always discover that luck was a huge part of it. You can't control luck, but you can move from a game with bad odds to one with better odds. You can make it easier for luck to find you. The most useful thing you can do is stay in the game.
+- I hated my work. It never seemed to me to be what I should be doing.
+- Let's form proactive synergy restructuring teams.
+- For most of my career I did one comic a day, every day, including weekends and holidays.
+- I don't get embarrassed by the same things that other people do. I would say that probably the biggest thing that holds people back is, 'If I do this, I'm going to look like an idiot if it doesn't work out.'
+- 'Dilbert' became popular during the downsizing of the '90s, and job security was a major theme of the strip.
+- I've always defined myself not as a cartoonist, but as an entrepreneur. That was true before I tried cartooning. I always imagined cartooning would be how I got my seed capital. I always thought my other businesses would be the less dominant part of my life.
+- I respectfully decline the invitation to join your hallucination.
+- The best things in life are silly.
+- People vote based on emotion. Period.
+- Before 'Dilbert,' I tried to become a computer programmer. In the early days of computing, I bought this big, heavy, portable computer for my house. I spent two years nights and weekends trying to write games that I thought I would sell. Turns out I'm not that good a programmer, so that was two years that didn't work out.
+- I'm predicting that we'll finally have a computer will search my e-mail automatically and delete every message that begins with 'thought you'd be interested,' and then give an electrical shock to the sender to remind him or her to stop send that kind of message.
+- If there are no stupid questions, then what kind of questions do stupid people ask? Do they get smart just in time to ask questions?
+- I'm primarily just an investor.
+- If your goal is to lose 10 pounds, you may wake up each day with failure in mind because the goal is hard to reach, and you are progressing only by small amounts. It takes up all your willpower. I recommend that instead of a goal, you have a system.
+- Home is pretty utopian.
+- I have an endless stream of suggestions coming in from readers who are in cubicles. That keeps me going.
+- The only risk of failure is promotion.
+- I've tried lots of things. The reality is, I'm excited by everything on Day 1. And if by Day X things aren't working the way I hoped, I lose my passion. I have not seen the correlation between my passion and my success.
+- When you hire that first person, then you're a boss. You've got performance reviews. You've got complaints about not making enough money. You've got people who are just going to sell your story to the tabloids.
+- The creator of the universe works in mysterious ways. But he uses a base ten counting system and likes round numbers.
+- For most people, it's easy to be passionate about things that are working out, and that distorts our impression of the importance of passion. I've been involved in several dozen business ventures over the course of my life, and each one made me excited at the start. You might even call it passion.
+- Beware of advice about successful people and their methods. For starters, no two situations are alike. Your dreams of creating a dry-cleaning empire won't be helped by knowing that Thomas Edison liked to take naps.
+- One strategy for getting ahead is being incredibly good at a particular skill; you need to be world-class to stand out for that skill. In my case, I layered fairly average skills together until the combination became special.
+- The greenest home is the one you don't build. If you really want to save the Earth, move in with another family and share a house that's already built. Better yet, live in the forest and eat whatever the squirrels don't want.
+- We must develop knowledge optimization initiatives to leverage our key learnings.
+- Technology will definitely solve all our problems, but in the process it will create brand new ones. But that's O.K. because the most you can expect from life is to get to solve better and better problems.
+- I try to manage my day by my circadian rhythms because the creativity is such an elusive thing, and I could easily just stomp over it doing my administrative stuff.
+- Obviously there's not much options when you're a cartoonist - you pretty much either work at home or rent an office I guess, and working at home just seems easier.
+- If you have a reasonable system for pursuing success, it can survive a lot of face-plants along the way. That knowledge makes success seem accessible. If you think successful people have some sort of superpower or special connections, why try?
+- If you have any trouble sounding condescending, find a Unix user to show you how it's done.
+- You can never underestimate the stupidity of the general public.
+- I love magazines. It's such McNugget kind of information.
+- Most success springs from an obstacle or failure. I became a cartoonist largely because I failed in my goal of becoming a successful executive.
+- Every skill you acquire doubles your odds of success.
+- I get mail; therefore I am.
+- The longer you work here, diverse it gets.
+- If a job's worth doing, it's too hard.
+- I would sometimes sit in a crowded restaurant, and say, 'You know, I'm the only person in this restaurant who can't draw.'
+- The world is like a reverse casino. In a casino, if you gamble long enough, you're certainly going to lose. But in the real world, where the only thing you're gambling is, say, your time or your embarrassment, then the more stuff you do, the more you give luck a chance to find you.
+- I think 'Dilbert' will remain popular as long as employees are frustrated and they fear the consequences of complaining too loudly. 'Dilbert' is the designated voice of discontent for the workplace. I never planned it that way. It just happened.
+- Engineers like to solve problems. If there are no problems handily available, they will create their own problems.
+- There's nothing more dangerous than a resourceful idiot.
+- My investments have been hurt.
+- If your current get-rich project fails, take what you learned and try something else. Keep repeating until something lucky happens. The universe has plenty of luck to go around; you just need to keep your hand raised until it's your turn. It helps to see failure as a road and not a wall.
+- There are very few personal problems that cannot be solved through a suitable application of high explosives.
+- We don't always have an accurate view of our own potential. I think most people who are frightened of public speaking and can't imagine they might feel different as a result of training. Don't assume you know how much potential you have. Sometimes the only way to know what you can do is to test yourself.
+- If you see voters as rational, you'll be a terrible politician. People are not wired to be rational. Our brains simply evolved to keep us alive. Brains did not evolve to give us truth. Brains merely give us movies in our minds that keeps us sane and motivated. But none of it is rational or true, except maybe sometimes by coincidence.
+- One of the reasons why you like to do your own drawings is, your style changes over time. And there's something about that that keeps it fresh to the viewer.
+- I try to avoid giving advice.
+- Free will is an illusion. People always choose the perceived path of greatest pleasure.
+- In less enlightened times, the best way to impress women was to own a hot car. But women wised up and realized it was better to buy their own hot cars so they wouldn't have to ride around with jerks.
+- The computer cuts my production time in half. I love it.
+- Creativity is allowing yourself to make mistakes. Art is knowing which ones to keep.
+- I think if you talk to anybody who ever went from not having much to having enough to buy what they wanted, they're always happier. Now I get that whole '$75,000 a year is some kind of magic number,' but my experience is 'more is better, up to a point.' Then there's a point where it doesn't make any difference.
+- One way to compensate for a tiny brain is to pretend to be dead.
+- I have a perverse attraction to risk. Not physical risk but emotional, financial risk - anything than can't kill you immediately.
+- Success is entirely accessible, even if you happen to be a huge screw-up 95 percent of the time.
+- Be careful that what you write does not offend anybody or cause problems within the company. The safest approach is to remove all useful information.
+- You give anybody a billion dollars, and of course they are passionate. Passion is one of those things like willpower in that there's 'magical thinking' about it. You've got to be careful about 'magical thinking.'
+- My old life - no amount of getting used to it would have made it right.
+- You don't argue with a four-year old about why he shouldn't eat candy for dinner. You don't punch a mentally handicapped guy even if he punches you first. And you don't argue when a women tells you she's only making 80 cents to your dollar. It's the path of least resistance. You save your energy for more important battles.
+- I'm surrendering myself to the realities of the Internet.
+- In fact, most people are being squeezed in their little cubicle, and their creativity is forced out elsewhere, because the company can't use it. The company is organized to get rid of variants.
+- Nothing inspires forgiveness quite like revenge.
+- Nothing defines humans better than their willingness to do irrational things in the pursuit of phenomenally unlikely payoffs. This is the principle behind lotteries, dating, and religion.
+- Normal people... believe that if it ain't broke, don't fix it. Engineers believe that if it ain't broke, it doesn't have enough features yet.
+- Remember there's no such thing as a small act of kindness. Every act creates a ripple with no logical end.
+- I burned out my drawing hand by using it too much. The common word for it is writer's cramp. The fancy words for it are focal dystonia. The symptom in my case was a pinky finger that went spastic when I tried to draw.
+- Informed decision-making comes from a long tradition of guessing and then blaming others for inadequate results.
+- There's kind of a toll you have to pay with a cat; if you don't pet her for 10 minutes she'll bother you for six hours.
+- There are always deadlines I have to meet. I don't let myself get too close to the deadlines, so it's not like I'm just sweating bullets or anything if the clock is ticking. I never let myself get in that situation.
+- Work is like the rest of life. The best parts are free.
+- I'm not happy on vacation. In those rare times when I have three hours with no work I have to do, I'm terribly uncomfortable.
+- I had several different bosses during the early years of 'Dilbert.' They were all pretty sure I was mocking someone else.
+- Scientists will eventually stop flailing around with solar power and focus their efforts on harnessing the only truly unlimited source of energy on the planet: stupidity. I predict that in the future, scientists will learn how to convert stupidity into clean fuel.
+- It doesn't take many people to have a bad sense of humor to get in trouble at a corporation.
+- Remind people that profit is the difference between revenue and expense. This makes you look smart.
+- I'm a poor artist. Through brute force, I brought myself up to mediocre. I've never taken a writing class, but I can write okay.
+- Rotten bosses don't get better. Any strategy that assumes they can is doomed.
+- Consultants have credibility because they are not dumb enough to work at your company.
+- My failed corporate career became the fodder for the 'Dilbert' comic. Once it became clear I would not be climbing any higher on the corporate ladder, it freed me to mock managers without worrying that it would stall my career. Most failures create some sort of unplanned freedom. I took full advantage of mine.
+- Happiness is nothing but good health and freedom, and money is the single best way you can buy your freedom.
+- Some of my best friends are Venture Capitalists, but let's face it, a hamster with Alzheimer's could make those kind of numbers. It's great work if you can get it.
+- When times are bad, the gloves come off and employers are less nice. People become disposable.
+- Women are treated differently by society for exactly the same reason that children and the mentally handicapped are treated differently.
+- Many, if not most, career opportunities come to you through people you know. So the more people you know, the more opportunities you have. Improving your social network is a great example of a system for moving from lower odds to better odds without having a specific goal.
+- Psychology is the only necessary skill for running for president. Trump knows psychology.
+- You don't have to be a 'person of influence' to be influential. In fact, the most influential people in my life are probably not even aware of the things they've taught me.

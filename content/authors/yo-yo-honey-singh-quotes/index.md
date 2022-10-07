@@ -1,0 +1,99 @@
++++
+author = "Yo Yo Honey Singh"
+title = "Yo Yo Honey Singh Quotes"
+quotes_len = "93"
+description = "the best 93 Yo Yo Honey Singh Quotes"
++++
+- I would never sing a song which I cannot sing in front of my family.
+- I compose for very limited people in Bollywood, as I am not a playback artist. I compose my songs and sing them.
+- I am happy film stars are singing in their films. I hope to work as a music director for a film where actors will sing all the songs.
+- There are many wrestlers in my mother's family. So I guess I've inherited my love for wrestling from my mother's side of the family.
+- For a Punjabi singer to find acceptance down South is a tall task. I'm glad I earned their love and respect.
+- I thought I was passionate about my work. Then I saw Shah Rukh bhai and Bachchan saab at work. Their spirit was so infectious. I felt I had so far been just fooling around.
+- I always maintained I'm a good simple boy from Punjab. Some chose not to believe me. Now the same people are happy to work with me.
+- I didn't have any singing background. Against the wishes of my parents, I got into making music.
+- Nobody can replace Mika Singh; he is an amazing artiste and a legend.
+- I had cut myself off from everyone. I didn't come out of my room, forget stepping out of the house. I had a beard, and I didn't get a haircut for months. For someone who has performed in front of a crowd of 20,000, I was scared of facing 4-5 people. That's what bipolar disorder does to you.
+- I don't want to work more. I want to do limited but good work.
+- Everyone knows it, but no one is willing to digest the fact that the lyrics comprising of slangs can also be a hit among youth.
+- TV is the most powerful medium, which has taken me right into the homes of so many people.
+- I never do any song with any expectation.
+- I started as a music director in Punjab and then started singing.
+- I am not anyone's brother, and I only have one younger sister. I don't consider my counterpart rappers as my brothers.
+- As an entertainer, my first responsibility is to entertain my fans who have made me who I am today. I am not a preacher who can tell youngsters what they should be doing and what they should not be doing. The youth of our country is intelligent enough to know what is good and bad, and my songs can't change their thinking.
+- Everything I wear is custom made.
+- After ten years of struggle I reached somewhere, and then I see some people pulling me down. I tell myself that if this is what singers have to go through, I would never let my kid enter this field.
+- I am either very expensive or free for my friends.
+- I wish to contribute more to south Indian music, especially Tamil music.
+- I come from a business family. I rebelled from my father to become a musician.
+- 'The Xpose' was just an experiment, a small step into Bollywood. It wasn't my acting debut, as reported in Mumbai. I've done a couple of Punjabi films.
+- Just because I take my music international doesn't mean I have to sing in English. I will continue to sing in Punjabi, Hindi, Gujarati, and Tamil. I want to represent my own country through its own languages.
+- I like action-based sports, and kabbadi is my favourite. I wanted to be associated with a sport on which I really believe in, and so I bought a team in World Kabbadi League, and Toronto will host my team.
+- I was looking online; many singers have sung songs for the elections, but I am not doing anything like that.
+- I don't understand why people are going mad about the lyrics I write? Do they expect everyone to become Mirza Ghalib?
+- I'd request politicians to stop diverting attention from the actual issues that affect the country. Please stop resorting to soft targets like singers and musicians as scapegoats.
+- I do not consume alcohol. You won't find a single picture that shows me drinking.
+- Every revolutionary poet or lyricist has been criticised for something. If you come up with something new, there will always be people who will object to it.
+- There are many politicians who are from the Congress or the BJP or the Aam Aadmi Party who are all my friends and who are all young politicians between the ages of 27 and 35.
+- I was born in Delhi, have stayed and roamed the world, but had a tough childhood and career path. Only my mom and mausie supported me in music. So, I would just sing shabad kirtan to remain somehow attached to music.
+- I am a straight, non-alcoholic, non-partying guy who speaks straight. I have no knowledge of literature. This is my language of communication, and what I see, what I observe, I reflect.
+- I never wanted to be a performer, I never wanted to be Yo Yo Honey Singh, the rock star.
+- I did one show in Chennai. There was this little kid, dressed up as I dressed in 'Blue Eyes.' That's fame for me.
+- I am overwhelmed with all the love, affection, and warmth that I have been receiving for 'Dheere Dheere.' It is one of my most special works, and I am glad that so many million hearts have taken to it in such a manner.
+- It's very important to get friends on board, friends who make a difference.
+- I need to focus on other things before I carry on in Bollywood. I can't be doing what I've done in 'Lungi Dance' and now the song 'Party With Bhootnath' with Bachchan over and over again. I've to reinvent myself for Bollywood.
+- I'd never disrespect women. I have been brought up to treat women with courtesy and dignity.
+- Writing songs, making music, and singing is important to me, and I do all three.
+- All my songs depict a slice of life and how youngsters perceive it. My song 'Blue Eyes' is exactly the kind of conversation a 21 or 22-year-old guy will have with the girl he likes.
+- After I did 'Lungi Dance' with Shah Rukh, I felt I had achieved everything there is to achieve. But then I am getting to work with Amitabh Bachchan now. And it's really the ultimate Bollywood experience for me. It really can't get any better for me.
+- The Indian music scene is completely dominated by Bollywood music. We need to create space for indi-pop music.
+- I got a lot of support from the entire industry, stars like Akshay Kumar. A. R. Rahman told me to keep doing the good work and not get bogged down by anything.
+- No one gave me an opportunity, which I desperately needed in my struggling days. If there is one thing that I have learned during that period is that you need to create an opportunity yourself if you want to live your dream.
+- When I composed a song on Bhagat Singh, it flopped. But my other songs about partying and all that are superhits!
+- The guy I played in 'The Xpose' is more like a spoiled brat who likes to have his way than a villain. No more negative roles after 'The Xpose' for me. I've enough problems dealing with the negative image I've been saddled with in some sections.
+- I respect women, and I have not and will never sing anything that will upset my fans.
+- It's never easy for me to say goodbye. I get attached to people very quickly, and with 'Raw Stars,' my connection is even more special. I'm in love with their music and perhaps their biggest fan. I think every artiste on the show is mind-blowing.
+- Even the song that I did for Sanjay Leela Bhansali's 'Gabbar' is an old number. But working with Mr Bhansali was a dream come true.
+- If an offer comes my way, I would love to sing in every Indian language. It will be like an ode to my fans from every corner of the country.
+- My songs are based on my keen observation. I have picked these situations from my surrounding and have presented a real situation about the youth and their mindset.
+- We want to take boxing to the level of cricket.
+- I am yet to have a child, and if I am blessed with a baby girl, and in future, if a guy tries to impress my daughter by singing my hits, I have no issues with it.
+- I don't take my work ever for granted. I still work very hard on every song and try to outdo myself every time.
+- Music industry is a very competitive field, and one has to continuously entertain and excite the audience, which is a difficult task.
+- People are wrong when they say that there is struggle in Bollywood. That is only when you don't have the talent. If you have talent, Bollywood comes to you.
+- I'm sorry, but I am not interested in getting cheap popularity. I've earned my success through sincere hard work. And that's the only success I want.
+- It was very difficult acting. I feel it is a very tough job to portray someone else's character and to behave like that on screen.
+- I had to work on my own to establish myself.
+- When Punjabis all over the world admired my work, there was buzz in Bollywood as well.
+- I love my mother the most in the world. She has seen a lot of poverty and loneliness and is very simple. Whenever I am in trouble, I go far away from her, as she is not at all strong. If I see her breaking, I break.
+- My dream is to take the Indian independent music scene to an international level. People like Alisha Chinai, Baba Sehgal and Daler Mehndi took it to a very high level. My ultimate target is to win a Grammy. I don't want to primarily be a Bollywood playback singer.
+- When I was child, I saw the 'Ram Leela' performed on stage. Now there is the film 'Ram Leela,' and its maker actually wanted me to do a song for Akshay Kumar in 'Gabbar.' Akshay was one of the first Bollywood A-listers to believe in me. We jelled before we jammed together.
+- The kind of songs I sing have been existing in Bollywood music since a long time. In fact, the reason my music is so popular amongst the millions of youth is because I sing in their own language, in their own slang, and about their lives.
+- As an artiste, I believe that I am not my own property. I am the property of my fans.
+- I've seen my family watch TV every day, and they develop a liking for various characters more and more with time. So, I think TV does bring a celeb closer to his fans. I feel I have come closer to people without losing my raw appeal.
+- I am not interested to sing in Bollywood. I sing for only those actors whom I admire. I sing free of cost for them. I want to take independent music ahead, and my songs are completely based on my observations.
+- We celebrate Valentine Day, but no one remembers Bhagat Singh birth anniversary.
+- My family didn't want me to be a musician, and therefore, they never helped out in my efforts.
+- I think acting is the most difficult one among all the performing arts.
+- Have you driven a Rolls-Royce? There is a difference between a Rolls-Royce and a Nano.
+- I believe an artiste is a reflection of society. I write what I see. I am not a scholar, I am just an entertainer. I cannot change the way people think.
+- It's a misconception that I compose songs for girls. I have sung a song for Bhagat Singh, too, but nobody knows about it. I have sung about boys, but all of them are super-duper flop.
+- I used to be the occasional social drinker earlier. But now my intake of alcohol has ceased completely. I want to be fighting fit for the boxing ring.
+- My playground as a musician is growing.
+- I have fulfilled all my dreams in Bollywood. Now I have to find new dreams for Bollywood before I strike again.
+- Fame, for me, is different. Fame, for me, is not seeing myself on big billboards: it is when I go on a street and people connect to me. If I going to walk on the street, I know I can get 100,000 people following me.
+- I was never seen with one girl in a video, right? My videos always had many girls.
+- I'm working on an international album which will be out soon, and Lollypop is gonna be a part of it. I want to let the world know what happens when a desi song is remixed with Honey Singh's English Tadka.
+- If you see me as a controversial artist or controversial human being, then I could be cashing in on some reality shows. I am not doing anything like that. That's not my aim.
+- When some artistes give a hit song, they keep repeating themselves in the same genre. I always try to create something new.
+- I am overwhelmed for whatever I have achieved so far. I give the credit to my mother and everyone who has helped me.
+- I don't consider myself just a rapper or just a singer. I'm a music producer, lyricist. I'm a poet as well, and acting is also a part of big entertainment.
+- I feel extremely honoured and humbled that people are showing me so much love. My fans have stood by me through thick and thin, and I think this love is what makes my concerts house-full.
+- Just as I have broken the monopoly of film music as being synonymous with popular music in our country, I want to prove that cricket is not the only glamorous sport.
+- In 2011, I released my first album called 'International Villager.' I had no support, and whatever money I had made, I put it all in the album. I shot the music video for 'Brown Rang' with one lakh dollars. I spent so much money, as I just wanted to put it up on YouTube, as I knew that my market was there, and it became a huge hit.
+- I'd sing for any friend's happiness. I don't have to get drunk to do so.
+- The truth is I was suffering from bipolar disorder. It went on for 18 months, during which I changed four doctors, the medication wasn't working on me, and crazy things were happening.
+- Girls have been suppressed for long. Crimes against women are on the rise because women have the courage to come out in the open and fight the perpetrators of these heinous crimes.
+- I am glad that my fan believed in me and stood by me in my hard times and continued to enjoy my songs. That's the real victory for me.
+- It is a tough job to portray a character and make it believable on screen.
+- I am excited to partner with American Swan and to be able to connect with the youth and inspire them to chase their dreams and script their destinies.

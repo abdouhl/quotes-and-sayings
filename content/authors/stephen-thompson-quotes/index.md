@@ -1,0 +1,106 @@
++++
+author = "Stephen Thompson"
+title = "Stephen Thompson Quotes"
+quotes_len = "100"
+description = "the best 100 Stephen Thompson Quotes"
++++
+- I love Montreal. I love the people, I love the history.
+- If you see my fights with Jake Ellenberger, Johny Hendricks and Rory MacDonald, I went out there and just had fun.
+- People always ask me what will happen if I lose, and I never really thought about it until they asked me.
+- You can defend a single-leg takedown a little bit easier than you could a double-leg takedown.
+- I think Rory MacDonald is a great striker, I think Jorge Masvidal is an excellent striker.
+- You just have to put in the work. Work really hard, get a good coach and a good gym. You have to have the right mindset to be a champion. Don't make excuses on going to the gym like your ankle is sore or what.
+- I was like 'You know what? I'm training with these champions. Guys like Georges St-Pierre, Rashad Evans, Nate Marquardt... Let me give this MMA thing a shot.'
+- I was beating Anthony Pettis. I know nine times out of 10 I would have defeated him. It's just that one time you barely get clipped and down you go.
+- Everybody asks 'would you fight Conor McGregor?' - of course I'd fight Conor McGregor but it's not because of the money. It's because he's such a huge martial artist and everybody considers themselves the best if you fight Conor McGregor, if you beat Conor McGregor. I look at it like that.
+- If I do lose, it will just give me a stronger drive to train harder.
+- After my last fight with Woodley, I ended up hurting my knee so I was out for almost six months.
+- Of course I've been called everything; Wonder Wonder Woman, Wonder Bra, Wonder Bread.
+- Ben Askren, he's a tough boy. Golly, he's a tough boy. That's what wrestling does. When you wrestle your whole life, you got to be a tough dude to wrestle.
+- As a fighter my goal is not to get hit and frustrate my opponent. Once I get you frustrated then I got you.
+- I spent some time with Anderson Silva and Lyoto Machida when they were training at Blackhouse in California. This was before I was in the UFC.
+- A lot of people think martial arts are just fighting, but it's character-building, too, and I want to give back.
+- From what I've seen he keeps his right side forward, he throws his left hand, throws his left leg and likes to throw a few elbows, but to be honest with you, I'm not very impressed by Darren Till - I think Masvidal is a better fighter. I think he brings more to the table than Darren Till.
+- During the fight, if you feel something, you know it's pretty bad, because normally you don't feel anything. You get punched and elbowed in the face, you don't feel it until after the fight.
+- I'm a martial artist. That's what I've been doing since I was three years old, and fighting since i was 15 and that's all I know how to do. The money is just a bonus. It's a bonus for me. I think my real job is teaching martial arts, it's what I love to do.
+- I've always been a fan of those guys. My dad was in military school and I have a bunch of buddies that are Marines, and I just kind of want to give back to those guys that gave more than enough for us.
+- All I want to do is what I do best: go out there and put a hand or a foot upside somebody's head.
+- Matt Brown did exactly what he said he was going to do. He kicked my butt. But it was a war. I would love to do it again. Matt Brown's a good dude and a great fighter. He's made it up to the top and man, he's a monster.
+- You see a lot of fighters who just got into the UFC getting a lot more recognition than the people who have been in there.
+- I try my best not to get hit. I don't like getting hit.
+- Elvis was a seventh-degree black belt in karate. My dad knew that he couldn't dance like Elvis or sing like him, but he thought maybe he could try karate, and he fell in love with it.
+- I've known guys who've got knocked out and they get back in there too soon, next thing you know they get clipped and they're out again.
+- I learned a lot during the Matt Brown fight.
+- Robert Whittaker is definitely a different fighter from when I fought him last. His takedown defense is ridiculous - ridiculous - and his cardio is out there. Like, the guy does not get tired.
+- I'm not the type of guy to back down from anybody. I think if you want to fight in the octagon you have to have that mentality.
+- To be honest with you, getting knocked out isn't that bad. It's not what everybody makes it out to be.
+- Anybody who fights McGregor is going to have a good payday. He's one of the best guys in the UFC.
+- A lot of people look down on people who are successful, but Conor McGregor is successful because he runs his mouth and he knows how to put on a show. I mean, look at his press conferences. I mean, come on. People show up just to see him just act nuts. Hats off to that guy, he's a very intelligent, very smart guy.
+- I believe that God gave us gifts to help serve Him and He gave me the gift. I'm a people person. I'm also an instructor at Upstate Karate, but I've got the gift of fight, man. After every fight, I try to give all the glory to Him. I believe He gave us, like I said, the abilities to do that.
+- When I was 15, I fought a guy who was 26 and he was 20-0, undefeated. It was a way for my dad to show me that I was better than I thought. I ended up beating the brakes off this 26-year-old guy. After the fight, the announcer asked my opponent how it felt. He answered, 'I wonder why I stepped in the ring with that boy.'
+- No matter how much it hurts, you gotta stay focused on what you're there for and your goals, just don't give up.
+- I've never really had any beef with anybody yet, so I think that's a good thing.
+- Sometimes people say, 'You've got to go out there and grit your teeth and just throw.' That's never been my style, but I think I need to be a little bit more aggressive instead of counterpunching.
+- I'd fight for free to be honest with you.
+- I believed I could knock out Rory MacDonald, Johny Hendricks and Jake Ellenberger, and sometimes it happens, sometimes it doesn't, but I know I can knock these guys out.
+- We kind of understand at this level of the game when you work your way up to the top there's a possibility you may be facing somebody you've trained with before.
+- Anybody in the UFC has a chance to knock you out.
+- Michael Bisping, in one of his last fights, he stepped out there too soon. He had a brutal fight with Georges St-Pierre and then real quick jumped in against Kelvin Gastelum and just got put away. If you do that, if you step out there too soon... this is your livelihood.
+- I do respect everybody who I step in the Octagon with.
+- You gotta be ready in this game. Like when Michael Bisping knocked out Luke Rockhold. I thought... everybody thought that Luke Rockhold would go out there and just smoke him and then Luke Rockhold got clipped.
+- To be honest with you, Conor McGregor at 170, I think he's just going to be thrown around like a little rag doll.
+- I've been fighting since I was 15 years old, so I've had pretty much everything that could be said, said to me.
+- I'm a better, well-rounded fighter than people think.
+- When you're out there in the octagon and you've got thousands of people, millions across the world, either cheering for you to win or cheering for you to get knocked out, the adrenaline is going, so it doesn't hurt while you're out there. Now fast forward to about an hour and a half to two hours after the fight? Oh yes. It's pretty painful.
+- I just want to be able to say I fought the best fighters in the world.
+- I know that pretty much everybody I face is going to wind up wanting to take me down eventually.
+- Crap happens, you know? It happens, especially when you're in this sport long enough.
+- I understand it's part of the sport, part of the game to have people who like you and people who don't.
+- Constantly moving, from side to side. Keeping your opponent guessing. If you stand still long enough, a wrestler is going to shoot for your legs. He's going to see where your legs are at. But, if you keep him constantly guessing, they can't get a bead on those legs. So, constant movement is probably one of the best takedown defenses you could use.
+- If I started talking trash right now, people would just tell me to shut up, 'That's not you, Stephen - be quiet!'
+- Of course, you've got Lyoto Machida. He's definitely a karate guy and he's made a big presence in MMA. I would say look up Lyoto Machida. There are some other karate guys who are phenomenal at what they do at their karate game, the point fighting game, Raymond Daniels, who is an amazing point fighter and very flashy.
+- You do have those guys that talk a lot. I understand they're doing it for a reason, to hype a fight, but then you get guys who do it and you can tell that they're trying too hard.
+- Taekwondo, those are some major kickers right there. That's what they bring. That's all they do is the kicks. They don't have the punching and the ground but it's more of a kicking art than anything.
+- I rage playing video games. I think that's the only time you will ever hear me say a cuss word.
+- No disrespect to Matt Brown, he's a great fighter, but I think I got and have what it takes to beat him.
+- Ben Askren, he is a very strong wrestler, probably the best in the division, I think. But then again, when you're in the fight game like this, some of the other things you have to improve. It can't just be wrestling all the time. You got to continue to work on your striking, get better at that.
+- Demian Maia, he's a tough, scary guy.
+- Nobody wants to see Thompson vs. Woodley 3, and I kind of understood that.
+- I'm going to give it my all to get that title. And whether I make it or not, I'll know I've competed with the best. And that's enough for me.
+- I know I can be the welterweight champion.
+- I've had many fights, but this is the biggest stage I've ever fought in. The UFC is the best.
+- I'm constantly working my wrestling and jiu-jitsu, which is going to make me more confident in the Octagon.
+- If you're strong mentally, you can do anything.
+- Kamaru Usman is a great champion.
+- Anybody in the division's top 15 I would love to fight.
+- I've been called all kinds of stuff, it's part of the game. You take it personal, then you're in trouble. It will affect you, your training. It comes with the territory.
+- Movement is everything when it comes to the fight game.
+- You see this with fighters all the time, if you're not staying active, you're kinda put on the shelf a little bit.
+- I know what martial arts have done for me. They've taught me integrity, self-control, perseverance and an indomitable spirit.
+- Sometimes, you get kickboxers and all they've done is striking and they don't have the wrestling or jiu-jitsu background that I have had since I was young.
+- To be honest, any one of those guys that I've stepped in the Octagon with - Darren Till, Anthony Pettis, Tyron Woodley - I would love to step back in the Octagon with those guys.
+- The average MMA guys have a boxer's stance which makes it easier for a wrestler when they try and take you down. I tend to stand sideways and that gives them only one leg to shoot for, it tends to make it more difficult to try and take me down.
+- Magny is a dangerous guy. He's a good fighter.
+- You never go into the ring feeling 100 percent.
+- Everyone in the UFC is good. If you're at the lowest end or the highest end, you have a chance to get knocked out and put to sleep.
+- Whenever I fight, whenever you see me fight, I work a lot off of angles, using my kicks a lot.
+- There were a few times in previous fights where I was hurt. It's just a matter of not giving up, if you know what I'm saying.
+- I know I can knock Robbie Lawler out.
+- You never know what the UFC's going to bring.
+- I'm a striker.
+- My dad grew up in a little place near Charleston called Moncks Corner.
+- It's difficult when you step out there with somebody like me and my offense.
+- Me coming from a karate and kickboxing background, Anderson Silva was like my idol, and so was Machida, especially with his karate background.
+- A lot of people think you're not the champion until you defend it one time.
+- Striking is what I do.
+- Thank goodness I was blessed with a hard head.
+- I wouldn't say I'm the best MMA fighter but I'm working on it every day and I'm getting better and better.
+- In kickboxing, if I walked around at 185 pounds, I fought at 185 pounds.
+- From what I've seen of Darren Till, he's very durable. He likes to throw that left hand so he has a chance to knock people out.
+- Everybody wants to see somebody get knocked out. I'm sorry but it's the fight game and that's what they want to see.
+- Everybody asks me, 'Hey, what's your most memorable fight?' For me, it's definitely the Matt Brown fight.
+- You know I tore my MCL in the fight with Till. We did an MRI and thankfully nothing else was damaged.
+- Conor has taken the UFC to a whole new level. It's his whole demeanor that appeals to me. He's a fighter, he's a Viking, and on top of that, he's got the gift of gab.
+- I'm definitely going to work on some techniques that hopefully will throw my opponents off and really allow me to open up whenever I'm out there fighting.
+- Georges St. Pierre, if he wants to take you down, you're going down.
+- People want to see fighters get punched in the face.

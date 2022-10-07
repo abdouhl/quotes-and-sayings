@@ -1,0 +1,18 @@
++++
+author = "Wilhelm Von Humboldt"
+title = "Wilhelm Von Humboldt Quotes"
+quotes_len = "12"
+description = "the best 12 Wilhelm Von Humboldt Quotes"
++++
+- It is usually more important how a man meets his fate than what it is.
+- I am more and more convinced that our happiness or our unhappiness depends far more on the way we meet the events of life than on the nature of those events themselves.
+- If we glance at the most important revolutions in history, we see at once that the greatest number of these originated in the periodical revolutions on the human mind.
+- War seems to be one of the most salutary phenomena for the culture of human nature; and it is not without regret that I see it disappearing more and more from the scene.
+- Language makes infinite use of finite media.
+- Only what we have wrought into our character during life can we take with us.
+- True enjoyment comes from activity of the mind and exercise of the body; the two are ever united.
+- How a person masters his fate is more important than what his fate is.
+- Coercion may prevent many transgressions; but it robs even actions which are legal of a part of their beauty. Freedom may lead to many transgressions, but it lends even to vices a less ignoble form.
+- However great an evil immorality may be, we must not forget that it is not without its beneficial consequences. It is only through extremes that men can arrive at the middle path of wisdom and virtue.
+- The government is best which makes itself unnecessary.
+- Wherever the citizen becomes indifferent to his fellows, so will the husband be to his wife, and the father of a family toward the members of his household.

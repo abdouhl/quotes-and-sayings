@@ -1,0 +1,16 @@
++++
+author = "Dave Holland"
+title = "Dave Holland Quotes"
+quotes_len = "10"
+description = "the best 10 Dave Holland Quotes"
++++
+- It was only when I started to dig my heels in that I started to realize that's what I needed to do - that nobody was going to open the door for me, that I had to make some space.
+- You have to find a way to protect yourself in a certain way from people who are constantly demanding your time.
+- I think there is great interest amongst the younger people in this music. I think that there is a lot of them that are looking for interesting situations and music that is stimulating.
+- I want to be surprised by what people do, I don't want to work with people who need to be told what to do. I want people to show me what they've got.
+- All of the musicians when I was young used to always say you had to tell a story when you're a musician.
+- I started playing with a group of young people when I was 13. I turned professional when I was 15 and I played dance halls, this on bass guitar.
+- In fact, jazz has such a great feeling and great emotional content that it really doesn't require you to have technical understanding of it. I think you just have to allow your feelings to go with the music and you will find yourself carried along by it fairly quickly.
+- To me, at its best, that's what art should do, perform both the emotional and intellectual function.
+- The whole point in developing your own style is to find your own voice.
+- I think that what is important is that the music be honest and direct and that it is relevant to today. I think music needs to be of its time and speak to that time.

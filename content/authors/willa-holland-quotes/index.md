@@ -1,0 +1,14 @@
++++
+author = "Willa Holland"
+title = "Willa Holland Quotes"
+quotes_len = "8"
+description = "the best 8 Willa Holland Quotes"
++++
+- I think that at 21, I still look like I'm 17 years old, so I feel like I'm going to be playing teenagers for a while, and that's a very relatable stage in a teenage life for a female - that kind of rambunctious stage.
+- I'm so proud of this show and I'm really stoked that fans were so enthusiastic about the show so quickly. I mean, I got recognized for 'Arrow' at the airport when I was headed to Vancouver to shoot the second episode. That was kind of crazy.
+- Adapting a Judy Blume book is something I really wanted to do, and you couldn't grow up in the '90s without knowing about 'Tiger Eyes' and reading it. It should've been assigned to all teenage girls.
+- I'd love to work with Julia Roberts and Johnny Depp or Dick Van Dyke. I love 'Mary Poppins' - when I was little I was obsessed with it.
+- The fashion world has always been part of my life.
+- I like long floaty clothes that don't restrict me, and I live in flat boots.
+- It's so much fun to play the bad girl. Everybody has that little side of them they never really get to get out.
+- I enjoyed 'The OC' immensely but I want to expand my horizons more before repeating myself.

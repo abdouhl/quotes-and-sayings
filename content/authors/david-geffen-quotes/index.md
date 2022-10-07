@@ -1,0 +1,28 @@
++++
+author = "David Geffen"
+title = "David Geffen Quotes"
+quotes_len = "22"
+description = "the best 22 David Geffen Quotes"
++++
+- Happy is harder than money. Anybody who thinks money will make you happy hasn't got money.
+- Anybody who thinks money will make you happy, hasn't got money.
+- HIV infection and AIDS is growing - but so too is public apathy. We have already lost too many friends and colleagues.
+- I never went to business school. I was just bumbling through a lot of my life. I was like the guy behind the curtain in The Wizard of Oz.
+- I just needed a job. Before being hired as an usher at the CBS Theatre, I didn't even know there was a show business!
+- I intend to be me. Whatever that is.
+- I thought I'd be a success even back in the mailroom at William Morris.
+- I'm Billy the Kid, the fastest draw. It's not arrogance. It's the truth.
+- I believe we're all in denial about the people we love.
+- Broke is a Hollywood term!
+- To be able to live and work in the United States is a privilege.
+- I would say that Bob Dylan is as interested in money as any person I've known in my life. That's just the truth.
+- It's the perfect definition of a settlement. Both parties didn't get what they wanted.
+- In Hollywood people lie to each other and cheat each other and then go and play tennis. But I don't want to be a tennis player.
+- Steven Spielberg and I have tremendous amounts of money.
+- Move to California. Malibu is paradise.
+- I am truly my mother's son.
+- You have an idea of the way you think it is, and it's not that way at all, it's something else.
+- The opportunity for an entrepreneur to start a company from scratch today is abysmal.
+- It's easy in music to tell what's good. It's hard to tell what's bad.
+- It's very easy for me to thank everyone for the incredible contribution they've made to my life.
+- My mother taught me to love my work. I learned everything about business from her.

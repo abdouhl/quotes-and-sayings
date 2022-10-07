@@ -1,0 +1,21 @@
++++
+author = "Paul Ince"
+title = "Paul Ince Quotes"
+quotes_len = "15"
+description = "the best 15 Paul Ince Quotes"
++++
+- I'm taking it step by step and not thinking at all about a new contract.
+- Of course, I will keep myself fit, keep my boots clean and you never know.
+- I just didn't want to walk away from football without knowing what it meant to be a manager, or even wondering what it was like to be sacked.
+- It's a shame the Manchester United situation turned sour.
+- When I retire I'm gonna bet on Wolves drawing every game. I'll be a multi-millionaire!
+- I love tackling, love it. It's better than sex.
+- The problem is, when you come back in you're sweating, so I wait until the very last minute before putting on my shirt so that it's not covered in sweat.
+- Marcel Desailly was pretty hard when I played against him in a Milan derby.
+- I like to knuckle down and get on with my job. I'll make mistakes, I'm bound to, but I'll write them down and I'll learn from them.
+- The best player I've ever played with was Paul Gascoigne. He had everything. He was amazing.
+- It's not just what you do on the pitch, it's what you do off the pitch.
+- We do not want to be giving quality sides such as Southampton, Palace, Norwich and the rest eight or nine points start and expect to get back up with them.
+- We can't keep playing catch up as we have done for every season I've been here.
+- Liverpool fans were great to me, I still live near the city and they always come up and shake my hand.
+- I don't like publicity, being in the limelight.

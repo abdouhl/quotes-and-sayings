@@ -1,0 +1,52 @@
++++
+author = "Wim Hof"
+title = "Wim Hof Quotes"
+quotes_len = "46"
+description = "the best 46 Wim Hof Quotes"
++++
+- Arthritis, Crohn's disease, psoriasis, depression - all of those diseases are a result of our neglected biochemistry. We need to be stimulated to help fight disease. Cold is a great stimulator.
+- In the cold I centre myself and my breathing to transfer all my heat into the centre of my body.
+- The whole medical industry wants us sick.
+- I'm able to control the body through just the power of the mind.
+- Over time, we as humans have developed a different attitude towards nature and we've forgotten about our inner power.
+- I think of the cold as a noble force.
+- I never had a teacher, and I never had lessons, other than hard Nature itself.
+- I want to show everyone in this world that the soul is the source of our happiness, strength and health. Love actually comes from the soul, from the light.
+- I've done about anything I can fantasize about in the cold.
+- Your brain has the power to modify your pain perception.
+- Love is my mission.
+- I don't bother with gyms, I just workout where I happen to be whether it's in the garden or at home.
+- I want people to find their inner depth.
+- Breathing and using cold, through cold showers and experiences, provides a boost of performance compared to anything that would be possible if the person had not done that.
+- Sometimes you don't know why but you feel attracted to do something.
+- Men need to laugh more.
+- When there is no oxygen the muscles become acidic and we can't perform any more.
+- With work and life, your true depth can become an alien thing to you. Your gut feelings, your instincts become buried.
+- That's what nature meant us to do, breathe deep when we are stressed.
+- I know my body. I know my mind. I know what I can do.
+- Anybody is able to doubt me. I say, 'Come with your criticism to polish the diamond of the truth.' People need to wake up to their own power. Everybody has this nature.
+- I want to stop war, and I want to stop disease.
+- Breathing exercises produce brain waves.
+- I love working out to Michael Jackson.
+- I found by deeper breathing, going into the cold, thinking about it, dealing with it; getting the conviction that my ability to breathe deeper is making connections with my body.
+- As one can solve maths by concentrating do I focus on certain places in my body and generate heat because of it.
+- I had to find the interconnection of my brain together with my physiology.
+- The cortex is the enemy.
+- It's a great honour to have the nickname of Iceman, it makes me feel very proud of my achievements.
+- Every body has mind power, I have learned to direct it toward my body and thus influence the cold and heating-system of my metabolism.
+- We are built to be happy, strong and healthy. I fear not to live. We have everything to live up to our dreams. You have everything to achieve that, and in a very short period of time you can get all the tools to manifest who you want to be.
+- Yes, my teacher is the cold.
+- Fear is a great signal. It's like a pain signal. Hey, look at me, look at me. Get your focus right over here, at the pain.
+- Nature is so merciless - but so righteous.
+- We are estranged from our own deeper physiology because we are no longer in contact with nature. Instead, we are controlling nature with air pollution, heating, technology. But you have to know you have a depth within yourself which needs to be stimulated. If it doesn't get stimulated it becomes weaker, like a muscle that's not being used any more.
+- Cold water is merciless, but righteous.
+- I'm not afraid to die. But I'm afraid to not live.
+- I had a stroll like this in the park with somebody, and I saw the ice and I thought, 'what would happen if I go in there?' I was really attracted to it. I went in, got rid of my clothes. Thirty seconds I was in. Tremendous good feeling when I came out, and since then, I repeated it every day.
+- We as a species have unlimited power of our mind. We can make anything happen.
+- Cold is merciless. It shows you where you are. What you are.
+- Deep breathing changes the chemistry of the body by bringing oxygen into the tissue.
+- I feel like I can control my own body as if I have a thermostat that I can adjust when I need to.
+- For me, God is cold.
+- I completed five half marathons in 2002.
+- I fear not living fully.
+- When I am performing ice immersion, actually I do not think very much. It is all before.

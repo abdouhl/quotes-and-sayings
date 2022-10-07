@@ -1,0 +1,116 @@
++++
+author = "Erik Larson"
+title = "Erik Larson Quotes"
+quotes_len = "110"
+description = "the best 110 Erik Larson Quotes"
++++
+- At some point in the idea process, I simply wear myself down and force myself to choose. But here's the thing: Once I do choose, suddenly all the other possibilities wither and die, and thus I never have a backlog of well-formed ideas waiting for me when my latest book gets finished.
+- I went to public school on Long Island, and it seemed every year we were being taught that you had a right to a fair trial and a right to confront your accuser.
+- The sinking of the Lusitania wasn't the proximal cause for the U.S. entering WWI. It was almost two years between the sinking and the war declaration, and President Wilson's request for war never mentions the Lusitania.
+- To me, nuclear weapons are the secret crisis of our time. Frankly, everyone needs to reread John Hersey's 'Hiroshima.'
+- I do think hubris played a role here as well, the belief that the Lusitania was too big and too fast to ever be caught by any submarine, and that, in any case, no U-boat commander would think to attack the ship because to do so would violate the long-held rules governing naval warfare against merchant shipping.
+- What drove me to do 'Dead Wake' was that after doing the most preliminary of reading and scoping out what kinds of materials might be available in archives and so forth, I realized that this book - the research, the writing - would present me with a rare opportunity to explore to a full extent the potential for suspense in a nonfiction work.
+- In 1900, 45 steamship lines served Galveston. Twenty-six foreign governments had consulates there. The storm damaged its reputation as a safe place for substantial investment by railroads then seeking to dominate various trans-continental routes.
+- For 'Thunderstruck', I discarded about a dozen ideas. And then one afternoon, I was thinking about wireless. I don't know why. I guess because it's become so ubiquitous. I was thinking that maybe there's something I could do about the origin of wireless, so I did what any self-respecting person does these days: I Googled 'wireless.'
+- I have found from experience that it is often interesting and useful to start from the edges and work inward - another flaw of mine. I seldom approach things directly. I would have made a great moth.
+- The telephone call that forever changed the lives of the Dodd family of Chicago came at noon on Thursday, June 8, 1933, as William E. Dodd sat at his desk at the University of Chicago.
+- A writer could spend years reading already-published books just to gain a grasp of the historical terrain.
+- I find diplomatic histories the dullest of histories.
+- If I'd been living in Berlin in 1933-34, could I possibly have foreseen the Holocaust and all the corollary horrors of World War II? And if I had, would I have done anything about it? I also started to wonder: how does a culture slip its moorings?
+- That's what I love about history - nuance. I don't believe in unalloyed heroes. Everyone's got warts, and everyone's got a surprise side.
+- Room 40 knew a U-boat was heading south to Liverpool - knew the boat's history; knew that it was now somewhere in the North Atlantic under orders to sink troop transports and any other British vessel it encountered; and knew as well that the submarine was armed with enough shells and torpedoes to sink a dozen ships.
+- The Lusitania is important, of course, because this is where Germany began its maritime campaign using this brand-new weapon. We have to appreciate how the submarine, as a weapon against civilian shipping, was a particularly novel thing - so novel that many people at the time dismissed its potential power, its potential relevance.
+- In 1933, the Gestapo was founded to become - to be a secret police agency to keep tabs on political opposition and so forth. Brand-new as of April 1933.
+- There is no secret orchard where ideas grow. Oh my, do I wish there were.
+- I'm open to writing just about anything. I love writing the books that I write. They do tend to be on dark subjects, but I don't think of myself necessarily as a dark-humored person. I like having a lot of fun.
+- Hitler was such an anomalous character - he was so over-the-top chaotic in his approach to statesmanship, his manner and in the violence which overwhelmed the country initially. I think diplomats around the world... felt like something like that simply would not be tolerated by the people of Germany.
+- The Lusitania is a monument to this optimism, to the hubris of the era. I love that, because where there is hubris, there is tragedy.
+- I figured I was going to apply to one journalism school and let fate take a hand.
+- The head of the hurricane research division, Hugh Willoughby, told me that hurricanologists can predict the behavior of storms if those storms behave predictably.
+- I started reading the big histories and the small histories, the memoirs and so forth. At some point, I found the diary of William E. Dodd.
+- I don't really have a bucket list, but if I did, one entry would be to dust off my college Russian and spend a big chunk of a year reading, or trying to read, 'War and Peace' as it was meant to be read, in Russian, with all that rumbly rocks-on-rocks poetry inherent to the language.
+- I was in Bucks County at the 'Bucks County Currier Times,' which is a great place to start for any reporter who wants to start out.
+- I don't listen to music when I write, but I do turn on appropriate music when I read portions of my manuscripts back to myself - kind of like adding a soundtrack to help shape mood.
+- How you frame a debate is very important. When you call someone an 'illegal alien,' you've already stacked the deck against them.
+- When I'm considering an idea, and there is an element of hubris involved, I generally feel comfortable that it's going to be a good story. Pride goeth before a fall. It's an element of a lot of big stories.
+- My secret weapon is my wife. She's the best judge. She's a scientist and a natural reader. We've developed a detailed code for how she marks a manuscript, and I think it's what saves me from wild digressions.
+- The thing I always tell my writing students - I'm not a full-time instructor, by any means, but periodically I've taught writing students - what I always tell them is that the most important thing in narrative nonfiction is that you not only have to have all the research; you have to have about 100% more than you need.
+- Trying to find ideas is the hardest part of my job. You'd think it would be the most fun. Just sitting around reading whatever I want, going to cafes and libraries. But I always feel so unproductive. I think I was raised too well by my parents.
+- I pride myself on having a journalistic remove.
+- It was a civilian ship, and the Lusitania could outrun any submarine. So this population of people was very confident that Cunard and the Royal Navy would be looking after them. Why weren't they under convoy? That's the real question.
+- When I'm in New York, I have, like probably everybody else in Manhattan, a white-noise generator to use at night: a Marpac Dual-Speed Dohm-DS. It is terrific. I've never slept better in the city.
+- My favorite zone is from 1890 -1915, that zone that spans the overlap of the so-called Gilded Age and the Progressive Era. People had such a boundless sense of optimism; They felt they could do anything they wanted to do, and they went out and tried to do it.
+- The toilet from time to time imparted to the boat the scent of a cholera hospital and could be flushed only when the U-boat was on the surface or at shallow depths, lest the undersea pressure blow material back into the vessel.
+- 'The Devil in the White City' - the 'White City' was the nickname for the World's Fair of 1893, the World's Columbian Exposition in Chicago.
+- As a rule, I am very skeptical of tying books to anniversaries. I don't think readers care. I also feel that it just about guarantees that somebody else will be writing a book on the same subject, but being a former journalist, I'm always interested in, like, why write about something today? Why do it now?
+- I started deliberately looking for characters, ideally outsiders and ideally Americans. So I just started reading widely, as I tell my students to do: read voraciously and promiscuously.
+- I write to be read. I'm quite direct about that. I'm not writing to thrill colleagues or to impress the professors at the University of Iowa; that's not my goal.
+- I knew Berlin would have to become a kind of character in my new book, 'In the Garden of Beasts'. I had felt likewise about Chicago when I wrote 'The Devil in the White City' and Galveston with 'Isaac's Storm'.
+- With my research, I really need absolute confirmation of what actually happened, direct physical connections to the past.
+- A very important part of my workday are the two Nunzillas on my windowsill. They keep me constant company. They're little windup toys, and when they move across the desk, they spark from the mouth. I think of them as my editors. They sort of remind you that the world can be a silly place.
+- It's essentially taught in high school and college survey courses as an item on a timeline: 'The Lusitania was sunk; the U.S. gets into World War I'.
+- Captain William Thomas Turner, hero; villain, Schwieger. As I started doing research into him and into the submarine and so forth, I found that I was growing increasingly sympathetic to him. He's a young guy, 30, handsome, well-liked by his crew, humane.
+- My goal is to produce as rich and historical an experience for the reader as I possibly can, to the point where when somebody finishes reading the book, he or she emerges from it with a sense of having lived in the past.
+- Since I loathe the tedium of gym workouts, I take breaks for tennis with my eclectic group of tennis pals.
+- One of the things I've always loved is collecting telling little details.
+- As a writer, you always try to imagine, 'What if I were in a situation like this? How would I react?'
+- I usually look for stories with barriers to entry, something complex enough that no one else is going to do it.
+- At first glance, the story of the Lusitania doesn't seem like the sort of thing I would take on. I usually like ideas that are a little bit more complex, things that people don't know about - or maybe they once did, but now you bring it to life for them for the first time.
+- Whenever I finish a book, I start with a blank slate and never have ideas lined up.
+- There's a powerful appeal in the 'I didn't know that' effect. I love it when people say, 'Gosh, I didn't know that.'
+- The writer marks the changes he wants to make, while a proofreader also goes through the galley, checking it page-by-page against the manuscript. Once all these changes are identified, a second-pass proof is made, and this, too, gets sent to the author and the proofreader, and the process begins anew.
+- I think, one day, I might actually try writing a bunch of - a collection of essays maybe on the funnier side of the spectrum. I don't know. But it's fun to have, frankly, Twitter as kind of an outlet. When you're writing about dark things all day, it's kind of fun to have fun.
+- Every time I sit down to reread 'War and Peace' - I've read it three times - I feel as though I've lived another life.
+- There is something about the name Berlin that evokes an image of men in hats and long coats standing under streetlamps on rainy nights.
+- I've met many Holocaust survivors who find the era infinitely compelling because they have this deep hunger to understand how it all could possibly have happened.
+- Reading is such a personal thing to me. I'd much rather give someone a gift certificate to a bookstore, and let that person choose his or her own books.
+- Isaac Cline was a creature of his times. He embodied the hubris of his times and, in many ways, was a victim of the storm, not just in material ways - loss of a family member and damage to the town - but also in metaphoric terms.
+- I've really tried to strip my writing of as many adjectives and adverbs as I possibly can.
+- I'm always looking for a sign - not in a spooky, supernatural way, but in a 'neurotic writer' kind of way.
+- The SA, that is the - shorthand, those are the storm troopers. Those are the folks who are commanded by Captain Ernst Rohm.
+- The reason I choose the stories I choose - and it's why it takes me so long to find ideas - is that I'm looking for that very thing. I want an idea that begins, I want a middle that is compelling and will bring readers along, and I definitely want an ending.
+- When I'm interviewing somebody, I take notes with a Bic Cristal, the classic black-cap, clear-body, medium-weight pen. It works on many levels: You can chew the cap, and if you're really bored, you can bite the end off the back.
+- Yes, William E. Dodd was the - became the - America's first ambassador to Nazi Germany. Prior to that, he was a professor of history at the University of Chicago - mild-mannered guy.
+- The Nazis hijacked the Jewish thing early on by defining it as 'the Jewish problem' and started looking for a solution. These are not just words.
+- The most painstaking phase comes when the manuscript is set in 'type' for the first time and the first proofs of the book are printed. These initial copies are called first-pass proofs or galleys.
+- After I finish writing a chapter, I'll print it out, cut it up into paragraphs, and cut away any transition sentences. Then I shuffle all the paragraphs and lay them out as they come. As I arrange and hold them next to each other, very quickly a natural structure for the chapter presents itself.
+- I've been asked a lot lately what message is there in the Lusitania for the modern day. To be honest, not much. Except that maybe hubris and overconfidence are always dangerous things.
+- I found a book facing out that I'd always meant to read: William Shirer's 'The Rise and Fall of the Third Reich.' About a third of the way through, I suddenly, finally caught up to the fact that Shirer had been there in Berlin, from 1934 on, and was finally kicked out when the U.S. entered the war.
+- At some point, I stumbled across my two main protagonists: William E. Dodd, a mild-mannered professor of history picked by Roosevelt to be America's first ambassador to Nazi Germany, and Dodd's comely and rather wild daughter, Martha, who at first was enthralled with the so-called Nazi revolution.
+- What is clear is that in 1900, Galveston was growing fast, had already become the number one cotton port on the Gulf Coast, and was already being referred to as 'the New York of the Gulf.'
+- We, of course, have the power of hindsight in our arsenal, but people living in Berlin in that era didn't. What would that have been like as this darkness fell over Germany?
+- It's not my intent to write definitive history. 'Dead Wake' isn't a definitive history of the sinking of the Lusitania. It's my account.
+- As my friends will tell you, I am a superior agonizer. Believe me, you do not want me in the cockpit of an airliner. But in my defense, choosing an idea is also a high-stakes affair.
+- I like all kinds of music, though I tend to prefer jazz and classics.
+- I thought I'd go to a bookstore and see what moved me.
+- It troubled me that we had these reports of torture of detainees, we had people jailed at Guantanamo Bay who couldn't even talk to their lawyers and couldn't see the evidence against them - sort of fundamental bedrock civil liberties things.
+- Unalloyed heroes and unalloyed villains make me suspicious.
+- The one place where I do think our culture today has to be extremely careful is this whole thing about illegal aliens. Because any time you start defining a significant block of the population as 'others,' or as less than you, you start getting into dangerous waters.
+- It was David McCullough's 'The Johnstown Flood' that lit my imagination as to how I might one day go about writing book-length nonfiction, though my favorite of his books is 'Mornings on Horseback,' about the young Teddy Roosevelt.
+- I'm very perverse. If someone tells me I have to read a book, I'm instantly disinclined to do so.
+- I knew from an online search that the Wisconsin State Historical Society, on the vast University of Wisconsin campus, held the papers of Sigrid Schultz, a spunky correspondent for the 'Chicago Tribune' who became one of Martha Dodd's friends in Berlin.
+- One of the really amazing things about the Lusitania saga was that, at the time, there existed in the admiralty a super-secret spy entity known as 'Room 40'.
+- Anytime you look at someone in detail, you're putting the camera on that person. What I typically look for is one or two or three really strong characters who will hold the narrative throughout the work.
+- I read a book called 'Transatlantic', which is a history of the great shipping lines. Also, of course, I had read about the Titanic and saw Leo drowning at the end of the 'Titanic' movie and all that stuff.
+- I figured, correctly, that Berlin in February was not a destination coveted by tourists. I found good airfares on Lufthansa, an airline I quite like, and got a great rate at a brand new Ritz-Carlton, which clearly hoped to seduce visitors into forsaking Hawaii for Potsdammer Platz.
+- I envy other writers who claim to have a backlog of books they'd like to write.
+- My office is tiny. I think most people would be shocked if they came to my home and saw it. It is, in fact, the former makeup room of a gorgeous local TV newscaster. I keep a neat desk. Clutter makes me anxious.
+- I'm often associated with parallel narratives or dual narratives. The 'Devil in the White City' was a fluke.
+- I've heard from the movie marketplace that James Cameron did such a killer job with 'Titanic' that it's almost impossible to do anything better.
+- Digression is my passion. I'm not kidding. I love telling the main stories, but in some ways, what I love most is using those narratives as a way of stringing together the interesting stories that people have kind of forgotten and that are kind of surprising.
+- I was a promiscuous reader. I loved Nancy Drew books and Tom Swift - never the Hardy Boys - but I also read Dumas, Dickens, Poe, Conan Doyle, and Cornelius Ryan's war books. As to favorite character: I'm torn between Nancy, on whom I had an unseemly crush, and Edmond Dantes, the Count of Monte Cristo.
+- I'd always been interested in maritime history, especially the great liners. I'd have done a book about the Titanic if it hadn't already been done to death by James Cameron and Celine Dion.
+- In Washington, we had a grieving President Wilson, very, very much a lonely, grieving man. He had lost his wife of many years in August 1914 at about the same time the war broke out in Europe.
+- I had a nice part at big newspapers, small newspapers, and then I went to a very big newspaper - 'The Wall Street Journal.' I wrote longer pieces, and I got tired of working so hard on stories that had a shelf life of essentially one day. So then I started working on longer magazine pieces and realized then that you might as well be writing a book.
+- I wouldn't say that I'm an Italian wine connoisseur. I do like red wine. I guess my favorites now are Bordeauxes. French.
+- I didn't know anything about the Lusitania. I started reading because I had nothing else in my plate. And as soon as I start reading, I thought now this is interesting, you know, the hows of what happened, the actual - the actual sinking of the ship.
+- In hunting ideas for books, I look for stories about long-past events that once commanded the world's attention but that, for one reason or another, faded from contemporary awareness.
+- I never recreate dialogue. I have often been asked by people, 'You must have made this up because this is dialogue, right?' Anything in my books that is in quotes comes from some kind of living historical document: a letter, a memoir, a court transcript, a newspaper interview.
+- President Hindenburg had ultimate say over whether the government would survive or not.
+- I was once again looking for a book idea, and I remembered Holmes, but I specifically remembered that there was this World's Fair thing in the background. I thought, 'I'll read about the fair.' I had nothing better to do. I'd dismissed about a dozen ideas, and I was getting sort of antsy. I started reading, and that's where I got hooked.
+- My life! That's a long story, too. I was born in Brooklyn, New York, like half of the world, I think.
+- There's something so relentless and foul about Hitler and his people, and the way things progressed from year to year. It just got to me in the strangest way.
+- It's like being involved in a detective story, looking for that thing that nobody else has found.
+- One question that often comes up is why, in this age of blogs and tweets and instant digital communication of all kinds, it still takes so long to publish a book.
+- I'm an early riser, for one thing. This started back when our kids were small. My wife and I would get up at 4 A.M. so that we could have a couple of peaceful hours before they woke up. That pattern has continued. I get up, make coffee, and while it's brewing, I do 50 sit-ups.
+- I was never concretely aware of the extent of anti-Semitism in the United States and in the upper levels of the State Department.

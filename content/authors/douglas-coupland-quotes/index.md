@@ -1,0 +1,288 @@
++++
+author = "Douglas Coupland"
+title = "Douglas Coupland Quotes"
+quotes_len = "282"
+description = "the best 282 Douglas Coupland Quotes"
++++
+- There used to be a tradition of the loveable rogue who would steal from the honour boxes in churches and buy a round of drinks with the money he snagged. And everyone would find him tremendously good company. But not any more.
+- You pretend to be more eccentric than you actually are because you fear you are an interchangeable cog.
+- It feels wistful to imagine a time when people didn't go about their daily routine with the assumption that at any moment another massive media technology will be dumped on us by some geek in California.
+- The capacity for not feeling lonely can carry a very real price, that of feeling nothing at all.
+- Feeling unique is no indication of uniqueness.
+- I like being surrounded by good ideas. Every single time you walk past something you like, you get a blast of happy chemicals to the brain, and I like that.
+- It's sort of a law of the art world: The stuff that grows in importance is only the stuff you bought because it wowed you.
+- We need to be around our families not because we have so many shared experiences to talk about, but instead because they know precisely which subjects to avoid.
+- If God drives a car, He'd drive a 1973 Ford LTD Brougham sedan with a claret-colored vinyl roof, with oxblood leather upholstery and an opera window.
+- I'm agoraphobic. I can't deal with crowds.
+- Men won't read any email from a woman that's over 200 words long.
+- You can get a subjective and highly factual dossier on most anyone in the public realm almost instantly. It's why publishers don't worry about author photos any more; people just Google a person and get on with things.
+- Telling people they look relaxed makes them look relaxed.
+- A bland smile is like a green light at an intersection, it feels good when you get one, but you forget it the moment you're past it.
+- Most people have no idea how to politely answer a phone. The English do, and it's been their only major business advantage for the past two centuries.
+- I don't know how anyone gets anything done in cities. How can you live somewhere like London or New York, when there are 81 things to do every night? Awful. Give me solitude and space any time.
+- Your body isn't just a body. It's an ecosystem.
+- Comedy is the difference between how you see a person and how they see themselves.
+- Bespoke tailoring: yes! I found this one pair of pants - they're Canali - and brought them into a tailor and said, 'Clone these, dammit.' They just do all the right things. I've got eight pairs in different colors and I never have to think about pants again. The only look otherwise that suits me is, like, the Professor from 'Gilligan's Island.'
+- Everybody has basically the same family, it's just reconfigured slightly differently from one to the next.
+- The modern economy isn't about the redistribution of wealth, it's about the redistribution of time.
+- We are a dreadful species indeed, and deserve whatever it is our techno-baubles do to us.
+- I'm suspicious of places that look decorated. I can understand why people do it, but you see too many cushions or a piece of fabric hanging and it's, like, 'Ugh!' A good house with good art will always work, no matter what.
+- Most time capsules, when they're unearthed, are really awful. There's nothing good in them.
+- My father has never once asked me a question, any question. There's a freedom that came from that. It allowed me to create my own way of thinking.
+- I think the killers get far too much attention.
+- I'm a pretty good drawer. I have trouble painting because you literally have to wait for the paint to dry. I'm disciplined, but I'm not patient.
+- Whatever happened to books? Suddenly everybody's talking about these 100-hour movies called 'Breaking Bad'. People are talking about TV the same way they used to talk about novels back in the 1980s. I like to think I hang out with some pretty smart people, but all they talk about is 'Breaking Bad.'
+- Adventure without risk is Disneyland.
+- It's weird when people start sentences with 'frankly' - as if their other sentences don't count.
+- Soon it won't be the Internet any more, it'll just be like air, like somehow they'll integrate the Internet into the air. And God's name will have ended up being 'Google,' because that's the way it worked out. It could have worked out that God's name ended up being 'Yahoo,' of course, but they lost out.
+- Games I do find interesting for what they say about us, about what we wish for, about the programming. But let it stop there: don't listen to this rubbish about them actually being good for you, helping with hand-eye co-ordination or whatever. They're games. They prepare you for nothing.
+- If nothing else, we simply get used to being alive.
+- I will say that my days are spent solitary and somewhat lost in thought, and every single time I inadvertently wear my shirt inside out in public, I bump into my sister-in-law at the grocery store.
+- Money is more than a massively consensual IOU note. It is a piece of infrastructure and is as artificial as Interstate 5, NutraSweet or season three of 'Mad Men.'
+- Earth was not built for six billion people all running around and being passionate about things. The world was built for about two million people foraging for roots and grubs.
+- By your thirties, you should be doing whatever it is you're supposed to be doing with your life and just get on with it - which is what I suppose happened with me as much as to anyone else.
+- You spend a much larger part of your life being old, not young.
+- Is there anything in the world more annoyingly creepy than an unspoken dress code?
+- Technology favors horrible people.
+- I was always the youngest person in class, skinny, scrawny, no good at sports. I asserted myself by being smart. But then I got to college and started to get C's and D's. That was fantastic. I no longer had to be the smartest person in the room.
+- Flying dreams mean that you're doing the right thing with your life.
+- If our subconscious was attractive, we wouldn't have to bury it down deep within us.
+- Making eye contact with adults while dressed as a clown is risky.
+- I'm a visual thinker. Research tells us that only 20 per cent of people think visually. So what about the other 80 per cent? Don't they think in pictures? I mean if you imagine washing and preparing potatoes you visualise the process, right?
+- No-tech tourism is a form of temporal eco-tourism in which one reads books or watches film and TV precisely because of the absence of 21st-century technologies.
+- If you have a great idea, you should be able to communicate it as well. It's like the sound of one hand clapping. You have a great idea but aren't able to express it - well, how great was the idea?
+- Forget about being world famous, it's hard enough just getting the automatic doors at the supermarket to acknowledge our existence.
+- Some people think fashion is frivolous but it's not... it's just that some ideas come and go quickly, and that's the nature of the language of fashion.
+- Americans are a quarter of a billion people who have almost nothing in common except for the fact they've been told they have lots in common.
+- If cats were double the size they are now, they'd probably be illegal.
+- In my mind, I've always checked out in 2037; that's always been my expiration date. I'll be 75.
+- The 1990s felt like the 1990s in a real and good way.
+- Sometimes it feels as if everything in life is just something we haul into the grave.
+- I think way back, the '20s or the '30s, when Kodak came out with the Brownie and they put a list of instructions on the box, like how to use this thing, I think someone arbitrarily said, 'Make sure the person in the photograph is smiling.' And we went from that one sort of set of industrial instructions to this whole culture of perkiness.
+- If you have an impulse to kindness, act on it.
+- If you write fiction, you have to love your characters. It's like your family. You don't have to like them, but you have to love them.
+- Given the infinite number of coincidences that could happen, very few ever actually do. The universe exists in a coincidence-hating state of anti-fluke.
+- Fashion only seems to make sense if it's rooted in some dimension of history or if it feels like a continuation of an idea.
+- The whole point of Gen X was, and continues to be, a negation of being forced into Baby Boomerdom against one's will.
+- I have trouble with seafood because it tastes like a dock.
+- You can only fall in love six times in your life. Choose wisely.
+- Fashionable people can opt out of the fashion stream, but a stylish person never becomes unstylish unless they hit their head on a rock and suffer brain damage.
+- I get verklempt if I see a vintage TI-30 or TI-54 calculator. But I don't think I'd want to use one.
+- Unhappiness is something we are never taught about; we are taught to expect happiness, but never a Plan B to use to use when the happiness doesn't arrive.
+- To have a healthy culture, you have to have stable health care financing and stable arts financing and stable sports financing, and if you don't have that, your culture becomes a parking lot.
+- People will always choose more money over more sex.
+- Any passion to collect has some meaning behind it.
+- New York is a theme park for people with IQs over 108.
+- People are pretty forgiving when it comes to other people's families. The only family that ever horrifies you is your own.
+- We were never supposed to live until 40. We were built to self-destruct at 30, whether from cancer or mental illness. We're all going way beyond our expiration date.
+- I've got 911 on speed dial.
+- When you think about Twitter and you think what a dumb stupid throwaway technology, and then you have the Iranian elections and it actually saves the day - you can't prejudge technologies now because they have effects you may not have intended.
+- I think half the people who get married now have met online. If I think about all the people in my life who married - they met online, online, online. And it makes sense if you think about it, because you fill out this form of 35 things that really define you and - bam - look, you've got two people who match. It works.
+- Storytelling is ultimately a creative act of pattern recognition. Through characters, plot and setting, a writer creates places where previously invisible truths become visible. Or the storyteller posits a series of dots that the reader can connect.
+- What exactly is it that humans do that is specifically human? There has to be something. How odd it is for billions of people to be alive, yet not one of them is really quite sure of what makes people people.
+- When we constantly ask for miracles, we're unraveling the fabric of the world. A world of continuous miracles would not be a world, it would be a cartoon.
+- A vast percentage of the human race is literally not wired neurologically to get irony. Well more than half of humanity takes life at face value, which is to me terrifying.
+- If I think too much about all of those Chinese factories where all the stuff in a Wal-Mart is made, I get that woozy feeling you get when you see ducks covered in crude oil.
+- People say if you're doing an art project, that's different from a book, but I honestly don't see it. I try and try, and I just don't.
+- The real killers in the business world aren't the ones who aim for the top, it's the ones who aim for two notches below the top.
+- Being asked what animal you'd like to be is a trick question; you're already an animal.
+- If money is not maintained, it can collapse like a bridge along Interstate 5 and fixing it, even with determined politicians, will take ages, during which time God only knows how much human damage will occur.
+- I can't switch time zones any more. London is one of my favourite places, but I'm always so zonked that I can't appreciate it. It's like a six-inch sheet of glass between me and Charing Cross Road.
+- I don't know if it's a very smart idea to admire the living.
+- I've got all my old laptops going back to my first, which was so fancy at the time, in '93 or '94, but now it's just like a doorstop. One day I said, 'I'll go in and get all my old documents in there.' The cords and the wires are all gone, the discettes you need are gone. Meanwhile the little electrons are starting to wither away.
+- When you write, it's just a much more crystalline, compressed version of the voice you think with - though not the one you speak with. I think your writing voice is your laser-guided missile. It's the poetry part of you.
+- Cloning is great. If God made the original, then making copies should be fine.
+- Try not thinking of peeling an orange. Try not imagining the juice running down your fingers, the soft inner part of the peel. The smell. Try and you can't. The brain doesn't process negatives.
+- Long lives aren't natural. We forget that senior citizens are as much an invention as toasters or penicillin.
+- Good-looking people with strong, fluoridated teeth get things handed to them on platters.
+- The future and eternity are two entirely different things.
+- Star Trek characters never go shopping.
+- Twinkies are more natural than most TV-interview shows.
+- My own experience with being interviewed is mixed. I suppose they're a part of my job, and as I would like readers to connect with my books, I do them. I've also made many lifelong friends whom I first encountered as interviewers - as a writer, they're a terrific way to meet and add smart new people to one's life.
+- Those Catholics, they really nab you when you're young. They sear you. They sear you; they do.
+- When you crop the photo, you tell a lie.
+- Remember travel agents? Remember how they just kind of vanished one day? Well, that's where all the other jobs that once made us middle class are going, to that same magical, class-killing, job-sucking wormhole into which travel agency jobs vanished, never to return.
+- If your life had lyrics, would they be any good?
+- In Canada, we're happy to provide a safe haven for next-door neighbors in the middle of a marital dispute. And if anyone trips while crossing the border, we're happy to set their broken bones for free.
+- Sometimes the best lighting of all is a power failure.
+- I've had maybe 20 jobs, big and small, and I've never hated any of them. At the same time, the moment the learning curve flattened, I was out of there.
+- You can't fake creativity, competence, or sexual arousal.
+- Every single moment is a coincidence.
+- I think Americans are weirdly puritanistic about psychopharmaceuticals. There are millions of people out there who would otherwise be dead or rocking by themselves in a corner who now lead full and normal lives because of amazing and wonderful scientific advances.
+- We decided that the French could never write user-friendly software because they're so rude.
+- God is what keeps us together after the love is gone.
+- Writing is largely about time, while visual art is largely about space.
+- I think money is due for some sort of collapse. People are going to realize that money has a half-life, like radioactive elements.
+- Salad bars are like a restaurant's lungs. They soak up the impurities and bacteria in the environment, leaving you with much cleaner air to enjoy.
+- Aliens didn't come down to Earth and give us technology. We invented it ourselves. Therefore it can never be alienating; it can only be an expression of our humanity.
+- I've become a day writer: most people start as night writers, and I used to be, but something happened to my endocrine system. I do miss the 3 A.M. writing jags.
+- Handmade presents are scary because they reveal that you have too much free time.
+- If someone decides to be a musician now, it means because there is no hope of money at the end of it, it means they really want to be a musician. And if someone is writing now, there is no hope for money at the end of it.
+- Make your goals big and broad enough so that they never become answered prayers and boomerang to curse you.
+- Depression is when you have lots of love, but no one's taking.
+- Thinking you're immortal is weirdly similar to being immortal.
+- It's very strange that most people don't care if their knowledge of their family history only goes back three generations.
+- High school is such a shared experience in North American culture.
+- We really ought to give ourselves a collective pat on the back for doing as well as we have in a universe of constant media change and mutation.
+- The advent of cellphones may, in the end, be no more relevant than the ability of laptops to change our written documents into ones using cool new fonts.
+- I have to say, 'Pod' was a bon-bon, a treat to myself. A treat to write: a happy, pleasurable write.
+- Birds are a miracle because they prove to us there is a finer, simpler state of being which we may strive to attain.
+- My question about luging is, How do you get into the luge community to begin with? Is it one day like, 'Mom, Dad, I really want to luge.' And your parents are like: 'O.K., I'll quit my job. We'll move to an Alpine community.'
+- Your ability to rationalize your own bad deeds makes you believe that the whole world is as amoral as you are.
+- I'm not a hoarder, I'm a collector: if you have something you like, every time you see it, you have a little happy hit.
+- If you don't change, then what's the point of anything happening to you?
+- I was so beautiful when I was young. And I took so few photos because I felt so skinny and ugly. I wish I'd just taken a few more shots.
+- The thing about the end of the world is that not just the West collapses, the whole world does.
+- Data transmission is no longer something scary you don't want in your backyard. Now you want it directly in front of your house.
+- The reason the future feels odd is because of its unpredictability. If the future didn't feel weirdly unexpected, then something would be wrong.
+- Every human being you see in the course of a day has a problem that's sucking up at least 70 percent of his or her radar.
+- On TV people look at your hair and then they look at your skin, and then they look at your clothes, and by the time they're listening to what you're saying, you're off the screen.
+- I'm starting to wonder if pop culture is in its dying days, because everyone is able to customize their own lives with the images they want to see and the words they want to read and the music they listen to. You don't have the broader trends like you used to.
+- Too much free time is certainly a monkey's paw in disguise. Most people can't handle a structureless life.
+- I grew up in airports and on air bases. I know what flying and airports can be. And most airports make me feel like we're about three per cent better than ants. Especially U.S. airports. They're zoos. All civility is gone.
+- I think as a species we're not designed to be able to think more than one year into the future - if that. Even trying to imagine one year from now makes most people feel like they've been given a huge boring chunk of homework that's too hard to do.
+- In the future, IKEA will become an ever more spiritual sanctuary. In the future, your dream life will increasingly look like Google street view. Everyone will be feeling the same way as you, and there's some comfort to be found there.
+- I go to the gym three days a week. You have to or else - I don't want to be the guy that dies shoveling snow.
+- For whatever reason, I tend to get reporters who are maybe in the middle of intense therapy, and they turn what's supposed to be a professional interview into therapy for themselves.
+- I worship teachers. They can't be paid enough. It depresses me that society sees them as somehow expendable.
+- If I don't learn something new every year, I go crazy.
+- When Donald Duck traded his wings for arms, was he trading up or trading down?
+- Even when you take a holiday from technology, technology doesn't take a break from you.
+- Failure is authentic, and because it's authentic, it's real and genuine, and because of that, it's a pure state of being.
+- Once you see someone lose it, you can never look at them the same way again.
+- I've always felt like an alien trapped in a human form. We all do at some time or other; for me it's a permanent state, and I'm still unsure if Earth is a penance or a reward.
+- I had a lot of really terrible advice early in my writing career and I cheesed off people without even knowing it, all the while thinking I was implementing good advice.
+- I've always thought that you live in the present, you live in a specific present. You are writing, present tense, so write in the present as it is.
+- I decided at 40 I was wasting entire chunks of my brain and didn't want to blow my one chance on Earth. I'm glad I made that decision. Writing is largely about time, while visual art is largely about space. Sometimes, as with film, you can hybridize, but I think it's basically the space part of my brain wanting equal footing with the time part.
+- The thing about living in the 21st century is you can get to fortysomething and not have anyone major in your life die.
+- My house. It's kind of eccentric. It's two decades worth of accumulated personal projects. Yeah, it is pretty dense in my house.
+- I think social and moral disengagement is repugnant.
+- Sometimes failure isn't an opportunity in disguise, it's just you.
+- I miss my pre-Internet brain, but that doesn't help anything. We can only go forward.
+- There's nothing cure or funny or lovable about being cheap. It's a total turn-off.
+- A man in a bookstore buys a book on loneliness and every woman in the store hits on him. A woman buys a book on loneliness and the store clears out.
+- Characters in a book are very much like personalities divvied up within a family. In the end, it all averages out to a sort of overall averageness.
+- Vancouver is the square root of negative one. Technically it shouldn't exist, but it does. I can't imagine living anywhere else.
+- You're smarter than TV. So what?
+- I was at Emily Carr College of Art and Design in Vancouver for four years, and I loved it.
+- Eagles are seagulls with a good hairdo.
+- Florida isn't so much a place where one goes to reinvent oneself, as it is a place where one goes if one no longer wished to be found.
+- The person who needs the other person the least in a relationship is the stronger member.
+- We're rapidly approaching a world comprised entirely of jail and shopping.
+- The urge to reincarnate while still alive is near universal.
+- Clowns drink to blot out the ravages of terrifying children for a living.
+- The harder you try to become the opposite of your parents, the more quickly you become them.
+- With 'Worst. Person. Ever.' I knew where it started and where it had to end, but I threw Raymond as many curveballs as I could along the way. He's like the coyote in the 'Road Runner' cartoons.
+- Ten commandments yet seven deadly sins: conflict?
+- I like doing radio because it's so intimate. The moment people hear your voice, you're inside there heads, not only that, you're in there laying eggs.
+- Purchased experiences don't count.
+- Quick. Name ten dead redheads.
+- I'm not patient - and I'm getting more impatient as I get older - but I am disciplined about writing, and I want that on my tombstone: 'He wasn't patient, but he was disciplined.'
+- I miss the silliness of the Nineties. What would society be like if 9/11 never happened? If that silliness was extended forever?
+- Sometimes I wonder if the world is too interesting and too boring at the same time.
+- I connect fashion to other peoples' elegance, but not my own. I don't think I've ever felt elegant. I've felt appropriate, but never elegant, and I wonder what that must be like. I like it when other people are elegant - I prefer it - but I can't do it myself. I honestly think it's some form of autistic disorder.
+- Most of us have only two or three genuinely interesting moments in our lives; the rest is filler.
+- I think that in the future, clocks won't say three o'clock anymore. They'll just get right to the point and rename three o'clock 'Pepsi.'
+- Tofu hot dogs are actually scarier than real hot dogs. It's like wanting the worst possible meat product without even the thrill of it actually being meat.
+- In a faraway land called 'pre-2000,' what Earthlings now call blogging was called 'keeping a diary.' It's hard work to do well. I tried doing it in the early 1990s but had to stop because I no longer had a life - instead I had this thing that generated anecdotes to go into my diary. The diary took over and I had to stop.
+- There's much to be said for feeling numb. Time passes more quickly. You eat less, and because numbness encourages laziness, you do fewer things, good or bad, and the world's probably a better place for it.
+- Never loan a book to someone if you expect to get it back. Loaning books is the same as giving them away.
+- Gap clothing allows you to look like you're from nowhere and anywhere.
+- There are three things we cry about in life, things that are lost, things that are found, and things that are magnificent.
+- Only losers make decisions when things are bad. The time to rejig your life is the time when it's seemingly smooth.
+- As a form of escapism, yearning for the 20th century is understandable, but in practice it would be horrible - sort of like going on a holiday promising yourself you could go without the Internet, only to crumble and walk in a daze to the local Internet cafe to gorge on connectivity.
+- The one thing about my life that's different from others is that I wake up for no one, and for some reason, that's just good for your creativity.
+- Self-delusion is one of the funniest things there is.
+- Nothing very very good and nothing very very bad ever lasts for very very long.
+- My Google existence is probably larger than a lot of people's.
+- Who wants to talk on the phone? If you want to talk to me, text me. Or if we must, let's meet in person.
+- I had a lot of really terrible advice early in my writing career, and I cheesed off people without even knowing it, all the while thinking I was implementing good advice. Well, what can you do about it? Next.
+- I don't think I see the world in terms of stupid or clever, but in terms of being able to get irony. There's some awful statistic about only 20 per cent of Americans being able to understand irony.
+- I'm pro-forwards. Do I want the Seventies to come back? No. The haircuts were terrible. Everyone stank. The food was awful.
+- I tend to look for pathologies everywhere.
+- Life always kills you in the end, but first it prevents you from getting what you want.
+- When I look at my daily schedule, I feel like a trout flopping about on a dock, drowning in the air. Some people are ruthless with their schedules. Not me. I wing it.
+- Figure out what it is in life you don't do well, and then don't do it.
+- Nobody likes being told who or what they are.
+- Mediums change you by their very existence. They do this on fundamental levels because they force you to favour certain parts of your brain over others.
+- Blame is just a lazy person's way of making sense of chaos.
+- I always thought of words as art supplies.
+- I think most people either forget or don't know that Microsoft only hires people with I.Q.'s well over 130.
+- I keep vampire hours, going to bed at 2 A.M. and waking up at about 10:30-11 A.M.
+- Art was always my main focus; I fell into writing by accident in the 1980s, writing magazine articles to pay for my studio. I have to put myself into the position of writing; sometimes it doesn't work, and sometimes it works great.
+- Royalty is either going to do very well with cloning, or it's going to disappear completely.
+- You wait for fate to bring about the changes in life which you should be bringing about by yourself.
+- What if God exists except it turns out he doesn't really like people very much?
+- Headwise, I always kind of knew that everyone goes grey in our family very early - and I was like, it works for me. I started growing my beard, and it changes the shape of your skull and your face, and I started seeing my mother's side of the family in myself for the first time.
+- One of the cruelest things you can do to another person is pretend you care about them more than you really do.
+- Fondue sets, martini shakers and juicing machines: three things the world could live completely without.
+- I love working out how things are made, which is why I have so many models of towers.
+- I think that to acknowledge a new generation is to acknowledge some degree of obsolescence in yourself, and that is very hard to do and often comes with undeniable anger.
+- The time you feel lonely is the time you most need to be by yourself.
+- For many people, myself included, the end of the world is happening all the time! It is a form of criticality that paradoxically gives us hope for change and improvement.
+- I don't like telephones: I don't like when they ring. Just because it rings, you have to pick it up. I don't even like opening mail; I'm weird.
+- Once you establish a look, and once everybody recognizes that look as your look, you never have to think about fashion again.
+- I find it hard to believe that human beings are the crowning achievement of life on earth. Something better than us has to come along.
+- When future archaeologists dig up the remains of California, they're going to find all of those gyms their scary-looking gym equipment, and they're going to assume that we were a culture obsessed with torture.
+- Books arrive in my head all at once, and then it becomes an 18-month process of getting it all down on paper.
+- Everyone wants to share what he or she has learned with someone who really cares.
+- Money isn't money anymore. Time doesn't feel like time anymore. Your sense of community, it's evaporated, too, or it's turned into something you visit at 2 A.M. on a website.
+- You can never become rich unless you like rich people.
+- Human beings are the only animal that thinks they change who they are simply by moving to a different place. Birds migrate, but it's not quite the same thing.
+- If you're not a tree hugger, then you're a what, a tree hater?
+- It also allows you to look as though you're not particularly from the present, future or past, either.
+- A ring is a halo on your finger.
+- Before machines the only form of entertainment people really had was relationships.
+- I know it's not cat food, but what exactly is it that they put inside of tinned ravioli?
+- In 2008 we came perilously close to killing money, exposing in the process how out of date money's infrastructure has become.
+- The things worth writing about, and the things worth reading about, are the things that feel almost beyond description at the start and are, because of that, frightening.
+- The way we experience history and time in all its forms shifted quite massively between 1989 and 2001 - to the point where contrivances like decades are now kind of silly.
+- Where does personality end and brain damage begin?
+- If you waste five minutes of time a day, over the course of a year that adds up to one full work day. Think of five wasted minutes as a slow-release holiday drug. Savour it.
+- I began doing writing projects and art and design projects to explore a new way of seeing Canada. Roots is one more way of continuing this exploration. I want to present a wide-open Canadian sense of color, adventure, communication and openness that defines our country.
+- If you don't have a spiritual practice in place when times are good, you can't expect to suddenly develop one during a moment of crisis.
+- 'Stupidity' defines the mental state wherein we acknowledge that we've never been smarter as individuals and yet somehow we've never felt stupider. We now collectively inhabit a state of stupidity.
+- It's fun to sentimentalize the 20th-century lifestyle and the 20th-century brain, but it helps nobody, it makes you look ancient, there's no going back, and you'd be miserable if you did.
+- You can't get mad at weather because weather's not about you. Apply that lesson to most other aspects of life.
+- Fate is for losers.
+- Your brain forms roughly 10,000 new cells every day, but unless they hook up to preexisting cells with strong memories, they die. Serves them right.
+- Lottery tickets are a surtax on desperation.
+- We live in an era with no historical precedents. History is no longer useful as a tool in helping us understand current changes.
+- I kind of wonder if creativity is all morphing into one big thing that's not even art, but something universal and bigger.
+- North America can easily fragment quickly as did the Eastern Bloc in 1989.
+- Time perception is very much about how you sequence your activities, how many activities you layer overtop of others, and the types of gaps, if any, you leave in between activities.
+- Everyone should have a tailor. David Wilkes, the guy who does my stuff, is like, 'Well you're a writer - do you want a special pen compartment or something?' Bespoke: That's the term you want to get out there.
+- The Internet has destroyed irony in the world, or at least wounded it considerably. What are we to do about an invention whose end result is that starving people in China are looking up things on marthastewart.com?
+- The neighborhood I grew up in had this fence that surrounds the watershed. And if you go on the other side of that fence, there's nothing until the North Pole and down to Siberia. It's the absolute cutoff point between man and nature.
+- I want pills called September 10. You take one and your mind feels like the 11th never happened.
+- Nature is one great big wood-chipper. Sooner or later, everything shoots out the other end in a spray of blood, bones and hair.
+- With Google I'm starting to burn out on knowing the answer to everything. People in the year 2020 are going to be nostalgic for the sensation of feeling clueless.
+- I don't want any vegetables, thank you. I paid for the cow to eat them for me.
+- I miss the reference section at the library. I used to go there twice a week on missions. Now everywhere's a research library and I can't get an elitist kick from it any more.
+- My life is neither a disaster nor supernatural, yet it is an unlikely event.
+- Canadians can easily 'pass for American' as long as we don't accidentally use metric measurements or apologize when hit by a car.
+- It's a cliche, but true, that writing is intensely solitary and at times really lonely. I sit in one room and talk to squirrels and blue jays all day.
+- In the future, torture will once again become the recreational sport of the rich.
+- Everybody past a certain age, regardless of how they look on the outside, pretty much constantly dreams of being able to escape from their lives.
+- The thing about the future is that it never feels the way we thought it would.
+- The thing with bookshelves, no matter how many you have, you always fill them.
+- We want our idols to be dead because it makes death a much less scary place.
+- The universe hands you opportunities for a while, and if you don't take them, the universe says to itself, 'Oh I see, this person doesn't like opportunities' and stops giving them to you.
+- There's a lot to be said for having a small manageable dream.
+- When the world throws you too much information, the only way you can stay sane or survive is to look for pattern recognition. Amidst all the blurs, is there a constellation that emerges, is there a straight line that's emerging?
+- It's difficult to speak with beautiful people. No matter how hard you try to pretend otherwise, you still want them to like you.
+- Christmas makes everything twice as sad.
+- Cellphones have, if nothing else, turned TV crime writers into lazy sloths.
+- I've never gone on Facebook or MySpace.
+- Big companies are like marching bands. Even if half the band is playing random notes, it still sounds kind of like music. The concealment of failure is built into them.
+- Workshops and seminars are basically financial speed dating for clueless people.
+- If a building looks better under construction than it does when finished, then it's a failure.
+- I grew up with three brothers, so nearly everything I had was destroyed or made fun of.
+- Much of what we now consider 'personality' will be explained away as structural and chemical functions of the brain.
+- Brain research tells us that only twenty percent of human beings have a sense of irony, which means that eighty percent of the world takes everything at face value.
+- In our heads we're all about 33 years old.
+- Forget sex or politics or religion, loneliness is the subject that clears out a room.
+- I'm always looking for things that are so incredibly present that they become invisible.
+- I've never really seen too much difference between writing or making visual art or designing furniture or clothing. It's still my brain - I'm just using different parts of it for different things.
+- If human beings had genuine courage, they'd wear their costumes every day of the year, not just on Halloween.
+- TV didn't kill radio, it just added something new to the mix.

@@ -1,0 +1,25 @@
++++
+author = "Dan Scanlon"
+title = "Dan Scanlon Quotes"
+quotes_len = "19"
+description = "the best 19 Dan Scanlon Quotes"
++++
+- No one ever tells a story to help you figure out where to go when a door closes on you.
+- I don't think at Pixar we'd ever make something that was too scary for general audiences.
+- I worked in the story department for years on 'Cars' and 'Toy Story 3.'
+- There are characters that become more popular as we fall in love with them.
+- I tend to like dry humor.
+- I started at Pixar the month 'Monsters Inc.' came out.
+- At Pixar, we do a million versions of the movie, and every one of them goes through their awkward teenage phase where it's terrible and doesn't make sense, and we just keep working on it.
+- Once you get into a feature, whether it's a sequel or an original one, you have to start all over again, and you're creating a world, creating new characters. You're also tracking emotions. You're trying to create emotion and create a character that you can fall in love with for two hours.
+- There are certainly moments in the story room where you watch the movie die on the table. You put A next to B, and suddenly none of it lines up anymore. We feel that all the time. It's a terrible feeling.
+- There's some real dark days where you just feel like the story is falling apart in every one. Just keep moving forward, even when you are bluffing, even when you don't quite know what is going to happen next.
+- I actually worked for a small company in Ohio that sort of farmed out work from Disney and Dreamworks, so I really only ever worked in two studios.
+- The idea of us telling a story where a character doesn't get everything he wants at the end is one of the relatable things - dealing with failures and missteps in life - and it's something that's so rarely dealt with in movies, especially kids' movies.
+- I think the biggest difference is in live action, you show up, and there's a set there and a ground to stand on, at least, and in animation, there's kinda nothing. You are making decisions on everything.
+- I trust every lead in every department. All of the teams are phenomenal artists. All I need to tell them is why to do something, not how to do something.
+- People will turn their noses up at a sequel or that type of thing, but Pixar really works hard - if they're making a sequel - to make a sequel an original movie, to make it an original story.
+- I'm not really a horror movie fan.
+- I was an animator for a while early on, but a 2D animator.
+- I think we make the movies, initially, with the one movie in mind. But we do love the characters, and so we kind of miss the characters when the movie is over. But I think what happens is, every now and then you realize there's more to tell, or an idea comes up.
+- The first 'Monsters, Inc.' represents starting at Pixar for me, I have a special place in my heart for it. So to be able to tell a story with those ideas is an honor.

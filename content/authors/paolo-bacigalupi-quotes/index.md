@@ -1,0 +1,62 @@
++++
+author = "Paolo Bacigalupi"
+title = "Paolo Bacigalupi Quotes"
+quotes_len = "56"
+description = "the best 56 Paolo Bacigalupi Quotes"
++++
+- As far as 'Windup Girl' becoming a hit - none of us expected that. 'Night Shade' was just hoping not to lose their shirts, and I had grown up hearing from everyone that science fiction didn't sell, so all of our expectations were very low.
+- I started really thinking a lot about where does a country go when we stop being able to speak to each other, when a nation stops being able to solve problems because its ideological differences become so deep that it just becomes dysfunctional.
+- I think inherently, a little bit, I'm a bit of a pleaser, and I want people to like me and be nice, and to not ruffle feathers and just make everybody happy and stuff. It's a personality flaw.
+- There are parents who are really angry that I decided to portray people who have come into the country illegally as decent human beings.
+- Sometimes when we label something dystopian fiction, I feel like we're trying very hard not to use the words 'science fiction,' because science fiction has those horrible connotations of rocket ships and bodacious babes.
+- Mostly I sat down and said, 'I'm not going to write a boring story.' And that actually, surprisingly, solves most of your problems.
+- As a kid, I always liked reading stories where I had a power-projection fantasy. I wanted to be inside of a story where I had power and influence, was going to rise to power, was going to somehow influence my society.
+- When I was writing 'The Windup Girl' and 'Ship Breaker,' I was writing those simultaneously, so I was an unpublished writer, not really having that full sense that these books would go out in the world, that they would be successful, that there would be an audience and that there would be fans of those stories.
+- I am interested in agricultural corporations and how they function. The idea that they own the genetics of our food supply is a really compelling thing to me.
+- As an author, you're really grateful for the people who are supporting you, but on some other level, that can be a dangerous echo chamber.
+- By nature I'm sort of an introvert.
+- I don't know why we choose to reach out to help another person, or why we decide that we can't, and withdraw and try to care only for ourselves, but I'm fascinated by that choice.
+- All the definitions people want to put on you in terms of what kind of writer you are come with hidden meanings. If you're writing science fiction, you're writing rocket ships. If you write dystopian fiction, it's inequity where The Man must be fought.
+- Science fiction has these obsessions with certain sciences - large scale engineering, neuroscience.
+- Maybe storytelling belongs in audio - a short story is the length of a commute. That can be a sacred spot where you have the ear of the reader without having to compete with other media like games or TV.
+- I focus a little more on pacing when I write books in the young adult category, and of course there's the great American fear of anything sexual, so that's somewhat backed off in YA.
+- Novelists want to be published and need a publisher to decide to print 20,000 copies. So you need to entertain on some level. I want to reach out and connect.
+- People don't actually stay still, you know - when their area is a disaster, they go somewhere else, right? And that's just a natural human impulse.
+- The young adult category is particularly interesting to me in terms of science fiction and fantasy tropes.
+- My conception of my ideal reader has expanded quite a lot as I've matured: Ultimately when I think of my ideal reader, it's someone who's not sitting down with the intention of automatically arguing with the book: somebody who's going to give me enough slack to tell my story.
+- Teens want to read something that isn't a lie; we adults wish we could put our heads under the blankets and hide from the scary story we're writing for our kids.
+- The loneliest Chinese man I ever met lived halfway up the Three Gorges, in Sichuan Province.
+- When I think about myself as a writer, for sure I am a science fiction writer. The tools of extrapolation, the tools of anticipating the future - those are science fictional questions.
+- I think the fact that we, as writers, don't engage with resource-level questions is a symptom of our society where we just don't know where our stuff comes from.
+- I know people who have gone into career death spins, and that's something you're always aware of as a writer.
+- I don't put a very clear label on my work. If anything, I write science fiction - looking at a moment now, in the present, and then extrapolating outward to think about what the future might look like if this particular trend goes on, or if this particular trend is the most dominant. That's a science fictional tool.
+- The conclusion I came to was that even if I couldn't sell books, I still liked the process of writing.
+- I have friends who are science journalists, and I'm seeing stories of theirs or talking with them about ideas that they're pitching. Certain kinds of science are around me all the time, like climate change and biology.
+- I was interested in political failure here in the U.S. The way we're failing to work together to solve even our smallest problems, let alone the complex ones.
+- The sources and research I use for my inspiration aren't your typical sci-fi subjects, but it's really driven by obsession and personal anxiety more than trying to take up the sword and do what's right.
+- Fiction is optimistic or unrealistic enough to demand that there should be a meaningful narrative.
+- Originally, 'The Windup Girl' started as a short story - a very gnarly, complicated short story set in Bangkok that didn't work very well.
+- I'm less crazy and unhappy when I'm writing.
+- When somebody keeps telling you, 'This book is amazing,' you sort of have this pleasing instinct to say, 'Oh, let me make you happy again; let me do that trick again.'
+- I'm particularly interested in black swan events: unprecedented surprises that destroy the conventional wisdom about how the world works.
+- I didn't think of myself as writing 'cli-fi,' but I'll take the label. I'll take any label that makes someone think they might be interested in my stories.
+- A wise human would have an understanding of the supply chain and how the pieces fit together. But it's against our nature to think about it.
+- I say I write extrapolations. I look at data points and ask what the world could look like.
+- I used to work for a newspaper that covered local resource issues, and my coworkers and friends were journalists. Their reporting work was always pretty grim.
+- I suspect that young adults crave stories of broken futures because they themselves are uneasily aware that their world is falling apart.
+- The things that have really gotten confusing to me is how you balance the desires of your publishers to produce things on a schedule, and people are always sort of giving you ideas on what you should follow up with or how you should proceed next and things like that.
+- When we talk about dystopias, especially in young adult fiction, a lot of them are essentially science fictional futures. They aren't necessarily tied to the traditional concept of dystopia. And so in that space, my impression is that kids love reading about weird, wild, adventurous places, and dystopia fits that bill.
+- I'm not proud of it, but I'm a great liar when I travel. I smile and lie, and things are smooth.
+- Economies are embedded inside ecosystems. Companies dependent on tourism, for example, are affected by low rainfall - there's less snow for skiers, and forest fires are more intense.
+- I'm definitely writing my fears. It's almost therapeutic to at least voice a terror, to say, 'I'm worried that Lake Powell looks low and Lake Mead looks even lower.'
+- The marketplace tells us that good, visceral storytelling has a place. But there are lots of questions about the format that stories take.
+- Businesses that decide to be reality based and identify where they're vulnerable to climate impact, that start thinking about how to buffer against it, are going to be able to take advantage of shortages. When the water runs out, not everyone is in the same pickle.
+- I think that, when I think about the future that 'The Water Knife' represents, it's one where there's a lack of oversight, planning and organization.
+- I'm interested in how we react when we're heavily pressed. When we're vulnerable and our survival is in question, how do we behave?
+- I think that we live in a highly specialized, technologically advanced society. Highly developed societies tend to have very remote understandings about what underlies our prosperity.
+- Everyone in China knows The Topics. The television stations and newspapers run the same state-generated stories all across the country, and the Chinese form their opinions based on these somewhat controlled sources.
+- I think there are narratives going on all the time that we think of as tangential - up until they turn out to be deciding factors in our lives.
+- I'm really interested in how conflicts arise and how they reach points of no return. I'm no pacifist. Sometimes force is necessary. But war is a choice.
+- As a writer, you should care about reluctant readers. You want these kids to feel like books are amazing and cool and that they're an escape.
+- When we live the 21st-century good life, almost every aspect of it is predicated on not looking at the implications of what we're up to. Happiness at this point has a lot to do with not looking, so you don't feel complicit in some vast and awful enterprise.
+- We're all happier when we know less, because the details are frightening and haven't really improved much. The more you pay attention, the more horrifying the world is.

@@ -1,0 +1,106 @@
++++
+author = "Patrice Evra"
+title = "Patrice Evra Quotes"
+quotes_len = "100"
+description = "the best 100 Patrice Evra Quotes"
++++
+- There are some pundits with whom I will settle my differences... they want to sell a lie to the French people that Evra is disliked. But that is not the case at all.
+- Some might say friendlies are unimportant, but we always try to win because we then maintain that positive mentality when the real competitions start.
+- If you play for Manchester United, you have to be strong.
+- A lot of people are jealous about Man United, so they just keep criticising, even when they win.
+- If you love Man United, you should never criticise them. You need to support them.
+- When you play for Manchester United, any year you don't win the title, you feel like you haven't done your job.
+- We need to be behind Man United always when they win or lose.
+- A lot of people say I am not tall and I am small guy. But I jump very high. I surprise a lot of people when I go for the corner kicks.
+- We want to win everything. That is the Manchester United way.
+- You don't need to be criticised to play well or things like that.
+- I don't have to prepare any differently because it's Messi, because every day in training I am up against people like Rooney, Berbatov, Ronaldo, and Tevez, so you know what to do against big players.
+- A derby is a derby. When you play a derby, it is for winning, not just to play.
+- In football, you can't always succeed.
+- I always say the Premier League is like two boxers fighting. The one who is least strong gets tired; he does down.
+- I remember, in my first interview after I arrived in Manchester, I said, 'I didn't come here to play in the Champions League - I have come to win it.'
+- I was twice voted best left-back in the world.
+- I help Alex Buttner every time I can.
+- Allegri is an easy coach to understand, as he doesn't like to work with stupid people.
+- The only thing is against Messi you can stop him 10 times, but if he passes you once and scores, people say, 'Evra played a poor game.'
+- In life, you always have a second chance.
+- If it amuses you to hit people, you do boxing - you do taekwondo - whatever you want. But you don't play football.
+- Sometimes you have good days. Sometimes you have bad.
+- I will play for my country until my legs won't allow it or the national coach doesn't call me.
+- I've always believed that when you play for Juve, the goal at the start of the year is to win the title and a lot of trophies.
+- Players who play in the Premiership play everywhere - they are strong, quick, and have good technique. It is the best football.
+- Manchester United is a factory workers' club. You have to respect that culture.
+- I live in the present because the past is regret, and the future is anxiety.
+- When Manchester United play with the right spirit, nobody can beat us.
+- I'm very close to Sir Alex and have a lot of respect for him, and a lot of respect for myself.
+- I have never hidden my love of Paris, even though Monaco is still 'my' team.
+- It's always a pleasure to be wanted by a club such as Paris St. Germain, especially as I am Parisian.
+- When I hear people say Patrice never had someone to fight him for his place, I think they have bad memories. They forget very quickly how I got to become Manchester United's left-back. I fought with two great players in Gabriel Heinze and Mikael Silvestre.
+- The Australian players are getting better.
+- Messi is unbelievable, but Ronaldo does it on his own. In Madrid, he has to score the goals and create them.
+- It was really difficult for me to leave Manchester United. I left for a personal choice.
+- I will love the Champions League for life.
+- I am at the top of the pyramid, but I am not stupid, and I realise that one small step could see me fall down very quickly.
+- You have to fear the wounded animal.
+- Here in Italy, football is more like a chess game. You have to think about every move.
+- The feeling here at Juventus is amazing.
+- It doesn't matter who we play against, whether it is Barcelona or another big team: when you are Man United, you do not have an excuse. You have to win.
+- It's normal to win the championship. It's Manchester United. We don't have the right to make mistakes.
+- If you play a bad game, you can't say it was because you were injured.
+- I qualify myself like a bottle of wine - the more I get older, the more it tastes sweet!
+- Robin van Persie and Wayne Rooney are both outstanding players.
+- I love Man United, and I will always love Man United. It is not a fake love.
+- People can call me arrogant, but why should I lie? Of course I feel strong, and of course I am proud as well.
+- I was only a 17-year-old lad when I played for Marsala, and while I didn't play much at Monza, that is where I met my agents, who are like brothers to me.
+- For me, Arsenal is a football training centre. You watch the match, you enjoy it, but are you going to win a title afterwards? That's what people remember.
+- Winning the Champions League is completely different to winning the Premier League.
+- When you play for Juventus, there is a lot of responsibility. You have to have personality more than just talent.
+- You see on the night of a Champions League game. It is magic. It is total magic.
+- The most important thing is believing in yourself.
+- The only person who takes the full responsibility why I leave Man United is myself. I am the one to make the choice.
+- I do what I have to on the pitch.
+- I always say one of the best sensations is when we win at Anfield.
+- A lot of people know Sir Alex Ferguson was the heart of Manchester United. He is a legend.
+- It doesn't matter if you go somewhere and you're still winning - it's always the wrong decision to leave a club like Manchester United.
+- For as long as I am still motivated, I will keep putting my boots on and not pinning them up.
+- The Champions League, for me especially, is the most beautiful competition.
+- Manchester United never die.
+- Each year, you are playing to win. That is Manchester's culture.
+- When you start to work out during your holidays, you know you've got the motivation. When I stop working hard during my holidays and getting excited before the beginning of the season, that's when I'll know it's time to call it quits.
+- I think the French teams sometimes doubt themselves. They play some beautiful games but, when it comes down to it, do not go through.
+- If you are ready to play, you have to give everything. No excuses.
+- I like to win; I chose Juve to win. I will do my best for the fans, the club, and my team-mates.
+- I love Italy; in Italy, I grew up like a man and like a player. I felt Italy like a family.
+- When you sign for a big club like Man United, you enjoy the top games.
+- I remember, in 2008, and we won the Champions League and the Premier League, and we were having our photos taken with the trophies, and someone said to me, 'Patrice, you don't look happy.' I said, 'It's because we are missing the FA Cup.'
+- It does not matter if I'm Man of the Match.
+- You can be the best left back in the world, but if you play badly in the final, people will say you're the worst.
+- I can play against a player like Messi; I don't fear anybody. I just play my game.
+- You bear the weight of the club's history on your shoulders, and you only become a true Red Devil once you understand this.
+- Patrice Evra has always fought for his place.
+- In Europe, being fast, being strong, playing only with your quality, you are going to struggle against teams that prepare.
+- I came to Turin above all for my family, because at Manchester, they had inserted a clause in our agreement which changed the situation considerably. It really annoyed me.
+- I have a lot to thank Italy for. It's the country that opened the door to professional football for me.
+- It is important to keep Manchester United on top of the world.
+- When you are young, you might be in the wrong position, but you know you are fast, and so you can compensate with your speed.
+- My first job is to defend, but I know I have the quality to score.
+- Playing for Manchester United demands huge sacrifices. It is a club for workers, and we are there to slog our guts out. There is no bling and sequins about the place.
+- When you are nervous, then you can rush things, and you don't do things as well as you'd like.
+- I'm a sportsman who has competition in my blood, and I am not interested in money.
+- I always want to win at all costs.
+- I'd always thought Australia was a rugby country, but football is really developing here, and Juve are extremely popular.
+- Football is like a pyramid. It is easy to reach the top of the pyramid, but to stay there is the hardest part.
+- I never forget my first emotions in football, in Sicily.
+- The FA Cup means so much, and one day, I hope I will win it.
+- The Champions League is the biggest trophy. Everybody in the world wants to win it.
+- When I put on a Man United shirt, I will give everything, no matter what my future is.
+- Haters will always hate.
+- Everyone thinks if they have a problem, the first thing they want to do is play football and enjoy themselves.
+- The minute Juventus came calling, I knew it was the right choice for me. They have the same winning mentality as me.
+- Wazza, when he plays behind the striker, he is very dangerous because he has more touches of the ball, and Wazza can create the goal as well and can score.
+- I always say the biggest opponent for Manchester United is Manchester United. Every year I play for this club, I will say the same.
+- If one player does not trust the other players, that player should not play.
+- It is not easy to be Patrice Evra.
+- I thrive on healthy competition.
+- You have to win the title with a strong team and a strong defence, but I don't only like to talk about the four defenders and the goalkeeper when you concede goals. It's about the team.
+- The Premier League title is very important, of course. I always say to play in the league and to win the title is very difficult. It makes you very proud.

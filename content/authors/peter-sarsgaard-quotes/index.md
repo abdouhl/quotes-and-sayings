@@ -1,0 +1,16 @@
++++
+author = "Peter Sarsgaard"
+title = "Peter Sarsgaard Quotes"
+quotes_len = "10"
+description = "the best 10 Peter Sarsgaard Quotes"
++++
+- You want to do something, you want to have the bravery to do something original. And there will always be people who are like, the classicists who are like, 'No, but it's got to have this.' In life, there are people like that attached to every single thing that there is. These are the same people that are like, still playing vinyl.
+- If you go in and audition for roles rather than just be offered them, then you kind of get a chance to kind of discover that you can do something that you didn't think you could do.
+- It is very possible that I could have ended up on 80 acres of land by myself, and fallen in love at a distance with a gorgeous woman I could never have been with.
+- Four hours of makeup, and then an hour to take it off. It's tiring. I go in, I get picked up at two-thirty in the morning, I get there at three. I wait four hours, go through it, ready to work at seven, work all day long for twelve hours, and get it taken off for an hours, go home and go to sleep, and do the same thing again.
+- If all the circumstances of acting are made to easy, then there's no grain of sand to make the pearl.
+- I always think change is important in a character. The most dynamic choices that you can make for a character are always the best ones.
+- I like anything that is like an obstruction, something that I have to act through is good.
+- The only way to silence a room that's laughing at you is to sort of take over.
+- I don't really worry about being typecast much. I mean, everyone in Hollywood is typecast to a degree.
+- But the way that we've got it organized in our family, we try not to work at the same time, so I'm just now starting to look around. I think I'd like to do a film.

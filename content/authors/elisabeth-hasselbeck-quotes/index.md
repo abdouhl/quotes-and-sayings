@@ -1,0 +1,33 @@
++++
+author = "Elisabeth Hasselbeck"
+title = "Elisabeth Hasselbeck Quotes"
+quotes_len = "27"
+description = "the best 27 Elisabeth Hasselbeck Quotes"
++++
+- I like to think there are a lot of balls in the air, and the kids are not one that I choose to drop. They have been a priority and I have a career that allows for a little more flexibility at times and hours that are quite mom-friendly.
+- I've always thought that if you work really hard at something, you can get it.
+- Knowing someone else is going through the bizarreness of pregnancy with you makes it feel a little less impossible.
+- I'm a true believer that if someone bothers you, you care.
+- There's always going to be a ball up in the air, and what I try to do is make sure that ball is never the kids. If that means sacrificing a social event or having fewer work commitments, it's worth it.
+- I don't have a problem with conflict. I'm not a stranger to high-pressure situations. I've been there, believe me.
+- I prioritize the things that need to get done at work, and I ask myself where I'm spending the majority of my time. The answer to that question always needs to be 'with my family.'
+- I would like to have three or four kids.
+- It's too hard to present an opinion on something that's not true to who you are. It's much easier to base opinions and debates off of fact and your true heart on things. To me that just comes quite naturally, and it's also about being open to what the debate is about and hearing the other side.
+- It's amazing, the mentality shift that occurs in pregnancy. All of a sudden you want to be good to yourself.
+- I don't claim to be someone that knows every verse in the Bible. I wish I did. I truly do. It just means I need to spend more time in those pages.
+- I do splurge on diaper bags. I have a half dozen in different colors and styles.
+- Every day is a learning experience for city kids, and they are really sort of forced to interact with everyone around them and develop into social beings.
+- I majored in industrial design/painting, but haven't had time to exercise that creativity.
+- I love Central Park. I feel like I am somewhere else.
+- I tend to absorb a lot of what other people are feeling.
+- To see your spouse in a parental role is one of the most incredible things.
+- I have to live in the truth that this is who I am. That's what I need to focus on.
+- I'm not worried about misconception or a perception that's bad. If I were, I'd be chasing something all the time.
+- When I get home from a heavy work day, I make sure I get outside with the kids. I don't think there's any better cure than being active as a family outside.
+- The best Mother's Day gift I ever got was just a full day with the kids where they did their mommy pampering. They cut cucumbers and put them on my eyes and my daughter gave me a facial. I'm not even sure what was in it!
+- I get worried sometimes that people are saying 'Why is she on television - is it because of Survivor?' That people are saying, 'She got here the easy way.' But I have been working hard all these years, and I figured I needed to move forward and embrace it, respect it and perfect it. If I didn't, then everybody would lose.
+- Undoubtedly, the biggest misconception about me is that I'm some staunch conservative, blind, rightwing hardcore Republican who doesn't want to hear anything from the other side.
+- You can't beg from people what they're not willing to give you.
+- There are some days when I think for sure there are so many other stronger Christians than me out there.
+- Pregnancy and motherhood are the most beautiful and significantly life-altering events that I have ever experienced.
+- Nobody's life is ever all balanced. It's a conscious decision to choose your priorities every day.

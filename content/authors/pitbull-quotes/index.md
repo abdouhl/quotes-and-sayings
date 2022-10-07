@@ -1,0 +1,39 @@
++++
+author = "Pitbull"
+title = "Pitbull Quotes"
+quotes_len = "33"
+description = "the best 33 Pitbull Quotes"
++++
+- Look, Pitbull is a product.
+- I grew up around salsa, merengue, bachata, bass music, freestyle, hip-hop, techno, house, rave.
+- I think of fans like a barbershop. I want that debate.
+- With all the negativity going on in the world right now, people need an escape. When you give them a hit record or a great record, it allows them to escape for at least three to four minutes. They're not thinking bills or economy or immigration or war when you create that kind of ambiance.
+- This industry is 90 percent business, 10 percent talent.
+- I look at this game from a different perspective.
+- I'm definitely someone who enjoys life and wakes up with a ball of energy.
+- I'm no longer an artist, I'm a business partner.
+- I work hard. But I play hard, too.
+- One night I'll be in Los Angeles and it'll be a Latin crowd, and then another night I'll go to Fresno and it'll be an all-black crowd. To me, that's the beauty of the music.
+- Music to me is something I did as a hobby.
+- Every time I reach a new audience, that means I'm doing something right.
+- The people in Cuba, they know what I stand for, and there's a lot of people in Cuba that stand for the same. But they can't say it.
+- My owner is life and that's what I fight for.
+- I'm here to entertain.
+- I feel like I've been fighting in music and creating new ways and new opportunities to make things work even when people thought it wouldn't.
+- I'm in the major league now.
+- I like to keep my money at the end of the day.
+- My kids can't eat awards.
+- You can't get much whiter than me.
+- When I get in the studio the idea is just to work and bang out as many as I can.
+- I won't perform in Cuba until there's no more Castro and there's a free Cuba. To me, Cuba's the biggest prison in the world, and I would be very hypocritical were I to perform there.
+- I don't agree when the USA, that lives by a constitution, says, OK, just because you look this way, we're going to ask you for your documentation, or you gotta go back to your country.
+- I make music with no boundaries.
+- As Americans, which I suffer from myself, we have ADD.
+- If you continue to work hard, let that be the fuel to your fire.
+- I already had three strikes against me. One, I have light skin. Two, I'm from Miami, which wasn't getting looked at at the time. Three, I'm Cuban. But now, I've made everything that stacked against me into a virtue.
+- It's all about music, because music is basically what's... been my avenue out of maybe being involved in things I shouldn't be.
+- I'm taking all the negatives in my life, and turning them into a positive.
+- Any time I see anything moving onstage, I'm cautious about it.
+- I'm taking a lot of freestyle music and flipping it.
+- In any country when you throw something in somebody's face, it's disrespectful.
+- Music is my hustle.

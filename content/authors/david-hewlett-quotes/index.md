@@ -1,0 +1,70 @@
++++
+author = "David Hewlett"
+title = "David Hewlett Quotes"
+quotes_len = "64"
+description = "the best 64 David Hewlett Quotes"
++++
+- I drool like nobody.
+- My love of science fiction comes from the idea of being able to explore ideas and concepts to an either logical or illogical extreme.
+- 'Debug' is '2001' from Hal's perspective.
+- So I think the popularity of the Internet at the same time as the show made a big part of this sort of groundswell of support for 'Stargate.'
+- I don't want to know what happens because I enjoy picking up a script and going, 'I do what?!'
+- I used to spill things on my t-shirts, leaving oily dark spots down the front that I would try to hide with loose-fitting dress shirts. Nowadays all I have to do is tell everyone my son did it. I skirt the 'slob' moniker and instead look like a dedicated father who doesn't even have time to change.
+- I sort of went 'Oh, great. I'm getting these great roles and I love doing them, but I'm going to be Anthony Perkins for the rest of my life.'
+- As a kid, it was always my dream to open a closet and end up fighting dragons or battling aliens.
+- As an actor, your best help is just to shut up and get out of the way.
+- There is going to be a 'Stargate: Atlantis' movie. Unfortunately I'll be making it by myself in my basement.
+- I always thought there were two kinds of males in the world: the ones who look good naked and the ones who look funny naked.
+- In high school, you re either a bully, a jock or a nerd, and I somehow tried to jump between camps by using humor. It's amazing how you can blend in with that.
+- It may not be 'mainstream,' but there's always a market for science fiction.
+- The actor's dream is to come in knowing that you're only supposed to do one episode and then come back because people liked it.
+- 'Cube' was the first big science fiction film I was a part of. It was a fantastic directorial debut by one of my oldest friends Vincenzo Natali and it remains one of my most painful and uncomfortable roles. It's also one of my favorites.
+- Actually, I have discovered that while I am totally in love with my child (who is naturally perfect), I still don't like other people's children!
+- I truly love science fiction; it's feeling you're something more than your present position in the world.
+- You had to do some club after school and it was either the sports or the intellectuals. And right smack in the middle was the acting thing for all the outcasts, which I fell into pretty easily.
+- You can make amazing sci-fi films if you want to with very, very little money and very advanced technology that can run on your desktop.
+- The nature of filmmaking is that there are so many people involved in it, so many fingers in the pie, that part of the talent of a director is to try and get your personality through in the movie.
+- I find that love scenes are the most unsexy things to shoot.
+- Sequels are scary. And making a sequel to something as good as 'Scanners' is even scarier.
+- I guess again I find myself playing the somewhat grumpy scientist. Strange how that happens.
+- Art, location, money - I say as long as you've got one of them, you're fine.
+- I'm lucky that the characters that I get tend to be interesting and a little schizophrenic.
+- I suck as a driver. I believe all cars should be piloted and driven by machines.
+- The thing I love about YouTube is it's almost like having an instant audience for improv.
+- I think what Stargate has going for it is a sense of humor about their science fiction.
+- I want more sci-fi movies that aren't $200 million movies that I have to wait for and generally be disappointed with.
+- What I love about the 'State of Syn' concept is that, while it's exploring science fiction, it's also trying to explore the future of film and television and the Internet, just in the nature of how they put it together and promote it and add apps and all that kind of stuff.
+- I used to be a pretentious little jerk, running around saying 'I'm going to be an awktor.'
+- Bad guys are always fun. It's one of the reasons why I love McKay so much.
+- I'll go out at night and look up at the stars and think, 'How ridiculously inconsequential I am in the scheme of things.'
+- I've always loved cheesy stuff.
+- The sad thing is that I only ever read novels in bed and now only on the iPad, and thanks to Netflix and iTunes my reading time is getting eaten up more and more by movies and brilliant sci-fi television, like the U.K. series 'Misfits!'
+- Yes, I am Canadian, having sailed here from England on a Russian boat called the Alexander Pushkin when I was the ripe old age of 4.
+- The only reason I write is that I feel I have to. Being the creator of a project puts me in a much better position to do the things I want to do.
+- I revel in movies where the monsters tower more over the tiny budgets than the characters they threaten.
+- As a parent, you're struggling to find stuff that you think is suitable for the kids, but also stuff that you'd like to watch with them.
+- People talk about drones like they're a bad thing, but they forget there are people behind them. It's a lot easier to blame the technology than to accept that people are a cancer on this planet.
+- My father took me and my about-to-be-traumatized friends to Stanley Kubrick's '2001' for my 10th birthday party.
+- It's always a stunt acting opposite Robert Picardo, because you never know what he's going to do.
+- I actually am a computer nerd.
+- I wanted to do '2001' from Hal's perspective. What it finally ended up being was 'Final Destination' in space.
+- I've always spoken very quickly, and when I get nervous, I talk even faster.
+- I adored my years playing Rodney McKay and I would jump at any chance to reprise the role!
+- There are so many sequels where everything between the special effects is just boring.
+- My mother says my first television experience was hiding behind the sofa watching John Pertwee's 'Doctor Who.' I loved that show.
+- 'Pin' was a creepy little movie that I starred in back when I was cool and thin and had so much hair I didn't know what color to dye it.
+- If I ever write an autobiography, 'Hilariously Unhappy' could very well be the title.
+- Bill Nye, so that guy truly knows everything, and I tested him. I'd come in every day with some new question for him that I'd assuming he'd have no idea basically how to answer it - basically he knows everything.
+- When a kid says 'I'm in astrophysics at school because of your character' that's amazing to me.
+- There's very few comedy sci-fis that have worked for me other than the classics, like 'Red Dwarf' and, of course, 'Hitchhiker's Guide.'
+- No, I gained weight while playing the role of Rodney Mckay on Stargate Atlantis... breakfast burritos and a near endless supply of donuts.
+- I really love playing McKay. It's one of those roles where every day something is different.
+- Love scenes in general are the most technical things to shoot.
+- The reality is almost everything I do I cringe about later.
+- All my life I have apparently been tying my shoelaces wrong, there is a much more mathematically beautiful way of doing it, that I was shown by Bill Nye - with Neil deGrasse Tyson looking on.
+- If I was Leo DiCaprio or someone similarly gifted and successful I wouldn't be writing. I'd be too busy acting in all the best scripts in town to try and write them!
+- The comedy and character interaction on 'Atlantis' is what makes it so different from most science fiction shows.
+- I wanted to try directing.
+- No, I am not allergic to lemon, though fresh pineapple can pose problems.
+- I have written, and I do write, but the truth is I don't love it. I can't stand the process!
+- When I became an actor, it was disappointing to show up on set and be handed a coffee. You know. I'd pick up cables and get told off.

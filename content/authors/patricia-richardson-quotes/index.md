@@ -1,0 +1,34 @@
++++
+author = "Patricia Richardson"
+title = "Patricia Richardson Quotes"
+quotes_len = "28"
+description = "the best 28 Patricia Richardson Quotes"
++++
+- I didn't want to do comedy again. It is way harder when you are doing comedy. You can't just concentrate on the character and the plot. In comedy, the writers, instead of obsessing about character and plot, obsess about the jokes.
+- I have born-again Christians in my family, and they are completely against abortion... Everybody's got to stop being afraid of it real soon. Who's going to do it if a woman's network doesn't? People are going to be dying.
+- I've had so many horrible things happen in my life since I did 'Home Improvement' that it's worried me about doing comedy because - how do I say this - I'm a much darker person than I was.
+- Getting married and then having children just centered me and grounded my values. It was like a whole new world. It started happening in New York with a little play called Cruise Control, where I relaxed, and then I kept getting work in Hollywood till this series happened.
+- I'd like us to deliver a little message to all the men still out there who think it's the '50s, and coming home simply means watching television with a beer.
+- But then my mother, who's a very selfless, stoic person from a family of Marines, would tell us that what was good for our father was good for us - he would make more money; therefore, we'd be able to get better educations.
+- The truth is, I've been going pretty much nuts all year. I constantly have to fight being scattered. I feel like I'm on automatic pilot from fatigue. The hardest thing is trying to be present, living for the moment, for everybody in the family.
+- Instead of yelling and spanking, which don't work anyway, I believe in finding creative ways to keep their attention - turning things into a game, for instance. And, when they do something good, positive reinforcement and praise.
+- I kind of feel like people like to dump on 'Home Improvement,' and I don't know why.
+- You have to be the parent; you can't be their friend.
+- I always hated perfect TV moms because I always thought that was unrealistic.
+- I really was about to pass out during my entire wedding. I just didn't know if I could marry anybody.
+- I still get the kids to the doctor and dentist and plan their play dates and buy their clothes.
+- It was extremely hard going from being a parent of one to a parent of three, because now all these instant decisions have to be made about how you balance out the time and attention between them.
+- I don't understand that, because I think that what people like most about the show is that they recognize themselves in the characters and their problems, so the more believable the family is, the more we can draw the audience in.
+- Part of the whole L.A. mentality that nothing really matters unless it's a success... is such a shallow and dangerous attitude to have.
+- Tim on the show does a lot of that posturing, of course, and feels sort of threatened by women. But even at that, you do see him cooking, and ultimately he's a good father because he spends a lot of time with the boys.
+- They see me as being this Super Mom on TV who also can more than handle a difficult husband, and they assume I'm going to be just full of wisdom as a mother and wife myself.
+- I live in such a sweet world in the world of 'Home Improvement' that I tend to be drawn to stuff that's really on the other end of the spectrum entirely.
+- When you're a woman with a certain amount of fame and money, you are never certain what someone's motives are.
+- Television is a real woman's medium... but what's disturbing is, still even in television, women have so little to do with what's going on behind the scenes.
+- You go where you think it's good for your work and your soul to go. I need to go someplace where I am reminded about why I wanted to act in the first place, and for me, that's the theater.
+- Losing their reproductive rights is the first step to how women live in Saudi Arabia and Afghanistan.
+- I had been a real problem child, but once I got into acting, my parents never had any more trouble with me because all of that energy was directed in a positive way.
+- I curse too much. I really do. I have a horrible cursing mouth.
+- I know it's a lot harder for women who don't have enough help, but the truth is, no matter how much money you have, if you want to stay involved with your children and don't want to lose being a primary parent to them, you're still in the game.
+- Good actresses can often accomplish miracles, and it is possible to be someone you've never been or will be. But in a sitcom, there's no time.
+- People who meet me think of Jill and transfer her strong qualities to me.

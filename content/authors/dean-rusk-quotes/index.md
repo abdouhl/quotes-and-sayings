@@ -1,0 +1,17 @@
++++
+author = "Dean Rusk"
+title = "Dean Rusk Quotes"
+quotes_len = "11"
+description = "the best 11 Dean Rusk Quotes"
++++
+- When you solve a problem, you ought to thank God and go on to the next one.
+- While we are sleeping, two-thirds of the world is plotting to do us in.
+- The United States is not just an old cow that gives more milk the more it's kicked in the flanks.
+- We were eyeball-to-eyeball and the other fellow just blinked.
+- The best way to persuade people is with your ears - by listening to them.
+- One of the best ways to persuade others is with your ears by listening to them.
+- Continuity does not rule out fresh approaches to fresh situations.
+- Give a member of Congress a junket and a mimeograph machine and he thinks he is secretary of state.
+- The usual cause of evil in the world is that at any given time half the people in the world are awake.
+- We have tried to make it clear that the United States is not just an old cow that gives more milk the more it is kicked in the flanks.
+- Physicists and astronomers see their own implications in the world being round, but to me it means that only one-third of the world is asleep at any given time and the other two-thirds is up to something.

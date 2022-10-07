@@ -1,0 +1,63 @@
++++
+author = "Stone Gossard"
+title = "Stone Gossard Quotes"
+quotes_len = "57"
+description = "the best 57 Stone Gossard Quotes"
++++
+- We may take breaks and do other things, but we feel we'll ultimately have Pearl Jam as a family.
+- I love making music. I love being involved in arranging music. It's very natural to know what I want to hear next and come up with ideas that are variations of what might be good.
+- It's really comforting for me and Jeff, at least, that after 12 years we finally feel we've reached a place where we can be more honest, real and loving with each other. And we're finally in a band that we know is good, and deserves the credit it's getting.
+- My daughter loves to do art stuff. As a father, I like to play with her. We break out the big pads of paper and the glitter and all the stuff. She likes to do what she likes to do. I want to do something, too. So I've just started using her same materials - a lot of crayons, a lot of sparkle, charcoal, pencils, markers and glue.
+- Well, you go to Holland and everybody's on a bike - nobody would think to have a car.
+- It would be great to take one city street and turn it into a pedestrian corridor and see what kind of effect it has on the businesses in that area - It's the future I think.
+- You know, at 35 or at 38 or 40 you really start to see what your body could look like if you just don't do anything all winter long. So that's another motivating factor, our vanity.
+- I walked to Seward School first through fourth grade. It's just amazing to me now that we'd walk down 10th Avenue on Capitol Hill.
+- Call it holistic or holographic thinking, it's been quite effective imagining the world's problems are all right in front of you on a smaller scale with your band. You deal with those relationships, and that's where real major change begins.
+- If you have a lot of nature in your city, it becomes a more enjoyable place. That's my own feeling about it.
+- It's a perfectly human instinct to want to be near water.
+- If it had remained always my band, my natural tendency would have been to get more complex and arrange things more and more. That wouldn't necessarily be good for Eddie, or anyone else in the band.
+- I think ultimately, bringing more nature back into the city is a way to deal with urban sprawl and things like that. If the cities feel a little more natural, people like to live there more rather than moving out and dividing up another piece of land that shouldn't be touched.
+- Dave played an important part in our growing, but change occurs.
+- I think I have my own sort of distinctive swing, for sure. I think that's something that comes really natural to me, to push against the beat and kind of explore a triplet feel behind everything just to see what that feels like.
+- Every year is filled with good times and fights and struggles and misunderstandings. All of it adds up to being in a band over a long time.
+- Politics is tricky; it cuts both ways. Every time you make a choice, it has unintended consequences.
+- You can't help but have your children and your family be part of what you dream about when you dream up a song.
+- I'm probably at my least religious I've ever been in a while. When you're moved by music, that's always good. But I haven't been talking to God too much lately.
+- On some planet, I probably could have been a lawyer. On some planet, I could have been somebody in advertising.
+- I like to play music. I like projects. I like excuses to hang out with my friends and play music.
+- Raising awareness, changing the marketplace, effecting spiritual change - whatever it is that you decide is your thing, go for it.
+- There's been a lot of role reversal going on in the band. The roles people have been playing for a long time will always be there, but everybody's willing to try on different outfits.
+- And I remember as a second or third grader having some autonomy to go to the store if I felt like it, walk home, take my time, kick the can. We were on our own schedule after school, so that was cool.
+- I just know that I love to write songs, and I have for a long time.
+- As a songwriter, it's kind of hard to listen to your own stuff with clarity.
+- For the most part, I really love being in a collaborative thing. And in a collaborative thing if you have a singer as good as Sean Smith or Eddie Vedder, you kind of think, well, why don't you just go ahead and let them sing? People seem to really like it.
+- I think it's evident that expensive neighborhoods in Seattle are surrounded by natural beauty. That elevates city life. So if we can make cities more attractive in the long run, we can be smarter about issues like development, zoning and economics.
+- I picked up a guitar, and I knew what I wanted to do.
+- It may take me a long time before I feel 'ready' to tour as a lead singer. I may never be ready... we'll just have to see.
+- Words can have the same kind of magic as riffs can.
+- My methodology is not knowing what I'm doing and making that work for me.
+- I've seen neighborhoods that I would have never driven though because I'm riding my bike, because I'm looking for side roads, looking for maybe more hills or less hills depending if I'm exercising or not. You see a lot more, and you get the flow of a city a lot more.
+- And I look forward to the time when I can become more indulgent with my songwriting. But this band is a family, and it's a process that we have to grow with together.
+- There is a tendency for writers to be most exciting by whatever they just wrote. Sometimes that excitement is warranted. Sometimes on further listen it's not as good as something they did a couple of years ago, but it's just not in their sights at that particular time.
+- I like rhythmic things that butt up against each other in a cool kind of way.
+- I like to write music. And I think exploring with lyrics and figuring out how to make complete songs is fun. I think I have a take on it. I don't know if it's great, but it's an interesting take. It's original.
+- When you're moved by music, that's always good.
+- But Eddie does not make all the decisions. Eddie can listen to reason; Eddie can be swayed or talked in or out of certain things. Eddie allows other people to lead in this band and to have certain roles that are very fundamental to the decision-making process.
+- I think people will always love a heavy Sabbath riff because it's fundamental to rock.
+- It's a very complex scenario, and certainly Dave was, and is, not the only person in Pearl Jam with personality flaws. Everybody in this band exhibits some form of neurotic behavior. And we couldn't find a balance, a mutual respect for each other.
+- I think when you put a new record out, everyone has a song or two that they feel people will be moved by so much that radio will be forced to play it.
+- That's not to say Eddie's never done anything malicious. But he never grabbed power for power's sake. His position was gained only because he has that energy, and that's naturally where he ended up.
+- I liked the banana-seat bikes with the high handlebars - maybe a card in the wheel could have been part of it.
+- You can say what you think music is, but the only way it really is, is how people experience it.
+- I've always related music to those moments when someone turns you loose on something and they haven't told you how to do it.
+- I like myself. I think I'm cool. But I think when you're in a band you take on a role within the band, and I think people over the course of years can identify those roles as almost being bigger than just the individual. I don't know. It's kind of hard to talk about.
+- Parenthood and having kids puts you in touch with a whole other sort of sensitivity which is nothing but good. You feel more than you ever felt. You feel that vulnerability, but at the same time you wouldn't trade it for anything.
+- A lot of fun stuff happens when you go out on a bike compared to when you're in a car. You're more in the environment. It's enjoyable. Even when It's raining It's still fun.
+- I think if you exercise, your state of mind - my state of mind - is usually more at ease, ready for more mental challenges. Once I get the physical stuff out of the way it always seems like I have more calmness and better self-esteem.
+- Eddie is a natural leader. Jeff and I have been very much in control of previous bands we've worked in. But the way Eddie grew into being the leader of this band was the most gradual, slow and respectful process that I've ever been involved in.
+- I learn stuff from making music every time I go in the studio. I'm continuing to try to find new ways to play in a song or be in a song and have a positive impact on a song.
+- The past is filled with people who aren't traditionally thought of as fantastic singers singing these songs that capture people; songs like 'Louie Louie.' I just aim toward that, and I think I've gotten better at it.
+- I'm in a rock band - I don't have a day job! I am spoiled... a lot.
+- A significant event for me was learning Hank Williams, reconnecting with his music's simplicity, which inspired me to inhabit the same territory. It's different, because I grew up on Led Zeppelin, The Stooges and punk, so in that sense I'm mutating country and folk more than a few degrees.
+- I really enjoy not getting in a car and running errands on bikes.
+- I think that's one of the biggest problems in rock is people thinking too much, putting too much emphasis on getting things perfect or completely sorted out. Sometimes that sound of not having everything sorted out is kind of cool.

@@ -1,0 +1,61 @@
++++
+author = "David Gauke"
+title = "David Gauke Quotes"
+quotes_len = "55"
+description = "the best 55 David Gauke Quotes"
++++
+- If Parliament is voting overwhelmingly against leaving the European Union without a deal but is voting in favour of a softer Brexit, then I don't think it's sustainable to ignore Parliament's position and therefore leave without a deal.
+- But only a candidate who rejects wishful thinking, has the courage to tell the truth about the options in front of us and who will address Brexit on the basis of the hard realities will succeed.
+- Offenders who commit crime in prison have a disruptive and often devastating impact on the prospects of those who are trying to turn their lives around and who see prison as a pivotal turning point in their lives.
+- I would make the case that the vast majority of prisoners leave prison and go back into society. We share that society with them and what sort of people do we want them to be.
+- I believe we are nearing a time when a combination of technology and radical thinking will make it possible for much more intensive and restrictive conditions to be applied in more creative and fundamental ways outside of prison.
+- Whilst long prison sentences will always be right for those who commit the most serious crimes, particularly of a violent or sexual nature, the fact is that the vast majority of all offenders will at some point be released.
+- Non-custodial sentences are certainly something to look at, more support in the community rather than within prisons is something we have to look at. There will of course still be women who need to be in prison, serious offenders, but I think there is scope to look at that number and I think that number could come down.
+- Where ex-offenders are genuinely trying to turn a corner and live free from crime, it is vital we do all we can to support them.
+- As employees, we are all given specific duties and carrying out these duties provides us with a great sense of responsibility.
+- If a candidate believes in a no deal exit, they should be straight with the British people that it will come at a very considerable cost.
+- Our judiciary has a reputation for intellectual rigour, careful consideration of the arguments, and a serious-minded determination to each decision based on what is right and not necessarily what is superficially popular. I am not sure that all politicians have the same reputation.
+- I want the United Kingdom to be the best place in the world in which to grow old. By ensuring that as many as possible have the opportunity to build up a decent private income for later life we will be well on the way to achieving this.
+- Our reforms to criminal record disclosure will benefit ex-offenders, but there will a broader, more significant payoff for everyone in society.
+- For a long time the Conservative party gave the impression of not being terribly interested in the people who were on welfare and that we might just view it as a drain on taxpayer resources.
+- Community interest companies are a growing form of regulated social enterprises, and we want to make sure that the rules are as friendly as possible for investors and social enterprises.
+- Loose talk about no deal has given credibility to the simplistic slogans of the Brexit party and resulted in millions voting for them.
+- I believe the public therefore expect the justice system to focus on rehabilitation to reduce the risk of subsequent offending - and the likelihood of them becoming a victim of crime.
+- The public, investors and stakeholders now expect higher standards of tax compliance and more transparency from large businesses about the way they approach taxation.
+- Traditional Conservative voters like me should lend their support to the Liberal Democrats but I think I am best placed to run as an independent.
+- A Canada-style deal for the whole of the UK results in a hard border between Northern Ireland and the Republic of Ireland. For that reason, it has never been acceptable to the EU without a permanent hard border down the Irish Sea.
+- I believe prisons have emerged as a new frontline in the fight against crime. The fact is, new technology and sophisticated approaches mean that prison walls alone are no longer effective in stopping crime – inside or outside of prison.
+- If the Conservative party hasn't got room for Ken Clarke and Philip Hammond and 19 others, there is also a message there to millions of people who vote Conservative, that it's not a party for them. If you go down a divisive route, the scars will be very deep.
+- We must face facts. I have made that my guiding principle in office.
+- If the price of continuing my political career is to be complicit in a really bad thing then that's not a price I'm prepared to pay.
+- I wouldn't want the country to be faced with a choice in 2024 between a discredited Conservative party that has inflicted unnecessary destruction on our economy versus a semi-Marxist Labour party. People would be left with such a terrible choice.
+- My position was that if the country could unite around a soft Brexit that would be the least worst way through. But it is now very clear that the country is not going to unite around a soft Brexit. There is nobody really advocating a soft Brexit.
+- I want to go further and make the UK the easiest place in the world to invest in social enterprise.
+- Boris Johnson was elected on a strategy that went down well with members, but was inevitably going to collide with reality and unravel. And it's happened more quickly than it might have done, for reasons for which he and his team are responsible.
+- I'm impressed by Jo Swinson. I think if I was living in a lot of constituencies I would lend my vote to the Liberal Democrats.
+- Introducing a social investment tax relief will make investment even more appealing and accessible.
+- I believe that the Conservative party is at its best when it's a pro-business, pragmatic party, so to appeal to the country, and the country loses out significantly if the centre right of politics becomes much more populist, nationalist, and more right of centre.
+- Many offenders have had immensely difficult upbringings and do not have the support of loving families and friends.
+- A willingness by politicians to say what they think the public want to hear, and a willingness by large parts of the public to believe what they are told by populist politicians, has led to a deterioration in our public discourse.
+- Like most MPs, I campaigned and voted to remain in the EU. I was concerned that extricating ourselves from a relationship built up over 40 years would be complex and challenging and that the economic cost of increasing friction in our trade with the EU would be high.
+- The best way of ensuring that we get what we need is by demonstrating we have a clear plan, we are thinking strategically and ensuring every pound of taxpayer's money is spent wisely and my focus is ensuring we do that.
+- The country is polarised between those who would pursue a hard Brexit, which is where the prime minister is, and Remain.
+- There is one stark fact facing us: three quarters of all crime that results in a caution or sentence happens because of reoffending. We must be fearless in dealing with this.
+- We've got an outstanding justice system. Our judiciary are respected around the world. It is a key part of what we are as a country. It's an area where there is a strong political consensus behind that and perhaps in an era of populism it's important that we preserve those qualities.
+- Rather than recognising the challenges of a fast-changing society require sometimes complex responses, that we live in a world of trade-offs, that easy answers are usually false answers, we have seen the rise of the simplifiers.
+- Middle-class commuters in Rickmansworth and Berkhamsted are wondering whether the Conservative party is the party that they have traditionally supported. And they certainly don't want to support a Farage-lite party.
+- Our research shows that nearly 60% of recent offenders who engaged with a community-based alcohol programme did not go on to reoffend in the two years following treatment. Offenders given a community sentence including mental health treatment have also shown to be significantly less likely to reoffend.
+- There are tradeoffs between independence and co-operation, between regulatory autonomy and market access. This means that compromises are necessary to deliver a pragmatic Brexit that protects jobs and living standards while respecting the referendum result.
+- People really don't want Jeremy Corbyn, and they do fear the consequences of a Corbyn government.
+- We should be extremely cautious about continuing to increase sentences as a routine response to concerns over crime.
+- Beginning with the launch of targeted interventions, including through the tax return process, we will look to find simple and efficient ways in which we can support people to save.
+- I want to open up investment even further so over the summer we'll launch a consultation on indirect investments in social enterprises - including exploring the possibility of a new scheme based on the success of venture capital trusts which will enable investors to pool their funds to support a variety of social enterprises.
+- Since 2012, automatic enrolment has brought millions of people into a workplace pension for the first time, thanks to the support of businesses and employees across the UK.
+- I think we do have to be conscious that sometimes there are different issues with women offenders than there are with men.
+- If Northern Ireland is in one customs regime and the Republic of Ireland is in another, why won't a customs border be necessary, just as happens with every other land border of this type?
+- I don't like the idea of being chucked out of parliament, chucked out of the party, for basically doing the bleeding obvious: trying to stop an absolutely damaging policy, that a responsible political party should be opposing vigorously.
+- But while the state pension is a critical foundation for people's financial security as they age, it must be supplemented with other forms of retirement income.
+- For the offenders completing these short sentences whose lives are destabilised, and for society which incurs a heavy financial and social cost, prison simply isn't working.
+- Sometimes you do have to accept your second or third choice in order to avoid an outcome you consider to be even worse.
+- Leaving the European Union is likely to have an impact on the workforce in sectors such as catering, construction and agriculture. I see an opportunity here for both prisoners and employers, particularly those operating in these sectors.
+- People don't like what's happened to the big parties. They think they've been dragged off to the extremes. They think the quality of leadership is below what a country like the United Kingdom ought to have available. And they want something different.

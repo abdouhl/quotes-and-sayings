@@ -1,0 +1,104 @@
++++
+author = "Peter Frampton"
+title = "Peter Frampton Quotes"
+quotes_len = "98"
+description = "the best 98 Peter Frampton Quotes"
++++
+- Detroit has always been a rock and roll audience for me and picked up on me and my performances long before a lot of other places in the country. I will never forget that. It's a home away from home. I love it.
+- I'd often use a Leslie cabinet on its own in the studio because everyone in the late Sixties and Seventies was experimenting with them. We'd stick anything through a Leslie because it made everything sound so good.
+- If there's ever a live record that deserved to be mixed in surround sound, it's 'Frampton Comes Alive.'
+- The power of your audience is in the hand of the artist now via all the media - Facebook and Twitter and Instagram and all of them - all of the new available techniques to get to people. I think that you are your best publicist and record company and everything right now when starting out.
+- I'm learning all the time. I've learned things like how to be a better person, better father, better husband.
+- A pop star's career lasts 18 months.
+- I am an oldies act - yes, I am - there's that part of me, but I am so much more than that.
+- After 'Frampton Comes Alive!' became a huge success, I really needed to take time off to work out what the hell just happened. Instead, I just kept working.
+- I formed Humble Pie when I was only 18. We were one of the first 'supergroups,' with Steve Marriott of The Small Faces on guitar and Greg Ridley of Spooky Tooth on bass. With Humble Pie, I tasted American success for the first time.
+- An artist has to be selfish; otherwise, he's not true to his own art.
+- A lot of people were moved to write after September 11th. It had to affect us all in a way.
+- I write about what happens to me. It's all there. I couldn't do it any other way.
+- I'm not a good thinker of tomorrow, looking forward. I live day-to-day. It's much easier for me that way.
+- A lot of other people have used the talk box but have used it as a sound as opposed to actually making the guitar enunciate words.
+- I've had the honor of sitting in with the Allmans at their Beacon shows a couple of times, and it just doesn't get better than that.
+- When you put the phone down at the concert, there's your 3-D, there's your HD.
+- I love living without a net.
+- I love staying at home and not seeing a guitar for ten days... but then I love that feeling of picking it up again.
+- I wrote 'Show Me the Way' in the morning and wrote 'Baby, I Love Your Way' in the afternoon of the same day. I've been trying to figure out what I ate for breakfast that morning ever since!
+- I do live a simple existence.
+- Everybody wants to be on the front cover of 'People' and 'Rolling Stone.'
+- It got to the point where I couldn't afford to borrow any more money to lose. Know what I mean? That was just before 'Frampton,' my fourth album. As we were recording it, I was very down and depressed.
+- I had so much out there, the world was going crazy about 'Comes Alive!' I didn't need to go and rush into something else. You're only as good as your last record, so don't put one out for a while.
+- When I go to do a show, it's my time; it's all about me. You've come to see me. You haven't come to see me if you're in an armchair watching a video. It's very distracting.
+- I'll always be remembered for 'Frampton Comes Alive!,' but I've got so much other work that I've done since that, that I feel it's almost like after 'Frampton Comes Alive!' ran its course, my career - I'll say it - 'Petered' out.
+- 'Penny for Your Thoughts' was something I noodled on for a while.
+- Mistakes were made, so I learned by my mistakes.
+- I've always been very gadget-conscious.
+- I love working with film, whether it's the technical side, the acting side, or the musical side.
+- If one percent of the people who take iPad or iPhone videos of concerts watch them, I'd be very surprised.
+- I often explain it to people that if you listen to a Who record and then go see the Who live, it's like two different bands. That's how Humble Pie worked. We were definitely a lot more ferocious live because of the energy that the entire population of us had.
+- I'd sold more records than any other person in history with one album, at that point, in '76. It became a very scary place for me, because I didn't know whose advice to ask and lost my confidence in my own gut feelings about everything.
+- I've been a huge Gregg Allman fan since first hearing the Brothers' live 'Fillmore' album.
+- I never thought I would do an all-acoustic tour or an all-acoustic album.
+- When you don't have someone, you feel you want someone. Then when you do, it's nice to be single for one night.
+- The '80s were a difficult period for me.
+- I was only a teenager when I played with the Herd and Humble Pie, and I was still in my early twenties when 'Frampton Comes Alive!' came out. That was an immense amount of work in a relatively short period of time. I needed to stop for a while and grow up, but I didn't do that.
+- The number of times that anything is overdubbed on 'Frampton Comes Alive!'... the rule was, if it didn't make it to the tape, then we can redo it because it needs to be done. If it made it to the tape, and it sounds good, we leave it. So nothing was overdubbed on that album at all that wasn't absolutely necessary.
+- I was allowed a freedom as a baby boomer to do whatever I wanted to do. My parents were able to give their permission because they just felt, 'Why not?' I joined my first band and dropped out of school.
+- 'Frampton Comes Alive!' is the album I'll always be remembered for. I'm very proud of the music that's on it. Why it exploded the way it did and continues to live on are things that can't fully be explained.
+- Politeness and caring for each other cannot be a thing of the past.
+- I've always wanted to be the best guitarist in the world, ever since I was eight years old.
+- I think, at some point, I might have said it must be great to be as big as Elvis, but that wasn't a realistic dream.
+- I really wasn't into sports at an early age. I couldn't wait to get home from school and go straight to my bedroom and pick up the guitar and play it. It became an obsession with me. That's all I wanted to do was play guitar and learn every lick I heard on the radio.
+- I believe I'm an artist that just shines live - it's just something that happens.
+- As long as I can have enough to make the record and pay the mortgage, those were always the two things that were most important to me.
+- This was the rule that I had when we made 'Frampton Comes Alive!': being known as a live performer, I'm not going to go into the studio and overdub.
+- I pile up the press clippings and send them off to my mother. She's got a scrapbook going back to when I was, like, eight years old.
+- Performing live has been one of the most important opportunities I've been given, and I am lucky to share my music with so many of my amazing, loyal, and diverse fans.
+- I've never been in this business to make money. I've always been in it to make good music.
+- The more simple my life is, the happier I am.
+- The perception that I was just a pop star was pushed upon me by the public, and it's very hard to change the public's perception even though I never really pushed aside the musician aspect of my career. After I released 'Fingerprints,' my peers reassured me that I was on a level that I always hoped I would be on.
+- The rule is to try and never play the same thing twice when you have the freedom to do that in the song.
+- I never gave up. I'm a fighter.
+- I've never stopped making new music, and whether the audience wants to hear it or not, I'm going to play it. Because I'm an artist, and I create, and I've got new stuff.
+- A year before 'Frampton Comes Alive!' we had released the studio version of 'Show Me The Way' as a single - it was on the 'Frampton' album - and it totally tanked. Nothing.
+- I used to jam with Steve Marriott of the Small Faces.
+- I started out as a musician, and I ended up as a cartoon.
+- Peace, love, and truth trump hate every time.
+- I think that my parents wanted my brother and I to do what they couldn't have done and live a free life and not worry about war.
+- Most of everything I've ever written actually was written on acoustic. 'Do You Feel' was written on electric. 'I'm in You' was written on piano.
+- I'm lucky. I've got my own studio. I can make my own music, but not many people can do that. I will always be making new music, because that's what I have to do; that's why I'm here. I will always do that.
+- You know me - I'm the road dog of road dogs.
+- Your own material is your identity, and I think that's what you need to stick to.
+- There's a place in England called Petticoat Lane, and... they always used to get the heavy albums, like, a week before. So I went down there and got it, and I went back home. I didn't come out of my room for about three days. I just played it nonstop... 'Sgt. Pepper's' was the best thing I'd ever heard in my life.
+- Somewhere along the way, things got confused, and the pop-star side of my career got in the way of my musician side.
+- I was on 'The Mike Douglas Show' twice. I was on the cover of practically every magazine in the United States. I never said no to anything. I told everything to everybody. I gave everything away, and when you give it all away, you have nothing left.
+- I love to be a hermit.
+- I love everything to do with movies.
+- I acted in 'Almost Famous.' My album 'Fingerprints' won a Grammy Award in 2007. Even more prestigious, as far as my kids were concerned, I appeared in episodes of 'The Simpsons' and 'Family Guy.'
+- Everyone wanted to play like Eric Clapton in the early to mid-'60s.
+- The reason I wanted to play guitar was because I saw Buddy Holly and then our own homegrown Shadows on TV in 1957 or '58. I wanted to learn to play guitar so I could do what they did and be in a band.
+- I don't think I could ever be in a band if we just had to go out there and play the record note for note. I'd give up. I'd become a banker.
+- People tell me they got married to 'Baby, I Love Your Way.' It's heart-warming - I've been part of so many people's lives.
+- I've always had a good time in bands, and when I wasn't having a good time, I left.
+- People love to play 'Baby, I Love Your Way' at their weddings. They even play it for births and deaths - whatever the occasion, it seems to fit. Over the years, it's been used in lots of movies, and it's been covered by other artists more than any of my songs. I've written a standard... which is pretty incredible to me.
+- Writing for dance was a wonderfully freeing experience.
+- I've always loved to play live.
+- In 1978, I had a near-fatal car accident in the Bahamas. There was a point when I could have lost my right arm - but it was good because it forced me to slow down and take a break.
+- I would like to be No. 2 but never No. 1. When I was No. 1, all eyes were on me. No. 2 slips out the door quietly and makes another great record.
+- You can't listen to 'Frampton Comes Alive!' without smiling.
+- I have a soft spot for 'Wind of Change' because it was my first one, and it was a departure from Humble Pie - very much so. It showed me the spectrum of what I could do.
+- I didn't have huge expectations for 'Frampton Comes Alive!' My previous album, 'Frampton,' had sold about 300,000 copies - a decent amount but not mind-blowing. There was talk at the label that maybe the live record could go gold. I was hoping we could do it, but I wasn't sure.
+- Hey, I've done a lot of other things, but I'm also very aware that when I kick the bucket, the first paragraph will be, 'The man responsible for 'Frampton Comes Alive!' just dropped dead. Frampton Drops Dead! after coming alive all these years.'
+- I did more sessions than I remember doing. There were a lot of things in the Seventies that I played on that people keep reminding me about.
+- I used to say it was painful to write lyrics about myself and looking inward.
+- The 'Frampton' album sold better than all of the other solo records that I'd had, put together. It was over 300,000 copies, so that was a good signal that we were poised for my first gold record.
+- People are buying my life when they're buying those records. I hate to sound bigheaded or something, but that's the reality of it. Suddenly, everything you've been doing means something.
+- Money never meant that much to me.
+- I think 'I'm in You' was lackluster and way too light.
+- Music is now becoming 'free,' and it's very difficult for new artists to start.
+- Some might say I didn't pay enough of my dues, and I think I've paid my dues.
+- Most rock movies are never authentic - you'll have someone supposedly in 1958 playing a 1990 guitar, and a 1986 microphone.
+- I'm lucky that I enjoy playing live; it's my passion to do that. There's certain artists that never want to play live. They just want to be in the studio. Good luck, because there is no income.
+- I was petrified about 'I'm in You.' I couldn't wait to get it done to know whether it was good or not.
+- I'm sure that I am enjoying my sobriety. And respect it. If you've been through what I've been through, then you really do treasure it.
+- My advice to new artists is to not follow a trend, but to start one. By that, I mean to not be tempted to do what business people might suggest to you, to jump on the bandwagon, but to be strong.
+- I had always been a jazz fan - Django Reinhardt, Kenny Burrell, Wes Montgomery, Joe Pass, the early George Benson. And I come from the Hank Marvin melodic upbringing. So blues, I loved, but I also liked jazz. Therefore, my style was more lyrical.

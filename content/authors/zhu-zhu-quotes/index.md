@@ -1,0 +1,14 @@
++++
+author = "Zhu Zhu"
+title = "Zhu Zhu Quotes"
+quotes_len = "8"
+description = "the best 8 Zhu Zhu Quotes"
++++
+- I don't mind doing action or kung fu, but I'm also really happy to do something dramatic. I'd like to show that a Chinese girl doesn't have to do crazy martial arts to get the part.
+- I love Jo Malone. I got the Orange Blossom scent as a gift many years ago, and I fell in love with it. It's very light, natural, sweet. It's there but not that obvious.
+- Sometimes I'll do a mask if I had a lot of makeup on that day or was out in the sun. I like a hydrogen mask. It's an easy one, and it's supposed to soothe and relax your skin.
+- I was planning to study more, but it's a struggle with so many opportunities for film and trying to get better through studying. No matter what, I want to be making more movies.
+- I like the MAC Face and Body foundation. Sometimes it can't cover all my flaws, but I like it because it looks really natural and it evens out my skin tone.
+- I have really long hair, so I don't cut it all that often. Sometimes, when I'm working, I just have the stylist on set trim it for me. I don't dye my hair. When I was a teenager, I dyed my hair five colors at one time. It was all different shades of red going from more orange to more purple. I thought I looked so cool.
+- In China, we don't know about the swimming pool game, but we know about Marco Polo.
+- English is not my first language.

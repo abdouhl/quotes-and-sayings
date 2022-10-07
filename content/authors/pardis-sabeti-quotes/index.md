@@ -1,0 +1,42 @@
++++
+author = "Pardis Sabeti"
+title = "Pardis Sabeti Quotes"
+quotes_len = "36"
+description = "the best 36 Pardis Sabeti Quotes"
++++
+- I like - I love calculus. I love linear algebra, probability and statistics, that kind of stuff. I just really like that.
+- My scientific work is much more practically minded - to change something, to effect something. And the music I do is much more soft power, about changing minds.
+- The creative scientific process is - It's kind of - It's a windy road that has a trajectory, but it's a slow trajectory.
+- The Ebola epidemic was the most frightening outbreak I have witnessed in my lifetime, and I believe it was necessary to react globally as strongly as we did.
+- Had I to do it again, I would have been a math major, probably a double major, and did take a lot of math classes, but I would have taken a lot more.
+- The process of discovery in my field is very incremental. But there are moments when you realize you know something about the world nobody else knows. That's extraordinarily exhilarating.
+- As long as I have a heartbeat, I'm fine. So I just do what I love, and I do it the best that I can. And if it all goes away, I'll just start over.
+- My sister taught me addition and subtraction and multiplication and division, so by the time I got to school, I knew it all, and when we'd do the times tables, I was just focused on doing it faster than anybody else. I already had the information, so it just got me to focus on excellence.
+- I'm looking for all the things that are beneficial in the human genome. Everything that I do is based on a very simple principle: things that are beneficial will spread through populations very quickly.
+- The great thing about America is I've never felt like an outsider. I'm just a different piece of the puzzle.
+- I think I first encountered Ebola from the movie 'Outbreak.' Then there was the book 'The Hot Zone.' It's the type of thing you either read and say, 'Oh wow, that's terrifying,' or you read it and say, 'Oh wow, I want to do that.' I read it and said, 'Oh wow, I want do that.'
+- Let us not let the world be defined by the destruction wrought by one virus, but illuminated by billions of hearts and minds working in unity.
+- Generally, I'm not writing about genomes or anything like that. But people underestimate the creativity you use in science and the rigor you need in music. They basically have the same path.
+- There is - I will just say that there was a disastrous day where I discovered really what radioactivity is and that just because you don't see it doesn't mean that it's not everywhere, so - Yeah. I was a slow learner for sure.
+- If there's a trait for not sleeping, I probably have it.
+- It is of course very difficult to see relations between America and Iran becoming increasingly tense and knowing that it is not the people of the countries but a subset of leaders and radicals that are causing such strife. I am hoping that the spirit of the people will triumph.
+- I sometimes try to think of my life as an Iranian, and it is hard to imagine. I am grateful for the life I have had in America and all the amazing opportunities and experiences it has given me. But there is a spirit in Iranians I can see that is unbounded by geography.
+- I was actually not some sort of a child prodigy by any stretch.
+- When I was working on my Ph.D., I developed a computer algorithm to look for rapid changes in populations' DNA. Our DNA changes constantly over generations, but if certain changes spread through a population more quickly than others, they are probably the beneficial results of natural selection. This is the protection we give ourselves to survive.
+- My family fled Iran in October 1978 as a result of the coming revolution when I was two years old. In the early days, my entire family lived together in a very crowded house, where I shared a room with my sister, cousin, and grandmother, and we would all listen to my grandmother tell stories before bedtime.
+- I heard it in 2008 and hear it again now - this notion that the only reason one would support Hillary Clinton is because she is a woman - or only because she is experienced and smart. She is all of those things. But I am with her because... Hillary Clinton inspires me.
+- Unlike some viruses, we don't know what the natural reservoir is for Ebola. A lot of people think it's bats, but it's still very controversial; it could have been circulating in insects, in an environment, or in individuals.
+- Especially working in infectious disease, it's very interesting because these infectious diseases, these agents, they evolve over time. So it's very much an arms race and understanding how each changes to protect itself and to continue. And so it's very much this puzzle-solving but with this great urgency and importance in what you find.
+- So much of the physical world has been explored. But the deluge of data I get to investigate really lets me chart new territory. Genetic data from people living today forms an archaeological record of what happened to their ancestors 10,000 years ago.
+- My kind of, like, life goal is to help train students to be good people as well as good scientists. That would be my dream.
+- See, Ebola, like all threats to humanity, it's fueled by mistrust and distraction and division. When we build barriers amongst ourselves, and we fight amongst ourselves, the virus thrives. But unlike all threats to humanity, Ebola is one where we're actually all the same. We're all in this fight together.
+- There are so many aspects to science that I couldn't give up - the rigor, the discoveries, the teaching. The impact that science has on the world around us is something I'm enthralled with. I don't think anyone could ever take that out of me.
+- At 9, I think I had really gotten into tennis. I liked writing short stories; I loved solving math problems. I was learning a little piano, and I was collecting Garbage Pail Kids cards.
+- I don't really love to perform in music. Some people like it more, but it's not my thing so much, but just the writing, when you get the lyric, and the lyric just goes just the right way, or you find the right bridge that takes you to the solo, and those moments are tremendous, and it's difficult to portray.
+- I have a B.S. in Biology from MIT, an M.Sc. in Human Biology and a Ph.D. in Biological Anthropology from Oxford University, and an M.D. from Harvard Medical School. I never intended for so many degrees, but I enjoyed getting them all.
+- I am deeply immersed in my medical work, and it can get very intense, but I believe that the connection and devotion is key. You can not work on diseases as devastating and deadly as Lassa and Ebola without complete trust and respect for the individuals with whom you work. My lab and colleagues are just extraordinary, and we are a family.
+- Over the years, we settled into American life and embraced it fully. But having come from a different culture, I didn't know the boundaries of American culture. Which is that, as a girl, you didn't play football or soccer at lunch with the boys, and to be cool, you didn't get into math Olympiad.
+- It's just difficult to see that people want to be like the actors and the performers and the politicians who are - who they see all the time, but the people that are probably having the most fun are the writers and the directors and the producers and the scientists, right, the people in the back that are getting to do the creative process.
+- You get these moments of thrill. There you are, at 3:00 in the morning, and you know something about how we evolved that nobody else in the world knows. It's a thrill of discovery. You make this breakthrough, and you find something. It's this wonderful, wonderful scavenger hunt when you got to the end. It's just so great to be a scientist.
+- My father took one of the toughest jobs in the government because he cared about his nation more than himself. His courage and conviction have always driven me to want to make a difference.
+- Most of my work may happen at a computer, but it's still a new and very exciting frontier.

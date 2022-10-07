@@ -1,0 +1,14 @@
++++
+author = "Okky Madasari"
+title = "Okky Madasari Quotes"
+quotes_len = "8"
+description = "the best 8 Okky Madasari Quotes"
++++
+- For a homebody like me, the evolution of gadgets has been a blessing.
+- I chose the Xperia based on its functions. Apart from using the phone to communicate, I also use it to take pictures. The image quality with this cell phone is great.
+- 'Orientalism' has successfully built my critical awareness to question and see the big picture of knowledge, perspective or idea from a Western point of view and always see things from different perspective.
+- We often see literature about women that impair and immerse the women themselves, such as when women are portrayed as objects of consumerism.
+- My work always presents problems in our society. Those problems may be anything from injustice to freedom, and everything related to humanity.
+- Women become the objects of rules; they are repressed and lose their rights in the name of religion, or they lose their freedom in the name of tradition, while the state legitimates this foolishness with laws.
+- I have used Lenovo since I wrote my first novel. My old laptop broke, so I bought a new one, but still a Lenovo. It is one of my most essential devices.
+- 'Prison Notebooks' gives me a basic understanding of how power can influence people through cultural products and intellectual groups, so they will voluntarily support the hegemony.

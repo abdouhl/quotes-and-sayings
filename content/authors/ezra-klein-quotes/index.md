@@ -1,0 +1,19 @@
++++
+author = "Ezra Klein"
+title = "Ezra Klein Quotes"
+quotes_len = "13"
+description = "the best 13 Ezra Klein Quotes"
++++
+- I think it's weird that the news cedes so much ground to Wikipedia. That isn't true in other informational sectors.
+- People set newspapers on fire; they use them for wrapping fish. The Internet does not have that property. What I don't think we've gotten is that you can make things last longer than in print.
+- If I'm sitting around exulting over traffic data, I'm an idiot.
+- When I first came to Washington, what I admired most was that people were just really, really smart with a tremendous amount of intellectual horsepower and the ability to look at an issue and say something fresh.
+- It's not a good idea to conceptualize a static relationship with long-standing policies, like health care.
+- When I talk to people about 'KnowMore', it is as an experiment. The biggest thing I'll say there is that we've learned a lot from 'KnowMore'.
+- My only advice is to try to get the job that's most like the job you want, rather than the one that's more prestigious. Always try to be the talent.
+- When you're trying to come up with a good approach to reporting on the bleeding edge of where the conversation's moving, you're just leaving a lot of people who aren't on the bleeding edge of that conversation out.
+- Every newspaper in the country covers stories that other newspapers cover. Every industry is filled with people who are competing to do the best job providing a particular service.
+- My career wouldn't exist without blogs, electronic text, hyperlinks, and mass online audiences.
+- The thing to remember about being young is you eventually get old.
+- One of my big beliefs about Washington is that we highly overstate the power of individuals and highly underrate seeing Washington as a system, in general, but, in particular, we highly underrate the power of Congress.
+- The idea of changing and fixing the problem of how news is presented on the Internet has been recognized for a long time.

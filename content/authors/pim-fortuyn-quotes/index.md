@@ -1,0 +1,51 @@
++++
+author = "Pim Fortuyn"
+title = "Pim Fortuyn Quotes"
+quotes_len = "45"
+description = "the best 45 Pim Fortuyn Quotes"
++++
+- I am appalled by Le Pen's anti-Semitic past and feelings. A man who says the Holocaust is no more than a footnote in history is beyond my comprehension.
+- If Turkish or Moroccan boys misbehave here, it's up to us to re-educate them and, when necessary, to punish them.
+- If you're successful, you must express a modest appearance.
+- I am proud that in the Netherlands I can come out for my homosexuality, and I'd like to keep it that way.
+- If something happens to me, the government is co-responsible.
+- I have no desire to go through the emancipation of women and homosexuals all over again.
+- The annual stream of tens of thousands of newcomers, who largely end up as illegal aliens, must stop. Full is full. We're living on a small piece of land here.
+- All those who are here can stay. I don't say send them home like he does.
+- How can you respect a culture if the woman has to walk several steps behind her man, has to stay in the kitchen and keep her mouth shut?
+- Le Pen is old; I'm young.
+- I am a citizen of the world.
+- I say what I think, and I do what I say!
+- I have traveled a lot in the world, and wherever Islam is in charge, it's just terrible.
+- If you allow immigrants into your country, then you're responsible for them.
+- This country is bursting.
+- Christianity and Judaism have gone through the process of enlightenment, making them creative and constructive elements in society.
+- When I become prime minister, I'm going to buy one of those Margaret Thatcher handbags, and I'll bang it on the table and demand my money back from the government for past bad services.
+- We should have no immigration at all for a certain time. Then we can look again.
+- The biggest problem is integrating people from countries with Islamic agrarian cultures. They don't share with us the core values of modernity and think quite differently about relationships between women and men and individual responsibility.
+- My policies are multi-ethnic and certainly not racist.
+- Muslims have a very bad attitude to homosexuality, they're very intolerant.
+- We are already overcrowded. There's no more room, and we must shut the borders.
+- We have a lot of guests who are trying to take over the house and the owner of the house doesn't like it.
+- Christianity and Judaism have gone through the laundromat of humanism and enlightenment, but that is not the case with Islam.
+- Why they vote for me is irrelevant, but if they do, they're in safe hands.
+- This is a full country. I think 16 million Dutchmen are about enough.
+- Animal welfare must be a priority, and we need to switch to less industrial production methods.
+- There is tension between the values of modern society and the principles of Islam.
+- If I were living in France, I'd vote for Jacques Chirac, despite the fact that he can't seem to keep his hands out of the cash till.
+- If you try to discuss multiculturalism in the U.K., you're labeled a racist.
+- For Muslims, as a homosexual, I am less than a pig.
+- In Holland, homosexuality is treated the same way as heterosexuality. In what Islamic country does that happen?
+- I'm saying we've got big problems in our cities. It's not very smart to make the problem bigger by letting in millions more immigrants from rural Muslim cultures that don't assimilate.
+- Modern society places an emphasis on individual responsibility, whereas Islam places an emphasis on collective responsibility and the family.
+- Right-wing in Holland is to the Left of the Tories in England.
+- We have equality of men and women in western society, whereas in Islamic culture, women are inferior to men.
+- The whole environmental policy in the Netherlands has no substance any more.
+- An imam should be able to say that homosexuals are worse than pigs. My only demand is that you mustn't incite violence.
+- Moroccan boys never steal from Moroccans.
+- I want to stop the influx of new immigrants. This way, we can give those who are already here the opportunity to fully integrate into our society.
+- We have a separation of state and church. The laws of the country are not subject to the Koran.
+- What we are witnessing now is a clash of civilisations, not just between states but within them.
+- Le Pen is a petit bourgeois nationalist.
+- I'm not anti-Muslim; I'm not anti-immigration.
+- The Netherlands is not an immigration country. The annual stream of tens of thousands of newcomers, who largely end up as illegal aliens, must stop.

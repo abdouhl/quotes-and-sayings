@@ -1,0 +1,105 @@
++++
+author = "Zach Ertz"
+title = "Zach Ertz Quotes"
+quotes_len = "99"
+description = "the best 99 Zach Ertz Quotes"
++++
+- I want to be out there every play.
+- Oftentimes, the post safety will eye me up pre-snap a lot of times and know where I am.
+- I take every rep personally. If somebody beats me, I'm going to take that personally.
+- My goal definitely isn't to be top five. It's to be the best in the league.
+- If you're able to build something on a strong foundation, you're not going to be easily swayed.
+- As athletes, just looking at it from an outside perspective, it's really remarkable, the impact you could have on somebody that you have no idea.
+- That's something that I do pride myself on: making those tough and contested catches, whether it's in the red-zone or on third down.
+- I feel no matter who I'm going against that I can get open in a number of ways.
+- I don't care about the money. Honestly. All I care about is winning football games.
+- Having success as a team is much more fun than having individual success. I have learned this lesson through the many wins I have experienced as a team.
+- I'm focusing on being the best I can for my teammates - catching as many balls and putting in as many good blocks as I possibly can.
+- Tight ends, third down, and the red zone is where you kind of need to stand out to be a very good tight end in this league.
+- I think you have to have a high football IQ. Obviously, you have to have the physical ability to run fast and get open. But you also have to have a high football IQ.
+- I love sports, and I'm a hugely competitive person.
+- I don't play this game to be an average tight end.
+- I went to play in the NFL.
+- I've never played this game for financial success.
+- I want to be the guy in the red-zone, believe me.
+- I love football, but I also want to give back. I want to take care of kids and single moms, so it's not only about playing football. I want my life to matter in that way.
+- The city of Philadelphia is all about the underdog.
+- Brent Celek is a heck of a blocker, James Casey is a heck of a blocker.
+- I think the ultimate compliment that someone can give you is that you're a technician.
+- I went to Stanford.
+- I want to be the guy on third down, whenever the coaches need a play, they call my number.
+- I can't dwell on having a couple drops. It's going to happen - it's the NFL.
+- Red zone, third down, I want to be the guy who gets the number called. I put a lot of pride into what I do as a receiver in those situations - using my body when we need to make a play.
+- If I'm out wide, and they put a linebacker on me, I think that's a mismatch every time, regardless of who is on me.
+- I always knew Jesus, but I didn't have the relationship I do now.
+- My opinion is I can get open against anybody.
+- You got to know what the defense looks for and use that against them.
+- As an athlete, I feel like I have a little bit of control - or a lot of control - of the situation. When you're the in the stands, you have no control of the situation.
+- Just trying not to have a weakness in any part of my game - that's always been the approach in all aspects of my game: when the team needs me to run block, needs me to pass block, whether it comes naturally or not.
+- I'm not going to be perfect on the field, I'm not going to be perfect in my postgame answers or any media session.
+- I pride myself on being able to create mismatches. That's what I've done my whole life.
+- If anyone asks me a fantasy football question or for help, I don't respond.
+- You've got to perfect your craft.
+- I play this game to be the best tight end I can possibly be and win as many football games as I possibly can.
+- I think I can contribute to the team in a multitude of ways.
+- Who doesn't like a nice Belgian waffle?
+- If there's an opportunity to go out there and show what I can do, I'm going to do it.
+- It truly takes a village to become a professional athlete.
+- I'm a lot bigger than a lot of these DBs.
+- Being a tight end, you have to be able to do everything. You have to be able to run routes; you have to be able to block, pass-protect, and run with the ball after a catch. So, that's how I attack my workouts - focusing on doing everything.
+- Don't live and die with every play.
+- Every week's a job interview for us as players.
+- On third down, anytime our team needs a play, I want to be the guy that gets the ball.
+- I want to prove to myself and everybody else how good I can be, and I'm willing to work as hard as I need to to achieve that goal.
+- My wife Julie and I are driven to make positive and enduring change in our beloved city of Philadelphia, in California, in Haiti, and around the world.
+- I've been ingrained since a young age to compete always and strive to be the best, and I think I'm working toward that.
+- I always want to improve in all my facets of the game, whether it's the receiving or blocking aspects.
+- Big hits are part of the game. So, paramount to every time I train is just to focus on staying healthy and doing everything I can to stay healthy.
+- When you're blocking someone, or when you're running, it's all about putting force into the ground, and that's the epitome of the back squat.
+- I have to have that mentality that I can get open.
+- If you look at the great tight ends in this league, the first thing that stands out is touchdowns. Just like at fantasy football. That's where a lot of guys get the respect, with touchdowns... That's the 'fantasy points' that everyone points out.
+- You have to have confidence in this league. Everybody's so good.
+- My role isn't just receiving.
+- My relationship with Jesus has changed my life and, really, the foundation of who my wife and I are as people.
+- I think I had a good rookie year, but at the end of the day, I want to be one of the best tight ends ever to play, and I'm going to set my standard for that and work toward that goal.
+- I just focus on taking a deep breath, staying calm, and not trying to make the situation bigger than it is.
+- No one wants to be 13 and not able to eat their ice cream after dinner.
+- Richard Sherman has kind of the peak of self-confidence. I'm a little below that. But I've learned a lot from him.
+- You do have to be patient. Control what you can control.
+- I'm never going to be satisfied with where I am as a player.
+- You can't emulate a game until you're in a game.
+- At the end of the day, all I really care about are the wins.
+- Everybody says, 'Oh, those East Coast people are so ruthless' and what not. But I love them. I mean, they're honest. What more can you ask from people?
+- I've never played the game for money.
+- Stay focused, believe that you can achieve at the highest level, surround yourself with others who believe in you, and do not stray from your goal.
+- Can't ever catch enough balls.
+- I'm very confident in my abilities.
+- If I could get better on the field, I could get better in my interviews. I took that approach: if there's something I'm deficient in, whether it be in relationships, whether it be talking to people, just that self-reflection to seek people out who can help me.
+- I don't want to be viewed as a weakness in any means. I don't want to be viewed as a weakness in the passing game. I definitely don't want to be viewed as a weakness in the running game.
+- My seventh-grade year, I played football. I was, like, 15 pounds overweight, so I had to lose a ton of weight. They put me at left tackle; they put me on the defensive line. I absolutely hated football. I didn't want to play again. Eighth grade year, I didn't play.
+- I just like going against the Redskins, I guess.
+- Bringing in a guy like Jordan Howard is going to help us immensely: a guy that you can give the ball to behind five really good offensive linemen and say, 'Go to work.'
+- I had a stutter when I was a young. I went to speech therapy.
+- I want to make Pro Bowls, do all the great things.
+- Football should not be your source of identity. This one is important to me because I am much more than the player. My faith, my wife, my family, and the work I do off the field is paramount to feeling whole.
+- What I've learned, being in this league, is you can't take things personally.
+- Our No. 1 goal on this Earth is to make disciples. That's the only job we want to do.
+- Glute bridges make sure my hips are staying in line. Making sure that I'm not putting added stress on the hamstrings, hip flexors, or groin. Being able to stabilize the hips is pretty much the center of playing football, so you can stay healthy.
+- It's not a goal of mine to only play 45 percent of snaps. It's to be on the field for every single play.
+- Obviously, I want to be on the field each and every play, but that's not what I can control.
+- When I was 16 years old, watching football for the first time, the Cowboys were always on TV - unfortunately, looking back at it now - but Jason Witten was the guy who carried himself, in my opinion as a 16-year-old kid, the right way. He was a phenomenal tight end.
+- I love the game of football.
+- You can't be a tight end and just be viewed as a receiver.
+- I still remember going to school on game day with my high school jersey on.
+- Nobody said, 'You have to step up and be a leader for the family.' I took it upon myself. I wanted to set the bar high for my brothers.
+- If you don't have the confidence, that's half the battle. You're going to be defeated before you even start.
+- Anything that's truly competitive, I love.
+- You're going to have to grind it out on some drives.
+- When I was younger, I initially hated football because they put me on the offensive line because I was the biggest kid.
+- I rarely drop the ball, and hopefully that trend continues.
+- In today's society, a lot of males think you have to be strong all the time, and you're not allowed to show weakness. That's just so false.
+- I'm so thankful to everyone who has helped me along the way.
+- It's awesome being married to Julie, being able to support the people we love doing what they love to do.
+- I was very fortunate to have several mentors in my life that believed in my ability on the football field. It was their support that made me believe that I could do it, too.
+- Football is such a traditionalist sport. Whatever happened in the past is usually going to continue. But the bullying has no place in any sport. That's the bottom line.
+- Early in my career, if I didn't get the ball, or if something would happen, or the media would say something, I'd take it personally.

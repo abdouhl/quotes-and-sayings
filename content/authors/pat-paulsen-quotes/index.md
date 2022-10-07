@@ -1,0 +1,50 @@
++++
+author = "Pat Paulsen"
+title = "Pat Paulsen Quotes"
+quotes_len = "44"
+description = "the best 44 Pat Paulsen Quotes"
++++
+- I'd learned some things. I knew you weren't supposed to hold a good wine at the top - the paper bag falls off.
+- I think we should just tip the government if it does a good job. Fifteen percent is the standard tip, isn't it?
+- Will I obliterate national debt? Sure, why not?
+- If you're old enough to be arrested, you're old enough to carry a gun.
+- Should we continue to spend billions to subsidize foreign military dictatorships, or should we concentrate on taking better care of the one we have right here at home?
+- All the problems we face in the United States today can be traced to an unenlightened immigration policy on the part of the American Indian.
+- Deep down, I happen to be very shallow.
+- Now that my wine has been served in the White House, why not me? Who could talk to farmers better than I? Somebody even asked me the other day if I had anything in my platform about taxes. 'Hell yes,' I said. 'Great state. But I wouldn't want to live there.'
+- We must remember that as the centuries go by, time will pass.
+- Assuming either the Left Wing or the Right Wing gained control of the country, it would probably fly around in circles.
+- I admit I do have some drawbacks and limitations as a candidate. Although I am a professional comedian, some of my critics maintain that this is not enough. I cannot deny that I stand before you untested and inexperienced - I only spent two years in television, never as a romantic lead or a song and dance man.
+- I like to pour my wines for people. I watch their eyes, I can see what they'll like. Most people say they don't like dry wine because they haven't had a dry wine that's clean and fruity, instead of a big, oaky thing.
+- I've upped my standards. Now, up yours.
+- People come up to me in bars and on street corners and they say to me, 'Hey, Paulsen, have you got any change?'
+- The last few years of my life have been a little like a long ride in a Poop de Ville with the bottom down.
+- I once told Tommy Smothers, 'If I could just get the money and the women straightened out, the rest of my life would be easy.'
+- I read an article that said one in five Americans thinks Elvis is alive. I want to find those morons and get them registered to vote for me.
+- As I've always said: The future lies ahead.
+- The No. 1 cause of forest fires is trees.
+- In America, any boy can grow up to become president. Or, if he never grows up, vice president.
+- The Clinton Administration has turned out to be a boon. I knew that he would be wonderful, I just knew it from the beginning. From Arkansas? Shoot.
+- I came down to Orange because I sold the Smothers Brothers a song called 'Chocolate,' and that gave me enough money to move down here. I was washing windows down in Orange County when they called me up and said they wanted me to do their TV show.
+- Only a cheap politician, greedy for political gain, would try to single out one individual for blame. The fault lies not with the individual but with the system, and that system is Richard Nixon.
+- You can fool some of the people all of the time and all of the people some of the time, but you can only make a monkey out of the voters every four years!
+- We've got to step up our conservation efforts before it's too late. We're not protecting our lands and natural resources. Take the Grand Canyon for example; I'm sure that at one time it was a beautiful piece of land, and just look at the way we've let it go.
+- Only 10 percent of the people in the U.S. like dry wines. You shouldn't get down on people just because they like a little sugar.
+- Presidents tend to tinker, you know, and mess everything up.
+- I am neither left wing nor right wing. I am middle-of-the-bird.
+- You have to understand, I can't do any jokes about Ross Perot, because the last thing I need right now is another credit check.
+- Having a comic in the White House will assure stability in foreign relations. The world will continue to respond to foreign initiatives by saying, 'You must be joking.'
+- The federal government spends millions to run the Postal Service. I could lose your mail for half of that.
+- I think I'd make a pretty good president, and they have a great pension plan.
+- So I got into growing grapes, not realizing that there was a heck of a lot more to it than meets the eye.
+- It's tough campaigning, kissing hands and shaking babies.
+- If elected, I will win.
+- A gun is a necessity. Who knows if you're walking down a street and you spot a moose?
+- I want to caucus in Iowa. I'll caucus all over the state. I don't caucus in California. You don't caucus where you live. It doesn't look good.
+- I've been on the campaign trail so long, some of my wine has turned to vinegar.
+- Actually, my wine was served at the White House twice. Reagan must have been asleep when he ordered it.
+- I don't need adult supervision.
+- We have nothing to fear but fear itself... and, of course, the boogieman.
+- Yeah, I'm running for the White House again. Well, it's not a run, really; it's sort of a brisk walk.
+- Wine is something to enjoy. We get sick and tired of people who pick it apart and talk about its 'saucy nuances.'
+- I will not claim I will solve all the world's problems by myself. If I did, I'd have to run as a Republican or a Democrat.

@@ -1,0 +1,24 @@
++++
+author = "Sarah Polley"
+title = "Sarah Polley Quotes"
+quotes_len = "18"
+description = "the best 18 Sarah Polley Quotes"
++++
+- AIDS is a global problem and there should be a global solution found by the entire international community. It is really scary to see and imagine our world fall into pieces because we refuse to share and put in the common vestiges of our civilizations.
+- Being a human being is all about experiencing all of the wonders of the world and therefore as an actress, I'm open to any opportunity that may enrich my horizon.
+- Playing roles that are intense and damaged has always come more easily to me than doing comedies or lighter stuff - that would be taking a huge risk for me.
+- I think that we need to get along together if we want to survive in the twenty-first century.
+- It's not that I don't want to become famous or that I'm obsessed by my work as an actress, but it's all about not limiting myself, such as putting myself in a little jail that I can escape from.
+- Well, because Dawn of the Dead can take place anywhere and it shows that actually the entire planet is contaminated, I would say that it shows the new face of our world - one person, one race, united against the invisible destructive force.
+- I was concerned about that, because I've always been so specific about doing independent films, but I've never done anything that's so genuinely and ridiculously fun. And that's a great thing, for me to discover that that's possible.
+- I do tend to take time off. A year and a half ago I went to film school, and before that I had taken years off at a time to be involved politically or this or that.
+- I enjoy doing my more intimate and less commercial pictures and also I enjoy directing.
+- I always look for an intense experience, an intense ride. There is nothing better than a good zombie movie where you run crazy and blow at monsters! It was a physical shoot and I enjoyed it.
+- I'm never sure what's coming next, but I'm an open minded person and I welcome any challenge.
+- There is no point trying to figure out who is guilty or not at un-balancing the planet. I think we need to figure out and solve the problems together and not isolate from each other.
+- I still feel that a movie has to attempt to say something - even if it fails miserably. But I've sort of given up on believing that I'm going to change the world with every film I choose to act in.
+- My mom died of cancer when I was really young. I'm not someone who tries to work out their own stuff with a role, but I think that happened despite my best efforts to keep myself separate from it.
+- So it's conceivable I'll do something insane, or more insane than Dawn of the Dead. If that's possible.
+- Plus, doing a zombie movie is quite liberating. It's fun not to take myself seriously all the time.
+- I want my world to get bigger and not end up in a small corner.
+- Lately I did a film called All I Want for Christmas and it was well received. This gave me a new point of view and a new respect for my work as an actress.

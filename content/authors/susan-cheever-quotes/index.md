@@ -1,0 +1,14 @@
++++
+author = "Susan Cheever"
+title = "Susan Cheever Quotes"
+quotes_len = "8"
+description = "the best 8 Susan Cheever Quotes"
++++
+- Whenever there was a crisis, I found a man to help me take the edge off the feelings of helplessness and pain.
+- The program of A.A., as written by Bill Wilson and Dr. Smith, only has one purpose: to get you sober. That's it. To make you a better person, forget it. That was one of the things he came to understand in those years of trial and error. It has to be about only one thing.
+- A fierce literary woman with a penchant for married men, Margaret Fuller was ultimately torn between motherhood and her final career as a political reporter.
+- When women are angry at men, they call them heartless. When men are angry at women, they call them crazy. Sometimes it doesn't stop there.
+- There were a number of books about Bill Wilson, and by him, but a lot of the basic biographical tasks had not been done.
+- Addiction isn't about substance - you aren't addicted to the substance, you are addicted to the alteration of mood that the substance brings.
+- Falling in love as we know it is an addictive experience.
+- Women's currency is their looks. Like it or not, the most powerful woman is an 18-year-old woman.

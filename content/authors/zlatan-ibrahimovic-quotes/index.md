@@ -1,0 +1,78 @@
++++
+author = "Zlatan Ibrahimovic"
+title = "Zlatan Ibrahimovic Quotes"
+quotes_len = "72"
+description = "the best 72 Zlatan Ibrahimovic Quotes"
++++
+- An injured Zlatan is a pretty serious thing for any team.
+- I'm like the wine. The older I get, the better I get.
+- I am a guy who likes those who drive through red lights.
+- I always put myself second - I like to make others happy.
+- I don't like to talk about myself.
+- I'm not difficult to work with, trust me.
+- I will not look back and say, 'I should have played in England.'
+- When I took my shirt off against Caen, everybody asked what these new tattoos were. I had 15 removable tattoos on my body; they are the names of real people who are suffering from hunger in the world.
+- Some coaches prefer players who will just do whatever he tells them to. It's like, if you're at school with a load of 10-year-old boys and you tell them to jump, everyone will start to jump. But the intelligent boy will ask, 'Why should I jump? Why?' That can be difficult for a lot of coaches, and I understand that.
+- Jose Mourinho is a big star... he's cool.
+- If I'd gone into taekwondo, I'd probably have won several Olympic medals.
+- When I arrived at Barcelona, I was following a dream, but I now realize sometimes it's better to be content with what you have rather than follow a dream which nearly kills you.
+- It is nice to know that even David Beckham doesn't have good taste in everything.
+- People trash talk me.
+- Do you know what I love about hunting? That I am no one in the woods, no one at all. I thought the animals might recognize me, but they didn't. They did not even ask me for any autographs.
+- You were born as the one you are.
+- At Barca, players were banned from driving their sports cars to training.
+- I did many stupid things. I made many mistakes, but I learnt from everything. I still make mistakes; I still learn from them. Nobody is perfect.
+- I have a big heart.
+- Wherever I go, people recognize me, call my name, cheer me.
+- I read all the time that people think I'm arrogant. They say I am cocky, a bad character. I had that from a young age. But when they meet me, they say, 'That image doesn't fit you.'
+- Who is most deserving of all of the money that I, Zlatan, am paid? The answer is Zlatan.
+- When I started to play football, when I was around 15, 16, I remember the players that played on the national team and noticed that it was only typically Swedish guys.
+- My confidence can come back very quickly.
+- The day I leave Paris is the day I go down a level or quit football.
+- I am happy in Paris.
+- I'm not someone who feels settled.
+- I do love cars.
+- I would love to play alongside Wayne Rooney. He does the running of two or three players and makes a lot of space. We would be the perfect combination.
+- Whenever life's at a standstill, I need some action.
+- Everybody tries to score a great goal, and I am lucky I have netted a few.
+- I know I'm good enough. I don't need to show it to you. Either you know who I am, or you don't.
+- People often write after they finish their career, or they don't play anymore, or they are not anymore active. So I say, why do that? And let's do it differently.
+- When you are the invisible man to the head coach, the only option is to head for the exit.
+- Arsene Wenger asked me to have a trial with Arsenal when I was 17. I turned it down. Zlatan doesn't do auditions.
+- People are very curious and have written a lot of things about me. Right or not. I never comment on those things, because it's not much of my thing to comment on everything that's written about me.
+- I always want to become better. If never being satisfied is a problem, then I have it. At least it's a good problem.
+- The way that I opened the door for the young people that come from where I come from and that have a different background, that is what I want to be remembered for.
+- If I had an ego as big as the Eiffel Tower, would I have won this many collective trophies? I know people like to talk about it. And O.K., I am not going to answer every story. But maybe I will let my collective trophies speak for themselves. I don't know many other footballers who have won as much. Do you?
+- I got a bike when I was little, a BMX. I called it 'Fido Dido' after the tough little cartoon guy with spiked hair. I thought he was the coolest thing ever.
+- I can't help but laugh at how perfect I am.
+- I respect the Premier League.
+- I always drive like a madman.
+- I'm used to having a camera in my face but not a camera following me.
+- I still feel I need to do things 10 times better than other players. Just to be accepted and to improve myself.
+- Nothing is written in stone, as a career is an unpredictable journey.
+- When you have my confidence, I will do 200% for you.
+- I'm a guy of 92kg. I haven't got the physique of someone who can work back and then sprint up front again throughout a match!
+- If anything, the children of Paris should be giving me even more money for having the privilege of being in the same city as my incredible quality. And so should David Beckham. Call it a Zlaritable donation.
+- I wish anyone in this world could go to his fridge and pick whatever he wants. Because the day you open your fridge and there is nothing in it, it is difficult.
+- One time I got dressed in all black, Rambo-style, and took a massive pair of bolt-cutters and nicked a military bike.
+- If you are too nice, you will just get eaten alive. The football world is not always a nice place.
+- Some things is made by destiny, yes, other things by hard work, but quality you don't learn. Quality you are born with.
+- I had time with my mother, but I really lived with my father. One time he gave all his salary so I could travel to a training camp. He couldn't pay the rent, but he did that.
+- When you buy me, you are buying a Ferrari. If you drive a Ferrari, you put premium petrol in the tank, you hit the motorway, and you step on the gas.
+- Lionel Messi is awesome.
+- I think I'm like wine. The older I get, the better I get.
+- One thing is for sure: a World Cup without me is nothing to watch.
+- I think I am difficult to satisfy, because when I win something, I'm already thinking about the next step, and that is maybe a problem for me. I'm not enjoying the moment. I'm already on the mission to win the next trophy.
+- That's my hunger. If I start to relax, and I lose that, then I had better stop my football. I need that hunger. I still feel I need to do things 10 times better than other players. Just to be accepted and to improve myself.
+- I decide my future. I decide what I want to do. Nobody else. If I decide this will be my last year, maybe it is. If I decide it will be my last contract, I decide that. Nobody else. So I will decide when the moment is there.
+- Best player I ever played against? I mean, I played against many, many good players, so I don't know who to keep. I would say Ronaldo the Fenomeno.
+- Anything that happens in your life was meant to happen. It is your destiny. I was destined to have the life I have now, and I can't have any regrets.
+- Every player needs a little time to adjust to new teammates and the mentality of the coach when you change clubs.
+- When people criticize me, instead of putting my head down, it gives me energy to do even more.
+- I want to be remembered as the football player I was. The private person is nobody's business.
+- You never forget where you come from.
+- My father is from Bosnia, and my mother is from Croatia, but I was born in Sweden.
+- If you are different, or you have minimum possibilities, you can still succeed. I am living proof of that.
+- I do not need a trophy to tell myself that I am the best.
+- When I went to Juventus, I was young, but in training, I had legends like Fabio Cannavaro and Lilian Thuram marking me. I had to work hard to get my respect.
+- Never judge a person if you don't know him.

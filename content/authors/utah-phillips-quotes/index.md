@@ -1,0 +1,17 @@
++++
+author = "Utah Phillips"
+title = "Utah Phillips Quotes"
+quotes_len = "11"
+description = "the best 11 Utah Phillips Quotes"
++++
+- Oh, mercy, I think we're all storytellers, you know. You think of the excuses you told your parents for why you got home late. I just never gave it up.
+- What I really learned in the army was how to be a pacifist.
+- I tramped. When I was on the freight trains, I wasn't looking for work. I was looking to go from place to place without paying any money.
+- It's nice to know there are some things in early 21st-century post-industrial culture that don't change very fast. I am one of those.
+- The most important movement in the world is the feminist movement. If we can really figure out what's going on between men and women, the other problems will take care of themselves. I'm sure of it.
+- I created my own party. It's called the Sloth and Indolence Party, and I'm running as an anarchist candidate in the best sense of that word. I've studied the presidency carefully.
+- When I was in Utah there, first learning the kind of music I love, my favorite singer was T. Texas Tyler. So my friend, Norman Ritchie, the traveling teenage sage, started calling me U. Utah Phillips.
+- It is better to be likable than to be talented.
+- I don't need fame and I don't need power and I don't need wealth. I'm in need of friends, which I have found in abundance.
+- When you have an engagement, at least in my world, the world that I create for myself, an engagement doesn't begin when you hit the stage and end when you leave the stage. It begins when you hit the city limits, and it ends when you leave the city limits.
+- I have seen that our best presidents were the do-nothing presidents: Millard Fillmore, Warren G. Harding. When you have a president who does things, we are all in serious trouble. If he does anything at all, if he gets up at night to go the bathroom, somehow, mystically, trouble will ensue.

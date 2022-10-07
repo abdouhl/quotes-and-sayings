@@ -1,0 +1,21 @@
++++
+author = "Dom Deluise"
+title = "Dom Deluise Quotes"
+quotes_len = "15"
+description = "the best 15 Dom Deluise Quotes"
++++
+- I think I was immediately fed, so food became a very important part of my life.
+- I've had some wonderful times at the White House. I've been with Ford, Carter, Reagan, Clinton and Bush.
+- Mel is nuts. He puts on a suit and a tie and acts like a normal person so people think he's okay. He's definitely out in left field. He's got the ambition of a boy.
+- Once at the White House I was asked to conduct the Drum and Bugle Corp. The man just handed me the baton and I finished the song. It was great. I got to keep the baton.
+- There were five writers on Blazing Saddles.
+- When I was 14 years old, I decided I could cook. It was either that or puberty.
+- Mr. Brooks and I have been friends forever. He is in seventh heaven with his new success on Broadway.
+- My mother had lots and lots of children who didn't survive.
+- Sometimes I get a little manic and you can't stop me. I'm all over the place. I have fun.
+- I have a cooking show that's coming on that I did in Albany. It will be on The Cooking Channel.
+- The joys of my life are my granddaughters. They are beautiful. You don't have to believe me. You can ask my wife. She'll tell you.
+- Dolly Parton... I love being around that woman! I worked really hard to keep up with her.
+- I was at dinner with Gene Wilder and imitated Ethel Barrymore for everyone.
+- Every couple of seconds out here they're honoring somebody. You've got to get dressed, go in and sit down. Invariably somebody makes a speech.
+- I'd rather be at home with 12 people around the table.

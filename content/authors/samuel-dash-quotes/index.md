@@ -1,0 +1,17 @@
++++
+author = "Samuel Dash"
+title = "Samuel Dash Quotes"
+quotes_len = "11"
+description = "the best 11 Samuel Dash Quotes"
++++
+- Learn to say no in situations where saying no can be difficult, where it could mean getting fired. Say no anyway, because it could lead you to greater opportunities.
+- Unless you have a perception of who you are as a lawyer, you will never be at ease in dealing with legal matters, clients, or courts. But if you know who you are and why you're there, all you need is the expertise and the information.
+- I'm very much in support of the free press, but the free press ought to be educational and informative. And I believe they have fallen down recently on that.
+- I was a very serious young man, very committed to saving the world.
+- Our government leaders... have made many mistakes in the past when they have lost sight of the sacred American values rooted in the Declaration of Independence and the Constitution. We are at the brink of even graver mistakes and assaults on these values.
+- One of the things I realized early in my career is that you do what you believe, in knowing that if you don't, you will never like yourself. When you compromise out of fear or ambition, it eats inside you.
+- I've always been driven by the concept of equal justice under the law, but only the rich can pay great sums of money for legal assistance and that puts them at an advantage over the poor.
+- When you believe in what you're doing and use your imagination and initiative, you can make a difference.
+- Watergate was unique because it allowed the public to play its democratic role in expressing its outrage at the presidency. And as a result, for the first time in history a president resigned.
+- While teaching, I also worked undercover in the lower courts by saying I was a young law teacher wanting experience in criminal law. The judges were happy to assist me but what I learned was how corrupt the lower courts were. Judges were accepting money right in the courtroom.
+- I've always wanted to be my own person and stand by the things I believe in and I thought I might lose that independence if I ran for political office.

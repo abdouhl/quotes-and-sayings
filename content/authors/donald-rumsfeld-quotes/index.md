@@ -1,0 +1,82 @@
++++
+author = "Donald Rumsfeld"
+title = "Donald Rumsfeld Quotes"
+quotes_len = "76"
+description = "the best 76 Donald Rumsfeld Quotes"
++++
+- Many people around the President have sizeable egos before entering government, some with good reason. Their new positions will do little to moderate their egos.
+- If it were a fact, it wouldn't be called intelligence.
+- Learn to say 'I don't know.' If used when appropriate, it will be often.
+- You will launch many projects, but have time to finish only a few. So think, plan, develop, launch and tap good people to be responsible. Give them authority and hold them accountable. Trying to do too much yourself creates a bottleneck.
+- Don't necessarily avoid sharp edges. Occasionally they are necessary to leadership.
+- Don't speak ill of your predecessors or successors. You didn't walk in their shoes.
+- If a prospective Presidential approach can't be explained clearly enough to be understood well, it probably hasn't been thought through well enough. If not well understood by the American people, it probably won't 'sail' anyway. Send it back for further thought.
+- Your performance depends on your people. Select the best, train them and back them. When errors occur, give sharper guidance. If errors persist or if the fit feels wrong, help them move on. The country cannot afford amateur hour in the White House.
+- Don't do or say things you would not like to see on the front page of The Washington Post.
+- With the press there is no 'off the record.'
+- Let your family, staff, and friends know that you're still the same person, despite all the publicity and notoriety that accompanies your position.
+- Public servants are paid to serve the American people. Do it well.
+- Members of the U.S. House and the U.S. Senate are not there by accident. Each managed to get there for some reason. Learn what it was and you will know something important about them, about our country and about the American people.
+- Treat each federal dollar as if it was hard earned; it was - by a taxpayer.
+- Reduce the number of lawyers. They are like beavers - they get in the middle of the stream and dam it up.
+- The way to do well is to do well.
+- When cutting staff at the Pentagon, don't eliminate the thin layer that assures civilian control.
+- Don't automatically obey Presidential directives if you disagree or if you suspect he hasn't considered key aspects of the issue.
+- Remember where you came from.
+- One of your tasks is to separate the 'personal' from the 'substantive.' The two can become confused, especially if someone rubs the President wrong.
+- There are a lot of people who lie and get away with it, and that's just a fact.
+- If you try to please everybody, somebody's not going to like it.
+- Visit with your predecessors from previous Administrations. They know the ropes and can help you see around some corners. Try to make original mistakes, rather than needlessly repeating theirs.
+- Prune - prune businesses, products, activities, people. Do it annually.
+- Death has a tendency to encourage a depressing view of war.
+- Amidst all the clutter, beyond all the obstacles, aside from all the static, are the goals set. Put your head down, do the best job possible, let the flak pass, and work towards those goals.
+- If in doubt, move decisions up to the President.
+- Secretary Powell and I agree on every single issue that has ever been before this administration except for those instances where Colin's still learning.
+- First rule of politics: you can't win unless you're on the ballot. Second rule: If you run, you may lose. And, if you tie, you do not win.
+- It isn't making mistakes that's critical; it's correcting them and getting on with the principal task.
+- Be yourself. Follow your instincts. Success depends, at least in part, on the ability to 'carry it off.'
+- Don't blame the boss. He has enough problems.
+- You're thinking of Europe as Germany and France. I don't. I think that's old Europe.
+- In the execution of Presidential decisions work to be true to his views, in fact and tone.
+- There are known knowns. These are things we know that we know. There are known unknowns. That is to say, there are things that we know we don't know. But there are also unknown unknowns. There are things we don't know we don't know.
+- Our task, your task... is to try to connect the dots before something happens. People say, 'Well, where's the smoking gun?' Well, we don't want to see a smoking gun from a weapon of mass destruction.
+- Plan backwards as well as forward. Set objectives and trace back to see how to achieve them. You may find that no path can get you there. Plan forward to see where your steps will take you, which may not be clear or intuitive.
+- The Secretary of Defense is not a super General or Admiral. His task is to exercise civilian control over the Department for the Commander-in-Chief and the country.
+- When you raise issues with the President, try to come away with both that decision and also a precedent. Pose issues so as to evoke broader policy guidance. This can help to answer a range of similar issues likely to arise later.
+- Don't be a bottleneck. If a matter is not a decision for the President or you, delegate it. Force responsibility down and out. Find problem areas, add structure and delegate. The pressure is to do the reverse. Resist it.
+- I don't do quagmires.
+- See that the President, the Cabinet and staff are informed. If cut out of the information flow, their decisions may be poor, not made, or not confidently or persuasively implemented.
+- Oh my goodness gracious, what you can buy off the Internet in terms of overhead photography. A trained ape can know an awful lot of what is going on in this world, just by punching on his mouse, for a relatively modest cost.
+- Preserve the President's options. He may need them.
+- Don't think of yourself as indispensable or infallible. As Charles De Gaulle said, the cemeteries of the world are full of indispensable men.
+- Make decisions about the President's personal security. He can overrule you, but don't ask him to be the one to counsel caution.
+- In politics, every day is filled with numerous opportunities for serious error. Enjoy it.
+- It is easier to get into something than to get out of it.
+- If the staff lacks policy guidance against which to test decisions, their decisions will be random.
+- If in doubt, don't. If still in doubt, do what's right.
+- I can't tell you if the use of force in Iraq today will last five days, five weeks or five months, but it won't last any longer than that.
+- Enjoy your time in public service. It may well be one of the most interesting and challenging times of your life.
+- When asked for your views, by the press or others, remember that what they really want to know is the President's views.
+- Leave the President's family business to him. You will have plenty to do without trying to manage the First Family. They are likely to do fine without your help.
+- If you develop rules, never have more than ten.
+- Reduce the layers of management. They put distance between the top of an organization and the customers.
+- Think ahead. Don't let day-to-day operations drive out planning.
+- Don't divide the world into 'them' and 'us.' Avoid infatuation with or resentment of the press, the Congress, rivals, or opponents. Accept them as facts. They have their jobs and you have yours.
+- In our system leadership is by consent, not command. To lead a President must persuade. Personal contacts and experiences help shape his thinking. They can be critical to his persuasiveness and thus to his leadership.
+- Test ideas in the marketplace. You learn from hearing a range of perspectives. Consultation helps engender the support decisions need to be successfully implemented.
+- Work continuously to trim the White House staff from your first day to your last. All the pressures are to the contrary.
+- Congress, the press, and the bureaucracy too often focus on how much money or effort is spent, rather than whether the money or effort actually achieves the announced goal.
+- If you foul up, tell the President and correct it fast. Delay only compounds mistakes.
+- If you are not criticized, you may not be doing much.
+- Politics is human beings; it's addition rather than subtraction.
+- Be able to resign. It will improve your value to the President and do wonders for your performance.
+- The price of being close to the President is delivering bad news. You fail him if you don't tell him the truth. Others won't do it.
+- Presidential leadership needn't always cost money. Look for low- and no-cost options. They can be surprisingly effective.
+- Imagine, a September 11 with weapons of mass destruction. It's not 3,000. It's tens of thousands of innocent men, women and children.
+- Arguments of convenience lack integrity and inevitably trip you up.
+- Know that the amount of criticism you receive may correlate somewhat to the amount of publicity you receive.
+- Look for what's missing. Many advisors can tell a President how to improve what's proposed or what's gone amiss. Few are able to see what isn't there.
+- The Federal Government should be the last resort, not the first. Ask if a potential program is truly a federal responsibility or whether it can better be handled privately, by voluntary organizations, or by local or state governments.
+- Simply because you do not have evidence that something exists does not mean that you have evidence that it doesn't exist.
+- Don't say 'the White House wants.' Buildings can't want.
+- Be precise. A lack of precision is dangerous when the margin of error is small.

@@ -1,0 +1,16 @@
++++
+author = "Virchand Gandhi"
+title = "Virchand Gandhi Quotes"
+quotes_len = "10"
+description = "the best 10 Virchand Gandhi Quotes"
++++
+- According to the Jain view, soul is that element which knows, thinks and feels. It is in fact the divine element in the living being. The Jain thinks that the phenomena of knowledge, feeling, thinking and willing are conditioned on something, and that that something must be as real as anything can be.
+- In Western lands there is a distinct division between the religious and the secular life. There is one rule of conduct for laymen and another for clergymen. This distinction has never found its place in the life of the people of India. There, all of life is included in the word 'religion.'
+- The central ideas of Christianity, an angry God and vicarious atonement, are contrary to every fact in nature, as also to the better aspirations of the human heart; they are, in our present stage of enlightenment, absurd, preposterous, and blasphemous propositions.
+- Matter is a term contrary to soul. But nonsoul is its contradictory. Whatever is not soul is nonsoul.
+- May peace rule the universe, may peace rule in kingdoms and empires, may peace rule in states and in the lands of the potentates, may peace rule in the house of friends and may peace also rule in the house of enemies.
+- The true nature of soul is right knowledge, right faith and right conduct. The soul, so long as it is subject to transmigration, is undergoing evolution and involution.
+- All religions worthy of the name are now making great efforts to purify their doctrines and return to their original standpoint, all except Christianity! You surely know that the nineteenth century Christianity is not the religion taught by Christ. Christ's religion has been changed and corrupted.
+- Jainism has two ways of looking at things: one called Dravyarthekaraya and the other Paryayartheka Noya. According to the Dravyarthekaraya view the universe is without beginning and end, but according to the Paryayartheka view we have creation and destruction at every moment.
+- Christians well know that the much-decorated statue of the Church, as it now stands, is not of pure chiseled marble, but of clay, cemented together by blood and tears and hardened in the fires of hatred and persecution.
+- We all understand that the debasement of a nation's coinage is very pernicious and must prove disastrous to its commerce. How much more dangerous is the debasement of the spiritual coinage!

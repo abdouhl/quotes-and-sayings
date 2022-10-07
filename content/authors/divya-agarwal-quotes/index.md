@@ -1,0 +1,79 @@
++++
+author = "Divya Agarwal"
+title = "Divya Agarwal Quotes"
+quotes_len = "73"
+description = "the best 73 Divya Agarwal Quotes"
++++
+- If I have to get a film by impressing someone, the audience can see everything. They will criticise me if I can't act, no matter how many films I get.
+- I don't want to be called one of Priyank Sharma's girlfriends.
+- Constructive criticism always helps.
+- I was preparing myself unknowingly for 'Bigg Boss' for a long time now. It is a show about personality, and I love mine a lot. I would love to flaunt it in front of millions of viewers.
+- I am doing what I want to. It doesn't matter if it is a Karan Johar film or a regional film or a short film.
+- If I enter a set, I am all over the place and be in my zone once the camera is on.
+- Reality TV is too emotionally draining.
+- My expressions are just natural and I can't control them.
+- In Mumbai, our idea of going out is to chill.
+- I always knew that I was strong but I had no idea how strong I am.
+- I am the simple, desi girl with big dreams, who enjoys happiness in little things.
+- And obviously, when I talk about something that has hurt me in my life, I can go overboard.
+- At the age of 15, in Navi Mumbai I had my own dance studio and 700 students were there.
+- If I have written anything, a person will comment using abusive language if they feel it's wrong. Why can't you relax and write properly.
+- I am confident that as an artist, I will never starve to death.
+- In the year 2020, I was at home, it was so disappointing.
+- Working behind the camera was always fun for me.
+- I am never prepared for Varun to be in a reality show.
+- Everyone should know who is Varun's girlfriend and who is my boyfriend. We love to tease other by posting hot pictures of ourselves when we are apart. It keeps the spark alive.
+- 'Splitsvilla' was like a dream come true for me. Because it doesn't happen easily that you find your Mr. Right on a reality show.
+- I know one thing for sure that Salman Khan has crazy pointers about everybody and he has a very different point of view about things. He would think from every angle and I am always scared of those people who would control my mental balance and just make me doubt myself.
+- I am glad that break-up with Priyank Sharma happened as it made me understand things better.
+- The first film set I was on was Karan Johar's 'Student of the Year.' I was somewhere behind in the crowd with many people as college students.
+- With Salman, I need to keep myself a little calm but that wouldn't stop me from saying what I want to.
+- 'Kareeb' is a song that changes my mood. It's a happy and peppy song and my definition of it is 'pure entertainment.'
+- I want to make mistakes in life, so that I can learn from it.
+- And I always say that I like to put myself in trouble.
+- After 'Ace of Space,' I had quite a bumpy ride in terms of my career and personal life.
+- I think TV somehow would restrict my performance to one particular role whereas, in films, I will get more opportunity to show my versatility.
+- 'Bigg Boss OTT' will be a very new thing, so I am quite excited to see how it all turns out.
+- I know a lot of couples take efforts to plan a special date. And the ones who don't, their partners really get disappointed.
+- We go to parties in pajamas. And that is true of a lot of people in Mumbai.
+- It would be really difficult for people to break me.
+- In every show that I had been a part of before 'Bigg Boss,' I had made a lot of friends.
+- I think life has taught me a lot. Now, I just want to break free, have fun and be happy.
+- Acting is my profession and I am passionate about it.
+- I can handle anything that comes my way.
+- I always speak out about whatever is happening.
+- A show is just a part of your life.
+- I don't see myself doing daily soaps.
+- Of course I see a future with Varun. I don't get into things if they are not permanent at all.
+- The reason why I joined 'Bigg Boss OTT' is because in my life I have encountered a lot of incidences that has made me strong.
+- I don't like to change anyone, I just want people to embrace themselves.
+- When I don't want anyone to change me, I also don't go out there and keep telling people, 'Change yourself into this' or 'Don't do this, do this.'
+- I have the power of truth that doesn't see your age, your gender, your experience, your power, your position, nothing at all.
+- I am not going to refrain myself when I am angry.
+- Varun is not the person who goes with the flow. He pours everything that he's got into one thing. That's what worries me.
+- I don't think much about what to post.
+- 'Ace of Space' was a really tough show and I think everyone did really well. I am so glad the audience liked the real me and voted me to victory.
+- 'Ace of Space,' for me is not a reality show but a challenge.
+- So yes, winning Varun holds a more special place in my heart. Also, falling in love on a reality show is so special as it is documented for life. MTV has presented our love story in complete Bollywood style.
+- I don't have any strategy for the game because I am sure about one thing that 'Bigg Boss' is a show where you can't plan anything beforehand.
+- There is a very thin line between relationship and friendship.
+- Varun is good-looking, muscular and talented. I don't want the girls to think that 'Oh he is taken, we can't drool over him and Divya will get upset.' I like when girls compliment him.
+- Varun, he is so huge. He just wraps himself around me and gets me through the crowd. That really feels special and romantic to me.
+- I received a call for getting selected in 'Cartel' on December 4, my birthday. I was on cloud nine and absolutely overjoyed hearing the news.
+- There is something I don't get about the party scene in Delhi and Gurgaon, especially in Gurgaon. Why do people dress up so much when they go out to the nightclub or disco here?
+- I know my personality and I don't think so I am made for TV shows.
+- Though I am scared of host Salman Khan, I don't mind doing 'Bigg Boss 15.'
+- I hope people love and understand me.
+- I feel some people are not meant to be together but that doesn't mean they are bad.
+- In past reality show, I have had love connections.
+- Sad how the character of a person is defined by their apparel.
+- Interacting with Karan Johar was huge and my first Weekend Ka Vaar really went bad.
+- From my side I would like to say that if I am with someone, I would just go out and say it loud.
+- I think Rajasthanis are full of energy.
+- There are many actors I know who are not talkative.
+- I am a complete desi at heart when it comes to food, and a vegetarian.
+- You can't tell me what to wear, Indian clothes or no clothes.
+- I just can't take anyone who tries to justify a comment using foul language.
+- For 12 years, I have been traveling from New Mumbai to Mumbai for work and every small things.
+- The only behavior change would be I won't be that mean.
+- For the longest time, I would think Gurgaon was a part of Delhi.

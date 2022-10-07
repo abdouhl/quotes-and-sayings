@@ -1,0 +1,13 @@
++++
+author = "Dirk Kempthorne"
+title = "Dirk Kempthorne Quotes"
+quotes_len = "7"
+description = "the best 7 Dirk Kempthorne Quotes"
++++
+- In my public service, I treasure my friendship with law enforcement officers. I admire what they do and support them in every aspect of their job. I have always looked upon law enforcement officers as my friends.
+- You have it within your grasp to be regarded as one of the greatest legislative sessions in the history of the state. If you're bold and if you're ready to aggressively reach for our future, all the ingredients are here. The opportunities are waiting for us.
+- Experts say that if children can't read by the end of the fifth grade, they lose self-confidence and self-esteem, making them more likely to enter the juvenile justice system.
+- This is the way federal land management should work. Cooperation, not confrontation, should be the hallmark of conservation efforts.
+- I don't think anybody would dispute that we're seeing a warming of the Earth.
+- Government alone cannot solve the problems we deal with in our correctional facilities, treatment centers, homeless shelters and crisis centers - we need our faith-based and community partners.
+- Methamphetamine is a hideous drug. Meth makes a person become paranoid, violent, and aggressive - making them a serious threat to society and law enforcement. And maybe more importantly, meth users are a threat to their own children and families.

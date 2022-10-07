@@ -1,0 +1,106 @@
++++
+author = "Daniel Lubetzky"
+title = "Daniel Lubetzky Quotes"
+quotes_len = "100"
+description = "the best 100 Daniel Lubetzky Quotes"
++++
+- I have a whole section of a filing cabinet in my office full of ideas. Some are ideas for books or articles I want to write. One is a romantic comedy; one's about my dad's life. I've also got ideas for books on moral relativism as well as democracy and human nature. There's also a really cool concept for a spy novel.
+- The ideal time period to get an investment is when you've already proved your concept and know what you're doing, and it's about adding water to the seeds.
+- No matter if we're in a contentious situation or simply engaging in an everyday interaction, we should aspire to have the strength to be kind always. If each of us shared this aspiration, we'd all be better off.
+- From an early age, my initiative took many forms - teaching myself magic so I could do magic shows, buying wholesale goods and then selling them to other kids, learning many languages.
+- My dad was born in 1930 in Lithuania, located in Eastern Europe. He was 9 years old when the war started, and his family was sent to the Kovno ghetto. They were soon separated and sent to the Dachau concentration camp in Germany.
+- Growing up, I heard a lot about strength. My dad - a Holocaust survivor - embodied it, though he would never say that about himself. Not only did he survive one of the most horrific events in history, but he never lost hope along the way, crediting acts of kindness with keeping him alive.
+- I've been fighting BDS before people even knew that BDS existed.
+- You have to be very careful. If you over-commercialize a social mission, it completely loses its soul.
+- When someone gives 60 days' notice, they're able to play an active role in identifying and training their replacement.
+- Failure holds the seeds for greatness - so long as you water those seeds with introspection, they can be the root of your success.
+- Big failures hold better lessons than any success - as long as you are in tune with yourself and are open to learning from them. I can trace every one of my accomplishments to earlier failures that I learned from.
+- As a business owner, I understand the importance of prioritizing your bottom line, but it's equally as important to consider how you can succeed while also thinking about the long-term impact on the community.
+- I know that when you are experiencing failure, it's pretty damn painful. It is easy in retrospect to wax poetic about it. But in the moment, you don't think you will survive, let alone have the time to reflect on how valuable those lessons will be for you in the future.
+- I'm very inquisitive. I love hanging around people who can teach me. I ask a lot of questions. And I'm very introspective and self-critical.
+- I make mistakes daily, letting generalizations creep into my thoughts and negatively affect my behavior. These mistakes have taught me that the first step to successfully choosing kindness is being more mindful about it, letting go of impatience and intolerance along the way.
+- Relying on the power of kindness is a sensitive undertaking. The challenge is to inspire people to be kind more often without tainting the selflessness that comes from doing something nice with no ulterior motive.
+- To maintain our entrepreneurial spirit, we have to create a culture in which everyone remembers that every order, big or small - and every interaction, every moment - will define what our company is today and what it will become tomorrow.
+- While domestically the president may be able to somewhat reshape his/her image through defining moments and actions, this is far less feasible internationally.
+- The power of the individual, market forces, and the private sector permeate our lives. With that power comes responsibility to address huge challenges. Climate change cannot be solved by governments alone. Xenophobia, hatred, and intolerance - more business leaders have to play a role in trying to be positive leaders, civic leaders.
+- When you're bringing an idea to fruition, there are two distinct phases: the skeptic phase and the evangelist phase. During the first phase, you have to be willing to ask the hardest questions - is this idea worth pursuing? But once you are convinced, you flip a switch. It's about getting it done.
+- Everyone that is not an ultra-conservative recognizes the irony of FOX's 'Fair and Balanced' moniker, which only accentuates its actual bias.
+- Israel, for me, represents so much more than a nation. It's a very idealized example for the world. It's not just a nation that needs to be strong, secure, and safe. For me, for the sake of humanity, Israel needs to be a light that is an example to all nations.
+- I have an innate sense of justice and felt compelled to create an organization that would ensure consumers are provided with sound nutrition guidance. In establishing Feed the Truth, my intent is to elevate reputable science, bolster the voices of the nutrition community, and improve the guidance and information offered to Americans.
+- The rule of law, democracy, freedom of speech, freedom of expression - we cannot take them for granted. They do not exist willy-nilly across the world; they are very rare.
+- If you had asked me when I was in law school or in college or as a kid, 'Is Daniel going to be running a food company?' I would tell you you're cuckoo. What I was going to be doing was representing Israel at the United Nations.
+- Like many start-up stories, mine has been rocky.
+- There are corporate environments where a person has dedicated their life to working hard, and then they're fired with a security person escorting them out the door. I find that so demeaning and disrespectful.
+- Civilized discourse demands critical thinking, self-reflexiveness, sober-headed analysis.
+- I can't tell you exactly why my work ethic is the way that it is, but I know that I will always work harder than anyone else I know.
+- Kindness boggles my mind. It's the only force in nature that increases simultaneously for the giver and the receiver.
+- Showers last only 10 minutes, but you can't do anything else in there but think. The shower is probably the main place I come up with ideas. That's where I came up with the concept for OneVoice, my nonprofit organization.
+- We don't come up with product names like 'Cookie Sugar a la Mode.' We made a commitment that our brand is straightforward.
+- Only Americans vote for their president, but foreigners care almost as much - and sometimes more - about who will lead the most powerful nation in the world.
+- America already suffers from a uniformed and increasingly polarized citizenry. FOX seems to eagerly exploit this dynamic, and in so doing, accentuate it.
+- I believe that everyone in a company should pitch in to foster a culture of ownership and respect. At KIND, this belief translates to everyone being in the trenches - from team members just starting out to executives who have been with the company for years.
+- How powerful it is to surprise a total stranger with a really nice act: buy them a cup of coffee, pay their toll. It makes their day; it makes your day.
+- As a society, we're failing to recognize something my dad knew to be true - that kindness is the greatest show of strength. Too often, we are led to believe that strength is best demonstrated by exerting dominance or superiority over others, while kindness is portrayed as the opposite - a sign of weakness.
+- The people who work at FDA are just trying to do their jobs.
+- Trying to forget or hide your mistakes is a huge error. Rather, hold them near and dear to your heart. Wear them proudly.
+- I was very proud to support Obama's presidential campaign, from the primaries all the way to his historic victory.
+- My dad told remarkable stories about how kindness helped him through, and he lived his life afterward always trying to make people's lives better.
+- As an independent skeptical of all news stations and wanting to understand diverse perspectives, I tend to navigate between CNN, ABC, PBS, MSNBC, NBC, CBS, CNBC, and yes, FOX.
+- One of the magical things about kindness is that it's what we nerds call a 'happiness aggregator.' People confuse kindness with being nice. And they're very different. You can be nice and be passive. But kindness requires action.
+- We need to understand the other side to impact the other side. We become much more effective as humans and leaders when we engage in hearty conversations with those who are different from us, not necessarily to change our opinions, but to build the empathy muscle.
+- Learning how to contract your power and personality is of incredible importance.
+- When I was a kid, we'd go to the movies, and my parents would reach out to everyone around us in the theater, most of whom could barely afford the movie ticket. They'd hand out popcorn and Milk Duds, strike up conversations with them, lend shoulders to cry on, learn their names, and smile at everyone.
+- My father is with me every day. Although he passed away in 2003, he continues to live on inside me and through me - at home and work, on crowded subway cars and busy sidewalks.
+- The Kind Foundation was created to scale our social impact and be able to deepen our focus on fostering empathy and developing kinder communities.
+- Peace is an idea born from hope and the desire to see your children raise a family, walk in a market, and engage in simple pleasures of everyday life without fear.
+- First of all, magicians practice a lot. It requires a lot of discipline. Second, you can't be afraid to be a leader, to go onstage, and you learn to have presence. You need to be able to visualize and connect and create. Most important, you learn to think outside the box.
+- Wall Street sharks will go where they smell the blood, and you cannot change that.
+- My dad had this incredible kindness that oozed through every part of his body. He had the ability to look at life positively in spite of what he went through. He was a Holocaust survivor. When he was 15-1/2 years old, he was liberated from the Dachau Concentration Camp by American soldiers who risked a lot to save people they had never met.
+- Chaos does not unify. Chaos only serves the most extreme elements of society that seek to destabilize any semblance of order to fulfill their selfish lust for power.
+- Empathy is one of our greatest tools of business that is most underused.
+- When I applied to law school, I wrote on my application that I wanted to do two things. One was to solve antitrust law's irregularities and problems, and the second was to solve the Arab-Israeli conflict.
+- Longer distances yield local media coverage that tends to be more one-dimensional and absolute, less nuanced, and more sporadic.
+- I try hard to always question myself and wonder, 'What could I have done better? What did I do wrong?' The culture at our company is to be self-critical, but you have to balance that as a leader with praise for your team.
+- Politics is, by its nature, not my favorite thing because it's more about dividing people, not bringing them together.
+- The ideal is to build a culture of healthy discussion, where everyone's ideas are valued. At KIND, we want everyone to be comfortable challenging my or anyone else's ideas without ever feeling or making someone else feel that the questioning is a personal attack.
+- KIND has gone through many iterations as it deepens its social impact. When you're selling a million dollars a year, the impact you can have is very different than when you are selling over a billion dollars a year. Scale has allowed us to do things we never thought possible.
+- It's very important for people to know what gives them meaning. But it's hard for people to figure out if you're not connecting with yourself and taking the time to just be introspective and daydream.
+- When I was 26, I founded Peaceworks as a food company that brought together Israelis, Arabs, Turks, and others in conflict regions to make and sell various food products from the Middle East. That economic cooperation helped bridge divides and cultivate mutual understanding among neighbors.
+- As hundreds of millions of Chinese have improved their standard of living, this has put enormous pressure on natural resources, raw materials, and food basics, among others.
+- I grew up in Mexico until I was 16, and then we moved to San Antonio because my dad's business was headquartered there.
+- Few times in history do totalitarian or authoritarian regimes successfully repress their people for more than two generations, and zero times in history do these regimes last much longer than that, relatively speaking.
+- KIND had grown from a team of dedicated, overworked generalists to a large, professional organization with specialists who had either come in from outside or had been groomed internally to grow in a focused area about which they're passionate.
+- Unless we can join forces and recognize each other's humanity, how can we do business together, let alone make progress on the increasingly complex and difficult problems in society?
+- I'm never going to give up - it's part of my lifeblood to help, protect, and defend Israel.
+- Socially conscious brands engender more loyalty.
+- There's a fundamental tension that is hard to overcome, that what's wholesome is not convenient and vice versa.
+- Emotional intelligence is a very important skill set, not just to be happier but also to succeed professionally.
+- If you can inculcate in your team that every moment means everything, you can then step back to let them lead.
+- We strive for a culture of constant communication. Team members know in real time if there are performance issues. Team leaders know in real time if a team member is unhappy.
+- We're all human, and part of being human is showing respect and support for others' life choices.
+- Russia and China have maintained that people prize stability over freedom and that as long as the central State creates conditions for economic growth, people will be complacent and will be willing to literally sell away their rights. In fact, this very economic growth will eventually catch up with these regimes.
+- It doesn't matter who you are or where you come from - there's no substitute for hard work.
+- The advent of Kindle, the iPad, and other portable reading devices has so far simply resulted in turning analog print into digital print while keeping the same linear prose format.
+- Often, just explicitly acknowledging how the other side must see things can help them open up to see your side and can help both parties achieve a fair and constructive outcome.
+- Transparency is one of our core principles, We treat the food with integrity. We don't commodify it beyond recognition.
+- It takes strength to be kind; it's not a weakness.
+- We all have a responsibility to try and make this world better, whether it's through our work, the causes we champion, the way that we treat people, or the values we impart to the next generation.
+- Our world desperately needs real leadership.
+- Why stick to just prose or just music or just newspaper or just video? Why not create new models for information that combine elements of them all?
+- Without a doubt, what drives sales is letting people try our products.
+- The reason people buy Kind bars is that they're delicious and they're healthful. If the product doesn't taste good, isn't the right price, or doesn't fit their lifestyle choice, even if it's made by Mother Teresa, it's not going to work out.
+- When you're nice, you're not bullying people. But when you're kind, you stand up against the bully.
+- I cannot think of any venture I have initiated where an earlier failure wasn't an important precursor to an eventual success.
+- For me, empathy is an existential question - it's about the survival of the human race. That is, it's imperative for us to overcome the challenges we face.
+- The truth is that a campaign defines how the electorate will see their president - and this all the more true when shaping the president's image in the eyes of the largest constituency that will actually not vote for them: the international community.
+- When I was eight, I started what could be considered my first business, performing magic shows in Mexico City.
+- At KIND, our purpose is to spark kindness.
+- When you're building a business, you want to focus and deliver excellence at what you do. This simply cannot be done when you are launching multiple ventures, dozens of new products, and selling everywhere and anywhere at the same time.
+- My dad's life story was a string of kindness. He treated everyone as an equal, whether it was the bank teller or the bank president. He even attributed his survival to the courage of kindness.
+- Even though people do not traditionally think of being empathetic as a business skill, it can create enormous value.
+- We try to think with 'and' rather than 'or.' It doesn't have to be healthy or tasty. It can be healthy and tasty. It can be wholesome and convenient.
+- We don't always know exactly what we're doing as parents. Children don't come with instruction manuals, as the saying goes. So it's important to me that I always question the choices I'm making as a father, to really stay alert and open to the balance between being too hard or too soft.
+- Tasting failure, even when you truly believe in a project, is a critical part of the growth process.
+- I'm very non-partisan. I don't consider myself loyal to any party in Israel.
+- For me, work is both a hobby and a passion. And sometimes an obsession.
+- You have a deeper purpose that drives you. You have to talk to yourself about what that purpose is. If you run through like a hamster to chase fame or money, you might end up wasting your life away. You find what drives you and gives you energy.

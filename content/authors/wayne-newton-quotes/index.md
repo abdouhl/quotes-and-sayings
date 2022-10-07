@@ -1,0 +1,34 @@
++++
+author = "Wayne Newton"
+title = "Wayne Newton Quotes"
+quotes_len = "28"
+description = "the best 28 Wayne Newton Quotes"
++++
+- I love taking chances.
+- On any given night - there are nights that you feel better. There are nights that you are vocally better. There are nights that you are not as vocally good. No question about it.
+- When I die, I'd like to come back as a cello.
+- When I first met Elvis, we had so much in common and became fast friends.
+- I've always had great faith in people.
+- Once you're a Virginian, you're always a Virginian.
+- One night I went to see Bobby at the Flamingo. Because he was my hero, I would visit him for inspiration.
+- When I come offstage, if I've done a bad show or had a bad night, the fact that everybody was standing at the end or three or four times during the show means nothing to me. I know I could have done a better show.
+- I believe that fate is choices - it's not chance.
+- There are people who are surprised at my politics and being a conservative and the rest of it. But the truth of the matter is, to my knowledge, I have never been overlooked or turned down for anything that I wanted to do that was being offered to me.
+- I played Vegas at the age of 16 years old, in 1959.
+- But one man never laughed. He was a giant among men. He was Bobby Darin and he was my friend.
+- If it were not for the bad things that've happened to me, I wouldn't be the person I am today.
+- Johnny Carson was a mean-spirited human being. And there are people that he has hurt that people will never know about. And for some reason, at some point, he decided to turn that kind of negative attention toward me. And I refused to have it.
+- Sure, I've been a victim, but in retrospect, most of it has been of my own making. I allowed it to happen.
+- There's no room in my life for feeling sorry for myself.
+- I don't really believe in regrets.
+- I miss the personalization that Vegas was - there were showroom captains and all the dealers knew the gamblers by their first names.
+- You can take of a man's money, but when it's all said and done, you've only taken his money.
+- I'm better off working as opposed to lying around.
+- You have to go through those mountains and valleys - because that's what life is: soul growth.
+- Las Vegas and I both grew up together, and all of a sudden I was doing things that no performer had ever done before.
+- I've always had great faith in the Man Upstairs.
+- When you take of a man's time, you've taken a part of his life.
+- I have been involved with the USO really my entire life. The first show I did for the USO, I was nine years old.
+- When you think about those of us that live the life that we want to live, we can thank absolutely and completely our men and women in uniform. Because if it were not for them, we wouldn't enjoy the freedoms that we have.
+- Elvis and I were very good friends. We were such good friends that, on the day that he passed, I was the first one his father called, to let me know what had happened.
+- All of our early hits, 'Danke Schoen' and 'Red Roses,' were produced by Bobby Darin.

@@ -1,0 +1,11 @@
++++
+author = "Steve Spangler"
+title = "Steve Spangler Quotes"
+quotes_len = "5"
+description = "the best 5 Steve Spangler Quotes"
++++
+- My entrepreneurial spirit happened all day long because I got to think of things that kids would interact with. I was in front of my customers for 6-8 hours a day. I got to see what they like, what they don't like, what they connected with, and most importantly, did they learn something from this?
+- I have very vivid memories of my mom and dad making up batches of fake blood at night.
+- Prior to inventing the Geyser Tube toy, dropping a stack of Mentos into a bottle of soda was not always an easy task. The Geyser Tube makes it easy to get a perfect launch every time at heights of 30 feet or more. Tell me... who doesn't like to see soda shooting 30 feet into the air, all in the name of science?
+- I know what it felt like to walk into school and have kids say, 'Mr. Spangler's here!' And I thought, what if I gave that power to a parent so the kid looks at them and says, 'Dad, let's make a smoke ring launcher in the garage today.' What parent doesn't want to be a rock star?
+- We are really battling, today in the U.S., keeping science education in the forefront at the elementary level, and that's where the research shows that kids get interested.

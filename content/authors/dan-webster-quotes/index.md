@@ -1,0 +1,74 @@
++++
+author = "Dan Webster"
+title = "Dan Webster Quotes"
+quotes_len = "68"
+description = "the best 68 Dan Webster Quotes"
++++
+- You can think of all the things a Congress or a legislature does, and then you kind of overshadow that with the fact that a few people are going to make those decisions.
+- Once we relieve them from sanctions, their economy opens up, and they can sell oil and pistachios and whatever else they sell around the world. That was why Iran needed a deal. Everyone knows they fund terrorism around the world. Having that extra money will add a lot of problems and create a lot more hot spots.
+- I always think I have a chance, and I always give it all I've got.
+- Every member of Congress deserves a seat at the table to be involved in the process. I will continue fighting for this to become a reality in Washington, and will be running for speaker of the House.
+- Some people have been talking about - every place I go, they bring up the issue of foreign aid. I go, 'You can't get rid of all foreign aid.'
+- As a former minority leader who became the first Republican Speaker of the House in Florida since Reconstruction, I know that leadership is not an easy task.
+- Power tends to protect itself merely to maintain its own status and control. Principle gives up power for the sake of creating the best public policy.
+- Do I like foreign aid? Sometimes, but not every time. Don't like giving money to our enemies, but I love giving money to Israel.
+- We have a spending problem, not a taxing problem. The less we spend, the more jobs we have the potential to create.
+- For most of my time in Tallahassee, I did a lot of transportation.
+- I was Speaker of the House in Florida, first Republican speaker in 120 years. And I totally dismantled the way this House worked and turned it around to what I believe is right.
+- Are we going to just change the personalities in the speakership? Or are we going to fundamentally transform the way we do business here in Washington, D.C.?
+- I have one desire: That is to have a principle-based, member-driven Congress. Period. That's what I want.
+- There's a picture there that people realize that, we stop helping Israel, we lose God's hand, and we're in big time trouble.
+- I've never, in my whole 30 years in office, run a negative ad.
+- I never talk about my opponent because I don't think it's my right to judge.
+- During its first year of operation, Florida Virtual School had 77 students. The next year, it had 476 students; then 2,489 students the year after that.
+- Power says if you are a committee chairman, your idea is good only because you have got power.
+- We're not even supposed to have a break in August if we have not passed the appropriations bills. It's in the House rules.
+- I was told freshman Republicans don't get their bills heard.
+- The key is - I'll say the key - number one, I pray every day.
+- The true value of having Florida Virtual School in this mix is that it creates a gold standard for all providers to meet if they hope to compete for Florida students. This program raises the bar for everybody, even the traditional public schools. And that benefits all our children.
+- I would like to give evidence we can lead. And I think the only way we can do that is to unify the diversity of the party.
+- My whole deal is I want to have a principle-based, member-driven caucus.
+- Let's take up the most important issues first. Let's take up the reauthorizations first; let's take up the appropriations bill first, not wait until four days beforehand - no one has mentioned anything, and, all of a sudden, somebody looks at their watch and says, 'Hey, in four days, the government is going to run out of money.'
+- The process for producing public policy in Congress is flawed. The process itself kills policy ideas through the bypassing of the rules and procedural decisions that limit discussion.
+- The principle is that every member needs to represent their district.
+- The policy is one thing, but it's dictated by what the process is.
+- Nothing happens in any legislative body that's not purposeful.
+- The only way to improve the GOP brand and make good public policy is to fix the process. This requires transforming the way Congress does business.
+- John Boehner is a friend.
+- Power focuses on self-preservation; principle focuses on making ideas successful.
+- I'm the only person that has ever run a principle-based legislative body.
+- I'm a plodder, not a planner.
+- I will say this: I've had more pro-life bills, I believe, I ruled unconstitutional - but I tried - than the entire total membership of Congress together.
+- If you need a door kicked in, just call, and we'll kick it. Now, it may not always be the answer you want, but you will get an answer.
+- I have a problem with the way the House is run. I believe that a few people at the top of a pyramid of power have controlled this place for a long time.
+- I've been a speaker. I've been a majority leader. I've been a minority leader. Those are the sort of things I don't need any more.
+- I found a mistake in a rule. They addressed the wrong rule number... I pointed it out, did an amendment, and everybody was happy after that.
+- My job was to get a fair and open hearing to all ideas.
+- We have a lot of talented people in this Congress, and we can avoid a lot of unintended consequences if we just included them.
+- I'm not an angry kind of person. What I am is a principled person.
+- I don't do anything political on Sundays.
+- If principles don't determine what you are going to pass or do, then power will.
+- We're a nation of immigrants - there's no question about that. But we're also a nation of laws. I think we have to honor both of those.
+- There are amendments never offered, there are bills never heard, that are basically killed because of the process.
+- It's different from Washington in that in the legislature, you have to go home and have a job and actually make a living on your own. That gives you a different perspective.
+- Every member in Congress has a seat, and they deserve a seat at the table.
+- You lay out a plan and - say a three-year plan or a two-year plan - and say, 'This is what we can do. We can do the transportation packages, like the highway bill and the water bill, and we can do some of these other areas - a farm bill - whatever it is, we lay out a schedule, and we put that committee to work to do that.'
+- I have saved $1,638,580 over my four years. That may not seem like a lot, faced with our deficit, but multiply it by 435 members of the House - and then the senators get three times as much - and you are adding up several millions in savings.
+- I changed that system in Florida when I was the Speaker of the House - I was the Minority Leader; I saw for 16 years the way a power system works.
+- I'm a homing pigeon. When I'm in Tallahassee, I give everything I have to being, hopefully, the best legislator I can be. When I'm home, I'm home. I try to not do legislative stuff. That brings a balance to life.
+- I believe that Obamacare is bad for America.
+- I'm going to be as sincere as I can in delivering the message I think is right. If people agree, great, and if they don't, I did my best.
+- The voters in District 8 shared our vision that Washington is broken, and we're going to go up there and fix it.
+- You take away the money from Israel? No. That's something we can't do.
+- We've got to prove that we can lead, and I'm going to be all-in to help prove that.
+- Parents like options when it comes to their children's education. And they respond to quality.
+- All I want to do is get back to a principle-based Congress.
+- You have got to clean your own house first before you tell other people that they aren't doing it right.
+- If we do our job right, then we have everything to stand on. If we don't do our job, we have everything to lose on.
+- My expectations are not in any future event. I would rather just be prepared for whatever might take place.
+- We passed a bill in 1997, signed by Democratic Gov. Lawton Chiles, which created a pilot program for a novel experiment called Florida Virtual School. The notion of children using a computer for a classroom and reporting to virtual teachers wasn't exactly mainstream thinking in those days.
+- What really promotes business in this country is liberty, not demand for information.
+- Principle says it's not who put forth an idea. It's not the position of the person who put forth an idea; it's not the longevity of the person or the party of the person. That's not what it is at all. In a power system, that's the way it works. But in a principle system, it's what it says.
+- I've never hidden my faith, but there are only a couple of issues I would die for. There are a few others I would dig my heels in on, and I've told my caucus that what they see is what they get.
+- If you push down that pyramid of power and spread out the base, every member gets a chance to file their bill and have it heard and file their amendment and have it heard, as opposed to the system that we have now, which closes out, closes down bills, limits debate, and so forth.
+- When you wait to the last minute, you rush to get things done, and the closer you get to the deadline, the less options you have.

@@ -1,0 +1,29 @@
++++
+author = "Eric Roberts"
+title = "Eric Roberts Quotes"
+quotes_len = "23"
+description = "the best 23 Eric Roberts Quotes"
++++
+- Yeah, some of my college friends and I have been tinkering around for years, you know, just for fun.
+- But I can't remember who is in my CD player now.
+- I think maybe Mr. Sinise and Mr. Bacon have slightly bigger egos than I do.
+- I have a movie coming out called Spun, which will be at the Toronto Film Fest.
+- My first four roles were all nice guys, Raggedy Man being one of them.
+- As I've gotten older I look like a man, finally.
+- I ride my horses three to four times a week.
+- And then I bought my own horse, which I had until it died.
+- We loved being in Russia and would love to go back again, especially to visit my namesake.
+- We consider all our animals to be our kids.
+- The point of my explanation is I'm very subjective when it comes to describing my characters: they are all a little bit a part of me from the outside in or the inside out - but to put your mind at ease, I built Paul Snider from the outside in.
+- Well, I quit smoking three weeks ago and I had a hard day today not smoking.
+- I'm a real bore.
+- Sometimes movie-making happens like clockwork; other times, like a car accident.
+- The earth is a great big orphanage for most animals.
+- My wife and I have so much fun when we travel and find anything... like stray cats and squirrels.
+- Sylvester Stallone is very funny and he's a great guy to hang out with.
+- But the thing about bad guys is that they have the biggest bosomed blond, they have great clothes and cars, and get great death scenes.
+- Years later I made a movie with Wayne Newton, who has Arabians.
+- But if you love animals for all the right reasons- and that's just love and affection- then you're going to go after animals who need you.
+- And I'm as attached to my wife as anybody can be to another human being.
+- I'm really good with fighting with my feet.
+- I did have a dog for a few years when I was little, but then just really had cats until I was about 21.

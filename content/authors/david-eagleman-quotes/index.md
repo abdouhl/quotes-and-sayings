@@ -1,0 +1,28 @@
++++
+author = "David Eagleman"
+title = "David Eagleman Quotes"
+quotes_len = "22"
+description = "the best 22 David Eagleman Quotes"
++++
+- As an undergraduate I majored in British and American literature at Rice University.
+- Neuroscience over the next 50 years is going to introduce things that are mind-blowing.
+- I spent my adult life as a scientist, and science is, essentially, the most successful approach we have to try and understand the vast mysteries around.
+- Your brain is built of cells called neurons and glia - hundreds of billions of them. Each one of these cells is as complicated as a city.
+- Every week I get letters from people worldwide who feel that the possibilian point of view represents their understanding better than either religion or neo-atheism.
+- People wouldn't even go into science unless there was something much bigger to be discovered, something that is transcendent.
+- I think the first decade of this century is going to be remembered as a time of extremism.
+- There are always wonderful mysteries to confront.
+- There are an infinite number of boring things to do in science.
+- Part of the scientific temperament is this tolerance for holding multiple hypotheses in mind at the same time.
+- I think what a life in science really teaches you is the vastness of our ignorance.
+- I know one lab that studies nicotine receptors and all the scientists are smokers, and another lab that studies impulse control and they're all overweight.
+- We don't really understand most of what's happening in the cosmos. Is there any afterlife? Who knows.
+- The three-pound organ in your skull - with its pink consistency of Jell-o - is an alien kind of computational material. It is composed of miniaturized, self-configuring parts, and it vastly outstrips anything we've dreamt of building.
+- I'm using the afterlife as a backdrop against which to explore the joys and complexities of being human - it turns out that it's a great lens with which to understand what matters to us.
+- I always bounce my legs when I'm sitting.
+- My lab and academic work fill my day from about 9 am to 7 p.m. Then I zoom out the lens to work on my other writing.
+- The same stimuli in the world can be inducing very different experiences internally and it's probably based on a single change in a gene. What I am doing is pulling the gene forward and imaging and doing behavioural tests to understand what that difference is and how reality can be constructed so differently.
+- My dream is to reform the legal system over the next 20 years.
+- What we find is that our brains have colossal things happening in them all the time.
+- What has always surprised me when I walk into a bookstore is the number of books that you can find that are written with certainty. The authors tell some story as though it's true, but they don't have any evidence that it is true!
+- A typical neuron makes about ten thousand connections to neighboring neurons. Given the billions of neurons, this means there are as many connections in a single cubic centimeter of brain tissue as there are stars in the Milky Way galaxy.

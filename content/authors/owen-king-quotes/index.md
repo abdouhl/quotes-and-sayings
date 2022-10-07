@@ -1,0 +1,45 @@
++++
+author = "Owen King"
+title = "Owen King Quotes"
+quotes_len = "39"
+description = "the best 39 Owen King Quotes"
++++
+- Who wouldn't be depressed living in a society that can't agree on reality, let alone health-care policy?
+- I think I always wanna write comedy because that's what feels truest to me; it feels closest to life as I know it, so that's what I want to reproduce.
+- The questions about my father are inevitable, regardless of the characters I create or the subject matter.
+- My parents and my brother root for me.
+- I find that I'm extremely unattracted to anything that's humorless. There is writing that is entirely serious, and it doesn't ring true to me, because I think, oftentimes, life is very, very funny. Even the worst, most humiliating, savage disappointments in retrospect have elements of bleak humor.
+- I'm a very liberal person.
+- I wasn't good at the sciences; I wasn't a good enough athlete. The only thing I could do was mow lawns. So I thought that writing or teaching was what I wanted to do.
+- I think it's almost impossible to edit something to death. I think you can make things better almost indefinitely.
+- I grew up watching Cinemax, the late-night Cinemax of the '80s and early '90s.
+- The stock market is for people who live in Manhattan and summer in the Hamptons, for people who can afford fancy cars - a Mercedes, say.
+- I didn't really get serious about my own writing until I was convinced it was something that I wanted to do, that I wanted to spend that much time alone.
+- I like 'Reanimator,' and I like 'Evil Dead 2.' But I really like the Corman movies from the late '60s and early '70s, and my favorite is 'The Mask of Red Death' with Vincent Price because - spoiler alert - but at the end of the movie, Vincent Price, he's the evil prince, and to kill him, his court just, like, dances at him.
+- I think the model that I look at is someone like Jakob Dylan, whose dad is obviously every bit if not more famous than mine. He's a guy who sought to build a career on his own, doing something that's a little bit different than what his father does.
+- Although it's depressing to admit this, more than a handful of post-'Donnie Brasco' Al Pacino roles would have been better served by Steve Buscemi.
+- I was pretty naive about how hard it would be to get out from under the family name. Not that I'm complaining.
+- My father has been a major force in the popular culture for a long, long time. He's a fascinating person.
+- The last thing I want to do is to present something as 'Stephen King, Part II,' and have it be something that's a big disappointment.
+- Everyday life is pretty funny and pretty ridiculous and occasionally really great, though not all the time, and that's all part of it.
+- I'd love to be able to draw or play guitar or dance. All three at the same time - that's the talent for me.
+- It's not easy for me as a writer to suspend my disbelief in a fantastical zone. I can do it. But it's more natural for me to write stories that are comic. Or hopefully comic.
+- I only finish probably one out of every ten things I start. I give up all the time.
+- It's hard for me to teach and write my own work at the same time.
+- One corollary of the wretchedness of the second trilogy of 'Star Wars' films has been the final, demented sanctification of the first trilogy of films.
+- For me, the easiest thing to figure out is the story I want to tell, and the hardest thing is to figure out the voice that's gonna tell it. And that's why I finish very little.
+- Comic books and films have a lot more in common than, say, comics and books or films and books. The two art forms, to me, seem like pretty close siblings.
+- I like some of the B movies that are intentionally funny.
+- Stephen King's 'Mr. Mercedes' is not a conventional horror novel. No ghosts, no vampires, no prune-faced escapees of the graveyard.
+- I didn't want to write a book as Stephen King's son, because all I did was get born, and that's not much of an accomplishment. If that was the reason my book was published, it wouldn't be worth the paper it was printed on. I wanted to do my own thing.
+- A lot of storytelling... you're a bit hypnotized by it, and things just come out in certain ways, and you look at it and try to gather it.
+- My first job was as a groundskeeper at the local ballpark in the town where I grew up. There was a lot of down time, and I got to drive tractor, so it was pretty good gig. I've also taught creative writing, dabbled in reviewing and journalism, and toiled as a screenwriter.
+- I went to public schools in Bangor, Maine, and had as normal a childhood as you could imagine someone could, living in an enormous red house and being the son of a millionaire best-selling writer. I mean, I actually had a strangely normal childhood despite all that.
+- Just because it's physically impossible for Steve Buscemi to be in every movie doesn't mean he's not capable of dramatically improving them all.
+- I suspect that perfect happiness is not possible for me. I suppose if I was ever selected for eternal life - the moment I was informed - that would bring me the closest.
+- Steve Buscemi is the little black dress of cinema, appropriate for any occasion.
+- I give my work to my wife first to read. Then, I try to find new people who haven't read my work before, to get a new perspective.
+- My personal history is strewn with massive errors in judgment. They're all precious to me.
+- I could write about coal miners in Northern Pennsylvania, and people would ask if I was writing about my dad.
+- When I was a kid, we used to play this thing called 'the writing game' with our father. My brother and I would play it - where first person writes a sentence, and the second person writes a sentence, and the third person writes a sentence, and so on until you get bored and have to go to bed.
+- I do try to entertain.

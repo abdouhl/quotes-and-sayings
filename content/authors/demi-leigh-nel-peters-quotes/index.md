@@ -1,0 +1,63 @@
++++
+author = "Demi-Leigh Nel-Peters"
+title = "Demi-Leigh Nel-Peters Quotes"
+quotes_len = "57"
+description = "the best 57 Demi-Leigh Nel-Peters Quotes"
++++
+- I had to go to the other side of the world to reach my dreams; it is possible.
+- Meeting people from different countries makes you realise that everyone around the world has the same needs and aspirations.
+- In my carjack I immediately knew not to resist. I put my hands up, I didn't make eye contact, I didn't speak with them, I didn't argue with them, and he searched me - I knew he was going to search me, because I was told they would probably search you for phones or keys. I think once you expect something it's not as scary.
+- I was the first girl in my high school to be chosen as head girl of both my school and my hoste. I was also elected as the Deputy Junior Mayor of the George City Council in grade 11.
+- I like to read fiction.
+- The crystal-clear water in Thailand offers the best swimming and snorkelling experience.
+- Becoming Miss Universe made me realize that women worldwide face the same challenges daily, such as various forms of violence and crime, physical and emotional abuse, and toxic relationships, among others.
+- It takes one brave woman to implement change and for other women to be able to follow that.
+- Winning the Miss Universe title was not only a personal victory but a victory for the whole rainbow nation. I couldn't be more proud to represent South Africa. I hope this will inspire every single girl with a dream, that with hard work and dedication any dream is reachable.
+- Crime against the vulnerable individuals of society is a worldwide problem and as women, we need to know how to defend ourselves both physically and emotionally.
+- And when I won Miss Universe, I got a global platform, which gave me a louder voice to be able to reach more women from every corner of the world. No matter where we live, our circumstances or how we grew up, we want to feel love, we want to feel cared for, and we want to feel powerful.
+- My half-sister was born without a cerebellum and is completely disabled. She is my biggest motivator and inspiration, because her situation makes me realize how special life is, and I always want to work twice as hard, enjoy life twice as much so that I can enjoy it for her as well.
+- Living in New York, no big deal. I am loving New York - there is something about the energy.
+- I hope I can inspire every little boy and girl to reach their own dreams.
+- I admire woman like Marissa Mayer, the first female engineer and then CEO of Yahoo. Women who don't only strive to be the equals of men, but who strive to live up to their full potential.
+- I think we should have equal work for equal pay for women all over the world.
+- When you enjoy the moment you're in, it shows in your actions, it shows in your words, in your expressions and in your eyes.
+- I grew up in Sedgefield, which is in the heart of the area along the Garden Route that has been ravaged by fire.
+- Just like our bodies need rest, so does our hair. I put a hair mask on twice a month and walk around with it for a whole day.
+- I came out of a building and this woman stopped me, like, 'You're Miss Universe!' And she was a New Yorker! I'm not used to New Yorkers being fans, because they're so blase about it, you know.
+- I want to be remembered as a Miss Universe who overcame her fears and helped other women overcome theirs.
+- I was held up at gunpoint a month after I won Miss South Africa.
+- HIV/AIDS is a very big problem in my country South Africa, so I hope to stand as an advocate for that.
+- I don't believe in handouts, I believe in working hard for what you want.
+- I started a campaign in South Africa called Unbreakable where I empower women all over my country with skills and knowledge how to handle difficult situations, and I really hope to use the Miss Universe platform to elevate that cause.
+- Nothing will land on your lap, you need to work hard and fight for your dreams.
+- I'm a very hard worker, and if I put my mind to something I see it through, no matter what.
+- I realised at Miss S.A. and more so at Miss Universe that it's important to focus on your strengths and work on your weaknesses to know yourself well.
+- My hope is that Unbreakable will inspire women to believe in themselves, to value themselves and to know that asking for help does not mean you are weak.
+- When you are yourself, there is no wrong and there is no right, because being authentic and true to who you are and owning it is all anyone could ever ask of you.
+- To ask for help does not make you weak. And that was something I felt after I was carjacked. I felt shame. I felt embarrassed. I felt weak about it. That's not the case at all. Once I did get help, I managed to overcome it and make something special with it, instead of not doing anything about it.
+- I love to experience a new country's culture and history in a fun and memorable way.
+- I rarely had the opportunity to work as a full time model or to pursue a professional career in modelling, because school was always my priority.
+- You can be beautiful and you can be smart and you can make a meaningful difference in your community, in your country, in your world.
+- As a young girl, I would watch the Miss South Africa competition wishing with all my heart that one day I, too, would be able to walk on that stage, just like those glamorous women I saw on television.
+- I want to encourage women not to feel weak. Don't be afraid to speak out.
+- I've heard many women say that they were afraid to come out or they were too ashamed to talk about it because they thought it was something they had done to promote the man to sexually harass them - and that is not the case.
+- Taking good care of my hair is just as important to me as taking good care of my body and soul.
+- I managed to escape a violent carjacking. It was a very traumatizing point in my life and it made me realized that many women in South Africa are affected by crimes like this.
+- I had to play for a soccer team, I had to be an athlete, I had to make straight As. I was very hard on myself, and it paid off now.
+- There are so many girls in school who don't know about the opportunities out there. As a graduate, I only realised things about the business world after I completed my studies.
+- I want someone to look at me and find a little of themselves in me.
+- You don't need a title or a crown or a sash to be able to stand together with other women.
+- I'd love to meet Thuli Madonsela, as she is such a powerful and dynamic woman.
+- Every person has a choice in every situation and I decided not to be a victim of crime and to not allow myself to be crippled with fear. This is why I started Unbreakable. I wanted to teach women the self-defence skills I learnt during a course I participated in.
+- A woman should be allowed to be whoever and whatever she wants to be and she should be respected for that.
+- Our nation is comprised of many different backgrounds and cultures, one of the many things that makes me immensely proud to be a South African.
+- Just as with the Miss South Africa platform, I understand the responsibility of being Miss Universe and the impact it has on millions of lives.
+- I realized that women that stand together and take hands can be unbreakable.
+- I resonate with everything that the Miss Universe organisation stands for, especially empowering women across the globe.
+- As Miss Universe, you have to be confident in who you are. Miss Universe has to overcome her fears and teach others to do the same. And nothing is ever too much to ask for. That is exactly who I am.
+- In some places, women get paid 75 percent of what men earn for doing the same job, working the same hours, and I do not believe that is right.
+- Being a global ambassador is as much a responsibility as it is an honour.
+- My hair is an important part of who I am and if my hair is healthy and looks great, I feel confident.
+- We are not just a farming area, Africa has great potential and we are a developing continent.
+- I think living in the U.S. it has given me an outsider's perspective on South Africa, and something that makes South Africans shine is our warm heartedness, and how we welcome and accept everyone, we are truly a nation of community, who embraces diversity.
+- I was always interested in politics and I had great leadership skills from a young age.

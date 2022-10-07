@@ -1,0 +1,58 @@
++++
+author = "Emma Thompson"
+title = "Emma Thompson Quotes"
+quotes_len = "52"
+description = "the best 52 Emma Thompson Quotes"
++++
+- I have a nervous breakdown in the film and in one scene I get to stand at the top of the stairs waving an empty sherry bottle which is, of course, a typical scene from my daily life, so isn't much of a stretch.
+- The only way you can have it all is by delegating all the running of the home to other people - which I don't ever want to do... So you do it yourself, and it takes time and energy and effort. And if you give it the time, it's profoundly enjoyable.
+- You can't be a great mum and work the whole time necessarily; those two things aren't ideal. We have an awful lot to work on and to debate about in relation to our working lives, because it isn't working for a lot of people, particularly for a lot of women.
+- I hate the way market forces try to separate us out in to the appropriate demographic - basically in order to sell us things. We need to find stories that we can enjoy together, not separately.
+- My worst quality is impatience.
+- We need men and women to sit down and talk to each other about sex honestly and openly. That would help us fight Aids so immediately. But our lack of communication is hugely problematic.
+- I think that my work is my attempt, I suppose, is to try and become a piece of connective tissue. I'm trying to communicate with people here and in America - in rich countries - about what I see on the ground in badly affected areas.
+- It's not my fault that there is this gap between rich and poor, it is the fault of governments. I want a different world. One where I don't wake up thinking I'm so lucky to be able to feed my daughter.
+- Sometimes you'll have some things, and sometimes you'll have other things. And you do not need it all at once; it's not good for you.
+- But when I lose my temper, I find it difficult to forgive myself. I feel I've failed. I can be calm in a crisis, in the face of death or things that hurt badly. I don't get hysterical, which may be masochistic of me.
+- During an election, it's like they're doing my job: they're going around banging the drum for their party and selling their movie. You know, it's the same thing.
+- Children don't need much advice but they really do need to be listened to and not just with half an ear.
+- London has always been a haven for victims of cruelty, and been improved by them. Yet I can see it changing now. Outsiders are demonised, there are little bits of legislation, people are scared.
+- Film is so much to do with perfection and how differently you can feel about someone at the beginning of the film and the end of the film.
+- I've a problem with the word charity because I think that NGOs, as I prefer calling them, really do take the work of moral and social responsibilities that ought to be taken on by governments.
+- A lot of people in my world - in the acting world - have either lost friends to Aids or live with HIV because its origin in our culture, in New York for instance, was in the gay community.
+- What was important was trying to create something that families could watch together and enjoy together.
+- I understand what it's like to come with your family, and to uproot yourself and come to another culture. You need a lot of support. People say, 'She's got her daughter; she's got her husband.' Yeah, but she hasn't got anyone else.
+- The fact is that young people are going to have sex whether you like it or not.
+- British aren't really known for their physical loveliness but firemen, generally speaking, are gorgeous.
+- I think the point about ActionAid is what it's asking people to do is engage with poor people in developing countries and understand what their lives are like and understand how the way we live our lives impacts on theirs.
+- If you've got to my age, you've probably had your heart broken many times. So it's not that difficult to unpack a bit of grief from some little corner of your heart and cry over it.
+- We've got people looking at our seamy side and our sad side a lot of the time because that's easier. It's much more difficult to make a film about happiness with lots of jokes in it.
+- I don't mean being famous is a perk, because one knows that it's not necessarily a perk, but there are certain perks to being well-known and respected in one's field. Public perks. Like, I don't know, general friendliness and willingness to please, just to point out two.
+- It is remarkable how many misconceptions there are here about life in the developing world and I think that that knowledge gap has done a lot to contribute to the imbalance quite frankly.
+- My appearance has changed a lot over the years, but it has far more to do with how I feel about being a woman.
+- Any problem, big or small, within a family, always seems to start with bad communication. Someone isn't listening.
+- I don't have technique because I never learnt any.
+- One is a child when one has a child. No one says, 'You will never be the same again.' Which is the truth! And we're all supposed to be happy all the time. What is that about?
+- Indeed - judicious, consistent parenting is a dream of mine. No judgements, learning space and listening carefully are my goals.
+- I do think that despite my best efforts to resist it, I am now a grown-up. It's due to lots of very difficult decisions that you make over a long period of time - about motherhood, wifehood, and work, and all the things that one has to make decisions about.
+- Maybe I don't take myself so seriously any more. And I don't care how I'm judged. I'm past all that.
+- We belabour, I think, under a very heavy crust of consumerism really.
+- If you're actually allowing your creative part to control your writing rather than a more commercial instinct or motive, then you'll find that all sorts of interesting things will bubble up to the surface.
+- Its unfortunate and I really wish I wouldn't have to say this, but I really like human beings who have suffered. They're kinder.
+- Children are the most wonderful audiences. What's struck me most is that that they watch it so silently, until the end when they shriek and shout and clap.
+- Sometimes I get to put on posh frocks and be Madam Glamour, the vendor of my wares. My lovely friend Kath, a stylist, puts me into things I'd never dream of. But my real life is very different. It's very, very home-based - an intense domestic life, that's the core of everything.
+- There is that thing about not working with animals and children - I don't think that's true. Although you should never work with donkeys.
+- When husbands and fathers leave, their wives and daughters tend to value themselves less as a result.
+- The trouble is it's very difficult to pin-point the most important thing because Aids affects everyone in different levels of society, differently and you have to respond to it differently.
+- This morning, I went to wipe my hands on a tea towel, and while I was using it, it seemed like it felt a bit light. I unfolded it and realized my daughter had cut little bits out of it to make frocks for her dolls!
+- And it's absolutely true that male sexual behaviour and female responses to male demands change a lot when they start communicating - and the levels of the communication that I've seen on the ground in very, very poor areas are so high and I think why don't we have that here?
+- My mother has never approved of high heels. As a result, I have never been able to walk in high heels - and they were all I ever wanted. So of course, my daughter has two pairs.
+- If you don't want women to do whatever they need to do then you must provide them with food, you must provide them with shelter and their basic human rights.
+- The thing that influenced me most in relation to 'Nanny McPhee' were the Westerns I watched with my father. All the Spaghetti Westerns; all the Virginians; all the High Chaparrals. Because if you think about the form, it's a stranger from out of town.
+- I have to write for everyone. What really fascinates me is how you make films or make stories that can genuinely be shared by different groups.
+- Tell him I mind having to look pretty, that's what I mind, because it is so much more of an effort.
+- I have had lots of friends who've been affected by Aids and a very good friend of mine, Oscar Moore, died of Aids and I was with him in his last year quite a bit. And of course he was a man living in a very rich culture with a wealthy family who was able to afford health care.
+- I don't think people understand that being poor means you have to work from dawn until dusk just to survive through the day. I think there's some notion that poor people lie about all day not doing anything.
+- I was brought up by very witty people who were dealing with quite difficult things: disease and death... I was brought up by people who tended to giggle at funerals.
+- You can't imagine what satisfaction can be gotten from throwing a pie into someone's face.
+- A lot of very beautiful women can be a pain because all they're thinking about is how they look.

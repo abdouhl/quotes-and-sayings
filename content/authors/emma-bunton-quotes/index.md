@@ -1,0 +1,26 @@
++++
+author = "Emma Bunton"
+title = "Emma Bunton Quotes"
+quotes_len = "20"
+description = "the best 20 Emma Bunton Quotes"
++++
+- Please ignore rumors! I've had them for years and you have to just let them go over your head. Don't take them personally.
+- I don't think I will ever get tired of wearing pink.
+- Be yourself, take control of your life.
+- My family brought me up to be very respectful of people.
+- I've become saucy.
+- We're all doing different things and some of the girls are mums, so priorities have changed. But I would love to do something with the Spice Girls again. I know we would have an amazing time.
+- Just being at home, growing up naturally, and being here now with my video and my music, I think people realize that I was in the Spice Girls 8 years ago.
+- I love watching reality shows - I'm up to date with 'America's Next Top Model' and I love 'Project Runway.' But the shows where they're just sitting in a house aren't as fun to me!
+- I've got a Range Rover and a little Mercedes. I normally drive my Range Rover because I feel like a monster in it. Nobody messes with me.
+- I do love a man who can cook.
+- I'm not a pop star.
+- Be sweet and honest always, but for God's sake don't eat my doughnuts!
+- I love shopping, especially food shopping.
+- I think the way to keep a friendship is to respect that everybody is different.
+- I am a huge fan of Gwen Stefani.
+- I'm not a big sports fan, but I love it when they 'slam dunk.' That's sexy.
+- I do believe in fate.
+- I do have panic attacks every time I go on stage so I'm really not sure why I put myself through this.
+- Be sweet, be good, and honest always.
+- I think people recognize me if I am going out to dinner or if I am staying in a hotel. They are not quite sure at first because I have grown up a lot.

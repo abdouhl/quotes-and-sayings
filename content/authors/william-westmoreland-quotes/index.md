@@ -1,0 +1,33 @@
++++
+author = "William Westmoreland"
+title = "William Westmoreland Quotes"
+quotes_len = "27"
+description = "the best 27 William Westmoreland Quotes"
++++
+- I was participating in my own lynching, but the problem was I didn't know what I was being lynched for.
+- We moved in to help the Vietnamese defend their country and confront the Viet Cong.
+- I don't take criticism lying down.
+- When I took command in Vietnam, I gave great emphasis to food and medical care - and to the mail.
+- The last man in the world who should have been criticized was the American soldier. They should have criticized me.
+- Vietnam was the first war ever fought without any censorship. Without censorship, things can get terribly confused in the public mind.
+- By the end of the summer of 1973 I thought it was virtually impossible for South Vietnam to survive. How in the heck could they?
+- As the senior commander in Vietnam, I was aware of the potency of public opinion - and I worried about it.
+- We had the best food any battlefield ever had.
+- When the soldiers came home from Vietnam, there were no parades, no celebrations. So they built the Vietnam Memorial for themselves.
+- We were succeeding. When you looked at specifics, this became a war of attrition. We were winning.
+- The Vietnam memorial is a masterpiece. The names of the dead are listed there, chronologically. Just the names.
+- Television is an instrument which can paralyze this country.
+- I don't think I have been loved by my troops, but I think I have been respected.
+- My wife was my greatest asset. I didn't marry her until after World War II, but she has complemented me in every job I've ever had.
+- It's the first war we've ever fought on the television screen and the first war that our country ever fought where the media had full reign.
+- I haven't yet figured out how I was made first captain, because I was not an outstanding student. I was an adequate student.
+- President Johnson did not want the Vietnam War to broaden. He wanted the North Vietnamese to leave their brothers in the South alone.
+- War is fear cloaked in courage.
+- In the end, we lost IndoChina to the communists. But we did not lose Southeast Asia.
+- Militarily, we succeeded in Vietnam. We won every engagement we were involved in out there.
+- The military lead turbulent lives, but they are people like everybody else.
+- The military don't start wars. Politicians start wars.
+- It became very clear that Hanoi was in effect strategically running the Viet Cong operation.
+- I do not believe that the men who served in uniform in Vietnam have been given the credit they deserve. It was a difficult war against an unorthodox enemy.
+- Without censorship, things can get terribly confused in the public mind.
+- I've made this statement many times: If I would have to do it over again, I would have made known the forthcoming Tet Offensive.

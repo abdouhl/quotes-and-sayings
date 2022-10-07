@@ -1,0 +1,14 @@
++++
+author = "David Lange"
+title = "David Lange Quotes"
+quotes_len = "8"
+description = "the best 8 David Lange Quotes"
++++
+- I had been brought up in the law and had this sort of instinct that international law operates and was there to protect principles and not to be the plaything of power and might - which I now know, of course, to be an absolute nonsense. International law should be spelled l-o-r-e.
+- One minute I was a clapped-out, two-guinea, legal-aid lawyer, and the next minute I was in parliament.
+- I, as prime minister, never went to Washington. Certainly never went to a presidential ranch. I hate to say this, but I wasn't going to be the pilot fish to the shark, whereas Australia quite happily bobbed along like a happy little pilot fish with a shark who was a messy eater, and I just couldn't feel like that.
+- This is the difficulty about talking about it without sounding big-headed, but you cannot speak of New Zealand now without my involvement in what it has become.
+- You have to talk about why things happened the way they did. You can't actually explain my political life except by a series of situations rather than by some carefully constructed, rigidly progressed ascendancy.
+- It's a funny thing when you think you're dead. You're not terrified of it anymore. There's a sort of a epiphany to religious thing; it's not sort of church-based, but you end up with a serenity which you didn't have before, and I just simply enjoy it. It really does sound stupid, but I've got to tell you it's made my life.
+- We do not wish to have nuclear weapons on New Zealand soil or in our harbors. We do not ask, we do not expect, the United States to come to New Zealand's assistance with nuclear weapons or to present American nuclear capability as a deterrent to an attacker.
+- George W. Bush: a person who is the ultimate outcome of the American condition. Someone promoted above ability because of circumstance and organisation and empathy. You don't have to be intelligent. A moron in a hurry could know that you don't prevent war by having a war.

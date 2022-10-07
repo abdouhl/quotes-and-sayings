@@ -1,0 +1,54 @@
++++
+author = "Dave Mcclure"
+title = "Dave Mcclure Quotes"
+quotes_len = "48"
+description = "the best 48 Dave Mcclure Quotes"
++++
+- Usually, what I recommend to entrepreneurs is to focus on telling the problem first, about the customer or the person who has that problem.
+- Everyone has a different definition of risk. Sometimes that creates opportunities as well.
+- We have to support the well-being of society.
+- I did pick Lyft, but Lyft didn't seem amazing.
+- There's been entrepreneurs working in the Valley for probably 50-60 years. It's not to say that you can't create that in other places, but I think people are a little bit impatient about creating the next Silicon Valley.
+- Even for a lot of people in the Valley who are more conservative, a lot of them find Trump to be incredibly offensive and a blowhard.
+- There's going to be a Google or a Facebook or a Zynga every three to five years. Those are really big ideas that do return substantial amounts of money.
+- We are trying to build large, lasting businesses.
+- Companies that tend to survive are the rebels.
+- I don't expect anyone to believe I will change, but I'm working on it.
+- I don't know if we're doing the optimal things that we can to try and connect different people on the planet with different points of view and not be so angry at each other.
+- Sometimes, we nerds of technology sort of don't think that the rules necessarily apply to us in the same way, but I think when you produce products that hundreds of millions of people, if not billions of people, are using, we have the same responsibilities as any other person representing the Fourth Estate.
+- We think that there's a lot of opportunities in helping improve finding food, delivering food, ordering systems, notifications system, and its a very frequent purchase item for a lot of people.
+- The earlier you invest, the higher that attrition rate is because it's compounded. We have a more scientific method of investment.
+- I'm better than probably 90 percent of the people out there. Doesn't mean I'm smart; probably means I'm lucky.
+- I bet on a lot of stuff that's low-priced, and most of it's going to go back down to zero. But some of it's going to go up.
+- We often say if you have traction, lead with traction. Talk about specific customers, usage numbers, revenue metrics - anything like that that really is clearly explicit and factual. Get that out in front early.
+- I think you'll see a lot more people in the Valley get more involved in politics.
+- My personal failures aside, 500 has long supported a diverse community of entrepreneurs including women, minorities, LGTBQ, international, and other overlooked founders.
+- I actually find it's more interesting to play in the niches and find ways to apply technology to relatively straightforward problems.
+- If you already have some amount of significant traction with customers, either in usage or in revenue, you should very quickly try and get that clearly out.
+- 'Bazillion Dollar Club' follows six struggling startups trying to get their products together.
+- The reason we invest globally is because we think that's where a lot of the growth is happening: around the world.
+- I aim to combine all the things I do in a comprehensive and holistic fashion that benefits startups and the people who make them grow.
+- Most of what we do is software, Internet, and mobile. A fair amount of that is transactional.
+- Not everybody wants to be Mark Zuckerberg, but everybody wants to create a little piece of the American dream, the Silicon Valley version. I don't think that's a bad thing.
+- My role has been limited to focus on fiduciary obligations to our investors as a general partner of our funds.
+- I won't say that 'shotgun' is the word I'd prefer to use, but we certainly do a lot of investments.
+- With great power comes great responsibility. These are platforms with hundreds of millions of people.
+- Offline, anything is expensive. Online is much cheaper, usually, to do almost anything.
+- I don't think there's nearly enough interesting ways to do education online, particularly for younger children.
+- Hottest space that I think is interesting would be education, particularly, like, ages 3-10.
+- Entrepreneurship is usually about people executing in the face of other folks telling them that it's not going to work.
+- I must say I have turned down several great companies, so I'd probably say I have to keep learning.
+- I think 'Shark Tank' is targeting companies that are really trying to raise their very first dollar. A lot of them aren't really tech focused. We're definitely going after companies that are building real technology, either software or hardware, they probably have raised a couple hundred thousand already.
+- While I'd like to believe that I'm not a bad or evil person, regardless, it's clear that some of my past actions have hurt or offended several women. And I probably deserve to be called a creep.
+- Food tech has been kind of an area that we have been making a number of investments in. Kind of a big boring industry, but a lot of people eat.
+- There's this myopia among American venture capitalists to not go anywhere beyond Silicon Valley and New York.
+- Europe is kind of fragmented. Africa is nascent; we've made a few investments, including four in Egypt. I visit 50-60 cities and 20-25 countries a year. The intent is to be a global fund, which takes time and prioritization.
+- There were never as many big businesses as people were piling money into in the late 90's or early 2000's. This is really a lesson to institutional investors about how much capital the market can absorb, and it's a 10-year adjustment cycle, and we're only beginning to wake up to that.
+- It's pretty challenging for large funds to spend the time and energy necessary to get a meaningful return when most of the wins coming out are perhaps below $100 million exits and the ones above are very few and far between.
+- There's a mathematical way to get success.
+- I'm ashamed I didn't change my behavior until I was forced to do so by circumstance and by others. The reality is, I was stopped from further bad actions by those who spoke up about my offenses, at substantial risk to their personal and professional reputations... and subsequently, by Christine and others on the 500 team.
+- I want to invest in a functional product that people are using.
+- I made advances towards multiple women in work-related situations, where it was clearly inappropriate. I put people in compromising and inappropriate situations, and I selfishly took advantage of those situations where I should have known better. My behavior was inexcusable and wrong.
+- Most firms do two investments a year. They may talk to between 50 and 100 and do a couple, whereas we're talking to thousands and doing several hundred.
+- Everybody in the industry thinks I'm the crazy person.
+- A bubble in early-stage funding means maybe there's $300 million at work when maybe there should be $150, as opposed to a bubble in late-stage funding which means there's $20 billion at work when there should be $3.

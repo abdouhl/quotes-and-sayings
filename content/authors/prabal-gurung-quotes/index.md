@@ -1,0 +1,51 @@
++++
+author = "Prabal Gurung"
+title = "Prabal Gurung Quotes"
+quotes_len = "45"
+description = "the best 45 Prabal Gurung Quotes"
++++
+- I just really enjoy life.
+- I went home and went to Mustang, in the mountains between Nepal and China, and was so inspired by the landscape and the rich culture and heritage. I loved the textures, the draping, the palette. Everything was so beautiful. This little kingdom wasn't open to the world until 1991.
+- I was definitely considered different growing up. I learned that being me was all right because my family celebrated those differences.
+- I've always been interested in a femininity with a bite. I always think a little bit of a kick is great.
+- There is one universal truth: All women, all over the world, want to look beautiful. That is always the theme of my designs.
+- I came here because I wanted to live the American dream that I had heard of. And I'm a perfect example. I came to New York; I knew no one. I've made a career, a life, so I still believe in that.
+- I tweet myself and do all the Facebook updates. It started off with me wondering whether I was showing off and I was very careful about what I wrote.
+- I'm fascinated by furniture design and interiors, and I want to try designing all that stuff.
+- I am not the kind of designer who is racing to the finish line, so while collaborations are important for our growth, each and every one has to be strategic and well-timed with what we have going on internally.
+- I have a 6-year-old niece who doesn't look like the majority of girls on the covers of magazines. I hope that by the time she's 16, the world will have changed.
+- I really feel blessed that I'm able to do what I love and make a living at it and have people come and see it. I mean, what an incredibly blessed life!
+- To me, beauty is inclusion - every size, every color - that's the world I live in.
+- Fashion has a huge responsibility - in what we show on the runway, what we do in editorial, who we dress - to make sure it represents differences. If we don't, we're giving in to the discrimination.
+- Girls who wear certain kind of dresses, who show certain areas of the body, are not going to like my clothes. You can't please everyone.
+- You want to question what is important and why is it important. I don't have all the answers, but I'm very curious to know and learn.
+- Change doesn't come from staying in your safe space.
+- I love draping; it's less about proportion than fit and the fabric. It's very specialized and I think when women see the construction, they respond to it immediately.
+- I've always found it interesting when I look at a woman, and she's beautiful and everything, but there's an inner strength.
+- There's such a feeling of satisfaction when something you imagined turned into something real.
+- I think I'm just really in love with women, and I love to see them looking incredibly, truly beautiful. I think every time a woman wears one of my dresses, you know, in a matter of speaking, I'm having a little love affair with her!
+- The first time I saw my look on a real person was in Paris, and I felt a little shock, a little thrill that went through my body. And that thrill never goes away - never.
+- I mean, I can cook, but I'd get very nervous having my food being judged by dinner guests.
+- The punk era, at its best, celebrated questioning the norm and the promotion of originality. Both concepts have always resonated with me.
+- Fashion has always had the ability to affect lives, to touch people. But for the longest period of time, we've said, 'Oh, we're just pages of a magazine; that's what we all look at.' It's more than that.
+- There is undoubtedly a lot of pressure that comes with recognition, which can be a good thing and bad thing all at the same time. But if you stay focused and don't lose sight of what you're doing and who you are, you can rise above it.
+- I grew up with a single mother who brought us up. I always look back at my career, and everything that has happened to me is because of the support of women. My mother, my sister, Michelle Obama, Kate Middleton - all these women have believed in my designs and worn them and given me a platform to increase my visibility.
+- I know what it's like to turn the page of a magazine and not see anyone like you. It takes a lot, a lot, a lot of talking to yourself to confirm your self-worth.
+- I'm constantly thinking about design, shapes, patterns and colors, so I just want to be more of a blank canvas. But there is a comfort in knowing what you're going to wear, and that probably comes from Catholic school, where I wore a uniform for 10 years.
+- I decided if it was going to be a mistake to come to New York and try and make a career in fashion, then it was going to be my mistake... But the American dream is real. I'm living it.
+- I would tell any aspiring designer to take the time to experience everything they can to really get a feel for what direction they want to go in. And most importantly, let your passion and your gut lead you.
+- I make 98% of my collection in New York City and am generating jobs, so fashion isn't just frivolous for me. I understand levity about it. I also understand the depth of it.
+- People on the outside and even some people in the fashion industry think that fashion people are maybe not the smartest. It's a constant battle.
+- The sources of inspiration from my travels have been unending.
+- I'm not a believer of luck. I think opportunity and hard work becomes luck.
+- I was in Nepal and I had watched Oprah Winfrey's show. I had no idea, as a kid in Nepal, who she was, but I remember watching an episode of hers about living your dreams.
+- For my first big Fashion Week event, the factory wouldn't give me my clothes because I didn't have the $25,000 it cost to make them.
+- When I came to America, there were two kinds of women: women who looked serious and who didn't wear color and print, and women who looked girly and feminine and like second wives.
+- All designers have a platform, an audience. Whether it's one or a million, it doesn't matter.
+- My goal is: I'm not trying to be snobby, but my clothes are not for everyone, not for every Hollywood celebrity. There is a designer for everyone, and a celebrity for every designer.
+- I came from Bill Blass, where it was a well-oiled machine and if I said I needed a fabric, it was done. Now, I have to budget everything. I have to take on the role not just as a designer but a business. But I'm a glass half-full kind of guy.
+- As someone who started a company with an idea of creating a luxury brand with a soul, I needed to learn more about how I effect change.
+- A lot of people have an opinion. If you listen to them too much, your work will get influenced, and you make no one happy.
+- Nothing scares a straight man more than a woman in her full glory.
+- The woman I design for is very curious. She loves fashion, but she also is passionate about what is happening around the world.
+- It saddens me to see the reality-television shows that are getting so much fanfare that are a celebration of stupidity and the degradation of women. And those women are consistently wearing too short, too tight dresses. I hope the trend of aging gracefully returns.

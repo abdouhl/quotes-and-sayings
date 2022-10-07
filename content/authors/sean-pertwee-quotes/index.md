@@ -1,0 +1,21 @@
++++
+author = "Sean Pertwee"
+title = "Sean Pertwee Quotes"
+quotes_len = "15"
+description = "the best 15 Sean Pertwee Quotes"
++++
+- In Cape Town, there's a drive from Cape Point to Camps Bay where the road is hewn out of the cliffs. It's just stunning, particularly if you do it as the sun is going down.
+- Being a father is a surprise for me every day.
+- I'm the third or fourth generation of actor in my family; I'm sure if they were butchers, I'd be a butcher, too.
+- When I drop my son off at school, I love walking around the outskirts of Hampstead Heath.
+- I bought a pair of Carpe Diem boots, which were completely unnecessary and hideously expensive, but they make me feel quite fine and dandy.
+- I'd really like to go down the Amazon in some capacity. I've spent time in the Congo, so I love the jungle.
+- I am a fantastic cook. It's my great passion.
+- I'm sure there have been missed opportunities, with films I've turned down that went on to be successful, but everyone in the industry has had that happen.
+- My father was brought up in a theatrical background, just as I was, and his father instilled in him the need to do everything properly and take responsibility for money.
+- I think homes are a palpable form of investment, and I understand them.
+- Work place romances always seem to get very confused and peculiar, in my experience.
+- I didn't do very well when I was at school, so my dad gave me the opportunity to travel in Africa. I drove from London to Nairobi. It was incredible.
+- I play a lot of hard men and gangsters, and I'm not like that at all.
+- Acting's the best job there is. Pretending to be someone you're not is good fun. It's also a non-ageist profession, and you get to work all over the world with people you admire.
+- I try to use my debit card rather than a credit card, but I will use a credit card for big purchases because I bank with Coutts and I get points.

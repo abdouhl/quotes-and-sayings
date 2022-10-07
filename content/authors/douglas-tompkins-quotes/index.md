@@ -1,0 +1,52 @@
++++
+author = "Douglas Tompkins"
+title = "Douglas Tompkins Quotes"
+quotes_len = "46"
+description = "the best 46 Douglas Tompkins Quotes"
++++
+- Capitalism may have all sorts of things that are good, but ultimately, it's bad for everyone.
+- I feel a strong bond with Chile and Argentina.
+- We need to pay our dues to live on this earth; we need to pay the rent, and I'm doing that with the work we are carrying out here in Patagonia.
+- People have to free their imaginations and realize everyone can do something, on a large or a small scale, depending on their ability. Those who can do a lot because of their position and potential should jump right in there.
+- We choose the national park idea because it's really the highest form of protection for landscapes that exists under current law, especially in Chile and Argentina.
+- When we began working on Parque Pumalin, rumours flew that we were establishing a nuclear waste site for the United States or, oddly for Episcopalians, which we both are, setting up a Jewish state. It would be funny if these theories weren't being taken very seriously.
+- The byproduct of the main thrust to protect the biodiversity of a given place is that you get especially young people out to the parks, because it will be future generations that will have to value these landscapes and these ecosystems and make sure that nobody is changing the law.
+- If you're trashing your own country, ruining the soils, contaminating the waters and the air, cutting down trees, overfishing the lakes, rivers and oceans, you're not much of a patriot.
+- National Parks are the gold standard for conservation.
+- These parks are our life's work, not the clothing chains we created, selling people clothes they don't need.
+- I tell myself to hurry up, that I have to do everything before death catches me.
+- Every single national park had some component of private philanthropy.
+- Despite my great disappointment in American foreign policy, I am very proud of the American tradition of wild land conservation. It is the best tradition and example of land conservation in the world. It goes back a long way.
+- If you want to destroy the planet, you can kiss social justice goodbye. The earth comes first.
+- Once we establish an architectural style in each park, we stick with it religiously and comprehensively so that it comes out as a gestalt.
+- If you take guys like Exequiel Bustillo, the architect who designed the early park infrastructure in Argentina, or the great American architects, these guys had a vision that thrust the national park idea into the public eye.
+- I don't think capitalism can survive.
+- Deskilling devices - they make us dumber. We're immersed in a system that now requires the use of a cell phone just to get around, just to function, and so the logic of that cell phone has been imposed on us.
+- It is really your behaviour that determines whether you're a patriot.
+- Conservation is not without its critics and opposition. There are a lot of special interests that don't want to see land set aside.
+- The computer is a mechanism for acceleration: it accelerates economic activity, and this is eating up the world. It's eating up resources, it's processing, it's manufacturing, it's distributing, it's consuming. That's what the computer's real work does, and it does that 24/7, 365 days a year, non-stop, just to satisfy our own narrow needs.
+- I'm short on celebrations and long on getting to work.
+- I learned from my parents that you have to get pleasure out of what you're doing, or don't do it.
+- As we get sucked more and more into the technosphere, we become less and less capable of understanding it because it becomes a technological milieu that we're in.
+- I've never, ever tried to make life easy for myself.
+- It's very complicated when you are reorganizing territories under different ministries. We have to get them all together and transfer jurisdictions. It's a bureaucratic slalom course we have to ski through, but it can be done.
+- If you're not willing to take the political heat, then you shouldn't get into the game of land conservation, especially on a large scale.
+- There are emotional relationships in any business.
+- I just realized at least what I was doing was making a lot of stuff that nobody needed and pushing a consumerist society. So I went to do something else.
+- There's big granite walls up toward the Argentine border, but the weather's serious, and a lot of the rock is mossy and wet.
+- National parks are the best expression of social equity that there is. It's like paying our rent for living on the planet.
+- The Canadian power line is going to industrialize Patagonia, and it is going to discount the one economic card the region has to play, which is the tourism.
+- I'm a social justice supporter, but there is no social justice on a dead planet.
+- There's no doubt whatsoever that there's no future in capitalism. It's probably no more than 500 years old, and it's demonstrating over and over again that it is destroying the world.
+- I just feel lucky that I somehow escaped from the confines of the business class... I feel so fortunate that somehow I managed to break out of that world and get to do something that really had more meaning.
+- I have even begun to think that I am caring for Argentina and Chile perhaps more than Argentines and Chileans. I feel like I'm sort of a de facto citizen, because I am looking after their national patrimony - which is the land - very carefully.
+- Resource efficiency is the wrong metric. We should use nature as the measure, using nature's wisdom as a template for our economic systems.
+- I don't want to see anything natural get hurt.
+- Look at how fast technology is developing.
+- Capitalism doesn't function when it starts to contract, and we can see that quite clearly right here in the eurozone. It's like pushing a giant monster under water that's gasping for air. It goes nuts.
+- When they're growing up, if you tell kids God exists, they believe it. It's the same with the techno-cultural society. They believe in it - that it's the road to paradise, that there are no limits.
+- I'm sort of half-Chilean at this point anyway, half-Argentine. This is where I have been living and working for a long time now.
+- If you just hold your cell phone for 30 seconds and think backwards through its production, you have the entire techno-industrial culture wrapped up there. You can't have that device without everything that goes with it.
+- Fashion is one of the most intellectually vacuous industries. We had to manufacture desires to get people to buy our products. We were selling people countless things that they didn't need.
+- I know all of the antiques stores in Buenos Aires. I've been in every one of them, picking things out.
+- I don't have a cell phone because I know how horrible it is. Using your cell phone is like putting your head in a microwave every day.

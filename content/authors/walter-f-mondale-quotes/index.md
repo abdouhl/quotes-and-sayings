@@ -1,0 +1,39 @@
++++
+author = "Walter F. Mondale"
+title = "Walter F. Mondale Quotes"
+quotes_len = "33"
+description = "the best 33 Walter F. Mondale Quotes"
++++
+- Running for President is physically, emotionally, mentally and spiritually the most demanding single undertaking I can envisage unless it's World War III.
+- When I was a young man, I used to dream maybe someday I could be an alderman. Instead of that I became an attorney general, a senator, a vice president, a Democratic nominee.
+- We have no right to poison, to eat up, to chew, to pollute this wonderful country of ours. We are required to save it and purify it and protect it.
+- The course of nationalism, once it's attached to a cause opposite yours, is still the strongest force in the world.
+- President Reagan likes to say Uncle Sam is a kindly old man with a spine of steel, and that he is. But I want to see Uncle Sam as well with a mind and with a heart and with a soul and a conscience.
+- I don't want to spend the next two years in Holiday Inns.
+- The view of how America speaks is reflected in our laws. And one of the laws is fair housing. It very clearly prohibits discrimination in the sale and rental of housing in America. It's been a sad fact of American life that the practice in many communities has been quite the opposite.
+- We believe in a solid, just, compassionate, hopeful future. That's why I'm in politics. That's why I'm running for president. And that's why I'm going to win!
+- The more the American people see the sharp differences between Mr. Reagan and me and the visions we have of our future, the better off the American people will be.
+- I believe there were things I probably should have done differently. But I'm not going to spend a lot of time crying over spilt milk.
+- The overarching problem is one of the survival of humanity in the face of the growing nuclear menace. If those bombs go off, nothing else would matter.
+- I said I didn't want to spend most of my life in Holidays Inns, but I've checked and they've all been redecorated. They're marvelous places to stay and I've thought it over and that's where I'd like to be.
+- The most important thing I would do is to try to institutionalize U.S.-Soviet summits.
+- I think the Reagan people are superb marketers. Their whole approach to polling, to television, to the symbolism and the rest approaches genius.
+- I earned my spurs in the civil rights movement. All my life, not for political but for religious reasons, moral reasons, that's where I've been, and I'm proud of it, and I'll always be there.
+- I will end the lawlessness that's destroying our environment. I will take polluters to court, not to lunch.
+- I will not lobby. I will not be an influence-type lawyer. I'm a professional lawyer.
+- There's no question that history will record that I took a helluva shellacking.
+- If you are sure you understand everything that is going on, you are hopelessly confused.
+- I have no doubt the Japanese leadership and most Japanese see the importance of a strong U.S.-Japan relationship. I certainly have no doubt that the American view is the same.
+- Modern politics today requires a mastery of television. I've never really warmed up to television and, in fairness to television, it's never warmed up to me.
+- I think we need a public, strategic, cooperative relationship with Israel.
+- One of the phenomenons of American political life is that it all stops one day. One day, you've got 200 reporters and cameras, and everybody is hanging on you. And three days later, you're alone. And it's quite a transition.
+- In our system, at about 11:30 on election night, they just push you off the edge of the cliff-and that's it. You might scream on the way down, but you're going to hit the bottom, and you're not going to be in elective office.
+- What some people argue is that Vietnam stands for the proposition that there's no role for American power anywhere on earth. I don't believe that's the case at all. I think we're the strongest force for democracy and for stability on earth, and we must have a strong capacity to perform that role.
+- I believe in the Camp David accords.
+- I believe that Reagan's a radical on arms control.
+- What do we want our kids to do? Sweep up around Japanese computers?
+- There's a lot of bad consequences that flow from segregation. The kids don't do as well. We live separately. We don't learn about each other. We're all Americans. And yet, we separate based on, basically, race. And I believe it's got to stop.
+- Do you want to tear your life apart and get rid of everything you've known as a lifestyle? Like seeing your family? Being with your friends? A fishing trip? A hunting trip? A night's sleep?
+- My father was a minister, and my mother was a music teacher.
+- Obviously, the domestic need is to shape an economic policy that assures long-term healthy economic growth and a reassertion of American competitiveness in international competition.
+- Pick somebody who knows what it's like to live on an average income and to deal with the problems that most Americans face. Pick somebody who's traveled this country and who will remember who put him in the White House - not to be a king but to be a public servant.

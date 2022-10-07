@@ -1,0 +1,38 @@
++++
+author = "Eddie Izzard"
+title = "Eddie Izzard Quotes"
+quotes_len = "32"
+description = "the best 32 Eddie Izzard Quotes"
++++
+- I just believe in the goodwill of people, the power of people to do something positive.
+- Religion and philosophy, philosophy and religion - they're two words which are both... different. In spelling.
+- I'm quite good at taking in information so I voraciously inhale Wikipedia - which may have some things wrong in it, but I think is generally more information than we had before. Last tour we didn't have Wikipedia. And then Discovery Channel and History Channel. I can take it in and retain what I think are the most important facts.
+- If you get anything creative going, then the work and play thing is the same thing, I feel.
+- I use a Bruce Lee technique: 'The way of no way.' He had the idea that he would learn everything, so that whoever he had to fight, he could improvise anything. The best way of starting a gig is just to not think of anything - to clear your mind, not in an empty Zen state, but more just to go on and see where you go.
+- There was no religion in my life growing up. Did God invent us or did we invent God?
+- If you've never seen an elephant ski, you've never been on acid.
+- I try to keep performing as much as possible - I just like to. I used to take huge gaps off between gigs, now I just like to do stand-up gigs as much as I can.
+- I'd be happy to be taken as a woman - and that's what I was initially trying to do when I started throwing on dresses and stuff. But that wasn't going to happen because everyone kept calling me sir. So I thought I'd change the method and just start wearing what I wanted to wear.
+- If you go down as a comedian's comedian, that's basically meaning other comedians are hopefully feeling that you're doing okay.
+- Well, comedy is a great weapon of attack. It's not a great weapon of support.
+- I wanted to be less well-known in comedy.
+- I felt audiences are happier to take comedy people who play darker people because there's a link between the psychosis of comedy and the psychosis of being a twisted character.
+- Boy bands should be exploded from a great height. They're just pretty people singing music written by others.
+- MAC gave me 55 lipsticks to test. These are the same lipsticks I got caught stealing by the police when I was 15. How ironic.
+- I try to just talk about human stories and what I think about religion or teapots or whatever.
+- Animals in the wild are lean, and I think we should be too.
+- They tend to come out a colour called 'Pants left in wash'
+- I grew up in Europe, where the history comes from.
+- My stand-up is quite good now, people say. It's just like a big conversation each time. Every gig is a rehearsal.
+- I don't know what it's like in the U.S. but immigrants in the U.K. do the jobs the citizens won't do.
+- I like my coffee like I like my women. In a plastic cup.
+- Cats have a scam going - you buy the food, they eat the food, they go away; that's the deal.
+- I don't believe that competitions are important.
+- Never put a sock in a toaster.
+- So the American government lied to the Native Americans for many, many years, and then President Clinton lied about a relationship, and everyone was surprised! A little naive, I feel!
+- I'm a one-man idiot.
+- Comedy is a great weapon of attack. It's not a great weapon of support.
+- In stand-up it really helps to play yourself and talk about your own feelings. You cannot fail to be original if you're just talking about what you think about X, Y and Z. Unless you've got a twin brother who's also a stand-up.
+- If there is a God, his plan is very similar to someone not having a plan.
+- I mean, sometimes... a comedian becomes an actor, and they just don't deliver, because the bottom line of comedy is to be funny, and the bottom line of acting is to be truthful, and they get that mixed up sometimes, or don't even notice that that's the thing.
+- I wanna live 'til I die, no more, no less.

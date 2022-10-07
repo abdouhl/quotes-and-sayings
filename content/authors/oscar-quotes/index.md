@@ -1,0 +1,106 @@
++++
+author = "Oscar"
+title = "Oscar Quotes"
+quotes_len = "100"
+description = "the best 100 Oscar Quotes"
++++
+- In the Premier League every team is very good. That's why it's very difficult to reach that level.
+- Of course the Premier League has the most top level players in the world. But the Chinese guys are very good.
+- I know that I have to try get better every day.
+- The best players in the world play in Europe so that's where you want to go when you play in Brazil.
+- Sometimes I've ended up not playing the entire match, but I'm doing my best to fulfil my role.
+- The long-distance ones are the most common goals I have scored.
+- I have learned from past experience with Internacional that you have to take one game at a time.
+- I play with players in the Brazilian national team who are similar to those at Chelsea - Kaka, Neymar.
+- Whatever decision I make, somebody will talk good or bad about it, you know?
+- I have to up my game every time I play.
+- I would like to clarify that Diego and I are very, very good friends we spend a lot of time together on and off the pitch and our families are great friends. We have absolutely no issues whatsoever.
+- I can't stop, I always have to try and keep a good pace and that's what I'll do.
+- I arrived very early in Europe.
+- If I go to Chelsea it will be a dream come true.
+- I have always worn the No.10 shirt when I played at lower levels and, obviously, my reference point was always Pele and then Ronaldinho.
+- A lot of people told me not to come to the Premier League because of the physical demands, especially if I came straight from Brazil to England. But it's not been like that.
+- In Brazil, we have the culture to try to conquer the refs.
+- 4-3-3 is better for me because I can score more goals, and also create more and tackle in midfield which I like to do to help the team.
+- They have different styles. Scolari is used to coaching national teams and Mourinho clubs. Both are very successful. They are professionals as well as winners.
+- As a player, I'm a combination of my father and my uncle. People back home say that they were such good players and that I remind them of them both.
+- Felipao is one of the best coaches in the world.
+- I am confident in my ability.
+- I am one of the pioneers, along with those players who went before me, and I'm coming to China to help the league and help more players get to know this league.
+- I want to win more games, more trophies, because I love Chelsea, I love the fans. I like the city, my family like it here.
+- It was just great to wear the Brazil shirt in the senior team for the first time. I'd already worn it before playing for various age groups in the youth teams but it's very different playing for the Brazilian first team.
+- David Luiz is also a great player. More than anything he's a great guy off the pitch too.
+- I won two Premier League championships, I played a lot - I won a championship with the Brazil team too.
+- I have changed my behaviour on the pitch in England. Here referees talk to the players all the time. I think it is nice.
+- It is good for football that the game grows in new areas of the world.
+- On the pitch there's no need to talk about his fighting spirit - he always gives 100 per cent in every game. I like Ramires and I admire him a lot.
+- This happens with every player, if it wasn't for money I wouldn't leave Brazil. When you go to Europe you go because of the money and because of the good clubs also, and in Shanghai the project is to be one of the best leagues.
+- It's like a dream for me, participating in the Olympics, it's so important for my career and I hope to win the gold medal here.
+- To play at Stamford Bridge for Brazil would be great. To play for the national team is already special but to do it here would be a very special occasion.
+- It's always a dream to play for the national team.
+- Every football player, or every person who works, wants to earn money to help their families.
+- It's been a very successful time for me here at Chelsea.
+- There are teams I like a lot like Inter and AC Milan, so I'd think about going to the Italian league.
+- I think the Brazilian people are very fond of Neymar for the fact that he stayed at Santos for so long and stayed in Brazil. That's very cool for him.
+- There are different tactics depending on the opponents we face, and we respect the manager's choices.
+- The big games against big opponents, those are the best games to play in.
+- I've have always known that Felipao has trust in me, that's not new. And I showed on the field that he can keep trusting me.
+- The transfer was good for me, good for Chelsea, good for Shanghai, and I'm so happy to come to the Chinese Super League.
+- Didier was always an idol.
+- When I was talking with Shanghai, I was talking to big clubs from Europe, as well. There was Atletico Madrid, who I almost joined. I liked them very much and what they were offering me at the time. There was also Juventus, Inter Milan, and AC Milan. I had some options.
+- Chelsea is one of the best clubs in the world, so I don't see why I would think of leaving.
+- I know it could be a bit more difficult in England because you are not playing all the time and you play in different positions. But I do expect to score many goals for Chelsea and I hope to keep the average of between 10 to 20 goals a season, that would be good.
+- Religion is an important part of life and culture in Brazil, very important to us as Brazilians.
+- I am pretty sure that in the future the Chinese league will be one of the best leagues in the world.
+- The fans are really good in China - not only Shanghai; wherever I go, everybody who stops me is super nice.
+- China has incredible financial power and sometimes makes offers that players can't refuse.
+- The most important thing is to be happy, regardless of the place.
+- Upon his arrival at Chelsea, Mourinho spoke to me. He gives me confidence and I'm trying to return all such support on the pitch.
+- When my agent told me that Chelsea were interested it was not something I even needed to think about.
+- Playing for Chelsea doesn't compare to the pressure of playing for Brazil because we've won the World Cup five times. It's not only a massive country but football is part of the culture. They always want you to win, so you can never have an off-day.
+- I'm flattered PSG are thinking about me, but I'm happy at Chelsea.
+- Everyone knows my quality... and the way I play.
+- I hope I can keep growing and scoring goals.
+- I'm not aware if anyone's been told to kick me in training - but they are doing it anyway!
+- I think the Chinese clubs put up a lot of money for the players who go to China, to make the Chinese league stronger.
+- It's not my style of play to mark players and stop them, or be threatening. But I am learning that at Chelsea.
+- In the Premier League, they don't give a foul even when it is a foul. We can't dive or pretend things.
+- For Internacional I played in several different positions, so I have no problem adapting.
+- All Brazilian players have this dream. I have, like everybody, the dream to play in Europe and the Premier League.
+- I spent a lot of time in the national team and I love playing for my country.
+- Sometimes it can be more difficult to play in Europe, as you are playing against the very best players, but I like the big games.
+- I came from a social background in Brazil that is very poor. We didn't have anything.
+- Everyone has got to figure out the things he wants most. And I believe coming to China is the best choice for me.
+- My father loved to play the game, he never became a professional but when he was younger everyone would say he was good enough and when I heard people talking about him, I wanted to emulate him. So I started to play.
+- Didier is a Chelsea legend and a senior player. I am happy for him to take the 11 and for me to take the 8.
+- To wear the number 10 for your country is a very special thing. This was not only my dream, but the dream of every single Brazilian.
+- I have always wanted to play in the Champions League and who wouldn't want to play for the European champions?
+- In Brazil, there is a different type of football, but I think I am seen as an elegant type of ball player, who is creating for other people.
+- To win an Olympic gold would be very special for me.
+- I chose Chelsea because I always wanted to play in Europe for one of the biggest clubs. And I'm glad I did.
+- At Chelsea we are expected to win every game.
+- Although I was only 25 years old, I had been at Chelsea for five years. So, I was there long enough.
+- When I was a child I watched the Italian league a lot because there were many Brazilians there.
+- I am good friends with David Luiz.
+- Every title is important for Chelsea.
+- At the World Cup, everyone has to face up and beat everyone.
+- The Premier League is always difficult - Champions League or not.
+- Definitely the aim is to be champions.
+- Before every game I pray, I find solace. It helps me to relax and prepare.
+- I'm joining Chelsea hopefully to win more titles.
+- I used to watch English football on TV when I was younger in Brazil. I already knew it was a dynamic, competitive and fast way of playing. When I got here, I just confirmed all of that.
+- Here in England, you do need to be firmer, harder on the pitch. That's just the way it is.
+- In Brazil, young boys dream of playing in the Champions League and I'm very proud to have realized my dream.
+- If people want to say I seem too nice to be a footballer, that's good. It's just the way I am.
+- I played in a city in Brazil where there are only two big clubs and Internacional versus Gremio was unbelievable - the pressure, the team atmosphere and everybody flying on the adrenalin.
+- It's always easier to play with players who are not only great but also intelligent.
+- I understand the importance of this number to Chelsea. In Brazil, it is the number 10, but here the 11 is a very important number and I just hope that I can do it justice.
+- It's great to play in local derbies.
+- A month before signing for Chelsea I was very close to doing so with Real Madrid as Mourinho said he wanted me.
+- Didier talks to all of us. Not just with me, but with all the attacking players. He has scored so many goals for Chelsea. But now he pushes the younger players. He is fantastic. A fantastic player, and a fantastic person.
+- Of course I support Chelsea.
+- I have been a midfielder who is a regular goalscorer and scoring 20 in a season was normal for me.
+- I love Chelsea and I want to stay here for a long time.
+- I am so happy to come to the Chinese league.
+- I can play in any position.
+- I arrived at the age of 19, 20 and remained five years at Chelsea.

@@ -1,0 +1,17 @@
++++
+author = "Emanuel Steward"
+title = "Emanuel Steward Quotes"
+quotes_len = "11"
+description = "the best 11 Emanuel Steward Quotes"
++++
+- When I was a little kid I wanted to be an artist or a painter. But once I got into boxing, all I wanted was to box.
+- I started boxing when I was eight. I enjoyed when I could hit someone and they couldn't hit me back. It was like a game for me. The feeling of knocking someone out. My first knockout victory was when I was ten. He went down and his nose started to bleed, so they stopped it.
+- There's not as much oxygen in that hot gym and I think it's great for conditioning. I believe in a lot of boxing. You can train and work on the speed bag and heavy bag, but when you get in the ring with another fighter, it's a different story. Punches are coming at you, there's physical contact, muscle against muscle.
+- You look at boxing being an international, world-famous sport, right up there next with soccer, and there's only two fighters the people want to see fight. Two little fellows, Manny Pacquiao and Floyd Mayweather.
+- I would love to see Wladimir Klitschko fight Antonio Tarver for many reasons. One is Tarver talks a lot; he would build up a big fight. And Tarver is coming off of a great victory. So I think he would be a good opponent.
+- If there is one abiding theme in the gym, it's the withering work in the ring. Those not fit do not survive.
+- I went to a motivational training course once, a course of self-discovery, and I found out after a week that my fear - it was not a fear of not being accepted - was a very violent fear of failure.
+- My favorite hobby is being alone. I like to be alone. I also like dancing, fishing, playing poker sometimes and vegetable gardening - corn, tomatoes, cucumbers, I have a big garden every year.
+- Hopefully in 2011 the fans will get to see some fights that they want to see. Manny Pacquiao Vs. Floyd Mayweather needs to happen, and so does David Haye Vs. Wladimir Klitschko. The fans deserve to see fights that they want to see and not just the fights that the promoters want to see.
+- I used to love to see Willie Pep and Ray Robinson. To me, the epitome of a great athlete is a great boxer. I just love the rhythm of seeing a man dance, slip punches. I loved the dancers and boxers. I would see them and be mesmerized.
+- I began these clinics because I want to share my years of experience in around the ring, in addition to my proven winning methods. I have seen the good and the bad. I have learned valuable lessons, which I want to pass along to those truly interested in the sport.

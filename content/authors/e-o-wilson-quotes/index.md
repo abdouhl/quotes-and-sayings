@@ -1,0 +1,100 @@
++++
+author = "E. O. Wilson"
+title = "E. O. Wilson Quotes"
+quotes_len = "94"
+description = "the best 94 E. O. Wilson Quotes"
++++
+- If those committed to the quest fail, they will be forgiven. When lost, they will find another way. The moral imperative of humanism is the endeavor alone, whether successful or not, provided the effort is honorable and failure memorable.
+- Political ideology can corrupt the mind, and science.
+- In addition I wanted to write a Southern novel, because I'm a Southerner.
+- Competing is intense among humans, and within a group, selfish individuals always win. But in contests between groups, groups of altruists always beat groups of selfish individuals.
+- If history and science have taught us anything, it is that passion and desire are not the same as truth.
+- Theology made no provision for evolution. The biblical authors had missed the most important revelation of all! Could it be that they were not really privy to the thoughts of God?
+- America in particular imposes an horrendous burden on the world. We have this wonderful standard of living but it comes at enormous cost.
+- Without a trace of irony I can say I have been blessed with brilliant enemies. I owe them a great debt, because they redoubled my energies and drove me in new directions.
+- It's like having astronomy without knowing where the stars are.
+- Ants make up two-thirds of the biomass of all the insects. There are millions of species of organisms and we know almost nothing about them.
+- I tend to believe that religious dogma is a consequence of evolution.
+- Ideas emerge when a part of the real or imagined world is studied for its own sake.
+- Ants have the most complicated social organization on earth next to humans.
+- We don't need to clear the 4 to 6 percent of the Earth's surface remaining in tropical rain forests, with most of the animal and plant species living there.
+- The historical circumstance of interest is that the tropical rain forests have persisted over broad parts of the continents since their origins as stronghold of the flowering plants 150 million years ago.
+- Ants are the leading removers of dead creatures on the land. And the rest of life is substantially dependent upon them.
+- But once the ants and termites jumped the high barrier that prevents the vast variety of evolving animal groups from becoming fully social, they dominated the world.
+- It's always been a great survival value for people to believe they belong to a superior tribe. That's just in human relationships.
+- People need a sacred narrative. They must have a sense of larger purpose, in one form or another, however intellectualized. They will find a way to keep ancestral spirits alive.
+- I grew up as a Southern Baptist with strict adherence to the Bible, which I read as a youngster.
+- When you get into the whole field of exploring, probably 90 percent of the kinds of organisms, plants, animals and especially microorganisms and tiny invertebrate animals are unknown. Then you realize that we live on a relatively unexplored plan.
+- Science and religion are the two most powerful forces in the world. Having them at odds... is not productive.
+- The ant world is a tumult, a noisy world of pheromones being passed back and forth.
+- In my heart, I'm an Alabaman who went up north to work.
+- Religious belief itself is an adaptation that has evolved because we're hard-wired to form tribalistic religions.
+- I see no way out of the problems that organized religion and tribalism create other than humans just becoming more honest and fully aware of themselves.
+- The human mind evolved to believe in the gods. It did not evolve to believe in biology.
+- Our brain is mapping the world. Often that map is distorted, but it's a map with constant immediate sensory input.
+- People respect nonfiction but they read novels.
+- We are drowning in information, while starving for wisdom. The world henceforth will be run by synthesizers, people able to put together the right information at the right time, think critically about it, and make important choices wisely.
+- The essence of humanity's spiritual dilemma is that we evolved genetically to accept one truth and discovered another. Is there a way to erase the dilemma, to resolve the contradictions between the transcendentalist and the empiricist world views?
+- Once I feel I'm right, I have enjoyed provoking.
+- I doubt that most people with short-term thinking love the natural world enough to save it.
+- Companies that are willing to share, to withhold in order to further the growth of the company, willing to try to get a better atmosphere through a demonstration of democratic principles, fairness and cooperation, a better product, those will win in the end.
+- If all mankind were to disappear, the world would regenerate back to the rich state of equilibrium that existed ten thousand years ago. If insects were to vanish, the environment would collapse into chaos.
+- There doesn't seem to be any other way of creating the next green revolution without GMOs.
+- Destroying rainforest for economic gain is like burning a Renaissance painting to cook a meal.
+- I thought perhaps it should be recognized that religious people, including fundamentalists, are quite intelligent, many of them are highly educated, and they should be treated with complete respect.
+- Individual versus group selection results in a mix of altruism and selfishness, of virtue and sin, among the members of a society.
+- In some ways, I had a traditional 'old South' upbringing, meaning that I spent some time in a military school, and acquired an inoculum of the military ethic that is still with me today: honor, duty, loyalty.
+- By any reasonable measure of achievement, the faith of the Enlightenment thinkers in science was justified.
+- What we need is an electronic encyclopedia of life, with one page for each species. On each page is given everything known about that species.
+- For me, the peculiar qualities of faith are a logical outcome of this level of biological organization.
+- The work on ants has profoundly affected the way I think about humans.
+- The human juggernaut is permanently eroding Earth's ancient biosphere.
+- Ants are the dominant insects of the world, and they've had a great impact on habitats almost all over the land surface of the world for more than 50-million years.
+- You are capable of more than you know. Choose a goal that seems right for you and strive to be the best, however hard the path. Aim high. Behave honorably. Prepare to be alone at times, and to endure failure. Persist! The world needs all you can give.
+- I'm very much a Christian in ideals and ethics, especially in terms of belief in fairness, a deep set obligation to others, and the virtues of charity, tolerance and generosity that we associate with traditional Christian teaching.
+- We should preserve every scrap of biodiversity as priceless while we learn to use it and come to understand what it means to humanity.
+- In many environments, take away the ants and there would be partial collapses in many of the land ecosystems.
+- It's obvious that the key problem facing humanity in the coming century is how to bring a better quality of life - for 8 billion or more people - without wrecking the environment entirely in the attempt.
+- But I feel music has a very important role in ritual activity, and that being able to join in musical activity, along with dancing, could have been necessary at a very early stage of human culture.
+- The education of women is the best way to save the environment.
+- What's been gratifying is to live long enough to see molecular biology and evolutionary biology growing toward each other and uniting in research efforts.
+- Real biologists who actually do the research will tell you that they almost never find a phenomenon, no matter how odd or irrelevant it looks when they first see it, that doesn't prove to serve a function. The outcome itself may be due to small accidents of evolution.
+- Jehovah had nothing to say to Moses and the others about the care of the planet. He had plenty to say about tribal loyalty and conquest.
+- There is no better high than discovery.
+- Of course, there is no reconciliation between the theory of evolution by natural selection and the traditional religious view of the origin of the human mind.
+- I was a senior in high school when I decided I wanted to work on ants as a career. I just fell in love with them, and have never regretted it.
+- Perhaps the time has come to cease calling it the 'environmentalist' view, as though it were a lobbying effort outside the mainstream of human activity, and to start calling it the real-world view.
+- Because the living environment is what really sustains us.
+- So in my freshman year at the University of Alabama, learning the literature on evolution, what was known about it biologically, just gradually transformed me by taking me out of literalism and increasingly into a more secular, scientific view of the world.
+- Sometimes a concept is baffling not because it is profound but because it is wrong.
+- Every major religion today is a winner in the Darwinian struggle waged among cultures, and none ever flourished by tolerating its rivals.
+- Nature holds the key to our aesthetic, intellectual, cognitive and even spiritual satisfaction.
+- Well, let me tell you, ants are the dominant insects. They make up as much as a quarter of the biomass of all insects in the world. They are the principal predators. They're the cemetery workers.
+- The world depends on fungi, because they are major players in the cycling of materials and energy around the world.
+- An individual ant, even though it has a brain about a millionth of a size of a human being's, can learn a maze; the kind we use is a simple rat maze in a laboratory. They can learn it about one-half as fast as a rat.
+- The biological evolutionary perception of life and of human qualities is radically different from that of traditional religion, whether it's Southern Baptist or Islam or any religion that believes in a supernatural supervalance over humanity.
+- It's always been a dream of mine, of exploring the living world, of classifying all the species and finding out what makes up the biosphere.
+- It's the technique, I think, of writing a novel that is difficult for a nonfiction writer.
+- We have decommissioned natural selection and must now look deep within ourselves and decide what we wish to become.
+- Secular humanists can sit around and talk about their love of humanity, but it doesn't stack up against a two-millennium-old funeral high mass.
+- Blind faith, no matter how passionately expressed, will not suffice. Science for its part will test relentlessly every assumption about the human condition.
+- Even as empiricism is winning the mind, transcendentalism continues to win the heart.
+- To the extent that philosophical positions both confuse us and close doors to further inquiry, they are likely to be wrong.
+- I had reached a point in my career in which I was ready to try something new in my writing, and the idea of a novel has always been in the back of my mind.
+- Religious beliefs evolved by group-selection, tribe competing against tribe, and the illogic of religions is not a weakness but their essential strength.
+- One thing I did was grow up as an ardent naturalist. I never grew out of my bug period.
+- The one process now going on that will take millions of years to correct is the loss of genetic and species diversity by the destruction of natural habitats. This is the folly our descendants are least likely to forgive us.
+- If we were to wipe out insects alone on this planet, the rest of life and humanity with it would mostly disappear from the land. Within a few months.
+- In 2010, my two Harvard mathematician colleagues and I dismantled kin-selection theory, which was the reigning theory of the origin of altruism at the time.
+- A very Faustian choice is upon us: whether to accept our corrosive and risky behavior as the unavoidable price of population and economic growth, or to take stock of ourselves and search for a new environmental ethic.
+- Every kid has a bug period... I never grew out of mine.
+- True character arises from a deeper well than religion.
+- I've found that good dialogue tells you not only what people are saying or how they're communicating but it tells you a great deal - by dialect and tone, content and circumstance - about the quality of the character.
+- The variety of genes on the planet in viruses exceeds, or is likely to exceed, that in all of the rest of life combined.
+- All three of the Abrahamic religions were born and nurtured in arid, disturbed environments.
+- Change will come slowly, across generations, because old beliefs die hard even when demonstrably false.
+- The two major challenges for the 21st century are to improve the economic situation of the majority and save as much of the planet as we can.
+- We ought to recognize that religious strife is not the consequence of differences among people. It's about conflicts between creation stories.
+- When you have seen one ant, one bird, one tree, you have not seen them all.
+- 'The Creation' presents an argument for saving biological diversity on Earth. Most of the book is for as broad an audience as possible.
+- I had in mind a message, although I hope it doesn't intrude too badly, persuading Americans, and especially Southerners, of the critical importance of land and our vanishing natural environment and wildlife.

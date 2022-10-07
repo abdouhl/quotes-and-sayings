@@ -1,0 +1,134 @@
++++
+author = "Simon Sinek"
+title = "Simon Sinek Quotes"
+quotes_len = "128"
+description = "the best 128 Simon Sinek Quotes"
++++
+- Babe Ruth was not afraid to strike out. And it was this fearlessness that contributed to his remarkable career.
+- Sometimes spending time with someone who is perceived as 'successful' can make us feel less successful.
+- When you explain to people what you're trying to do, as opposed to just making demands or delegating tasks, you can build instant trust, even if it's just for that short time you're on the phone.
+- Humility, I have learned, must never be confused with meekness. Humility is being open to the ideas of others.
+- A five minute call replaces the time it takes to read and reply to the original email and read and reply to their reply... or replies. And I no longer spend 20+ minutes crafting the perfect email - no need to.
+- There is not a single one of us with a job that is not completely reliant in some way shape or form on others.
+- Great leaders state out loud what they intend to do and in doing so, they get things done.
+- It is only from the people I've had the good fortune to meet that I am learning the lessons to guide me. Baz Luhrmann, director of 'Moulin Rouge,' for example, has a childlike curiosity about the world. He doesn't pretend to know all the answers - quite the opposite, in fact. He asks loads of questions of everyone.
+- Leaders who fail are the ones who do it by themselves. Leaders who succeed are the ones who allow others to help them.
+- In the 1980s America reacted to the Soviet Union's invasion of Afghanistan. We supported a war that left a nation torn to pieces. And as the last Soviet tank left the country, so did we.
+- I know there's a difference between being successful and feeling successful. And if you ask me if I feel successful, the honest answer is 'not yet.'
+- It's always the organizations that are resource constrained that come up with the good ideas to win.
+- Some would argue that you're as successful as the company you keep. Certainly there is a connection between our friends and who we are.
+- No matter how many or how few people you have reporting to you, you must remember that as you climb higher in the ranks, your words will be taken as commands even if you're just thinking out loud.
+- Over 90% of people go home at the end of the day feeling unfulfilled by their work, and I won't stop working until that statistic is reversed - until over 90% of people go home and can honestly say, 'I love what I do.'
+- The lives we live are a bit of a straight-hair vs. curly-hair thing. We often want what we don't have. In reality, it's not about better or worse; it's just perception.
+- There is a difference between giving directions and giving direction.
+- If you have the opportunity to do amazing things in your life, I strongly encourage you to invite someone to join you.
+- The single best machine to measure trust is a human being. We haven't figured out a metric that works better than our own sort of, like, 'There's something fishy about you.'
+- I'd rather play in the major leagues and have some bad games than play consistently good ball in the minors.
+- A leader's job is not to do the work for others, it's to help others figure out how to do it themselves, to get things done, and to succeed beyond what they thought possible.
+- Any parent who tells their kids that they can't attend a school play or go to a soccer match because they have to work is kidding themselves. It's OK to miss a game or two or a performance here and there, but it's not all right to miss the majority of them.
+- TiVo and other digital recording devices have confounded advertisers. The ad industry sees the technology as a threat to their product.
+- The big picture doesn't just come from distance; it also comes from time.
+- The only time I waste is time I spend doing something that, in my gut, I know I shouldn't. If I choose to spend time playing video games or sleeping in, then it's time well spent, because I chose to do it. I did it for a reason - to relax, to decompress or to feel good, and that was what I wanted to do.
+- The ad industry thinks their clients are their customers. They think the companies who pay for the production are the ones they are supposed to serve. So the ads they produce make their clients happy... but infuriate the rest of us.
+- Though there are lessons that can be learned about becoming a great leader, most exist inherently in the bellies of those who lead.
+- If we care about the average working American, then Wal-Mart matters. A lot.
+- Listening is active. At its most basic level, it's about focus, paying attention.
+- Corporate culture matters. How management chooses to treat its people impacts everything - for better or for worse.
+- Mergers are like marriages. They are the bringing together of two individuals. If you wouldn't marry someone for the 'operational efficiencies' they offer in the running of a household, then why would you combine two companies with unique cultures and identities for that reason?
+- Bad leaders believe that they have to project control at all times.
+- Spending too much time focused on others' strengths leaves us feeling weak. Focusing on our own strengths is what, in fact, makes us strong.
+- I don't enjoy eating humble pie; it never tastes good. But I do appreciate it when it happens.
+- I couldn't understand why my productivity went down when I had deliberately made more time available to write. Then I realized it was because I wasn't flying as much.
+- Whether individuals or organisations, we follow those who lead not because we have to, but because we want to. We follow those who lead not for them, but for ourselves.
+- Entrepreneurs see the thing they want or need, then try to figure out a process of how to get it. People who shouldn't be entrepreneurs see the standard process they need to go through to get the thing they want or need then decide if they want to go through that process.
+- When I was in college, my school newspaper accepted an ad from a Holocaust revisionist organization. This would have been offensive on most college campuses across the country, but I went to a school with a very large Jewish population, so the ad, as you might expect, stirred absolute outrage.
+- The Democrats' response throughout the healthcare debate? Give the people more statistics.
+- When I was a kid, I was a bit of a space geek. I loved the space program and all things NASA. I would read books about our solar system; I had pictures of the Space Shuttle on my bedroom wall. And yes, I even went to Space Camp.
+- At the end of the day, humans are social animals and we are at our best when we get to do things with others who appreciate and enjoy what we enjoy. It's what keeps us human.
+- A sour corporate culture can actually make an entire society unhappy. This means that a strong corporate culture can have a positive impact on a society.
+- The goal is not to do business with everybody who needs what you have. The goal is to do business with people who believe what you believe.
+- People don't buy what you do, they buy why you do it.
+- When we can communicate from the inside out, we're talking directly to the part of the brain that controls behavior, and then we allow people to rationalize it with the tangible things we say and do. This is where gut decisions come from.
+- All the great organizations in the world, all have a sense of why that organization does what it does.
+- The most effective leaders are actually better at guarding against danger when they acknowledge it that it exists. Cowards, in contrast, cling to the hope that failure will never happen and may be sloppy in the face of danger - not because they don't acknowledge that it exists, but because they are just too afraid of it to look it in the eye.
+- Wal-Mart's size and scale is so vast they literally have the ability to change the face of the entire country. If Wal-Mart were to make a decision tomorrow to refuse to sell a single product made with partially hydrogenated oils, for example, we'd probably see rates from heart disease decline a few years later. That's how powerful Wal-Mart is.
+- Though we may have desires or bold goals, for whatever reason, most of us don't think we can achieve something beyond what we're qualified to achieve. Why, I ask, do we let reality interfere with our dreams?
+- Leadership is a way of thinking, a way of acting and, most importantly, a way of communicating.
+- The trick to balance is to not make sacrificing important things become the norm.
+- Entrepreneurs must be practical experts. They needn't set out to be subject matter experts in what they do; they must set out to solve a problem or pursue some cause or purpose greater than themselves.
+- Republicans are completely befuddled by Obama's 'star power' and don't seem to have a clear or effective strategy to compete.
+- In this age of omniconnectedness, words like 'network,' 'community' and even 'friends' no longer mean what they used to. Networks don't exist on LinkedIn. A community is not something that happens on a blog or on Twitter. And a friend is more than someone whose online status you check.
+- Halloween is one of my favorite days of the year. I have a strict rule: I don't work on Halloween and I won't travel on Halloween. Not for any reason.
+- Notoriously outspoken, his sentences always punctuated with profanities, General George S. Patton was the epitome of what a leader should be like - or so he thought. Patton believed a leader should look and act tough, so he cultivated his image and his personality to match his philosophy.
+- Great leaders are willing to sacrifice the numbers to save the people. Poor leaders sacrifice the people to save the numbers.
+- The most basic human desire is to feel like you belong. Fitting in is important.
+- Champions are not the ones who always win races - champions are the ones who get out there and try. And try harder the next time. And even harder the next time. 'Champion' is a state of mind. They are devoted. They compete to best themselves as much if not more than they compete to best others. Champions are not just athletes.
+- Leadership is not about the next election, it's about the next generation.
+- There are two kinds of experts: academic experts and practical experts. One is not better than the other, but they are very different, and each offers very different value.
+- Spending time with the military certainly lends itself to some remarkable experiences, and I've been privileged to have had my share.
+- To operate based on conviction and belief requires an acceptance that your actions could get you fired. This is different from pig-headed bravado, and it is different from putting the company at risk.
+- Panic causes tunnel vision. Calm acceptance of danger allows us to more easily assess the situation and see the options.
+- I try to find, celebrate and teach leaders how to build platforms that will inspire others.
+- If you want to be a great leader, remember to treat all people with respect at all times. For one, because you never know when you'll need their help. And two, because it's a sign you respect people, which all great leaders do.
+- The cost of leadership is self-interest.
+- You'll never see the president carry his own luggage, and why? Because even though we know he has luggage, it would reduce his stature if he was too much like us. We need to think of our leaders as being above us, even though they must still relate to us.
+- My concern is that we live in an economy in which stabbing someone and waiting for them to complain before we remove the knife has become the normal way of doing business. When did we lose sight of the fact that it's not nice to stab people in the first place?
+- I look for the hotels that have figured out the comfortable balance - a modern room that is well designed, and really clean sheets.
+- Most politicians are not authentic.
+- If you look at the average age of a company on the Dow Jones index, it's something like 35 years or younger. In other words... success is no indication of longevity.
+- Pilots have their names painted just beneath the canopy of their aircraft. This gives the pilot a sense of ownership for his or her jet. What's more, like cars, each aircraft has its own personality, so it's important for a pilot to get to know and love his aircraft.
+- The world is a bell curve. Classroom test scores, employee performance in a company or how many people really, really like you. No matter the population you're studying, they always fit neatly across the standard deviations of the famous bell curve.
+- No matter when or where, always bring your 'A' game, because you never know when it will open doors for you.
+- We can't all be good at everything. This is partly the logic behind having a team in the first place, so each role can be filled with the person best suited for that role and together, every job and every strength is covered.
+- The irony is, the advertising industry knows everyone hates what they produce. This is why they keep looking for new ways to force people to stay tuned.
+- A friend is an emotional bond, just like friendship is a human experience.
+- If no one ever broke the rules, then we'd never advance.
+- Directions are instructions given to explain how. Direction is a vision offered to explain why.
+- Starbucks was founded around the experience and the environment of their stores. Starbucks was about a space with comfortable chairs, lots of power outlets, tables and desks at which we could work and the option to spend as much time in their stores as we wanted without any pressure to buy. The coffee was incidental.
+- The challenge of the unknown future is so much more exciting than the stories of the accomplished past.
+- To spend more money, you have to have more money, but time is fixed and we all have the same amount to spare. How we choose to spend it can make a significant difference on the impact we have in our careers or in the world.
+- To become an academic expert takes years of studying. Academic experts are experts in how and what others have done. They use case studies and observation to understand a subject.
+- Multi-millionaires who pay half or less than half of the percentage of tax the rest of us pay justify their actions by saying they pay what the law requires. Though true, the fact is they found ways within the law to beat the purpose of the law - which, in the case of taxes, is that we all pay our fair share.
+- Most years, if you were to ask me how much I make, the genuine answer is that I have no clue. I usually find out the answer to that question once a year, at tax time, when my accountant tells me.
+- Every one of us has the capacity to lead.
+- I use Apple because they're easy to understand and everybody gets it.
+- Actions speak louder than words. All companies say they care, right? But few actually exercise that care.
+- If you can clearly articulate the dream or the goal, start.
+- Some people are born good-looking. Some have the gift of gab. And some are lucky enough to be born smarter than the rest of us. Whether we like it or not, Mother Nature does not dole these characteristics out evenly.
+- Money is a short-term result that incentivizes short-term decision making.
+- There is a difference between listening and waiting for your turn to speak.
+- There is a difference between vulnerability and telling people everything about yourself. Vulnerability is a feeling. Telling everyone about yourself is just facts and details.
+- Like a good parent can't also be his child's best friend, a leader with authority requires some separation from subordinates.
+- Anyone can sell product by dropping their prices, but it does not breed loyalty.
+- One of the best paradoxes of leadership is a leader's need to be both stubborn and open-minded. A leader must insist on sticking to the vision and stay on course to the destination. But he must be open-minded during the process.
+- The U.S. Constitution protects our privacy from the prying eyes of government. It does not, however, protect us from the prying eyes of companies and corporations.
+- Pilots, to a large degree, are like salesmen. They have to be confident to be good at their jobs. They have to practice relentlessly and plan out all the scenarios of the things that could happen when they're out there. Nothing is more important than preparation. They are also mighty competitive, both as individuals and as squadrons.
+- The quality of a leader cannot be judged by the answers he gives, but by the questions he asks.
+- Great leaders don't need to act tough. Their confidence and humility serve to underscore their toughness.
+- I have friends who are majorly into the cosplay culture and have urged me to go to a convention for no other reason than to meet others like me.
+- I have been inspired by Martin Luther King and how he inspired a movement. I have learned that a cause must be organic; if it is to have an impact it must belong to those who join the movement and not those who lead it.
+- Offer someone the opportunity to rebuild a company or reinvent an industry as the primary incentive, and it will attract those drawn to the challenge first and the money second.
+- There are two types of claims: those based on hard numbers and those based on slippery numbers.
+- Leave America and you'll find that the consumers in many other countries enjoy watching advertising. Not because the products are better, but because the ads are produced to be entertaining. Sometimes they are funny. Sometimes they are dramatic. Sometimes they are just beautiful.
+- More information is always better than less. When people know the reason things are happening, even if it's bad news, they can adjust their expectations and react accordingly. Keeping people in the dark only serves to stir negative emotions.
+- I never imagined working with CEOs, congressmen or the military, yet I make regular visits to the Pentagon, stop by the Capitol now and then and sit down with leaders of all kinds of companies.
+- During World War II, the pilot losses were staggering. In some bombing raids, as many as 80% of the planes that left did not return.
+- We live in times of high stress. Messages that are simple, messages that are inspiring, messages that are life-affirming, are a welcome break from our real lives.
+- Leadership is absolutely about inspiring action, but it is also about guarding against mis-action.
+- In the military, they give medals for people who are willing to sacrifice themselves so that others may survive. In business, we give bonuses to people who sacrifice others.
+- Believing that your competition is stronger and better than you pushes you to better yourselves.
+- I love science fiction - always have.
+- I like stories of the classic hero, of good versus evil, the ones in which the good guys wear white and the bad guys wear black... and I love a good sword fight.
+- Academic experts may not be good at doing what they are experts in themselves, but they are good at explaining the subject matter to others. They write books, teach courses and offer lessons and give steps others can follow.
+- If you hire people just because they can do a job, they'll work for your money. But if you hire people who believe what you believe, they'll work for you with blood, sweat, and tears.
+- Don't quit. Never give up trying to build the world you can see, even if others can't see it. Listen to your drum and your drum only. It's the one that makes the sweetest sound.
+- The strong bond of friendship is not always a balanced equation; friendship is not always about giving and taking in equal shares. Instead, friendship is grounded in a feeling that you know exactly who will be there for you when you need something, no matter what or when.
+- It's important to slow down, every now and then, for no other reason than to call someone to say 'Hi.' It doesn't have to be a long conversation. Just calling out of the blue does more to let someone know you still care about them than nearly anything else.
+- Anyone who achieves any kind of success, however you want to define it, sometimes can't let go of it.
+- Good listeners have a huge advantage. For one, when they engage in conversation, they make people 'feel' heard. They 'feel' that someone really understands their wants, needs and desires. And for good reason; a good listener does care to understand.
+- My sister made certain choices about the life she wanted. Those choices include a steady job, a husband and children. But balance and stability come at a cost. It is harder for her to be spontaneous. It is harder to just up and leave.
+- There's nothing efficient about innovation.
+- There is no decision that we can make that doesn't come with some sort of balance or sacrifice.
+- I find, when you're an optimist, life has a funny way of looking after you.
+- Nike doesn't want to make products for everyone - they want to make products for champions.
+- I think most people are inherently interested in how their brain works, in what makes them tick.

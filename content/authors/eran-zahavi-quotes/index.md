@@ -1,0 +1,30 @@
++++
+author = "Eran Zahavi"
+title = "Eran Zahavi Quotes"
+quotes_len = "24"
+description = "the best 24 Eran Zahavi Quotes"
++++
+- When we are with the national team we are playing against much better players.
+- It doesn't matter who has possession, it matters who scores.
+- I think people in China like to see R&F and how we play. I think it's a very important part of football that the fans enjoy coming to the game.
+- Sometimes I hear fans say that 'you should play for the emblem on the shirt.' I play for myself because after two inaccurate passes the fans are already cursing you.
+- I love the team and was always proud to represent Israel and do everything to bring accomplishments and give the fans something to root for.
+- My biggest dream from the moment I started playing soccer was to join the national side. I was privileged to be part of the team and to serve as its captain and there's no greater honor.
+- When I was five years old I would see Champions League games and I asked God to let me have a part in these games and to show my quality to the world and to be famous for football and to try my best.
+- Any time you sign a contract it means that you had a good season last year and that you need to improve yourself this season.
+- During my time with Maccabi Tel Aviv, I learned how to play better by using my head. I was given the chance of playing a more forward position so I could score many goals. In short, I have become a player who can score goals and win games.
+- I was a very impulsive, emotional kid.
+- Qualifying for the UEFA Champions League group stage was a big thing in Israel.
+- I go out to every match to do my job and my teammates help me score and to be honest I score so much because they make it so easy for me.
+- It's my obligation to celebrate after scoring a goal.
+- The derby is always the most important match of the year and it's always nice to score goals against the leaders and the best teams.
+- I want to say thank you to Maccabi's fans who welcomed me with a warmth and love from the first moment, which only grew over time.
+- I don't owe the media anything.
+- I can speak in cliches and say how much the Israel national team means to us, but we have to prove that on the pitch.
+- People forgot how much pride I bring to Israel while playing in the Chinese league.
+- I was treated like a state enemy after throwing the captain's armband. Things went a lot further than I thought. I am the only one that paid a price as I'm no longer part of the national team. I sacrificed myself so that the team won't be booed anymore and players won't be cursed.
+- I realized I needed to take more responsibility, be more mature, not to lose the ball in precarious areas. In past I was apathetic, didn't think too much.
+- I wanted to make it with a big team like Hapoel.
+- At Maccabi, I played with a team that scored many goals and I was the dominant player, but that's not the case with Israel.
+- Every time I score a goal against Hapoel the media makes a huge story out of it.
+- I'm facing new challenges in China, the league here is developing and I try to help Chinese football develop here and around the world.

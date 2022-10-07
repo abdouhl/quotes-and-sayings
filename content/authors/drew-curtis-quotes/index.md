@@ -1,0 +1,22 @@
++++
+author = "Drew Curtis"
+title = "Drew Curtis Quotes"
+quotes_len = "16"
+description = "the best 16 Drew Curtis Quotes"
++++
+- The 'wisdom of the crowds' is the most ridiculous statement I've heard in my life. Crowds are dumb.
+- ESPN has this problem with sports, it's impossible to fill 24 hours with sports programming so they have to resort to things like poker and arm wrestling tournaments.
+- 24 hour broadcasts have to stretch limited material to fit 24 hours worth of space.
+- It takes people to move crowds in the right direction, crowds by themselves just stand around and mutter.
+- Most people I've talked to are convinced that they're not getting valuable information from news media anymore. I'm not talking about tinfoil-hatters either, these are intelligent people who believe their news media has failed them.
+- On the Internet, news is consumed a la carte. If someone shows up on the main page of a website and doesn't see anything of interest, they leave. This negatively impacts ad revenues. The solution on the Internet is to pack news websites full of things that will draw people in, regardless of whether they are news or not.
+- I'm not really sure what I'd like to see people doing more of online, but what I'd like to see less of is the warning signs that not ratifying net neutrality is gonna cause two separate nets: one that the big dogs can afford to be on and the other a ghetto internet that no one goes on. Think FM vs AM radio, or cable vs broadcast TV.
+- If I see anything remotely like a telcom-run faster internet that you have to pay more to get preferential traffic on, I'm out folks. I've seen this story before, I ran an ISP back in the late 90s.
+- Journalism is straying into entertainment. The lines between serious news segments, news entertainment, and news comedy are blurring.
+- Most people treat the news media like the exercise bike they have in their basement. They're glad it's there but they never use it.
+- I'm actually an evil bastard in real life. Fark allows me to vent weirdness. Thank god for that, too.
+- You don't notice the referee during the game unless he makes a bad call.
+- I think anytime you start relying on a format to get you by you've got weak material to begin with.
+- Personally I'm hoping to spend the last years of my life plugged into a real life MMORPG simulation that makes me think and feel like I'm 18 again while my 90 year old body lies in a tube somewhere getting fed thru an IV. Be a great way to finish up a life.
+- I love Sweden. The entire world should be like Sweden. They all like to drink and get naked, and the women are hot. I can't think of a better nation on the planet.
+- We usually break our records every Monday, so we'll see what turns up tonight after midnight. Next month it'll probably be higher, which is always weird.

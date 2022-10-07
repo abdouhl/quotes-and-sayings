@@ -1,0 +1,71 @@
++++
+author = "Eddie Van Halen"
+title = "Eddie Van Halen Quotes"
+quotes_len = "65"
+description = "the best 65 Eddie Van Halen Quotes"
++++
+- It's always a Catch-22 situation. They hate you if you're the same, and they hate you if you're different.
+- If you want to be a rock star or just be famous, then run down the street naked, you'll make the news or something. But if you want music to be your livelihood, then play, play, play and play! And eventually you'll get to where you want to be.
+- It's all about sound. It's that simple.
+- I can't read music. Instead, I'd do stuff inside the piano, do harmonics and all kinds of crazy things. They used to put me in these annual piano contests down at Long Beach City College, and two years in a row, I won first prize - out of like 5,000 kids!
+- Music kept me off the streets and out of trouble and gave me something that was mine that no one could take away from me.
+- I just consider myself slightly left-of-center. I'm not your average bear. I - what's the word? I'm not - normal.
+- I have selective hearing.
+- And if I would have taken lessons I probably wouldn't have done it, and what forced me to do all this weird stuff on the guitar was I couldn't afford effects pedals, I didn't have all this stuff when I was a kid so I just tried to squeeze all the weird noises I could out of the guitar, which brings me to building guitars.
+- Obviously you have to have rhythm. If you have rhythm, then you can play anything you need. If you have rhythm and you love music, then play and play and play until you get to where you want to get. If you can pay the rent, great. If you can't, then you'd better be having fun.
+- I'll always leave the same set of strings on my guitars when I'm recording. If I break one I'll just replace it instead of putting on a whole new set of strings.
+- I can't read music. Instead, I'd do stuff inside the piano, do harmonics and all kinds of crazy things. They used to put me in these annual piano contests down at Long Beach City College, and two years in a row, I won first prize - out of like 5,000 kids! The judges were like, 'Very interesting interpretation!' I thought I was playing it right.
+- I've had a hip replacement, I've beaten cancer, I had my hand operation, and I stopped drinking. Something inside of me just went, 'I'm done.'
+- Before the operation on my left hand I wasn't able to stretch my fingers open all the way. I've never had very big hands, but I could do the splits with them. Eventually I couldn't any more. I had a twisted tendon in my little finger that prevented me from being able to stretch.
+- I grew up on a lot of early Beatles, DC5, Cream, Clapton, Page, Beck and Hendrix.
+- I don't really know what inspires me to write the music I do, but usually, the music will set the tone for the lyrics.
+- It's all about sound. It's that simple. Wireless is wireless, and it's digital. Hopefully somewhere along the line somebody will add more ones to the zeros. When digital first started, I swear I could hear the gap between the ones and the zeros.
+- There's a plaque on our wall that says we've sold over 65 million albums, and I don't feel I've accomplished anything. I feel like I'm just getting started.
+- There are really three parts to the creative process. First there is inspiration, then there is the execution, and finally there is the release.
+- It makes me feel kind of weird, but obviously the Man Upstairs gave me something and it touches people, and I'm just so blessed.
+- I'm writing, and just doing the same thing I always do.
+- I never dreamt of being a musician for my livelihood. I certainly never would have wanted to be in the business that I'm in, meaning the fame and the glory, the glitter, the rock star, the famous part.
+- I never took guitar lessons. I took classical piano lessons from the age of six when we lived in Holland.
+- We make music for a living. Like I've always said, if you like what you're doing, you're halfway there; if someone else likes it, that's even better. If they don't like it, at least you like it. Not to be selfish, but you kind of have to be.
+- I was trying to take the band in a direction that I thought was appropriate, and Roth was trying to take the band in more of a Las Vegas direction. And there he is.
+- Everything I did is because I wanted to do it. If I weren't playing this arena, if I were playing a club, I'd still be doing it because that's what I want to do. I love playing the guitar.
+- I mean it's funny, playing music, how of course you want it to do well, you want them to like it, but it's not competitive like an election, it's the Olympics, it's not a Formula 1 race. The Billboard charts are just to show you what people like.
+- Nirvana was huge, but it didn't appeal to everyone.
+- We're musicians. We make music for a living. It's that simple. Nothing else matters.
+- When I'm home on a break, I lock myself in my room and play guitar. After two or three hours, I start getting into this total meditation. It's a feeling few people experience, and that's usually when I come up with weird stuff. It just flows. I can't force myself. I don't sit down and say I've got to practice.
+- The piano is a universal instrument. If you start there, learn your theory and how to read, you can go on to any other instrument.
+- A guitar is a very personal extension of the person playing it. You have to be emotionally and spiritually connected to your instrument. I'm very brutal on my instruments, but not all the time.
+- Actually, if I could deliberately sit down and write a pop hit, all my songs would be pop hits! Let's put it this way. I play what I like to hear. And sometimes I like to hear something poppy, and sometimes I don't.
+- When Van Halen started out, there was no path to fame. We just played what we liked. Even today it always comes down to the simplicity of rock and roll.
+- A good producer brings out the best in the artist he's working with. You shouldn't be able to listen to something and say, 'So-and-so produced this album.'
+- I'm blessed with a good pair of ears. That's how I fooled my piano teacher. I'd watch his fingers and I'd listen to it, and I just kind of basically learned it by myself.
+- You know, most people, they want to go to Hollywood. They want to be a star. They want to be a rock star. That thought never entered any of our minds, the Van Halen family.
+- On 'Honeybabysweetiedoll' I used a Whammy, a Boss OC-3 octave box, a Sustainer and a Line 6 DL4 Delay Modeler. That's only on the intro, where all those weird noises are happening.
+- I don't feel a day older when it comes to my approach to music or what gets me off than when I was a teenager. I've always been into different kinds of stuff and when I play I like to play loud. I like my arm hairs to move and I like my body to vibrate 'cause I like the feel of it; I'm still a teenager at heart.
+- Music is for people. The word 'pop' is simply short for popular. It means that people like it. I'm just a normal jerk who happens to make music. As long as my brain and fingers work, I'm cool.
+- The one thing I do have is good ears. I don't mean perfect pitch, but ears for picking things up. I developed my ear through piano theory, but I never had a guitar lesson in my life, except from Eric Clapton off of records.
+- The name Van Halen, the family legacy, is going to go on long after I'm gone.
+- It's funny, when bands or younger musicians ask me: 'So, what does it take to make it?' Well, first explain to me what you mean by 'making it': Do you want to be a rock star or do you want music to be your livelihood?
+- On 'Van Halen,' I was a young punk, and everything revolved around the fastest kid in town, gunslinger attitude. But I'd say that at the time of 'Fair Warning,' I started concentrating more on songwriting. But I guess in most people's minds I'm just a gunslinger.
+- I'll be making music 'til the day I die. I've done all kinds of stuff, and more is coming.
+- I'm not a drunk anymore, but since they cut out my tongue, I sound drunk.
+- 'For Unlawful Carnal Knowledge' took a year to record; that's why the playing on it might sound somewhat labored. 'Balance,' on the other hand, was written and recorded in only four months, so the whole process was quicker and more immediate.
+- When I was growing up and listening to bands like the Dave Clark Five, the groove was what initially got me going. I really like that funky, heavy groove.
+- It's always about the music, never about anything else.
+- I never took guitar lessons. I took classical piano lessons from the age of six when we lived in Holland. And when we moved to America, it was just the typical thing except I was really good at it; so was my brother.
+- David Lee Roth had the idea that if you covered a successful song, you were half way home. C'mon - Van Halen doing 'Dancing in the Streets'? It was stupid. I started feeling like I would rather bomb playing my own songs than be successful playing someone else's music.
+- I started doing all kinds of weird stuff on the guitar, which became part of my playing. I started doing harmonics and tapping on the guitar and pulling off strings and doing all this weird stuff that no one had ever done before.
+- If you have a great-sounding guitar that's a quality instrument and a good amp, and you know how to make the guitar talk, that's the key. It starts with the guitar and knowing what it should sound and feel like.
+- Imagine if Beethoven had a tape recorder. Then you'd know exactly what he meant. Maybe he meant 'Da da da da' instead of 'Boom boom boom boom!' Who knows?
+- I destroyed a lot of guitars trying to get them to do what I wanted, but I learned something from every guitar I tore apart, and discovered even more things. Things like if the string is not straight from the bridge saddle to the nut, you're going to have friction.
+- I'm the one in the band that said I'm not going on tour unless we do a record.
+- If I can help a kid discover a liking, or even a passion for music in their life, then that's a wonderful thing.
+- Every song is like a kid. How can you have that many kids and have a favorite? Which one do I like to hang most with? Probably the one that I haven't hung most with recently.
+- The stainless-steel frets were a major breakthrough, because of the amount of playing and bending that I do. I have to get my guitars refretted every couple of months.
+- Cancer is like a cockroach. It just comes back stronger. I'm tearing apart the immune system of the cockroach and seeing how it ticks. I've opened up my own pathology center.
+- It comes back to the same old question people are always asking me: 'When are you going to do a solo record?' Well, if I did, it would probably be similar to 'Baluchitherium,' meaning it would be Van Halen music - which I write anyway - but without singing.
+- I'm not a rock star. Sure I am, to a certain extent because of the situation, but when kids ask me how it feels to be a rock star, I say leave me alone, I'm not a rock star. I'm not in it for the fame, I'm in it because I like to play.
+- My son, Wolfgang, plays drums, guitars and bass.
+- The only band I was really over-into was Cream. And the only thing I really liked about them was their live stuff 'cause they played two verses, then go off and jam for 20 minutes, come back and do a chorus and end. And I love the live jam stuff, the improvisation.
+- Every song is like a kid. How can you have that many kids and have a favorite? Which one do I like to hang most with?
+- I have pictures of me sitting in the racquetball court in my pajamas with an acoustic guitar, and Wolfgang is probably just two-and-a-half-feet tall. I'll never forget the day I saw his foot tapping along in beat! I knew then, I couldn't wait for the day I'd be able to make music with my son. I don't know what more I could ask for.

@@ -1,0 +1,120 @@
++++
+author = "Dalai Lama"
+title = "Dalai Lama Quotes"
+quotes_len = "114"
+description = "the best 114 Dalai Lama Quotes"
++++
+- Whether one believes in a religion or not, and whether one believes in rebirth or not, there isn't anyone who doesn't appreciate kindness and compassion.
+- It is very important to generate a good attitude, a good heart, as much as possible. From this, happiness in both the short term and the long term for both yourself and others will come.
+- Appearance is something absolute, but reality is not that way - everything is interdependent, not absolute.
+- My aim is to create a happy society with genuine friendship. Friendship between Tibetan and Chinese peoples is very essential.
+- We can live without religion and meditation, but we cannot survive without human affection.
+- If you can, help others; if you cannot do that, at least do not harm them.
+- The ultimate authority must always rest with the individual's own reason and critical analysis.
+- Because of lack of moral principle, human life becomes worthless. Moral principle, truthfulness, is a key factor. If we lose that, then there is no future.
+- Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?
+- I think really, China, Chinese, I think they really have a long history of civilization, rich culture.
+- This is my simple religion. There is no need for temples; no need for complicated philosophy. Our own brain, our own heart is our temple; the philosophy is kindness.
+- When you are discontent, you always want more, more, more. Your desire can never be satisfied. But when you practice contentment, you can say to yourself, 'Oh yes - I already have everything that I really need.'
+- It is difficult to violently suppress people in the long run, as the example of the Soviet Union and the Eastern European countries has shown.
+- I consider myself as a free spokesman for the people.
+- I totally disagree with the view that the Tibet struggle will die, and there will be no hope for Tibet, after the Dalai Lama passes away.
+- Home is where you feel at home and are treated well.
+- The best way to resolve any problem in the human world is for all sides to sit down and talk.
+- The roots of all goodness lie in the soil of appreciation for goodness.
+- I feel exhausted if I teach too long.
+- I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.
+- Happiness is not something ready made. It comes from your own actions.
+- The important thing is that men should have a purpose in life. It should be something useful, something good.
+- I am just one human being.
+- I am sometimes sad when I hear the personal stories of Tibetan refugees who have been tortured or beaten. Some irritation, some anger comes. But it never lasts long. I always try to think at a deeper level, to find ways to console.
+- Religion, any religion, no matter what sort of wonderful religion, never be universal. So now education is universal, so we have to sort of find ways and means through education system, from kindergarten up to university level, to make awareness these good things, the values, inner values.
+- My main hope is eventually, in modern education field, introduce education about warm-heartedness, not based on religion, but based on common experience and a common sort of sense, and then scientific finding.
+- The Tibetan people will need to determine who the next reincarnation of the Dalai Lama is.
+- Chinese people themselves, they really want change.
+- All religions try to benefit people, with the same basic message of the need for love and compassion, for justice and honesty, for contentment.
+- Conversion is not my intention. Changing religion is not easy. You may develop some kind of confusion or difficulties.
+- In order to become prosperous, a person must initially work very hard, so he or she has to sacrifice a lot of leisure time.
+- If you want others to be happy, practice compassion. If you want to be happy, practice compassion.
+- We all have to live together, so we might as well live together happily.
+- The Chinese government wants me to say that for many centuries Tibet has been part of China. Even if I make that statement, many people would just laugh. And my statement will not change past history. History is history.
+- World belongs to humanity, not this leader, that leader or that king or prince or religious leader. World belongs to humanity.
+- I describe myself as a simple Buddhist monk. No more, no less.
+- Even when we have physical hardships, we can be very happy.
+- If some people have the belief or view that the Dalai Lama has some miracle power, that's totally nonsense.
+- Today, more than ever before, life must be characterized by a sense of Universal responsibility, not only nation to nation and human to human, but also human to other forms of life.
+- Sleep is the best meditation.
+- There are techniques of Buddhism, such as meditation, that anyone can adopt. And, of course, there are Christian monks and nuns who already use Buddhist methods in order to develop their devotion, compassion, and ability to forgive.
+- The purpose of our lives is to be happy.
+- Disagreement is something normal.
+- I always say that people should not rush to change religions. There is real value in finding the spiritual resources you need in your home religion.
+- Many Tibetans sacrifice their lives.
+- I think the self-burning itself on practice of non-violence. These people, you see, they easily use bomb explosive, more casualty people. But they didn't do that. Only sacrifice their own life. So this also is part of practice of non-violence.
+- In most cases, my visits to the West are for promotion of human values and religious harmony.
+- Where ignorance is our master, there is no possibility of real peace.
+- Even when a person has all of life's comforts - good food, good shelter, a companion - he or she can still become unhappy when encountering a tragic situation.
+- I have no trouble sleeping.
+- Death means change our clothes. Clothes become old, then time to come change. So this body become old, and then time come, take young body.
+- I think there's every reason this 21st century will be much happier.
+- There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
+- I want to be just a pure spiritual leader.
+- Appearance is something absolute, but reality is not that way - everything is interdependent, not absolute. So that view is very helpful to maintain a peace of mind because the main destroyer of a peaceful mind is anger.
+- Look at situations from all angles, and you will become more open.
+- My desire to devolve authority has nothing to do with a wish to shirk responsibility.
+- I never dreamt, in my dream, I'm Dalai Lama.
+- More compassionate mind, more sense of concern for other's well-being, is source of happiness.
+- China has to go along with world trends. That's democracy, liberty, individual freedom. China sooner or later has to go that way. It cannot go backward.
+- Today different ethnic groups and different nations come together due to common sense.
+- In order to carry a positive action we must develop here a positive vision.
+- Love and compassion are necessities, not luxuries. Without them humanity cannot survive.
+- It is necessary to help others, not only in our prayers, but in our daily lives. If we find we cannot help others, the least we can do is to desist from harming them.
+- My faith helps me overcome such negative emotions and find my equilibrium.
+- The Dalai Lama is just a temporal leader of Tibet.
+- My main concern is meeting with public because my main commitment, main interest is promotion of human value, human affection, compassion and religious harmony.
+- I think governments can't do much.
+- At the beginning when the child is coming, people worry the child may be deformed. When a healthy boy or child comes, people are very happy for a short moment.
+- As long as I am alive, I am fully committed to amity between Tibetans and Chinese. Otherwise there's no use.
+- Of course, when I say that human nature is gentleness, it is not 100 percent so. Every human being has that nature, but there are many people acting against their nature, being false.
+- If you have a particular faith or religion, that is good. But you can survive without it.
+- As a human being, anger is a part of our mind. Irritation also part of our mind. But you can do - anger come, go. Never keep in your sort of - your inner world, then create a lot of suspicion, a lot of distrust, a lot of negative things, more worry.
+- I became the Dalai Lama not on a volunteer basis.
+- Computers make me totally blank out.
+- I always believe the rule by king or official leader is outdated. Now we must catch up with the modern world.
+- When we meet real tragedy in life, we can react in two ways - either by losing hope and falling into self-destructive habits, or by using the challenge to find our inner strength. Thanks to the teachings of Buddha, I have been able to take this second way.
+- I don't think generally politician come from democratic country. I think not that thinking. But sometimes little bit short-sighted. They are mainly looking for their next vote.
+- Logically, harmony must come from the heart... Harmony very much based on trust. As soon as use force, creates fear. Fear and trust cannot go together.
+- Calm mind brings inner strength and self-confidence, so that's very important for good health.
+- If some people have the belief or view that the Dalai Lama has some miracle power, that's totally nonsense. I am just one human being.
+- I am a simple Buddhist monk - no more, no less.
+- Be kind whenever possible. It is always possible.
+- We can never obtain peace in the outer world until we make peace with ourselves.
+- I am confident I will set foot again in Tibet in my lifetime.
+- Sometimes one creates a dynamic impression by saying something, and sometimes one creates as significant an impression by remaining silent.
+- All major religious traditions carry basically the same message, that is love, compassion and forgiveness the important thing is they should be part of our daily lives.
+- Some scientists believe climate change is the cause of unprecedented melting of the North Pole, and that effects these very uncertain weather patterns. I think we should listen to those scientists and experts.
+- Open-minded people tend to be interested in Buddhism because Buddha urged people to investigate things - he didn't just command them to believe.
+- Generally speaking, if a human being never shows anger, then I think something's wrong. He's not right in the brain.
+- Some mischievous people always there. Last several thousand years, always there. In future, also.
+- I felt we must separate political responsibility. The Dalai Lama should not carry that burden. So that is my selfish reason - to protect the old Dalai Lama tradition. It is safer without political involvement.
+- Our prime purpose in this life is to help others. And if you can't help them, at least don't hurt them.
+- Physical comforts cannot subdue mental suffering, and if we look closely, we can see that those who have many possessions are not necessarily happy. In fact, being wealthy often brings even more anxiety.
+- I think technology really increased human ability. But technology cannot produce compassion.
+- Out of 6 billion humans, the troublemakers are just a handful.
+- Number of people have said to me, after hearing your thinking, their mind becomes much more happier.
+- I have always had this view about the modern education system: we pay attention to brain development, but the development of warmheartedness we take for granted.
+- The basic Buddhist stand on the question of equality between the genders is age-old. At the highest tantric levels, at the highest esoteric level, you must respect women: every woman.
+- If you have religious faith, very good, you can add on secular ethics, then religious belief, add on it, very good. But even those people who have no interest about religion, okay, it's not religion, but you can train through education.
+- In the practice of tolerance, one's enemy is the best teacher.
+- Too much self-centered attitude, you see, brings, you see, isolation. Result: loneliness, fear, anger. The extreme self-centered attitude is the source of suffering.
+- My religion is very simple. My religion is kindness.
+- One thing I want to make clear, as far as my own rebirth is concerned, the final authority is myself and no one else, and obviously not China's Communists.
+- Whether you call it Buddhism or another religion, self-discipline, that's important. Self-discipline with awareness of consequences.
+- Wherever I go meeting the public... spreading a message of human values, spreading a message of harmony, is the most important thing.
+- I always tell people that religious institutions and political institutions should be separate. So while I'm telling people this, I myself continue with them combined. Hypocrisy!
+- There are techniques of Buddhism, such as meditation, that anyone can adopt.
+- When you practice gratefulness, there is a sense of respect toward others.
+- Old friends pass away, new friends appear. It is just like the days. An old day passes, a new day arrives. The important thing is to make it meaningful: a meaningful friend - or a meaningful day.
+- If I had remained in Lhasa, even without the Chinese occupation, I would probably have carried the ceremonial role in some orthodox way.
+- A lack of transparency results in distrust and a deep sense of insecurity.
+- With realization of one's own potential and self-confidence in one's ability, one can build a better world.
+- I have done one thing that I think is a contribution: I helped Buddhist science and modern science combine. No other Buddhist has done that. Other lamas, I don't think they ever pay attention to modern science. Since my childhood, I have a keen interest.

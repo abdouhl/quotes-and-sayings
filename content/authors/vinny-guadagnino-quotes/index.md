@@ -1,0 +1,47 @@
++++
+author = "Vinny Guadagnino"
+title = "Vinny Guadagnino Quotes"
+quotes_len = "41"
+description = "the best 41 Vinny Guadagnino Quotes"
++++
+- I was a huge Spice Girls fan when I was a kid. When I was younger I had a Spice Girls poster on my wall and I watched the movie.
+- I've always been more natural at doing hosting things: reading teleprompters, taking direction and asking questions... I'm actually able to perform a little bit.
+- My mother's my biggest supporter.
+- I took the LSAT the day 'Jersey Shore' premiered, and after that I was too busy to go to law school.
+- For me, it's all about the haircut. I don't have a lot of hair to style, so I keep it nice and fresh and tight. I actually go to the barbershop every five days. As soon as your haircut is on point, you have to make sure your outfit is fully ironed, you smell good, and you have clean sneakers on. Pretty much the head-to-toe look.
+- My political science degree is always on the back-burner. I took my LSAT, so even if I want to take the LSAT again, I know what I'm getting into. I'll keep it on the back-burner. Who knows, maybe with my popularity, I can have a career in politics with a law degree. I think it'll work out either way.
+- My house has always been like everyone's house. You walk in, you're a part of the family, no matter who you are, what celebrity status you are, everyone is treated the same - with love from my mom.
+- I was always the lead role in plays. I like entertaining people. I like when you're on stage doing crazy stuff and the audience gets it.
+- I made my drama teacher cry. I only took drama to get out of writing papers in English and the teacher was this thespian Broadway geek and here I was this Italian guy from Staten Island and I would put her in tears.
+- The root of the problem I have is anxiety, and it's all derived from something - I'm just going to say it, some kind of sadness. It manifests in so many different ways and it affects people differently.
+- I enjoy painting and can copy almost anything.
+- I've been drawing since I was a little kid, but it's not something I love to do every day. If there's one thing I love to do every day, it'd probably be acting. I can act every day. I'd happily do it, you don't have to pay me. But that's one thing I'd love to do and get paid for.
+- I take improv classes. Improv is something I can use in any aspect of life.
+- I took the LSAT. My score was decent. I had a plan that if my score was really well, then I might of just went to Yale or Harvard... But it was just mediocre. I can get into law school.
+- You never really see me acting a fool on TV.
+- I like to be dressy casual. I wear jeans and nice sneakers. I wear nice clothes, but not super dressed up. I don't wear too much jewelry. I keep it simple and maybe wear just a little chain.
+- I graduated from CUNY College of Staten Island with a 3.9 GPA in three and a half years.
+- I'm definitely suspicious of girls. I've been suspicious of girls my whole life, though, so it's not anything new.
+- I've always been in school plays and performing monologues and taking drama. Now I'm in acting classes. I do it the real way. I want to be a working actor. I would love that. I just like being on a series and having a script, and I want that to be my nine-to-five.
+- Nobody wants to be a lawyer - it's hard work. But it was kind of my academic route.
+- I look up to Jimmy Fallon. He hosts talk shows as a fan himself, and that's how I do it. When the celebrities come in, I'm excited that they're there. It's not just like a formal, 'Hey, how are ya?' It's like, 'Dude, what the hell! So happy to see you!' That's what Jimmy Fallon does every time.
+- I would love a recurring role on '90210.' I would say yes to just about any role in acting that doesn't tarnish my image.
+- I keep it real normal, like I don't try to act like a celebrity, or say that just because I'm on a TV show I can do other types of TV. I take it very seriously and I respect the art of acting.
+- I can work myself up into a fearful, paralyzing state of mind that can last for days, weeks even months where I feel mad, totally isolated and alone, overwhelmed and completely out of control.
+- All celebrities are real people behind everything.
+- I have been doing acting my whole life. I did plays in high school. I take it pretty seriously. I used to do a lot of Shakespeare and Shakespearean festivals and monologues.
+- I don't care who you are, but you turn into a different person when you don't sleep.
+- Well, I definitely have an artistic side to me as well. I write, I act, I draw. With that artistic mind I have, a lot of doors have opened for me. I can try to pursue, like - if it's something using my writing skills, maybe a book. Or maybe if it's my drawing skills, some clothing designs.
+- My mom's gonna be the biggest star - mark my words right now!
+- My family was all born in Sicily and I'm Italian-American. They're the real thing. They're authentic Italians, and honestly they're the most open-minded, nicest people in the world and nothing can really offend them. That's the way I think true Sicilians are.
+- When I look for self-help books for myself, I used to be scared that I was going to pick up a book that would depress me even more.
+- I am fascinated by quantum physics.
+- Partying isn't every aspect to my personality.
+- I think people can have a panic attack where your heart is racing, you get shakes and jitters. But you can also feel disconnected. You know what I mean? I can feel depressed.
+- I got a family house for everybody to live in - my mom, my sisters and I. And I made sure that it has a separate apartment downstairs for myself. Family is more important than anything. We don't come from any money. So once I get them settled in, in a nice house, then I'll branch out and see if I can get something else.
+- So, I remember when I was a kid, I was waiting for my mom to come home when she was working late, and, you know, I was like, 'Oh my God, what happened to her? Is she OK? Did something happen to her getting in the car?' I was a little kid. But those are actually early onsets of anxiety.
+- People think for Shakespeare you have to have a big English accent, but it's not true. He designed it so it can be performed in any accent in any time period.
+- I'm an artistic kind of person. I draw. I've drawn my whole life. When you have an imaginative mind, I think the artistic form manifests itself in different ways. When I was younger, I used to draw murals for people.
+- I'm in my best shape when I'm really anxious, because I have to get to the gym. Physically I'm in the best shape.
+- It helps me when I help people.
+- Anxiety is a natural thing humans have. You know, that's how we evolve. That's how we are, you know, we think things through. Sometimes my mind just thinks things through a lot.

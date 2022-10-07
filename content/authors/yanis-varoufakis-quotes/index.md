@@ -1,0 +1,24 @@
++++
+author = "Yanis Varoufakis"
+title = "Yanis Varoufakis Quotes"
+quotes_len = "18"
+description = "the best 18 Yanis Varoufakis Quotes"
++++
+- In occupied Iraq, the introduction of new paper money took almost a year, 20 or so Boeing 747s, the mobilisation of the U.S. military's might, three printing firms, and hundreds of trucks.
+- Berlin has traditionally backed a rules-based eurozone in which every member state is responsible for its own finances, including bank bailouts, with political union limited to a fiscal overlord's possessing veto power over national budgets that violate the rules.
+- If the 'Athens Spring' - when the Greek people courageously rejected the catastrophic austerity conditions of the previous bailouts - has one lesson to teach, it is that Greece will recover only when the European Union makes the transition from 'We the states' to 'We the European people.'
+- I was told once by a leftwing scholar that as a Marxist, you have to do two things: always be optimistic and always have a view about everything. That advice still sounds good to me.
+- My first encounter with Marx's writings came very early in life, as a result of the strange times I grew up in, with Greece exiting the nightmare of the neofascist dictatorship of 1967-74.
+- Game theorists analyze negotiations as if they were split-a-pie games involving selfish players.
+- I will not contest my parliamentary seat in a sad election that will not produce a Parliament capable of endorsing a realistic reform agenda for Greece.
+- The euro is a hybrid of a fixed exchange-rate regime, like the 1980s ERM or the 1930s gold standard, and a state currency.
+- For some reason, lots of terrible things start here and then spread. The Cold War was one. It didn't start in Berlin - it started in Athens in December 1944; the contagion in the eurozone started here in 2010. We are perfectly capable as Europeans of messing things up unnecessarily.
+- Simple logic dictates that if you cannot even conceive the possibility of leaving a negotiation, then it is preferable never to enter one.
+- My hope that Thatcher would inadvertently bring about a new political revolution was well and truly bogus. All that sprang out of Thatcherism were extreme financialisation, the triumph of the shopping mall over the corner store, the fetishisation of housing and Tony Blair.
+- Even though I resigned as Papandreou's adviser early in 2006 and turned into his government's staunchest critic during his mishandling of the post-2009 Greek implosion, my public interventions in the debate on Greece and Europe have carried no whiff of Marxism.
+- Because I spent many years during my previous life as an academic researching game theory, some commentators rushed to presume that as Greece's new finance minister, I was busily devising bluffs, stratagems and outside options, struggling to improve upon a weak hand. Nothing could be further from the truth.
+- I plan to concentrate on helping set up a Pan-European political movement, inspired by the Athens Spring, that will work toward Europe's democratization.
+- We Greeks are the blacks of Europe.
+- Bankruptocracy is as much a European predicament as it is an American 'invention.' The difference between the experience of the two continents is that at least Americans did not have to labour under the enormous design faults of the eurozone.
+- Every non-Marxist economic theory that treats human and non-human productive inputs as interchangeable assumes that the dehumanisation of human labour is complete. But if it could ever be completed, the result would be the end of capitalism as a system capable of creating and distributing value.
+- The social inefficiency of capitalism is going to clash at some point with the technological innovations capitalism engenders, and it is out of that contradiction that a more efficient way of organising production and distribution and culture will emerge.

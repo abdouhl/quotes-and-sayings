@@ -1,0 +1,107 @@
++++
+author = "Dierks Bentley"
+title = "Dierks Bentley Quotes"
+quotes_len = "101"
+description = "the best 101 Dierks Bentley Quotes"
++++
+- A Sunday morning spent reading the paper together, maybe drinking some mimosas, alone, and talking until noon. That would be pretty amazing. Married couples with kids will understand.
+- I discovered early on that I was more of a strummer than a picker.
+- When I'm done with all of this, I'm going to write a book on it: have a guide to having a life and being on the road. Especially having a family and being on the road.
+- I've had fans and friends in the business say, 'Oh man, you've made it.' I still don't feel like I've made it. I still feel like I'm as good as my last show, as good as my last single.
+- I wrote a song called 'Here on Earth,' and the hook is, 'There's no answers here on earth.' Basically, searching for the 'why' when someone passes away, and I feel really fortunate that my dad lived as long as he did. But no matter what happens or how it happens, it's certainly a stinker.
+- My guitar, it was new when I got it, but it has a hole like Willie's where it's just worn out from my pinky going back and forth over the wood over all these years. I got Willie Nelson to sign that spot on my guitar. I'm a huge fan of him.
+- If people sneak into my show, that's a sign of a good show, you know? If people want to risk getting in trouble with the law to come see you play music, that's a sign you're doing something right.
+- I met Michael Jordan on a golf course! I don't even know what to say. I'm still freaked out that I met him.
+- When I got to Nashville, people started asking me about how I got into country music. I'd tell them I came from a place where people wore cowboy hats for a real reason.
+- I feel like I've got a nice little niche where I stay just below the radar, which is perfect. I just don't want to be known for anything other than music.
+- The radio is not show fun, it's show business. It's money.
+- That's what we get to do as songwriters, right? You get to explore stuff.
+- Only in country music can you compare an old pickup truck and an old guitar to your wife and turn it into a love song... Thank God for country music.
+- I went into the Verizon store the other day, and the salesman was pretty excited. He was like, 'Hey Dierks, what can I show you?' I said, 'The cheapest, lowest tech phone you have.' I think he was disappointed. Everybody else was running out for the new iPhone 6, but I got a flip phone.
+- I started thinking about this truck and why do I still have this same truck? After all of these years, why am I holding on to that? I just starting thinking about other things: guitars, boots and jeans. I just had a tendency to hold on to the things that have meaning to me.
+- The transformation that happens when a young artist goes on the road - you put the acoustic guitar down and start to play the electric a little louder - it gets a little bit ragged.
+- It's Frederick Dierks Bentley, but my whole family goes by their middle name - my sister, my brother. So from day one, I've always been called Dierks.
+- It's not that you can do this calculated move to try to further your career. You just follow what's in your heart, and later you look back and go, 'I was either really dumb or really smart, I can't believe I did that.'
+- I'm surrounded by all these strong women - my publicist, my manager, and my wife - and sometimes I think that women are more evolved than men, and they are able to process a heartache better.
+- I also was a huge 'Dukes of Hazzard' fan. I used to have T-shirts that said 'Dierks of Hazzard' custom-made.
+- I put a lot of pressure on myself. I tell my wife when she's listening to my songs that the slightest hint of whether she likes it or not puts the pressure on me.
+- As a songwriter, you might write every day and throughout the course of a year you might get four songs that are really special.
+- I love singing fun songs; I've built a career on them.
+- I try to make sure to get off the bus as much as I can, try to do something during the day that's local to where I am, whether it's hiking or fishing.
+- I really love flying, but it's really nice to jump on a plane, sit back, and let someone else do the heavy lifting, but flying is my main passion for sure.
+- And I'm the biggest country fan there is, but I'm always a little cautious of a slower song or just a song with subject matter.
+- I want to be free to be any version of me I feel like being. I don't want to be McDonald's that serves the same food every time.
+- If you got in my truck, you were listening to country music, and that's the way it was for a long time. I'm a little more open to other sources of music now, a lot more. But for the formative years, I was just very into country.
+- Hey, if someone is crushing on me, and it brings them out to the show, so be it!
+- I really can't tell you the feeling I feel, like, being on stage: it's such a high; it's like running a marathon. You just can't get that feeling anywhere else.
+- Country music is always changing but the Opry is always there to serve as a lighthouse for what country music really is. The past, present and future is all encompassed by not only the physical structure of the building but also the radio show.
+- I never want to lose the audience's attention or break up the party, but at the same time, it would be weird not to do some new music.
+- Some people associate red with love, but to me, red is for an earlier stage of a relationship. Black is much deeper, to me. It's certainly the sexiest color.
+- There should be a whole book written about that one word: country. What does that mean, country? It's such a huge umbrella. I would hope that what makes it country is that it all starts with a song. The story being told in three and a half minutes that is not being told on another station.
+- If I'm not on stage, I'm a pilot. I like flying planes; I have a little plane back in Nashville.
+- I always say the best applause you can get is when you walk from backstage up to your microphone at a concert. It's also nice to walk up to the mike at an awards show, and that applause is great, too, but the best is when your fans are cheering for you.
+- I still feel like that 17-year-old-kid that fell in love with country music, but I also am allowed to write songs about being a man, too, which I think is the coolest place I've ever been in my life.
+- I'm on stage 13. I'm at that can't-be-replaced stage. The transformation I've been through personally with my wife is amazing, but having two girls and a boy, man, that's the painful stuff.
+- I ask myself all the time, 'Why keep doing this?' If I wasn't exploring or finding something to write about that was personal or meant something, there'd be no reason. If I was ever making a record just to make a record, or ever just like, 'Just put something out there that someone will buy,' I would quit.
+- I never met Johnny Cash personally, but I feel like I did because I listened to so much of his music, and even though he's gone, it's still there: you can go pull a vinyl record out and hear his personal thoughts and his voice and feel connected to him.
+- The people I always loved listening to had a little bit of dirt under their fingernails because they had done some living and had these stories to talk about.
+- That's what I love about Nashville and the music community - seeing kids around acoustic music and bluegrass picking parties is the best.
+- As soon as I got into country music, it was like hook, line and sinker. I was so focused on country, I ended up leaving all those '80s hair-band CDs behind - which now I still wish I had, but I was done with it.
+- I do see the world as being different for girls - especially now, having daughters.
+- My dad and grandpa were in the army and as a country singer you're constantly playing at military bases all across the country and meeting soldiers and their families and hearing their stories.
+- I was 17, and a friend said, 'Man, you've got to listen to this song,' and he played 'Man to Man.' From there on, I was hooked on country. Garth Brooks, Alan Jackson, Clint Black. Every show that came through America West Arena, I was there.
+- I'm trying to call more and text less. I don't want to check my phone 5,000 times a day anymore. It was getting to me. I'm bringing 'old' back.
+- I'm a member of the George Jones fan club, and I'm a member of U2's fan club.
+- And if I want to get involved in choosing sides, I usually pick hockey or football.
+- You can't write about stuff you don't know about. You have to live it. You have to roll up your sleeves and get your hands dirty. Live life to be a good songwriter.
+- Growing up in Arizona, I love fireworks, shooting off bottle rockets and M80s.
+- I've known my wife since we were 13 years old in eighth grade, and we kinda dated each other's best friends. The four of us always hung out, but I really wanted her. We dated around 17, but I was no way mature enough for her.
+- Honestly, I sleep best wearing nothing. But with kids, I've learned to sleep with underwear very close by, if not wrapped around one of my feet, so I'm ready to go if something happens.
+- When I was 13, I was just figuring out how to play 'Eruption,' poorly, by Eddie Van Halen.
+- I go from being in front of 2,000 people, shot-gunning beers on stage and acting like a complete idiot, to being in a Mommy and Me class, waving a little pink handkerchief around 12 hours later!
+- I'm part of the party, getting the crowd fired up, singing songs, pouring drinks, whatever it takes to get them to have a good time. When I walk into the meet-and-greet, someone's always going to have a story, a sad story or a happy story.
+- I put a lot of time into making sure my relationship with my family is well taken care of because I want to be as successful as a father as I am as an entertainer.
+- I'm a huge fan of Billy Idol. I spiked my hair every day like him in 7th and 8th grade.
+- Being married is one thing, but having kids will completely change you. I still go out and hang with my buddies, but having two daughters will completely change your perspective on the world.
+- Meeting my wife changed everything; it really, in the long run, made me a much better artist, a much better songwriter, a much better maker of albums.
+- If someone wants a picture, I'm so honored and so flattered, and I hope I have a reputation as someone who goes out of his way to do those kinds of things.
+- That's how I feel, oddly, when I walk on stage in front of 20,000 people, and it's crazy, the madness: I feel the most relaxed and free, and all of my worries and troubles just are gone. Just I feel the most present in that moment.
+- I hung out with Merle Haggard on his bus, which sort of freaks me out. It was him and his wife. We played with Merle in Oklahoma City. I'm from Arizona, and we talked about Arizona, and he remembered playing for two dollars a day down there at a bar.
+- I mean, the last thing I want to do is be involved in politics.
+- I don't tour to make money: I do it because I love it. When I'm putting a tour together, I'm not sitting with number-crunchers, having them tell me I can't do this or that.
+- In my 30s, I became more open to music other than country or bluegrass.
+- Seven has always been my lucky number. It's on my guitar pick; in sports, that was always the number I was, and 'Riser' is my seventh album. With this album kind of coming to an end and having seven nominations at the ACMs, it feels like a bigger story in play for me, and it's the perfect number. I wouldn't have wanted eight!
+- I have so much respect for the genre of country music and for all the greats that have been a part of it. I'm a country singer, I'm a country fan, and I'm a student of country music.
+- I can act... well, kind of. I'm comfortable in front of a camera.
+- My wife is cool enough to let me write about personal things, to be a songwriter exploring the shadowy sides of love.
+- I think about me and my dad taking a road trip from Phoenix to Nashville when I was 19. He's no longer here with me, but I still drive that same 1994 Chevy truck. I never have bought a new car.
+- I got into rock music at thirteen, listening to Van Halen, learned how to play the electric guitar.
+- But as far as being an American and loving this country and getting a chance to travel across it every day and meeting people on the road and folks in the military, I love this country on so many different levels.
+- I wrote that song 'Black,' and it was just this idea that I had been married for 10 years. Everyone talks about 'happily ever after,' but there's so much more to it than that.
+- I remember somewhere in his 70s, my dad started wearing a nightgown - like an old-school grandpa gown! I can see how that might be somewhere in my future.
+- I was like, 'Man, bluegrass - that's like Roy Clark playing banjo on 'Hee Haw.' I'm a huge 'Hee Haw' fan. But I didn't know about bluegrass. It seemed like old people's music.
+- I've had some shows where I really plan out what I'm going to say. Then I've had other shows where I'm like, 'Take a sip of the Ole Smoky Moonshine and just let it be natural and cross your fingers that you say the right things.'
+- I like big shows, a lot of volume and a lot of energy. I love electric instruments. But I do love mixing those with bluegrass instruments and cranking those up, too, with a little bit of that rock energy.
+- When you go to the Opry for a show or hear it on the radio, you get the whole circle of country music.
+- A typical day for me on tour is a marathon - it's like five days rolled into one.
+- I don't think my music has changed to reflect getting married or having kids. But... if you want to continue to write your own songs, you've got to find deeper stuff to write about. You've got to go to different places.
+- Everyone talks about new love all the time, but there's so much to draw from when you've been in a longer relationship. It makes me stick my chest out a little bit. It's like, 'I know what you've been through, but you don't know what it's like over here.'
+- I think the great country songs mixed with some of that bluegrass instrumentation - and surrounding all that with a little bit of a rock vibe and energy - is the kind of music I make.
+- People are gravitating towards Donald Trump and Bernie Sanders because they are doing their own thing. I think people are trying to cut out the middle man and just get to the source and get away from Washington politics.
+- Patty Griffin is iconic, and there's no other word to really describe her. She is iconic for a lot of people - not only for me but for a lot of fans. Her voice is one of a kind, and she's such an important figure in the American music scene.
+- Music is my first love, and I can't step away from her. I love music, and I love playing and living the dream, but I also miss my family.
+- I hope fans walk away still feeling like their batteries are charged. I want fans walking away high-fiving strangers.
+- My dog Jake ran up to Dolly Parton, and he put his nose up her skirt. We were like, 'Oh my God, don't do that.' I didn't know Dolly, and she said, 'Watch out there little doggie, don't start something you can't finish.'
+- I see myself as a serious artist, but yeah, when people come to my shows, they want to hear 'What Was I Thinkin',' 'Drunk on a Plane,' and lots of up-tempo, fun songs.
+- I love bluegrass music, I love acoustic music, and I try at the right times to push that a little bit.
+- It's hard to make music when you're not excited about it. So trying new things and going for new things is something that I can enjoy doing.
+- Love always had my number. I could never patch a breakup together with whiskey and a one-night stand. I took them real hard.
+- I think I've claimed the right to be any version of me that I want to be.
+- I listen to all types of music, but big rock records are the ones that, in the walk-up, make me wonder, 'What's this next set going to sound like?'
+- Most of my read on America is through looking through the front windshield of a bus and hanging out with country music fans backstage.
+- No, as an artist, you have to be free to explore all the corners of your heart. There are no boundaries.
+- Whether lyrically or musically, it reaches in there and grabs your soul. That's the stuff I gravitate toward.
+- Where I'm at in my relationship with my wife or my family and life in general, I feel like it all comes out in the music. Hopefully, it's always there, but in an ambiguous and abstract way and not real straightforward.
+- I get nervous playing the Opry still. You take that nervous energy and channel it into being amped.
+- I try to make my box as big as it can be because I never want to do the same thing twice.
+- I try to make an album that reflects what I love about country music. It's not just all about happy parties all the time. There are some sad songs.

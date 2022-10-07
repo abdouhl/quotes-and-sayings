@@ -1,0 +1,143 @@
++++
+author = "Sam Taylor-Johnson"
+title = "Sam Taylor-Johnson Quotes"
+quotes_len = "137"
+description = "the best 137 Sam Taylor-Johnson Quotes"
++++
+- I wanted to become an artist because it meant endless possibilities. Art was a way of reinventing myself.
+- I eat all the time, and I run all the time.
+- There's definitely something transformative about clothes.
+- I went to Goldsmith College of Art in London in the '80s and there I made sculptures, but the objects had nothing to do with how I was thinking. I was making beautifully sanded wooden boxes!
+- At school, I always felt the art room was the place where you could sit and talk. It was a place of solace. I wasn't the best artist at school by a long shot; it was more the understanding and the support that came from that room.
+- I was always interested in film, but I never knew how to go about becoming a filmmaker.
+- I seize all opportunities with two hands. Everything that's happened to me has taught me to live in the moment as much as possible.
+- I've always lived my life fearlessly, and what I want to do with my life, I do.
+- I have a massive phobia for schedules and calendars. I need people to tell me where I need to be. I can't bear to see it in black and white. I think it's a fear of being pinned down.
+- If you love someone, you love someone. It doesn't matter; age, colour, c'mon!
+- I don't think you can judge something without seeing it.
+- I hate rats. I had a pet rat to try and overcome it. I even gave him mouth-to mouth resuscitation when he had a heart attack. But I couldn't conquer it.
+- Even today I work with Niall O'Brien, who is far more technically astute than I am, but I still have the clearest idea of every detail I want in my photograph.
+- I love showing my scar on my tummy - it is shaped like a question mark.
+- I've made lots of big decisions in my life that have shocked people.
+- Shooting at Coco Chanel's apartment was an unexpectedly absorbing experience. The essence of Chanel is firmly rooted there in all of her possessions, and I truly believe that her spirit and soul still inhabit the second floor.
+- I'd like to make something about someone who hasn't existed so that I don't have to tread so carefully and can feel a little bit more creative freedom.
+- There are terrible things going on in the world, but I am not going to force them down everyone's throats.
+- Britain can sometimes feel like a very small village, and you're this, I dunno, scarlet woman they're all gossiping about.
+- Mum and Dad split up when I was nine. We upped and moved from London to Sussex, and suddenly I went from an urban life to nothing in the countryside - with a new father and new life.
+- Anonymity would be a fantastic umbrella. I don't like intrusion.
+- It was so amazing to fall crazily in love and get married and have kids.
+- I get over-excited by every opportunity that comes my way. I end up doing too much.
+- I'm the lightest sleeper. I can hear a pin drop. It's been worse since I was ill. I think your inner ear is always half open, listening out for the faintest danger sign.
+- Having children is exciting. Life puts the past into perspective.
+- I almost never cry, and it's something I don't like about myself. I sometimes try and make myself cry. Sometimes, when I'm in pain, I say if I could just cry it would make it so much easier.
+- I really have learned to live in the moment. I don't question things too much or try to project into the future. That's how life should be.
+- Just because you've faced your own mortality, it doesn't make it any less frightening.
+- My work is made on lines similar to those of a film production. A lot of my work is kind of bureaucratic, endlessly phoning up people, trying to find the cameraman and the lighting man, because I am a total technology-phobe, quite helpless with equipment.
+- I'm good at keeping secrets.
+- Sometimes photographing people is like pulling teeth, trying to get some sort of personality.
+- When Scorsese or Coppola cast celebrities in their work, it goes without question.
+- I felt giving birth was the most creative act of all my creative acts - literally creation!
+- The thing that is so great about Ang Lee is the diversity in his filmmaking, from 'Brokeback...' to 'The Hulk.'
+- When I decide I want something, I go in like an Exocet missile.
+- I feel lucky to be getting older. The fact that I made it to 30 and then 40 was big enough. So I can't get too down on getting older; otherwise, it kind of undoes everything I've fought for.
+- I feel like I've lost 10 years of my life to cancer.
+- I suppose I didn't cry in all the cancer crap stuff because I felt I couldn't lose the battle, and part of the battle was holding myself together.
+- I want to protect my vision, and that's the hardest thing.
+- I've been through plenty in my life where I've really had to focus on the day ahead... because, as I know, the future is, you know, whatever the future is... Once you've stared mortality that hard in the face, you really seize the day.
+- My stepfather was quite into opera, but he'd play it when he was in a bad mood, so you'd hear this boom through the floor, Wagner, and you'd feel nervous.
+- I'm twitchy. I think I've got ADD. I find it hard to sit down. I need to be constantly challenged; otherwise, I get very... well, I guess 'bored' is the word.
+- My mum told me once I was a Hindu.
+- A friend got me a job on the door of the Camden Palace nightclub, which quickly progressed to running the place.
+- I think people are frightened of women making big decisions.
+- I'm fascinated by male vulnerability.
+- Money scares me, and it always has done. I've got a childish concept of money, and I like to keep it that way in the sense that I don't like to think about it.
+- When I had cancer - of the colon first, followed by breast cancer and a mastectomy - my motto used to be 'Drips by day, Prada by night.' I felt that I had to grasp it in the same way as you'd take on any challenge.
+- In the old days, 'controversial' in a relationship meant same-sex or mixed races.
+- After I left college, I went to work at the Royal Opera House in London, which became a real catalyst for me because it made me realize that I was interested in cinema and in the way life is thrust at you. So I started making films.
+- I always say, and I truly believe this, that my work is three steps ahead of me. I have an idea for something and I tend to feel like it's leading me and I'll follow the process through, and it's not until after I've seen it that I truly understand why I'm doing this.
+- If someone looks genuinely interested and asks me a deeply personal question, I'll give the answer. I'm too open.
+- Sometimes when you're looking at your own work, you can't really see, and it's only when you step back a little bit later that you think, 'Oh, that's completely in line with everything else I've done.'
+- I struggle if I have chaos around me, but at the same time, if I don't have it, I'm uncomfortable. It's a strange thing: If I don't have chaos, I create it.
+- Seeing a new play in a first-time production is so exciting - when it's good, you want to shout from the rooftops.
+- Seriously, I wanted to be an artist because I saw that it meant endless possibilities. I came from a badly managed family background, so art was a way of reinventing myself.
+- My biggest fears aren't with my work. My biggest fears are walking through hospital doors. Once you can face that, being fearless about your work is easy.
+- I remember as a kid not ever wanting to have friends around to my house because it was, for want of a better description, disheveled.
+- I only photograph myself at poignant moments in my life as a check of where I am and how large my thighs are.
+- I'm annoying to be around because I keep twitching.
+- My parents were Beatle fans, but my mom was especially a Lennon fan, so I was exposed to him more. I remember her playing 'Double Fantasy' quite often.
+- It would be nice to be a bit autonomous again, to enjoy something a bit quiet.
+- Finding your place as an artist is the hardest thing. You come out of college with what feels like a Mickey Mouse degree that qualifies you for nothing in the real world.
+- I never thought of having cancer as something that was unfair. I just braced myself and tried to get through it.
+- I'm interested in the acting and staging of specific emotions, and so I work with actors. It's a small proportion of what I do, but it's always what people seem to focus on.
+- I am just reflecting the times. I can't ignore them.
+- My mother reads tarot cards, actually, but I won't let her read mine.
+- I'm motivated every second by my work; it doesn't switch off. The pictures I make come from every blink of my lashes.
+- My mum has lived in Australia for 22 years now, and we have a rocky relationship. But at the same time it's one I want to maintain. I need her to be my mum. The relationship took a lot of rebuilding.
+- I'd love to make a thriller.
+- I think I was lucky I got into art college. That's what saved me.
+- People tell you you're having chemotherapy, but there are different types of chemotherapy, and you don't know which one you're going to get and how it's going to affect you. The people in the hospitals don't always have time to help you understand it.
+- Never trust a hippie. That's definitely my motto.
+- A woman going out with a younger man feels like the last taboo.
+- I don't eat any dairy products at all, usually - it's a self-imposed ban. I've done it for a year now, since I was ill, but it's so hard.
+- I'm not a shouter, and I'm not a bully.
+- I can be very self-destructive, but quietly.
+- I think, for me, Julian Schnabel set a great precedent in being able to cross over so successfully. I feel like his artwork is kind of big, grand, and bombastic, yet the films that he makes are very beautifully sensitive, and I just feel that his filmmaking sensibility is very different from his artwork.
+- My mum has always been quite free-spirited, and she has taught me a lot. I think that is probably why I have the sort of mind that I do.
+- I had two primary cancers, which was pretty unusual. And when I got the second one, people told me such terrible bad-news stories, they instigated fears that weren't there in the first place. I do remember with such gratitude one doctor saying to me, 'Two primaries? That's nothing. I've seen a patient with six.'
+- In 'Fifty Shades,' seemingly, Christian has all the power and control - but actually, Anastasia does.
+- My favorite part of the whole filmmaking process is working with a fantastic cinematographer, a fantastic actor or actors, and then just creating emotions and stories. I get so excited by that. That's the part I'm utterly addicted to.
+- The pictures I make come from every blink of my lashes.
+- Tea is a huge part of my life.
+- I don't understand why there aren't more powerful female directors. I don't have the answers, but I hope that things may start to shift and that studios will employ more women to handle strong and interesting material.
+- If you have the ideas, and you're a creative person, then you don't really differentiate in how your ideas manifest themselves.
+- I think you only see experiences as defining moments with distance.
+- I like Alexander McQueen's work a lot: he's always pushing boundaries, and he's rough around the edges.
+- Today is the tomorrow I worried about yesterday.
+- I am not famous at all.
+- Sometimes, I get afraid it has defined me, that sense of grief, loss and illness. But actually, it is about allowing myself to take hold and say: 'This is part of who I am, but not only who I am.'
+- To be feminist doesn't mean you can't be submissive.
+- I try to leave things as open ended as possible, not too overladen with meaning.
+- The line between private and public lives is a fertile one for me. I've lived quite a public life, and it's the reason I have used well-known people in my work. I'm interested in what's going on beneath the facades they present to the world, taking them to a place which is uncomfortable.
+- Directing 'Fifty Shades of Grey' has been an intense and incredible journey for which I am hugely grateful. I have Universal to thank for that.
+- I often joke that I straddle psychosis and neurosis, and that being an artist keeps me in the middle, so I can work between the two.
+- When you have an author and an auteur, it's a difficult and challenging relationship.
+- I believe that life is short, and there is too much time wasted bearing grudges, and I like to move on.
+- My childhood had its challenges, like everyone's. It imbued me with certain things and took away others. It made me very determined.
+- Sorry, there's nothing like a screaming baby to make a mother twitch.
+- I understand what it is to go through emotional trauma and retreat and go into the world of your imagination. I understand how art and music can be a place of safety in a world of reinvention.
+- I think the whole of people's psychology and where they are in life interests me, and the decisions you make that take you on particular journeys to different places.
+- Daniel Day-Lewis is one of the greatest actors of our age; he's like Olivier. He's one of those people who can take you into a place where no one else can take you.
+- I took on cancer like I take on everything - like a mission and a job to accomplish.
+- Despite great advances in women's rights, statistics show that when it comes to the balance of power between the sexes, equality is far from being a global reality.
+- Relationships can go wrong very simply, very quickly, and when you have children you become more aware of relationships around you.
+- When I was out in Georgia doing photographs, I found myself trying to undo my own sense of composition. I'd think, 'Why do I want to take it like this? Is it because I want to take a beautiful picture?' It's quite hard to try and undo it.
+- I'm very blessed with the perfect husband.
+- I was determined to have a spotless house when I grew up.
+- It's difficult for me to work with women, because I find that direct references are made back to me too fast. Working with men, it gives it a little distance.
+- Snobbery just inhibits you.
+- When you're no longer ill, and everyone's gotten over the fact that you've had cancer, that core of steel doesn't go away, and then I had to find other channels for it.
+- I love life. I think it's fantastic. Sometimes it deals hard things, and when it deals great things, you have to seize them.
+- I was living with my stepfather for a while, and then I moved out and went and lived on my own in Hastings-by-the-Sea from about 16.
+- When I had cancer, people were surprised at how cheerful and upbeat I was, but I couldn't let myself go to depression - to go there, that defeat would allow everything in. If you look too far into the abyss, you might never come out again. You can stand on the abyss and peep but not give in to sadness.
+- You think, 'You hired me because I'm a creative artist with a vision. Don't try and knock it out of me.'
+- I feel the art world in New York has a stronger following than Britain. If you go to a New York art district on a Saturday morning, it will be so busy with families and openings - art is much more ingrained in the culture.
+- If you look at art history, at Goya or Gainsborough, it's always about acknowledging the people of your time who have influence.
+- You have to be brave when you've got a kid.
+- I went out of my way to try not to be an artist, because I thought I would end up leading a miserable, obscure life. I tried to escape it for as long as I could, until I had to admit at 25 that that was my path.
+- I keep seeing in the papers that I am good friends with Samantha Cameron. I've never met her in my life.
+- One of the few times I saw my mother cry was when Lennon died, and the other time was when Elvis died.
+- In my life, I've never really listened to when people start forming opinions on how you should be doing things.
+- I feel like I became an artist by default. I went to art college, but my interest was always more towards film than painting or sculpture.
+- I think that, to be an artist, you have to have a big enough ego to believe that people out in the world want to see what you think is a good idea. And if you don't have that sense of ego, then the minute that idea goes into the world, self-doubt kicks in.
+- I think it was Elisabeth Shue who said that if you start a movie with a woman seen through a man's eyes, that woman is objectified by him throughout.
+- I've turned into one of those people who go jogging in parks that I used to hate.
+- I love karaoke. I love maudlin country ballads. In another life, I'd be Loretta Lynn.
+- I'm interested in taking raw human emotions and then isolating them without any narrative structure. In order to achieve this, I try to break out of the narrative conventions that you'd see in a typical feature film.
+- I can be a bit extreme. I'll spend too much time running round the park, doing yoga and drinking green tea. I can get a bit obsessive. I have to rein it in sometimes.
+- I think I just love films where men have complete breakdowns.
+- The way I was grew up gave me a slight fearlessness and a sense of independence. There are things about it that have definitely informed me. And then, as a parent, it's done the opposite. It's made me feel much more protective. There are boundaries in my kids' lives that I don't think I had.
+- A lot of children remember seeing cartoons, 'Pinocchio' or 'Bambi' or something that breaks their heart. I remember seeing 'The Blue Angel' and it breaking my heart. It was the first time I realised there was an adult world - that adults could damage each other or destroy each other emotionally.
+- When I was eight, a hippie guy taught me how to meditate and gave me this scarf I was supposed to wear when I meditated. I still have it; it's probably one of the items that mean most to me.
+- I find that I put my body in my work when I am at a particularly difficult or joyous point because I want to feel that moment.
+- I am completely, utterly obsessed with clothes. To an embarrassing extent.
+- People in love don't see gender, colour or religion. Or age. It's about the other person, the one that you love and who loves you. You don't think of them in terms of a label. You just go with your heart.

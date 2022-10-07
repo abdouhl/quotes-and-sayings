@@ -1,0 +1,33 @@
++++
+author = "Paul Washer"
+title = "Paul Washer Quotes"
+quotes_len = "27"
+description = "the best 27 Paul Washer Quotes"
++++
+- There is a power of God for salvation. And it is the gospel of Jesus Christ.
+- Our productivity in the kingdom of God is directly related to our character and our Christ-likeness.
+- Missions is not about sending missionaries, and missions is not about doing missions. Missions is about the communication of truth to men.
+- Let me just share with you something. Jesus makes this quite clear: there's never been a real teacher except One, and it's Christ. There's never been a real prophet: they're all types of One greater than themselves - Christ.
+- I hope not in works. I hope not in ethics. I hope not in baptisms or church membership. I hope in Christ alone.
+- If you need me to tell you that if you serve God, you'll get a Mercedes, you're lost.
+- I would submit to you that our greatest need is to rediscover the gospel of Jesus Christ and to proclaim it. I have always said this, especially to the young missionaries that I have dealt with.
+- The mark of spirituality is the fragrance of Christ in our lives and the fragrance of Christ in every aspect of who we are as a person.
+- We need preachers. We need men who believe that this task and women who believe that this task is so great that not all the strategies in the world can make one soul converted.
+- One of the things you will notice about the book of Mark is that if you read through it in one setting, you will be breathing hard at the end. Literally, Mark has set up this book in a way that it is almost like several snapshots of Jesus Christ.
+- No human being is justified before God or has a right standing before God based upon his own virtue and merit. It is only by faith in the virtue and merit of Christ.
+- There is clothing that is improper for a Christian woman.
+- There's no need for shadows when the Light has come, when the Star and the Sun have appeared - and Christ is both - bringing light to day and night.
+- Do Christians sin? Yes, absolutely. But can Christians live in a state of sin without discipline and without being brought back in obedience to their Father? Absolutely not.
+- Everyone who believes in Jesus Christ will be saved. That is true.
+- There is no such thing as a continuously carnal Christian.
+- If you need me to tell you that if you serve God, he'll heal your body and fix every one of your problems, if you need that, you're lost.
+- God does not use perfect men; He uses men. And so, when I say that we need to be conformed to the image of Christ, we also need to recognize that God has always used men lacking something somewhere.
+- We know that men are saved by repentance and faith, and whoever does call upon the name of the Lord shall be saved. But salvation is a supernatural work of God that will always produce fruit. And the evidence, not the cause, but the evidence of salvation is a changed life, a changing life.
+- Salvation is by repentance and faith, and if you have truly believed unto salvation, you have been regenerated, which means you have become a new creature, and you are going to live a different life. And so works do not result in salvation.
+- One of the greatest attacks of the enemy is to make you busy, to make you hurried, to make you noisy, to make you distracted, to fill the people of God and the Church of God with so much noise and activity that there is no room for prayer. There is no room for being alone with God. There is no room for silence. There is no room for meditation.
+- The way a woman carries herself and the way she dresses ought to promote the following types of words: modesty, discretion, wisdom, beauty, elegance and refinement, but not sensuality, luxury, extravagance.
+- If I were to look at the church of Jesus Christ in America today, I would say our greatest problem is not that we lack the resources to do things, not that we lack the models, the programs, and the plans, but that we lack conformity to the image of Jesus Christ.
+- Women, you need to understand something. Men are not as dumb as you think they are.
+- If Jesus is not enough to motivate you to godly living, you don't know Jesus.
+- If we humble ourselves before the Lord, He will lift us up... He will. That's His promise.
+- God can do all sorts of things, God does not need me! But He commands me to be like His Son, and that is all.

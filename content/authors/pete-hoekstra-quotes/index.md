@@ -1,0 +1,108 @@
++++
+author = "Pete Hoekstra"
+title = "Pete Hoekstra Quotes"
+quotes_len = "102"
+description = "the best 102 Pete Hoekstra Quotes"
++++
+- Islamists and their sympathizers hate us, and they will not stop hating us until we convert to ancient Islam. There is no middle ground or accommodation.
+- The U.S. cannot survive another four years of the Barack Obama-Hillary Clinton regime.
+- Americans must step back and realize that an effective foreign policy is very difficult to devise, and we must present a united front to make it work.
+- Governing has always been hard.
+- A real possibility exists that we will be forced to confront, contain, and ultimately defeat radicalism and al-Qaeda alone, or at least with far fewer allies in the region than we had before.
+- Radical jihadists hate Americans for who we are. They cannot be managed. They cannot be trusted. Engaging them is a tragic fool's errand. We need to realize that they are at war with us and that we cannot control their motivations. We instead need to confront them, contain them, and ultimately defeat them before they defeat us.
+- The U.S. should prohibit perpetrators and supporters of Islamist brutality from entering the country while embracing advocates for religious freedom. End of story.
+- Decisions concerning covert actions are not often easily reached.
+- Both Presidents George Bush and Barack Obama pursued policies of regime change after 9/11 - with Bush removing al-Qaida's safe haven in Afghanistan and the sadistic anti-American dictator Saddam Hussein in Iraq - but Obama took it a step further and disregarded regional stability as a guiding factor for U.S. policy.
+- It seems that whenever America faced a challenge, it faced it and overcame it.
+- I'm not OK with clergy, students, and those of different opinions lying and expressing hateful speech in the name of love, but again, it is their constitutional right. I'm not OK with their conduct, but in America we tolerate it, as obnoxious and spiteful as it may be.
+- Former Libyan dictator Moammar Gadhafi and the radical Islamist mullahs ruling Iran share many similarities, but honesty and negotiating in good faith are not among them.
+- The answer as to why ISIS gained power and influence, and why stability in the Middle East has disastrously deteriorated, does not require extensive analysis.
+- ISIS filled the vacuum in Iraq and Syria created by a lack of effective governance.
+- Good governance requires working toward common ground. It isn't easy.
+- Clinton appears to be the sole holdout in the Obama administration in understanding the catastrophe caused by its foreign policy in Libya.
+- Briefly after the 9/11 attacks, Republicans and Democrats were united in identifying the evil of the radical jihadists and fighting it.
+- Belonging to the Gang of Eight carries massive responsibility in representing all 435 members of the legislature in very sensitive national security exercises.
+- The danger of having the military take over intelligence is that the military has a very different perspective on the world.
+- The media should probe and challenge candidates to help voters understand their views on foreign policy. Questions should include, 'What lessons have you learned from past foreign policy decisions? How will they shape your vision as commander in chief? What is America's role in the world?'
+- The U.S. faces a very dangerous sprint by outlaws to gather the deadliest weapons and technology on the planet, something we always thought possible but hoped would never occur.
+- Boko Haram, by itself, has destroyed large areas in Nigeria, Cameroon, Chad, and Niger.
+- Choices abound in the free market. Choice creates real and immediate accountability.
+- Complying with requests from Congress is not optional. It is mandatory.
+- Republican presidential nominee Donald Trump and House Speaker Paul Ryan harbor incredible promise for America once they forge an effective partnership.
+- Islamic fundamentalists in dark areas of Libya rifled through leftover stockpiles of conventional, chemical, and biological munitions from Muammar Gaddafi's rule. Who knows where they are now?
+- Gingrich, Senate Majority Leader Bob Dole, and Clinton passed legislation because they understood and appreciated the difficult political process. They fought for their principles yet recognized the need for compromise to get anything done.
+- The primary role of government is to provide for the safety and security of their populations.
+- The need to remove Col. Qaddafi should be self-evident.
+- Obama sought a strategy of accommodating our enemies, even if they weren't so willing to accommodate us.
+- Real leadership is leaders recognizing that they serve the people that they lead.
+- ISIS has stated that it intends to infiltrate the hundreds of thousands of Syrian refugees fleeing the barbaric ISIS terrorists, using their families as cover.
+- The West needs leaders with the courage and the will to fight the scourge of radical Islam.
+- Nobody will ever agree with everything everyone says, especially once an issue or speaker becomes politically charged. But as tolerant and civilized Americans, we should at least have the decency to hear them out.
+- Should President Clinton have killed Osama bin Laden when he had the opportunity in 1990s? Should President Bush have sent the U.S. military into Iraq to depose Saddam Hussein in 2003? Should President Obama have withdrawn all troops from Iraq in 2011? Such questions provide no real insight into future considerations.
+- Once the U.S. and NATO walked away from Libya, a chaotic, lawless state in the soft underbelly of Europe arose.
+- Asking presidential candidates whether they support or would change past foreign policy decisions is the most common line of questioning among members of the media. It's also the most pointless.
+- We can find common ground in agreeing that politics have no room in foreign policy.
+- House Speaker John Boehner and presumed Senate Majority Leader Mitch McConnell understand the art of politics.
+- Accepting Syrian refugees into the United States is an emotional issue.
+- I will never forget standing with fellow members of Congress on the steps of the Capitol to sing 'God Bless America' on the night of 9/11.
+- Demanding an end to partisan bickering on foreign policy is not an unrealistic requirement.
+- World leaders need to approach the problems in the Middle East and northern Africa with imaginative ideas such as those that created the E.U.
+- Obamacare became the disaster that its detractors always said that it would become.
+- Europe and the United States are better off extending a helping hand to those who know best rather than dictating to them an unfamiliar future.
+- I've got a lot of respect for Mike Hayden.
+- When I came to Congress in 1993, the traditional idea that all politics stopped at the water's edge was alive and well. Americans had been unified for the previous four decades against the threat from the former Soviet Union and communism.
+- The policies and laws executed by the grand mufti in Libya, the long-term agenda in the short-lived Morsi government in Egypt, and by ISIS in its ideal Islamist Ummah are incompatible with the Constitution, period.
+- The Islamic State has proven that terrorists can seize and deploy modern military equipment on lesser-armed opponents.
+- The silence caused by politicizing speech is deafening.
+- The fact is that no foreign-policy doctrine is perfect.
+- The U.S. must remember - as the Gadhafi loyalists have and Turkey, Saudi Arabia and Bangladesh are now realizing - that it cannot get into bed with groups affiliated with the jihadist movement.
+- Any customer of government - whether it's with education, taxes, housing, or health care - understands the frustrations when they have a bad experience. They're stuck and can't go anywhere else.
+- Libya is a huge disaster.
+- Illicit weapons have always been available to those who can afford them, but they have not generally been the latest state-of-the-art equipment, which requires experience and expertise to use.
+- Yes, Gaddafi was a ruthless dictator and supporter of terrorism during his 40-year reign in Libya, but he had become an ally of the United States in the fight against radical jihadism after 9/11.
+- Nobody walks away with everything they want in politics.
+- Sports are trivial compared to matters of war and peace, but some parallels apply.
+- The Eurozone allows for the largely unimpeded movement of people, goods, services, and capital across borders. It has also resulted in unprecedented cooperation on crime, security, and finance among its members.
+- America needs a bipartisan foreign policy that is predictable, pragmatic, and understandable.
+- America, at its core, is a country of strong and resilient people who are prepared to confront the challenges posed by those who seek to do us harm.
+- Hard work, years of sacrifice, and dedication are necessary to succeed in the real world. Snowden's most notable accomplishment was lying about his military service, his experience, and education to procure a job with the NSA in the first place.
+- There are no consequences for Snowden breaking the law in Snowden's World. It's where his massively inflated ego dictates the rules and determines which he will follow.
+- The unregulated migration of hundreds of thousands of refugees from terrorist safe havens in Syria, Iraq, and Libya has created a very difficult threat environment for Europe.
+- Just as sports teams recognize the potentially game-changing benefit of calling time-outs, failing to do so in matters of warfare is a surefire way to continue losing.
+- No president can amend the past, and the public is tired of candidates who simply point fingers instead of offering their own solutions. They want a leader who will describe the threats as they are and rally the country behind a strategy to defeat them.
+- Libya became a rat's nest of extremism after NATO helped depose dictator Moammar Gadhafi, and it now exports weapons, jihadists, and ideology to Europe, Africa and the Middle East.
+- I served 10 years on the U.S. House Intelligence Committee, and I had the distinct privilege of meeting with real U.S. spies throughout the globe.
+- The anniversary of the tragic attacks on September 11, 2001, and September 11, 2012, is a day to remember those who died and suffered. It is also an opportunity to open a new dialogue on the tactics and strategies that have been successful - and unsuccessful - in confronting, containing, and defeating the threat from radical Islam.
+- America's bipartisan strategy for years has been to deny jihadists with sanctuaries anywhere in the world from where they can plan, prepare, and train for attacks against the West.
+- The Kurds in Iraq just don't have enough military equipment - they also need humanitarian relief.
+- Obama's 'reset' with Russia and 'pivot' to Asia never materialized.
+- America has historically met the challenges to its national security with decisive actions that defeated or, at a minimum, contained the threat.
+- Where the West has intervened in African domestic affairs, such as it did in Libya 2011, the country became a cradle of extremism that exports weapons, jihadists, and ideology to the rest of Africa, the Middle East, and Europe.
+- The Panetta/Petraeus combo is a powerful tandem. I've seen both of them up close and personal at the CIA and in Iraq.
+- I'm not OK with clergy, students, and those of different opinions chanting and swearing, but it is their constitutional right.
+- Consumer accountability drives quality and efficiency.
+- Choosing to arm and train the Islamist opposition against dictator Moammar Gadhafi unleashed its most ruthless terrorist elements.
+- Not once during Obama's tenure did the country achieve an annual 3 percent rate of economic growth.
+- Succeeding against an army of strawmen might feel good as a speech, but in reality, the world is filled with extraordinarily difficult challenges and very real consequences as a result of how we face them.
+- America needs to fully grasp the lessons learned from our history of fighting radical jihadists. There have been successes and failures.
+- Ensuring that the intelligence community adheres to its responsibilities to report on its activities to Congress is absolutely essential.
+- The U.S. might have diminished al-Qaeda's capabilities in the border region of Pakistan and Afghanistan, but it has not diminished the threat from radical Islamist terrorists as a whole.
+- As a member and chairman of the House Intelligence Committee during the 2000s, I met with civilian and military officials in Kurdistan, Libya, Jordan, Israel, Egypt, and Yemen. They shared many of the same international defense priorities as the United States. We acknowledged our differences, but we worked from where we found common ground.
+- From my experience as Chairman of the House Intelligence Committee, if a congressperson is identified as a potential target by a foreign intelligence service, that individual is notified.
+- An issue that really concerned me when I was on the House Intelligence Committee was the quality of analysis.
+- Gadhafi opponents included many 'good guys,' but they never received the support necessary to govern a new Libya after he was gone.
+- Libya stood as a source of stability in volatile northern Africa in 2011. The administration turned it into a failed state that exposed southern Europe to refugees and terrorist elements, all of which Gadhafi had warned about.
+- While the primary focus continues to be on religious minorities - the Christian religious minorities and the Jewish community - ISIS will also go after people who interpret and believe the Muslim faith differently than they do.
+- The Obama-Clinton administration gambled with America's national security by embracing radical jihadists, and the world lost.
+- I think cleaning house at the CIA needed to happen.
+- Foreign policy is painstakingly difficult, and if there is to be anything gained from the experience in Libya, it is how not to conduct world affairs.
+- A wounded Qaddafi still in power would be an ongoing threat and menace to the rest of the world.
+- We need to recognize the reality of the threat from radical Islam: that it will be an enduring conflict, that there are no easy decisions, and that mistakes have and will be made.
+- The Obama administration notoriously refuses to acknowledge that Islamists commit Islamist terror, so it logically follows that a Christian victim of Islamist violence should not address the issue lest it challenge accepted political orthodoxy.
+- The world has devolved into a much more hardened and lethal place since that devastating September morning when Islamists assassinated nearly 3,000 Americans in the worst terror attack on U.S. soil.
+- The forces that rescued Americans on Sept. 11, 2012, were not the U.S. military. They were not the militias that overthrew Gadhafi. They were Gadhafi devotees who were loyal to him and to the U.S. government with whom their leader reached a 'deal.'
+- America is the freest country on the planet, but for Snowden, this isn't enough. He is a state diplomat in Snowden land.
+- Western Europe has been redefining the nation state since 1945 when it formed the European Union following World War II.
+- The overall feckless strategy against ISIS in Syria and Iraq enabled the Islamist organization to expand its domain and drive out more religious minorities.
+- Gadhafi was a monster who ruled his country for 42 years with an iron fist and became an international pariah as a result. However, he found religion once he recognized his perilous position when the U.S. adopted an uncompromising response to international terrorism following 9/11.
+- After the heavily politicized 2007 Iran NIE, many of us in Congress found it hard to take some intelligence analysis at face value.

@@ -1,0 +1,24 @@
++++
+author = "Wilt Chamberlain"
+title = "Wilt Chamberlain Quotes"
+quotes_len = "18"
+description = "the best 18 Wilt Chamberlain Quotes"
++++
+- If you have ability in a certain area, why not capitalize on it and improve it and use it?
+- When you go out there and do the things you're supposed to do, people view you as selfish.
+- It was a challenge to my teammates to help me.
+- I believe that good things come to those who work.
+- They were so clever finding ways to get me the ball. They had to do more than just give up open shots. They had to avoid fouls and pass me the ball in traffic.
+- But the point of using the number was to show that sex was a great part of my life as basketball was a great part of my life. That's the reason why I was single.
+- I get constant reminders from fans who equate that game and my career as one and the same.
+- We're all fascinated by the numbers, as we were about the 100 points.
+- It just wasn't right the way they were behind by 25 points and then they're told to hold the ball.
+- Everybody pulls for David, nobody roots for Goliath.
+- And I remember leaving my place in L.A. and - my father is a big fight fan - and I said, 'Dad, I got a couple of days off and I'm getting ready to go to Houston to sign to fight Muhammad Ali.
+- I couldn't have come close without my teammates' help because the Knicks didn't want me to make 100.
+- With all of you men out there who think that having a thousand different ladies is pretty cool, I have learned in my life I've found out that having one woman a thousand different times is much more satisfying.
+- I guarantee you, if you could give me 10 points in all those seventh games against the Boston Celtics, instead of Bill Russell having 11 rings, I could've at least had nine or eight.
+- Nobody roots for Goliath.
+- You must understand as a kid of color in those days, the Harlem Globetrotters were like being movie stars.
+- They were willing to do anything to stop me.
+- The man who won't loan money isn't going to have many friends - or need them.

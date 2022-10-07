@@ -1,0 +1,13 @@
++++
+author = "Edgar Meyer"
+title = "Edgar Meyer Quotes"
+quotes_len = "7"
+description = "the best 7 Edgar Meyer Quotes"
++++
+- From the first moment that I can remember, I had identified myself as a bass player and it had everything to do with my father, who was a bass player. And he loved music, you know, as much as anybody I've ever seen. And that dynamic I just thought as somehow was a straight pass to me.
+- I try to just be the person I am, with a lot of sensitivity to the genre in which I'm playing.
+- I can tell you I'm not exactly sure why I teach. I think a lot of it is just it's the sense of community. A real desire to be involved both with people older than myself and people younger.
+- In all honesty, titles are an embarrassment to me.
+- When I was younger, I had a much better connection between words and music. Somewhere along the way, I had kind of an aspiration to disconnect them, to just kind of go into a totally musical world.
+- Being authentic can be a good thing in that often people who are fixated on that are also fixated on having very high standards, so they may maintain something they think has tremendous value. On the other hand, most of the kinds of music that I've been excited about are hybrid in their origins.
+- I like writing for individuals with really rich musical personalities.

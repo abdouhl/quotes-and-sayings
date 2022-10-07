@@ -1,0 +1,29 @@
++++
+author = "Sebastiao Salgado"
+title = "Sebastiao Salgado Quotes"
+quotes_len = "23"
+description = "the best 23 Sebastiao Salgado Quotes"
++++
+- I am a former economist. I never went to photography school to learn photography.
+- The problem is, we live in a society where all that interests us is power and money. So we don't have any interest in our children, and what we leave for our children is not important.
+- We live in a society where we never prepare people to be a community.
+- I have two children. I have a Down syndrome child whom I love very much, and my wife that I love.
+- I'm not a religious person. The language of photography is symbolic.
+- When I was starting out, when I put aside my career as an economist. I looked at every book, went to every show, did my first stories, developed my first films. A fabulous time.
+- Of course I will continue photography. I love photography. But when you become old, it's too much.
+- The light in Alaska in particular is so beautiful. So beautiful! Such incredible light.
+- I discovered that close to half the planet is 'pristine.' We live in towns such as London, Paris or Sao Paulo and have the impression that all the pristine areas are gone, but they are not.
+- The language that photography has is a formal language. Any photographer is doing something formal. If it's formal, then it must be an aesthetic way to communicate.
+- So many times I've photographed stories that show the degradation of the planet. I had one idea to go and photograph the factories that were polluting, and to see all the deposits of garbage. But, in the end, I thought the only way to give us an incentive, to bring hope, is to show the pictures of the pristine planet - to see the innocence.
+- For me, art is such a wide concept - anything can be art.
+- I photographed with film for many years; now that I work in digital, the difference is enormous. The quality is unbelievable: I don't use flash, and with digital I can even work in very bad light. Also, it's a relief not to lose photographs to x-ray machines in airports.
+- We are animals, born from the land with the other species. Since we've been living in cities, we've become more and more stupid, not smarter. What made us survive all these hundreds of thousands of years is our spirituality; the link to our land.
+- In the end, the only heritage we have is our planet, and I have decided to go to the most pristine places on the planet and photograph them in the most honest way I know, with my point of view, and of course it is in black and white, because it is the only thing I know how to do.
+- There are moments that you suffer a lot, moments you won't photograph. There are some people you like better than others. But you give, you receive, you cherish, you are there. When you are really there, you know when you see the picture later what you are seeing.
+- Photography has become a small world with so many jealous people. You do a story and then a lot of people try to do the same thing.
+- The most important thing for me is to have my cereal. I have milk and granola and cheese. And that's it. I have a lot of cereals that I eat all day long, and I have a big appetite. All over the planet I carry my cereals!
+- ! discovered photography completely by chance. My wife is an architect; when we were young and living in Paris, she bought a camera to take pictures of buildings. For the first time, I looked through a lens - and photography immediately started to invade my life.
+- Of course, I won't be abandoning photography, because it is my life.
+- It is important what you eat now, what you do now. If we were interested in a sustainable planet where other generations have a right to a decent future, we would not live like this.
+- As in any person's life, there have been difficult moments: I have a son with Down's syndrome; through my photography, I have witnessed all manner of human degradation. But there have also been very happy moments.
+- I work on stories rather than individual pictures.

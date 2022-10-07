@@ -1,0 +1,58 @@
++++
+author = "Wesley Sneijder"
+title = "Wesley Sneijder Quotes"
+quotes_len = "52"
+description = "the best 52 Wesley Sneijder Quotes"
++++
+- I realised how big the Galatasaray community is after arriving at the airport. I am very happy and proud that I will play for such a big club.
+- I have long played No. 10.
+- When I was sold from Real Madrid to Inter, I would have preferred to have remained in Spain.
+- I am not a supporter of juniors increasingly going to top clubs.
+- The older I get, the better I feel.
+- I love Inter with all my heart, but God will decide where my future will be.
+- My wife Yolanthe and I love Inter, the Italian fans, and Italy.
+- Being compared to Hagi is an honor.
+- I have a very good feeling at Inter, and I don't want to let them down after winning everything and losing Jose Mourinho.
+- Why Galatasaray and not Liverpool? Because I am a winner - I play for prizes - so I went to Galatasaray because I thought that I would win more at Galatasaray and be champion than at Liverpool, and I think afterwards that I made the right choice.
+- Milan is marvellous, picturesque, and full of elegance.
+- If I don't feel good in myself, I pray, and I can throw off those bad feelings.
+- To play along alongside Cristiano Ronaldo, Kaka, or Franck Ribery is an honour for any footballer.
+- Religion has given me a new drive in life. Life feels a lot easier than it ever did before.
+- Jose Mourinho was a very good coach.
+- I kept track of everything Mourinho did, from his training methods to his tactical analysis - I have it all stored on my computer. I want to be a manager like him in the future.
+- I had fun in my second year with Inter and was satisfied, even if we didn't win everything.
+- Why did I not join one of the top five clubs in Europe? Because I am no longer one of the top five players around, and neither are Inter among the five best clubs.
+- It's nice to have someone at the helm who can give you piece of mind and does not panic.
+- Cristiano is a great player with incredible quality, and if he joins Madrid, then he will be welcomed.
+- I want to play against Besiktas.
+- When I left for Qatar, I knew, of course, that this could have an impact on my career as an international.
+- It is possible to sign many great players, but you cannot buy a team.
+- Nice is a very beautiful city, but I came only for the sport.
+- I talk a lot with my team-mates.
+- I want Robinho to stay with Madrid because I think that he is almost the same as Cristiano Ronaldo.
+- I am very happy to be at a club like Inter.
+- There is a family atmosphere at Inter, and there are all the ingredients to aim high.
+- I know how much football is loved in Turkey. I will make the Galatasaray fans very proud and very happy.
+- I love big matches.
+- I always found new challenges in my career.
+- I want to play for titles.
+- I have had nice years in Turkey.
+- I'm not happy, because I'm not at the level I want to be.
+- I am happy at Inter and feel like part of the group.
+- We don't need a psychologist with the Dutch team; we are grown-up men. The ones who have a problem with other players or the manager should tell them face-to-face. That is the only psychology we need.
+- We have a priest at Inter Milan and a chapel at the training ground. That is where I was baptised and confirmed into the church.
+- I've worked with a lot of good coaches, so I would be stupid if I did not pick anything up.
+- The Inter fans have always treated me very well.
+- I lost confidence, and since then, I can't find my rhythm. I am training phenomenally and will continue trying.
+- We have to stop living on little islands. We must all go for the same goal, be united, or face the consequences.
+- Things are very good at Inter. I love the club and also the Italian people and the Italian culture. It suits me.
+- It is absolutely fantastic to have become Netherlands' most-capped player.
+- I wasn't raised a Catholic, but Yolanthe was, and I wanted to get more involved in her religion.
+- It would be bad for the squad if one player had a much higher salary than the rest.
+- Who cares about the Golden Boot? I want the golden cup.
+- In Spain and Italy, they like it when you win with good football, but winning without is appreciated.
+- I want to play well; only then can I be happy.
+- Not everything can be perfect.
+- I think Inter have been very clear: if a good offer comes in, they have to let me go. They don't want to lose me, but there is a chance they will let me go.
+- Many clubs wanted to know when I was leaving Inter, and Liverpool was one of those clubs, so people were surprised I chose Galatasaray.
+- I only want to be a player who can help Madrid return to their rightful place in football.

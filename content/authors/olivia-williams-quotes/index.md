@@ -1,0 +1,26 @@
++++
+author = "Olivia Williams"
+title = "Olivia Williams Quotes"
+quotes_len = "20"
+description = "the best 20 Olivia Williams Quotes"
++++
+- How lucky am I?
+- When the Hollywood thing happened, I thought at some point I'd get to the front of the queue: 'Yes, hello, I'd like to play that role.' But you don't. You just join a different queue.
+- The best Christmas present I got from my husband was a week to do whatever I wanted.
+- There's this absurd situation on a movie set where your trailer's here and the set is here and the lunch tent is here, and you're not allowed to get yourself from these three places.
+- Family holidays and weekends are really brightly colored memories, full of my mother and father, rather than our nannies and au pairs.
+- I couldn't get any of the ingenue roles when younger because at 5 feet 9 inches with a deep voice I was always too... genue. My career has completely happened since I was 29.
+- I've been lucky enough to kiss three James Bonds on screen: Pierce Brosnan, George Lazenby and Daniel Craig.
+- I didn't know box office was a thing you could possess but I don't have it. I go up for lovely roles and people with this nebulous thing called box office get them so there isn't much I can do about that unless you know where I can get some box-office myself!
+- From a very young age, I wanted to get up on stage whenever I went to the theatre - the actors just seemed to be having so much fun. One of my worries about theatre, in fact, is that the actors are quite often having more fun than the audience.
+- I don't feel under pressure to work because I love what I do and I wanted to do the projects that came my way.
+- My parents taught me everything and set me up for life. I owe to them all the things I'm passionate about: music, art, the people I love, my career and family life, the fact that I have children and the way that I raise them.
+- The way I miss my daughter Esme is to worry about her. It is not a pleasurable longing. It contorts my body and scrambles my brain, makes me stop breathing, clench my jaw and my fists, it makes me frown, and makes me blind and deaf, in fact entirely without sensory perception.
+- I wanted to play a TV detective because it's a rite of passage; I wanted to experience every area of acting. I haven't done comedy or as much Shakespeare as I had intended.
+- I have many debates now with friends on the changes, and the continuing confusion over bringing up your children, instilling values, letting them make the right choices.
+- I'm a mixture of Anglo-Saxon, a bit of Spanish and one-eighth American. I've often wondered if I have an Asiatic ancestor from the East as well because I have deep-set eyes. Make-up artists are constantly trying to shade my eyelids, and I have to point out that I don't have any!
+- My skin may have wrinkles but it's because I'm smiling so much. That might sound like some terrible American greetings card, but I feel it's immoral for me to castigate my body for getting older, when it does everything I ask of it.
+- My husband Rhashan reminds me of my father because he's got great strength of character.
+- My parents' long and happy marriage was a great ideal to live up to, but a tough one.
+- My parents have always been cool. They even became surrogates to friends of mine who didn't have such supportive parents.
+- My father was king of the guidebooks and our holidays were always planned, taking us from a great gallery to an ace cafe to a beautiful view. And as an actor, I loathe improvisation because there's no structure and no one knows what's going on.

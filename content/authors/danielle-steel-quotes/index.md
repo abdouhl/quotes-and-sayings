@@ -1,0 +1,57 @@
++++
+author = "Danielle Steel"
+title = "Danielle Steel Quotes"
+quotes_len = "51"
+description = "the best 51 Danielle Steel Quotes"
++++
+- Perfume is like a personal signature, which is why I like to mix my own. For years I've paired Femme by Rochas with Shalimar and love the results.
+- I work too hard and don't play enough.
+- I've shut myself inside these walls, and I'm going to be a very lonely old lady if I'm not careful.
+- When people look at me outside, they think, 'She's so lucky,' but no one's exempt from tragedy.
+- If you see the magic in a fairy tale, you can face the future.
+- A book begins with an image or character or situation that I care about deeply.
+- It's difficult to talk to people... I walk into a room and I'm Danielle Steel, and whatever I say is going to be taken apart.
+- My kids are more precious to me than anything. I'm with them all day, and I write all night.
+- I did it at night because I loved it. I never did it to make money, as a job. I just did it because I had to.
+- I always try to write about believable people.
+- The usual way - through a long series of rejections, revising my manuscripts, and kept trying again and again. Finally I was fortunate enough to find a good agent.
+- I want to be Miss Universe when I grow up.
+- I try to write about the stuff that torments us all.
+- It's been very hard, after being mostly a mom, to develop an adult life of my own. And not being married anymore, I have to come up with challenges.
+- Writing is a solitary endeavor, but not a lonely one. When you write, your world is populated by the characters you invent, and you feel those people filling your life.
+- I'm not an aging gracefully type. But I do believe in aging with grace.
+- I'm surprisingly practical in much of my life, but not when it comes to my shoes.
+- Sometimes, if you aren't sure about something, you just have to jump off the bridge and grow your wings on the way down.
+- In my late teenage years, I developed a real passion for it, and wrote a lot of poetry.
+- At the moment, I'm enjoying John Grisham quite a bit.
+- It's hard being visible, so I've made myself invisible.
+- People have entire relationships via text message now, but I am not partial to texting. I need context, nuance and the warmth and tone that can only come from a human voice.
+- The records of adopted children are sealed in California. That seal is considered inviolable... The judge ruled that, because I was famous, he didn't have the same rights as other kids.
+- I believe in love at first sight for houses - but not for people.
+- I am endlessly busy, bringing up five young kids, and trying to keep up with the three older ones. I still spend most of my life driving car pools.
+- I move between San Francisco and Paris... I have a wonderful beach house in California.
+- I grew up with my father, so I know more about cars than most women.
+- I don't buy trends, because the pieces don't last and I wind up never wearing them. That's why I like to shop with my children; they'll always tell me the truth.
+- I wish I were braver, although I try.
+- My relationships were never equitable. My husbands were always older than me, and they made the rules, they ran the show, and I followed them.
+- A bad review is like baking a cake with all the best ingredients and having someone sit on it.
+- I think I'm very real as a person, and that comes across in my work.
+- My early reviews were so bad that I decided I didn't want to read them again.
+- I'm astonished by my success. I wrote because I needed to and wanted to. It never occurred to me that I'd become famous.
+- I studied literature design and fashion design.
+- I like summer. I like warmer weather and long days. I'm one of those silly people who still enjoy lying in the sun - my children are horrified!
+- I once looked like Norman Mailer in a picture with bad lighting.
+- I'm a terribly irresponsible eater - I love soft-boiled eggs and chocolate. I never met a chocolate I could not eat.
+- I wish I were brave, although I try. I work too hard and don't play enough. Too much work ethic, not enough 'fun'.
+- I decided I would never do interviews again.
+- If you can see the magic in a fairytale, you can face the future.
+- I'm probably the most uptight, conservative person you'll meet. I'm very religious.
+- I have these wonderful homes, and no one to share them with.
+- I completed my first novel when I was 19 years old.
+- I wrote because I needed to and wanted to. It never occurred to me that I'd become famous.
+- Lust is temporary, romance can be nice, but love is the most important thing of all. Because without love, lust and romance will always be short-lived.
+- I try to give people hope. Even though life is bleak, there's hope out there.
+- I started writing stories as a child.
+- I don't like grand restaurants or kowtowing waiters. I don't need that kind of attention and I don't want it.
+- People are much more inclined to believe and say bad things about you if you're famous.
+- You can't have nine children and not be organized. Otherwise it just looks like Appalachia.

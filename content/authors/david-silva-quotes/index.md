@@ -1,0 +1,83 @@
++++
+author = "David Silva"
+title = "David Silva Quotes"
+quotes_len = "77"
+description = "the best 77 David Silva Quotes"
++++
+- Football in England is much more direct that in Spain - not just in terms of tactics or style but in the overall approach.
+- I'm a very quiet person, and I always try to take the pressure off myself before games.
+- The Premier League and the World Cup are equally important to me.
+- The press often ask me about Messi and Ronaldo and who is the best, but one thing for me is very clear. For me, the No. 1 is Andres Iniesta, because he is my team-mate for Spain, and I can see that he is able to do even more difficult things on the pitch.
+- Football is very simple for me.
+- When you see Pep on TV or read his words in the newspaper, it is the portrait of a man who is the ultimate professional. But when you work with him, you don't just come to see him as a coach. You learn about his qualities as a man. It is that side of Pep Guardiola that the people on the outside don't get to see.
+- I think you learn to value the important things in life.
+- I love to play in the middle to be in contact with the ball all the time. I'm very happy to play in that position.
+- At the end of the day, we're playing a sport.
+- It's very difficult in England because the season is very long and hard compared to other places. There's not a lot of recovery time at all, not even a break at Christmas. You just have to do your best and get on with it.
+- Why did I leave Valencia? Because the club needed me to. I was happy there and wouldn't have left, but the situation the club was in demanded it.
+- I try to enjoy playing football and do my best for the team.
+- With football, you can never predict what's going to happen.
+- I am an attacking midfielder, and I have scored goals, but I want to score more and win more.
+- Every derby match is different, just like every season is different.
+- I'm always proud to wear the colours of Spain.
+- Pep Guardiola sees things before they happen, and that's an advantage - a massive plus.
+- I've always said that I'd like to play for Las Palmas - my local team.
+- I enjoy creating goals more than scoring them.
+- On the pitch, I have always had that responsibility to lead the team. But, of course, when you are captain, players, especially the young ones, they look at you more for the things you do on and off the pitch. But I have always been a very calm person.
+- There is definitely a difference when you are fighting for a title against clubs like United or Real Madrid or Barcelona. They are so used to winning, it means that you have to have a different frame of mind when you challenge them because that's the only way to overcome them.
+- Personally, I don't focus much about the statistics of goals and assists. I always want to improve, but I'm not worried about statistics.
+- You gain know-how from playing matches because every moment of a football match has its own rhythm.
+- I have always been strong. My mentality is just that way; that's why I've been around so long.
+- I do not look at the end of my career with any fear.
+- Football is my passion, and I live for it.
+- I know people say you have to be big and strong to play in the Premier League, but you cannot just judge a player by their size. You have to look at their other qualities, too.
+- The big difference between league football in England and Spain is that more teams compete here. In Spain, it is usually only two teams going for the title, which is not necessarily a bad thing because you get great matches between the two, but I think the English league is better for being more competitive.
+- Even when you think you can't learn much more about the game, you can and do, in fact, learn more by looking at things in a different light.
+- The Champions League is the most important competition; it's fundamental to be involved in it.
+- Guardiola has helped me so when I receive the ball, I have space.
+- I have my life on the field, but when I finish that, I want a quiet life with my family.
+- I love compliments; of course I do. Everybody wants to receive compliments. But the team is the important thing, and I'd rather win things as a team than finish up with individual honours.
+- The aim for the future is always to win titles, become champions of the Premier League, and more.
+- At City, we don't just have successful people: we have great human beings who know that family is paramount.
+- I am not too worried about not scoring many goals as long as someone else is.
+- It's an honour for any player that a club of the prestige of Manchester United should follow them, and that, in itself, is enormous praise.
+- Everyone has an image of a premature child, but until you live it and experience it, you just don't know how bad it is.
+- You always feel more attracted to people who play the way you play.
+- Football is a changeable game. From one day to another, everything could change.
+- I ask myself in every game to be the one to take responsibility.
+- Winners don't believe in fate like others do. They simply cannot accept defeat.
+- I'm confident I can be a success in English football.
+- The Premier League is the place to be.
+- All I want to do is win the Premier League and Europa League - I don't stop to think about being named as the Player of the Year. It's not something that interests me.
+- Stuff happens in football. Sometimes it goes in your favour, sometimes it doesn't.
+- You just don't expect to see your baby fighting for his life. Looking back, you wonder how you coped.
+- One of the things I did well as a young kid was to link well with the rest of the team, so I reckon it's something which is natural for me.
+- I pray every night to win the Champions League with City.
+- People say I should go to Real Madrid or Barcelona, but my team is Las Palmas.
+- Thanks to the football, every time I go out and play, it releases the tension, and you forget about the problems.
+- After winning such an important title as the World Cup, to win the Premier League and to see supporters in Manchester who have waited so long to win it would be important to me.
+- In football, any team can still improve, in every sense.
+- Someone from the family is always with me in England, and for me, that's the perfect life.
+- The way I like to play, it really helps when I have more people around me to combine with.
+- My life has always gone step by step.
+- I've always said I'm very happy at City.
+- Football is what we like and enjoy most.
+- City came in strongly for me, put their cards on the table, and what I have found out since is that every game in England is a privilege - the atmosphere, the fans, the interest that surrounds it. Every time I go out on the pitch, I know I've made the right decision.
+- I like to play in the middle, even though I can play on both wings.
+- The way Guardiola plays suits me. It enables me to get into space in attacking positions.
+- I don't know what happens with other players or what is in their heads, but for me - just win.
+- I'm very happy to be at City, and I would like to continue there for as long as possible. It obviously depends on my health, my quality on the pitch, and if the club want me to stay. I would like to be there until the end, but the Premier League is such a hard league to play in. It is much more physical than somewhere like La Liga, so it depends.
+- It goes without saying that the first few months after my son was born were the toughest of my life.
+- When you sign players who are young and hungry, that's good for the side.
+- If I had to return to Valencia, I would not rule that out.
+- It's always an honour to help the Anfi Group - a hotel timeshare company where my mother worked for many years and which I will always support.
+- Spain is such a competitive league, and for the players to give up La Liga, it's such a tough decision.
+- I don't want anyone to know my business, and that's the way I like it.
+- I've been lucky: I've won a lot of medals, but I'd still like to win more.
+- When you experience playing in two different leagues, you learn to adapt; you pick up elements from the best virtues of each culture.
+- Playing big teams is something I really enjoy - the bigger the team the better.
+- When you don't win anything, at the end of the day, you cannot say it is a good season.
+- Once you win, you get used to winning, and that's not a bad thing.
+- Of course El Clasico is a great night, but I don't have an overwhelming desire to play in that game.
+- I don't waste my time doing my head in about stupid things that don't really matter and don't waste time worrying over nothing.
+- I think that by playing centre midfield in the middle of the park, I'm doing something which comes naturally to me.

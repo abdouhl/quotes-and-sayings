@@ -1,0 +1,101 @@
++++
+author = "Wendy Williams"
+title = "Wendy Williams Quotes"
+quotes_len = "95"
+description = "the best 95 Wendy Williams Quotes"
++++
+- I think authenticity is the name of the game.
+- I think weddings are ridiculous.
+- I've learned to be extremely healthy regarding morning eating.
+- I don't like white walls.
+- Family and personal life always come first and career second.
+- Mixtapes were the soundtrack, back in my day, of peoples' lives.
+- I think the biggest issue for women in the workplace is men!
+- I keep a steady supply of paintbrushes and canvases. I like to paint. I'm not some great artist.
+- I've always been told I was funny.
+- My weight was a huge issue as a young person. For my mother, for my father, and for my siblings... nobody in my family is overweight. And here I come.
+- The responsibility that I ultimately feel to the audience is to entertain, maybe enlighten, and help you take your mind off messy things.
+- I no longer believe in fad diets, crash diets... yes, I did have a jump-start because years ago I did get the liposuction and a tummy tuck, but I have to say that, if there is a poster child for plastic surgery and the jump-off to a new lifestyle, it would be me.
+- I grew up in a single-family detached house. My parents are wonderful.
+- My blood pressure is always either perfect or low. It's never high.
+- Radio is not a high-paying job; I just enjoyed being on the radio.
+- Because I come from the place of interviewing, I know how to answer a question giving you what you need to hear and not a minute more.
+- I'm where I'm supposed to be. In that purple chair, by myself, yip yapping. I am. I didn't fall into it, you know. I wanted to be a newscaster or a radio broadcaster since I was six years old. When I went to college, I majored in communications. When I touched a microphone, I fell in love.
+- You need more than a year to grow on somebody, and it's very intimate being invited into people's homes every day. Once that trust is built, then you're like that old friend. That's the sweet spot.
+- I know things about R. Kelly that I will take to my grave - unless he tells them.
+- People love to throw stones at me, and I get it. It's fun to make fun of me, because I put myself out there. I'm a large personality, and I got the funny bone; I voice my opinion, and then people get upset.
+- I feel as though I'm nice and that I'm down to earth, and - people like me get taken advantage of. So by being tall and outgoing, people mistake that for being overpowering, overbearing, loud, and being a bully. No, no I'm a flower.
+- What I think, a lot of people think. They're just too afraid to say it.
+- I was very conscious of my upper arms. I never wore sleeveless. I always wore a cardigan. I saw myself being super conscious of my appearance.
+- I didn't grow up the popular girl or the popular cheerleader. I've never been to a prom, I didn't have a lot of boyfriends, so I'm used to being on this side of life.
+- My bark is worse than my bite.
+- I don't love food as much as I used to.
+- There's some really disgusting places out there who just throw some lentil together and think that just because you don't eat meat, you're gonna eat this slop.
+- Yes, I wear caramel-colored Nude Barre fishnets August through June. Especially with shorter dresses, at age 48, they give my legs a nice finish.
+- We, as women, particularly if we have families, you know, we're taking care of children, we're taking care of, you know, our home, our husbands, we take care of everybody but ourselves. And it's really unfortunate.
+- Ten years of being on TV, I'd never taken a sick day.
+- I'm not your average talk-show host. This is a tough grind. Morning TV, you wake up at 5:30 in the morning, and you go all day.
+- My first diet was in the first grade! Tuna fish and mustard with yogurt on the side.
+- I didn't grow up rich. I like it here on TV. With finery.
+- People have accused me of bleaching my skin, of getting a nose job. They squint at my mom, like, 'I didn't know Wendy was Asian.' I am black all day, honey pie. I am black and very proud.
+- Well, unlike a lot of authors, I will be the one to cop to having a ghostwriter. I've always written with someone else.
+- I always have my anti-germ-y wipes, always.
+- When I travel, I love to have roll-up flats, the ones that you roll up and put in a bag, just in case your feet start hurting.
+- One of the most comical comments that my 'Wendy' watchers said is, 'She talks too much!' Duh, I'm a talk show host!
+- I travel with my own long silk robe. At the hotel, you just never know if the robes have been washed after they've been worn by other people.
+- The landscape of daytime has changed. I'm not so sure people go to daytime TV for kumbaya moments anymore.
+- I don't want to be the crazy showbiz family. When I walk into the PTA meetings with my sensible flat shoes and my sensible short wig, I do not look crazy.
+- I love to travel with my own hot sauce, and I have it in packets so I no longer have to be disturbed by TSA.
+- I love 'Real Housewives.' I love 'Love & Hip Hop.' I love HGTV. I love a good Guy Fieri marathon on Food Network. I like comfort TV.
+- The only thing urban about me is the parties. I have almost always been a suburbanite. I got a car for my graduation. I want to have a manicured lawn and have my son go to a good college.
+- I think that mental illness is something that is so real.
+- I didn't ask to be a role model. I don't like that responsibility. But if you see something in me that you really adore, thank you.
+- I think that regarding plastic surgery, a lot of women that hate to cop to the fact that they would get it done, might be saying no to it for other reasons, like, maybe it's against their culture, or they don't have the money for it.
+- I consider myself a prize fighter going into a very, very tough ring called daytime TV, and I take it very seriously.
+- You're only as good as your last performance.
+- I love dresses best because I enjoy being a woman.
+- I don't really cook.
+- I've got a strong face, a strong body. I'm 5'11.
+- I wake up around 8 o'clock in the morning. I am an early riser.
+- In real life, I'm frugal. And, yes, I do love to shop at Marshall's.
+- It's not how you fall down or how low you go in life, but if you can get yourself up and set an example for even one person, then you've done your job.
+- The longer I've done TV, the more fearless I've become. Fearless in what I say, in what I wear, what my hair looks like.
+- I'm a quick wit, straight to the point, no nonsense.
+- I wanted to do the kind of show that I would want to watch as a busy wife, mother, and midde-aged woman.
+- I will tell you, I feel very, very bad for Kanye West. He's not well, and that is the very foundation of everything he says.
+- You know I don't want to fall. I'm a tall woman, and it's a long way down.
+- I don't wear slacks, but I Iike jeans.
+- I think of myself as the queen of lounging. No lounge queen is complete without lounge clothes and house wigs.
+- I can't change my skin. I won't change my voice. I can't change my confidence.
+- When I make a promise about keeping something in confidence, I do.
+- Weight was a big thing for me to overcome.
+- I didn't have the easiest childhood. I was never the popular girl in school growing up. I was always the lone black girl or the lone fat girl or the long tall girl, so that has made me more compassionate to all people. It also gave me the drive and ambition to go after my dreams in a big way.
+- I love the grocery store. I would never have my groceries delivered.
+- I wouldn't have changed a thing in my past. Life is like dominoes: if you move one, it wouldn't fall the right way.
+- Take some elocution lessons; you can joke with Ebonics, but the truth is, nothing beats the King's English. Learning how to speak properly, and the art of delivery can take you very far in life!
+- I enjoy leading a well-rounded life. Believe me, I don't take it for granted.
+- Parents, you need to watch who you let loose your girls around. If you're so desperate that you want your kids to be stars, and you're going to unleash your daughters to the world, you better watch what you get.
+- I don't feel I ask anything of anybody else that I wouldn't give up myself. I don't think the things I ask are particularly shocking, and I don't think I approach celebrities from the point of view of being a polished journalist.
+- I don't believe in diet pills. I don't want my heart to race and pop out of my chest.
+- There's no worse way to insult a woman than by saying she looks like a man, but once a woman gets over that, there is no stronger woman.
+- There's a lot of smart women doing dumb things with their health, and I fell into that category as well.
+- I would like the Hunter Foundation to outlive everything.
+- People say a lot of mess about celebrities. In the social media world, celebrities are able to go online and see nice things and horrible things written about them - but these people on the Internet wouldn't have the guts to say it to their face.
+- I'm not gonna fight my body anymore. I've lost the weight; I feel fantastic.
+- I would always sneak in the refrigerator and eat seconds, and underneath my bed - you know, I had my own bedroom - it was littered with Twinkie wrappers and Jolly Rancher wrappers. And I would sneak-eat, because I was denied food, not because I was hungry, but because my mom and dad did the best they could in 1970 and '71 and '72.
+- I'm not overconfident. It's just that I'm not caught up in that. What will be will be. The die is cast. I can't be anybody but me.
+- I have Graves' disease and hyperthyroid.
+- I treasure my privacy.
+- Five percent Lycra makes anything fit.
+- The war on drugs is very, very real, and the war on helping people with mental illness is very, very real.
+- Reality shows aren't for overly educated people.
+- My favorite food is the food I eat by myself.
+- I have been reporting on celebrity stuff my whole career and am very aware that fame is a slippery slope.
+- Don't mistake my tears for weakness.
+- The more celebrities I meet, the more disappointed I get in celebrity culture.
+- If you pay close attention, you'll notice we continually hear about basically the same 150 celebrities.
+- The reason that it's so easy to go out there and be me - warts and all, critics and everything - is because my family and my career are the only two things that really matter in the big circle of life.
+- All money is not good money.
+- I don't chill out to music. When I get home, there's no music playing. Every TV is set on a different channel. I'm keeping up with the shows.
+- I view myself as a multicultural woman who happens to be black.
+- Don't fault me for wearing a 20-inch blond wig - it doesn't mean I want to be a white person.

@@ -1,0 +1,65 @@
++++
+author = "Dave Ramsey"
+title = "Dave Ramsey Quotes"
+quotes_len = "59"
+description = "the best 59 Dave Ramsey Quotes"
++++
+- My children were taught at an early age how money works and that it comes from hard work. They've been on a commission - not an allowance - since they were little. They learned that if they worked around the house, they got paid. If they didn't work, they didn't get paid.
+- Hitting bottom and hitting it hard was the worst thing that ever happened to me and the best thing that ever happened to me.
+- You don't want to have so much money going toward your mortgage every month that you can't enjoy life or take care of your other financial responsibilities.
+- Pay your utilities, gas and other basic needs before paying on your debts.
+- I've seen numerous situations where collectors have taken more than the agreed-upon amount from someone's account once they gained access.
+- When we talk about kids earning commission for chores, we always have at least one parent who argues that children should do chores because they are part of the family. I agree, but if you don't involve money in a few chores, you lose the teachable moments in the work, spend, save, and give principles.
+- When people get scared, they quit giving.
+- If you're able to pay your bills, you pay your bills. It's as simple as that.
+- To be fair, the collection business does have a few good people in it. But it also has those who will lie and make threats.
+- I always laugh and say I met God on the way up, and I got to know him on the way down. And so, as I'm crashing and losing everything, a lot of people run to God when they are struggling. And I was no exception.
+- There's always something that needs attention when you own a property.
+- You have to teach children about money intentionally - create teachable moments.
+- I will never be unemployed.
+- Some people are just stuck in their ways and have been brainwashed into believing that credit cards and debt are an unavoidable part of life.
+- The thing I have discovered about working with personal finance is that the good news is that it is not rocket science. Personal finance is about 80 percent behavior. It is only about 20 percent head knowledge.
+- Most of the things we buy are wants. And we call them needs, but they're wants.
+- While I encourage people to save 100% down for a home, a mortgage is the one debt that I don't frown upon.
+- Your FICO score is an "I love debt" score. You're going to pay a bazillion dollars in interest to keep your FICO score up in order to have lower homeowner's and car insurance rates.
+- Debt collectors like to play on your emotions because they think you'll give in and do something you can't really afford to do. Most of them don't care about you or your situation as long as they get some money.
+- What your beliefs are about anything creates your actions. What you believe about marriage creates the way you handle your marriage. What you believe about raising kids creates the way you do that.
+- There is nothing wrong with having nice things, but when you are trying to buy nice things to be happy, you are going to hurt. It's not going to work.
+- Life will not make allowance for you, but it will pay you what you earn.
+- You can't be in debt and win. It doesn't work.
+- In order to be a great marketer, you have to be focused and intense and look at scarcity, urgency, activity and passion in the marketplace.
+- You never cash out a 401(k) or IRA to pay off debt, unless it's to avoid a foreclosure or bankruptcy.
+- We are all in the business of sales. Teachers sell students on learning, parents sell their children on making good grades and behaving, and traditional salesmen sell their products.
+- There are no shortcuts when it comes to getting out of debt.
+- I really am not a gold fan.
+- I've got a young man who works for me who says you don't need to discover your dreams - you need to recover them.
+- Would a good friend, a smart friend, encourage you to do something as dishonorable as not pay a bill you're morally and legally obligated to pay? I don't think so.
+- I have done stupid with a lot of zeros on the end of it. I know what it looks like.
+- Babies are wonderful, important things. Having kids, even the thought of having kids, is a big emotional deal. But sometimes it can cause people to change their financial plans and directions.
+- Never take a loan against your retirement! When you pay interest against your retirement, you cost yourself interest.
+- As much as I want to help people, I had to accept the fact long ago that being stupid with money isn't illegal.
+- People are in such a hurry to launch their product or business that they seldom look at marketing from a bird's eye view and they don't create a systematic plan.
+- It takes some discipline and hard work, but relying on credit when things go wrong is a trap.
+- You need some quick wins in order to stay pumped enough to get out of debt completely.
+- We've really got to stop looking to Washington to fix our problems. It obviously doesn't have the ability to do that. People who are successful are not successful because of the president.
+- In the neighborhood where I grew up, it was a rough neighborhood - well, not rough, but it certainly wasn't upper class or anything. But I remember hearing things like, 'The little man just can't get ahead.' And if you start to believe that, then you know what? You don't get ahead.
+- Don't react with fear and panic in the face of debt collector threats. Talk to them and explain your situation. See if you can work out a compromise.
+- Once I will warn you, and then I will fire you! I have a zero-tolerance-plus-one policy for gossip. I will teach you once, and then I will fire your butt.
+- Trust me, I know, you can make mistakes with money and still raise money-smart kids. You can start a new family tradition of handling money the right way.
+- The Bible clearly says that when we have a problem with our brother, we are to go to them and try to resolve the situation.
+- Children who reach the age of eighteen with their entire skills set composed on Nintendo and eating Doritos have been neglected. Their parents neglected to give them the character traits necessary to live successfully.
+- If you're doing something like scheduling utility payments to come through your debit card or out of your personal checking account, that's perfectly fine. But there are much safer ways to handle situations with debt collectors. You can send a money order overnight, or wire the cash to them.
+- You're not a bad parent if you don't save for your kid's college because instead you had to choose to feed them and clothe them. Those things come first. They can go to school and do this thing called 'work' while they're in school.
+- I believe that through knowledge and discipline, financial peace is possible for all of us.
+- You don't need credit.
+- My wife, Sharon, and I started with nothing when we got married. I was driving a 1902 Pinto and eating off a card table.
+- This is a great time for the 'guerilla marketer.' The days when you used to have to buy expensive TV time and a yellow page ad to get started are gone.
+- Credit is an 'I love debt' score.
+- I think that anyone who wants to start their own business can, but not any type of business.
+- I think the lie we've told people in the marketplace is that a degree gets you a job. A degree doesn't get you a job. What gets you a job is the ability to carry yourself into that room and shake a hand and look someone in the eye and have people skills. These are the things that cause people to become successful.
+- As parents, we teach our kids about things we feel competent in. That's why so many parents don't teach their kids about money.
+- I have to live my books before I write them.
+- A vacation home is a wonderful 'extra' as you start building wealth. Remember, though, it's still basically a very large, very expensive toy.
+- There are several things to be learned about money from Scripture, and the concepts of generosity and giving are in there.
+- You've got to tell your money what to do or it will leave.
+- I like to write books where I get a question on the radio, and I don't have an answer for it.

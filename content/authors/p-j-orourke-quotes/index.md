@@ -1,0 +1,487 @@
++++
+author = "P. J. O'Rourke"
+title = "P. J. O'Rourke Quotes"
+quotes_len = "481"
+description = "the best 481 P. J. O'Rourke Quotes"
++++
+- After the events of the 20th century, God, quite reasonably, left Europe. But He's still here in the United States.
+- There is the love and marriage and family kind of happiness, which is exceedingly boring to describe but nonetheless is important to have and dreadful not to have.
+- The words 'Space Age' have a quaint, nostalgic tone - sitting on midcentury modern furniture watching 'The Jetsons.'
+- TV ushered in the age of postliteracy. And we have gone so far beyond that. I mean, what with the Internet and Google and Wikipedia. We have entered the age of post-intelligence.
+- I blame feminism and Facebook for the death of the American automobile. I'm a Republican, so I blame everything on feminism - or commies.
+- Let's reintroduce corporal punishment in the schools - and use it on the teachers.
+- Barack Obama is more irritating than the other nuisances on the Left.
+- What Alexander Graham Bell thought up occupied less space than a flower vase. Now it's so small that I have to search all my pockets to discover I've received a spam text.
+- Politicians will talk strategy and tactics and policies and programs until they're blue in the face, or you strangle them and they turn blue.
+- I think that humor has become a principle means of communication among Americans about politics.
+- Any terrorism is an attack on libertarian values.
+- A very quiet and tasteful way to be famous is to have a famous relative. Then you can not only be nothing, you can do nothing too.
+- Jack Abramoff is the world's best lobbyist - for the Federal Penitentiary System.
+- War diminishes both civil and economic rights.
+- The laws of the marketplace are physical laws, and they don't become suspended in a crisis any more than the law of gravity does.
+- The people who despise America are the editors of the 'New Statesman.' Their green-card applications must have been turned down.
+- In thirteen years, every aspect of the universe can change - ask a thirteen-year-old.
+- I like making things. I have a wood shop at home. I am a terrible carpenter but I love doing it.
+- Cars let us out of the barn and, while they were at it, destroyed the American nuclear family. As anyone who has had an American nuclear family can tell you, this was a relief to all concerned.
+- Tel Aviv is new, built on the sand dunes north of Jaffa in the 1890s, about the same time Miami was founded. The cities bear a resemblance in size, site, climate, and architecture, which ranges from the bland to the fancifully bland.
+- When elites see a homeless person in the gutter, they assume he's saving a parking place.
+- The idea of a news broadcast once was to find someone with information and broadcast it. The idea now is to find someone with ignorance and spread it around.
+- The car provided Americans with an enviable standard of living. You could not get a steady job with high wages and health and retirement benefits working on the General Livestock Corporation assembly line putting udders on cows.
+- If we were to inspect ourselves or members of our family and our friends, we would see that we don't really have to go all the way overseas to be mystified - we can be mystified right at home.
+- Each child is biologically required to have a mother. Fatherhood is a well-regarded theory, but motherhood is a fact.
+- Daniel Patrick Moynihan is the archetypal extremely smart person who went into politics anyway instead of doing something worthwhile for his country.
+- They are just really stupid people in Hollywood. You write them a script, and they say they love it, they absolutely love it. Then they say, 'But doesn't it need a small dog, and an Eskimo, and shouldn't it be set in New Guinea?' And you say, 'But it is a sophisticated romantic comedy set in Paris.'
+- Medical researchers don't know much about head lice because they don't much care. The reason that they don't much care is, paradoxically, that they know a lot. That is, they know one important thing: there is no evidence that head lice transmit disease.
+- The foundation of collectivism is simple: There should be no important economic differences among people. No one should be too rich.
+- Whatever it is that the government does, sensible Americans would prefer that the government does it to somebody else. This is the idea behind foreign policy.
+- Watching Republicans in Washington is like watching lemmings, if lemmings jumped into cesspools instead of off cliffs.
+- There is no horizon in Toledo. There are too many trees.
+- I'm on Medicare now. If I go and have a big operation, it costs me nothing. It should cost me a little. I'm not rich, but I can afford a few grand if I have to have my appendix taken out. I can pitch in a little bit.
+- You may be surprised to discover you're rich, especially if you're broke.
+- Only a few good leaders have paused to reflect seriously on being leaders.
+- I look around my house, and everything except the kids and dogs was made in China. And I'm not sure about the kids. They have brown eyes and small noses.
+- Positive rights are the right to shelter, the right to education, the right to health care, the right to a living wage. These things are - these are, I would call them, more properly, political rights rather than positive rights. And they are extremely tricky, because now we are dealing with things that are zero sum.
+- I'm not a tech-savvy parent. I communicate with my children via the old-media format called yelling.
+- In midlife, we're as dumb as we get.
+- As murderous industrial magnates go, Alfred Nobel is right up there with Ray Kroc, franchiser of McDonald's.
+- Modern elites live in bubbles of liberal affluence like Ann Arbor, Brookline, the Upper West Side, Palo Alto, or Chevy Chase. These places used to have impoverished neighborhoods nearby, but the poor people got chased out by young singles living in group homes, hipsters, and urban homesteading gay couples.
+- Maybe climate change is a threat, and maybe climate change has been tarted up by climatologists trolling for research grant cash. It doesn't matter.
+- I knew Hunter Thompson since the '70s, and I loved him, but he would wear me out as I got older.
+- Lack of romance is my real objection to writing on a computer.
+- A fundamental American question is, 'What's the big idea?'
+- If it were not for government regulation of big corporations, executives at companies like Enron, WorldCom, Tyco, they could have cheated investors out of millions.
+- The minute somebody joins a committee... they immediately suffer from committee brain. They become wildly over-enthusiastic, over-optimistic, over-pessimistic. Committees turn people into idiots, and politics is a committee.
+- As a nation, Kuwait has been, arguably, free of freedom itself. Claimed in turn by Constantinople, Riyadh, and Baghdad, Kuwait has survived by playing Turks off Persians, Arabs off one another, and the English off everyone.
+- Fiscal conservatism is just an easy way to express something that is a bit more difficult, which is that the size and scope of government, and really the size and scope of politics in our lives, has grown uncomfortable, unwieldy, intrusive and inefficient.
+- Regulation creates a moral hazard.
+- A hat should be taken off when you greet a lady and left off for the rest of your life. Nothing looks more stupid than a hat.
+- To blame the existence of al Qaeda on poverty like Egypt's is a slur on the poor.
+- Call a man 'ignorant,' and you have license to show the world your vast fund of knowledge and wise him up.
+- People say free trade causes dislocation. In actual fact, it's the lowering of trade barriers that causes the dislocation.
+- The Afghans themselves say that if you put two Afghans in a room, you get three factions.
+- There is one thing women can never take away from men. We die sooner.
+- The mystery of government is not how Washington works but how to make it stop.
+- There is only one thing that gives me hope as a Republican, and that is the Democrats. It's going to be hard to do a worse job running American than the Republicans have, but if anybody can do it, it's the Democrats.
+- A humorist doesn't really do that much note-taking.
+- The more aspects of life that can be moved from private reign to public realm, the better it is for politics.
+- Every vote should carry a serial number, so that responsibility for harmful or careless use of the vote can be traced. Concealed voting should be outlawed.
+- Voting has proliferated in the United States, and it has reached a point where there is now almost one vote available per citizen over the age of eighteen.
+- Until I carried my wife off to New Hampshire, she defined wilderness as the Bronx.
+- Being a humorist is not a voluntary thing. You can tell this because in a situation where saying a funny thing will cause a lot of trouble, a humorist will still say the funny thing. No matter how inappropriate.
+- Our earliest evidence of government, in the ruins of Babylon and Egypt, shows nothing but ziggurats and pyramids of wasted taxpayer money, the TARP funds and shovel-ready stimulus programs of their day.
+- Wealth brings great benefits to the world. Rich people are heros.
+- What would annoy the most people most often? That is the true left-wing test of government intervention.
+- I think every high school student who was alert during the early '60s got very embittered by the slow progress and the violence surrounding the Civil Rights Movement.
+- The 20th century was a test bed for big ideas - fascism, communism, the atomic bomb.
+- Art Nouveau got its inspiration from nature. The Bauhaus got its inspiration from engineering.
+- I don't understand anything about America's culture.
+- In the language of politics, there is only one translation for the phrase 'hope and change,' to wit: 'big, fat government.'
+- You can learn all about the human condition from covering the crime beat in a big city - you don't need to go to Beirut for that - but a foreign correspondent begins to understand poverty from a different perspective.
+- The great thing about being a print journalist is that you are permitted to duck. Cameramen get killed while the writers are flat on the floor. A war correspondent for the BBC dedicated his memoir to 50 fallen colleagues, and I guarantee you they were all taking pictures. I am only alive because I am such a chicken.
+- Politicians are wonderful people as long as they stay away from things they don't understand, such as working for a living.
+- Sheep farming is heavily subsidized in Great Britain. Without the subsidies, the green grazing in the valley of the River Exe would be gone. The handsome agricultural landscape of which the British are so proud, carefully husbanded since Boudicca's day, would be replaced by natural growth. The most likely growth is real-estate developments.
+- A penny will not buy a penny postcard or a penny whistle or a single piece of penny candy. It will not even, if you're managing the U.S. Mint, buy a penny.
+- The great apologist has to have lived large and wild. If he's going to kiss the world's boo-boos and make up, he'd better plant some bruises first. A master apologizer has to be a Lord Byron, a Rick in Casablanca, a Lee Atwater, anyway.
+- Mikhail Gorbachev was the Jimmy Carter of the Communist bloc. The Russians hate him.
+- There are selves too big for one person to contain. You cannot call them selfish. There is nothing -ish about such selves. They are the self, as it were, itself.
+- Will Generation X and the Millennials do a better job running the world than the boomers have? Let's hope so.
+- The real purpose of welfare is to get rid of poor people entirely. Everybody knows welfare has bad effects; that's the point.
+- Always read something that will make you look good if you die in the middle of it.
+- The weirder you're going to behave, the more normal you should look. It works in reverse, too. When I see a kid with three or four rings in his nose, I know there is absolutely nothing extraordinary about that person.
+- Everybody in America who didn't come over the Bering Strait ice bridge stole his land from somebody else.
+- I think the Baby Boom does have a tendency to get its nose in everything. The Greatest Generation had a better tendency to leave people alone. Of course, they also had a better tendency to hate everybody's guts.
+- I'm a rather decisive type.
+- Maybe the real secret to America's greatness is that we hate one another.
+- If we heard that somebody starved to death in Sweden or Switzerland, we would be shocked.
+- By the end of the 1950s, American cars were so reliable that their reliability went without saying even in car ads. Thousands of them bear testimony to this today, still running on the roads of Cuba though fueled with nationalized Venezuelan gasoline and maintained with spit and haywire.
+- I'm a political conservative.
+- People are always angry at America. They're absolutely certain that America either caused their problems or is deliberately not fixing their problems. But the anger is always directed at America and never at Americans.
+- Obama's space policy doesn't differ much from George W. Bush's.
+- Nobody is making Americans buy Chinese goods.
+- The C student starts a restaurant. The A student writes restaurant reviews.
+- There is no 20-year period in American history when stocks lost money.
+- I am a student of stupidity. I am a political reporter.
+- The killjoys initiated automobile crash standards so rigorous that we can't buy a car that hasn't been dropped from the top of a phone pole with our whole family strapped inside.
+- If I were a congressman who had voted for the American Jobs Creation Act of 2004, I'd claim it was forced on our country by a sinister international organization.
+- In Henry Adams, I discovered not only the prototype of the modern thinker but also someone who is more interesting: a viper-toothed, puling, supercilious crank, thwarted in ambition, aging gracelessly, mad at the cosmos, and ashamed of his own jejune ideals. He is nevertheless very dear to me.
+- I'm a member of the 1960s generation. We didn't have any wisdom.
+- All religious believers should be licensed to make sure that they are competent to hold opinions and viewpoints and that they don't believe in just any old thing, such as creationism or a flat tax.
+- Teasing and a sense of humor, if you can develop that in your kids, and if you can exercise it with the kids, just makes for a pleasanter atmosphere.
+- I like to think of my behavior in the sixties as a 'learning experience.' Then again, I like to think of anything stupid I've done as a 'learning experience.' It makes me feel less stupid.
+- Sometimes the right response to evil is an appeal to powerful and effective social organization - an appeal to civilization itself.
+- I come from Toledo, Ohio, a town that has been hurt badly by the shift of the automobile business towards Japan. And yet I remember how the car workers lived in the neighborhood that I grew up in. My father was a car salesman, and I remember how we lived. I remember how modestly we lived.
+- Finland is a rich country. What have they got? They got Nokia phones and plywood. How'd they get so rich? Because they're free.
+- People will tell you anything but what they do is always the truth.
+- One nice thing about making jokes is that you don't have to prove them.
+- Catchphrases flourish in contemporary American English.
+- Preachers at black churches are the last people left in the English-speaking world who know the schemes and tropes of classical rhetoric: parallelism, antithesis, epistrophe, synecdoche, metonymy, periphrasis, litotes - the whole bag of tricks.
+- America gives every appearance of being a nation besotted with trashiness - divorce, illegitimacy, casual Fridays.
+- Predicting innovation is something of a self-canceling exercise: the most probable innovations are probably the least innovative.
+- Nobody likes insurance companies, especially health insurance companies.
+- I was very much in favor of the Iraq invasion.
+- There are two factors in American politics that may seem strange to Europeans: race and religion.
+- Even the most left-wing politicians worship wealth creation - as the political-action-committee collection plate is passed.
+- Rich people don't like to be in the military. The shoes are ugly and the uniforms itch. Rich people don't go in much for revolution or terrorism, either.
+- Democrats hate Democrats most of all.
+- Everybody with a gun has a checkpoint in Lebanon. And in Lebanon, you'd be crazy not to have a gun. Though, I assure you, all the crazy people have guns, too.
+- All religions must be made child-proof. Our teachers' unions have done good work in this field, K through 12. Delaying first communions and bar mitzvahs until age 21 would be another positive step.
+- Kabul is a walled city, which sounds romantic except the walls are pre-cast reinforced concrete blast barriers, 10 feet tall and 15 feet long and moved into place with cranes. The walls are topped with sandbags, and the sandbags are topped with guard posts from which gun barrels protrude.
+- Staying married may have long-term benefits. You can elicit much more sympathy from friends over a bad marriage than you ever can from a good divorce.
+- I don't mind America becoming a Third World country. The weather is better in the Third World than it is where I live in New Hampshire. And household help will be much cheaper.
+- Not much was really invented during the Renaissance, if you don't count modern civilization.
+- No Americans wants to see somebody lose their house because of health bills. Their boat? Maybe. Maybe the boat. But not the house.
+- Disney's House of the Future had the clean simplicity prized in the 1950s as relief from decades of frayed patchwork, jury-rigging, and make-do clutter caused by Depression and war.
+- There are a few things that people all around the world need to admit to themselves. Trade restraints slow economic growth, the euro is not a reserve currency, and scoreless sports ties are boring.
+- Stupid is a great force in human affairs.
+- The one thing that's terrible about traveling for fun is writing about it.
+- The Democrats are the party that says government will make you smarter, taller, richer, and remove the crabgrass on your lawn. The Republicans are the party that says government doesn't work and then they get elected and prove it.
+- The most futuristic aspect of the House of the Future was that it was made almost entirely of plastic.
+- Passover is my idea of a perfect holiday. Dear God, when you're handing out plagues of darkness, locusts, hail, boils, flies, lice, frogs, and cattle murrain, and turning the Nile to blood and smiting the firstborn, give me a pass. And tell me when it's over.
+- When you pay a hospital bill, you're really paying two hospital bills - one bill for you because you have a job and/or insurance and can pay the hospital. and another bill, which is tacked onto your bill, to cover the medical expenses of someone who doesn't have a job and/or insurance and can't pay the hospital.
+- When I'm in the car, I want the only one shouting to be me.
+- Fall of the Berlin wall? Being there was fun. Nations that flaked off of the Soviet Union in southeastern Europe, Central Asia, and the Caucasus? Being there was not so fun.
+- You've got to understand, people are motivated by fun. And they should be.
+- I usually agree with Rush Limbaugh; therefore I usually don't listen to him.
+- People love to be told what they know already.
+- America's public schools have served their purpose. Free and compulsory education was good for a somewhat unpromising young nation.
+- The proper behavior all through the holiday season is to be drunk. This drunkenness culminates on New Year's Eve, when you get so drunk you kiss the person you're married to.
+- Adam Smith is misread as being amoral precisely because people don't read his first book, because they don't read 'The Theory of Moral Sentiments.'
+- Why is Iraq so easy to harm and so hard to help?
+- I have never Twittered or Tweeted or even Chirped.
+- Liberals are always proposing perfectly insane ideas, laws that will make everybody happy, laws that will make everything right, make us live forever, and all be rich. Conservatives are never that stupid.
+- More modern poetry is written than read.
+- Moviemakers are rewarded with tax write-offs if, when seeking a location that looks like America, they seek it in America.
+- Bill Clinton is not a hypocrite. If a man believes that it is just and moral to redistribute wealth, there is nothing hypocritical in his attempts to redistribute some of that wealth to himself.
+- Politics are for foreigners with their endless wrongs and paltry rights. Politics are a lousy way to get things done. Politics are, like God's infinite mercy, a last resort.
+- Wealth is not a pizza, where if I have too many slices you have to eat the Domino's box.
+- Inside every Sancho Panza there's a Don Quixote struggling to get out.
+- People say, 'Oh, politics is so polarized today,' and I'm thinking... '1861, that was polarized.'
+- Conservatives really don't believe in politics as the primary instrument of getting along in life and therefore don't tend to put their energy into it a way people left of center do.
+- I read good. I was an English major.
+- Even very young children need to be informed about dying. Explain the concept of death very carefully to your child. This will make threatening him with it much more effective.
+- Government is a health hazard. Governments have killed many more people than cigarettes or unbuckled seat belts ever have.
+- I myself am a parent in a small business. Number of employees: one.
+- The most brilliant satire of all time was 'A Modest Proposal' by Jonathan Swift. You'll notice how everything got straightened out in Ireland within days of that coming out.
+- President Obama has contempt for real money.
+- Even the dumber parts of our government are not run by idiots. These are ordinary people like us, doing a job. By and large, they're trying to do it as well as they can. Or at least as often as people in the private sector try to do as well as they can.
+- We've come into the world of '1984,' but it turns out to be '1984'-Lite.
+- Politics is the attempt to achieve power and prestige without merit.
+- America wasn't founded so that we could all be better. America was founded so we could all be anything we damned well pleased.
+- Nancy Pelosi says the angry opposition to health care reform is like the angry opposition to gay rights that led to Harvey Milk being shot.
+- The job of the president of the United States is to talk to the public, is to explain to them. Now, some presidents talk too much, like Bill Clinton. Some presidents try to talk but don't know how, like George Bush senior.
+- I like Michael Moore, but I think of him more as a rabble-rouser. On his TV show, when he went to the home of the guy who invented the car alarm and set off all the car alarms on the block... pretty funny.
+- Making fun of born-again Christians is like hunting dairy cows with a high powered rifle and scope.
+- Something is worth what somebody will pay for it. Nothing else, nothing more, nothing less.
+- Is Bill Clinton so good at politics, or are other politicians so bad?
+- A person has got to balance work and life and family in order to be a balanced person.
+- We loved cars until the '70s or so. Then they became appliances. They turned into motorized cup holders. Most of it has to do with urban sprawl. What began as pleasure ends up in necessity, as so many things do.
+- America is not a wily, sneaky nation. We don't think that way. We don't think much at all, thank God.
+- The good thing about SUVs is they have storage.
+- Because of their size, parents may be difficult to discipline properly.
+- Think what evil creeps liberals would be if their plans to enfeeble the individual, exhaust the economy, impede the rule of law, and cripple national defense were guided by a coherent ideology instead of smug ignorance.
+- Everybody knows how to raise children, except the people who have them.
+- My life would have gone along perfectly well, politically speaking, if it hadn't been for girls.
+- Distracting a politician from governing is like distracting a bear from eating your baby.
+- The bar is set pretty low if you want to be a hip, accessible conservative.
+- It's better to make fun of yourself because you've always got someone around to make fun of, and they can't sue you.
+- There are a number of mechanical devices which increase sexual arousal, particularly in women. Chief among these is the Mercedes-Benz 380SL convertible.
+- All change is bad. But sometimes it has to be done.
+- China is trying to become America without democracy while America is trying to become France without cheese calories.
+- What is obnoxious about the motives of politicians - whatever those motives may be - is that politicians must announce their motives as visionary and grand.
+- In Hong Kong there is agglomeration beyond my fondest imaginings. The Kowloon district claims a population density four times that of New York City.
+- There's a love of rhetorical skill in the Muslim world. Osama bin Laden doesn't just go on tape cassettes and say, 'America sucks.' He recites poetry; he finds things that 'America sucks' rhymes with.
+- Funding for the original manned Voyager Mars Program was scratched in 1968, before humans had gotten out of Low Earth Orbit. Mid-'60s plans for a Venus fly-by with astronauts actually flying by it met the same fate.
+- The Nobel Peace Prize has always been a joke - albeit a grim one. Alfred Bernhard Nobel famously invented dynamite and felt sorry about it.
+- Popular culture has become engorged, broadening and thickening until it's the only culture anyone notices.
+- Space has always been confusing to politics.
+- Chinese economic development has cost many American workers their jobs. That's the price of progress.
+- Of all the American educational system's problems, none is more severe than the academic year beginning before Labor Day.
+- Neither liberal nor conservative politicians can resist the temptation to stand as mighty sequoias of rectitude amid the lowly underbrush of fundraising.
+- If you spend 72 hours in a place you've never been, talking to people whose language you don't speak about social, political, and economic complexities you don't understand, and you come back as the world's biggest know-it-all, you're a reporter. Either that or you're President Obama.
+- Simply because something is a populist movement doesn't make it either good or bad.
+- Russians not only vehemently despise blacks, they believe Africa begins at the Ukraine border.
+- 'You're stupid,' is not something even his most severe critics usually say to President Barack Obama.
+- The number of American presidential candidates varies with the sunspot cycle and the phases of the moon.
+- Fortunately, I'm married to someone who's a pretty excellent parent!
+- Like most sensible people, you probably lost interest in modern art about the time that Julian Schnabel was painting broken pieces of the crockery that his wife had thrown at him for painting broken pieces of crockery instead of painting the bathroom and hall.
+- Why can't death - if we must have it - be always glorious, as in 'The Iliad?'
+- I know quite a few fellow members of the news analysis and commentary business, and I have it from the highest-placed sources, on the record, that each and every one of our children is a genius.
+- Even Jimmy Carter can't be wrong all the time.
+- Jimmy Carter was - he still - he remains to this day America's most ex of ex-presidents. You just can't believe that we elected this doofus. He was a bright enough guy and sort of well-meaning. But he was about as prepared to be president of the United States as your goofy old uncle, you know, the one that memorises baseball statistics.
+- If death weren't around to 'finalize' the Darwinian process, we'd all still be amoebas.
+- To mistrust science and deny the validity of scientific method is to resign your job as a human. You'd better go look for work as a plant or wild animal.
+- Kuwait City is not gorgeous, actually, but it's got a kind of Epcot Center thing going for it. It's not pretty. But it's striking, I'll give it that. It's not as over-the-top as Abu Dhabi or Dubai. But nearly.
+- Politics is a necessary evil, or a necessary annoyance, a necessary conundrum.
+- Corporate corruption has ecological merits. It's helping to preserve that species known as Democrats - thought to be endangered as recently as the year 2000.
+- The whole melodrama of the Middle East would be improved if amnesia were as common here as it is in melodramatic plots.
+- Californians devised a system of electricity sales that ignored every dimension of the free market.
+- Head lice have their own animal-rights group, or may as well. The National Pediculosis Association doesn't exactly advocate letting lice live with dignity, but it does oppose pediculicidal treatments.
+- After all, what is your host's purpose in having a party? Surely not for you to enjoy yourself; if that were their sole purpose, they'd have simply sent champagne and women over to your place by taxi.
+- Liberals consider people to be nuisances.
+- If you talk to most businessmen, they'll say that what they do is for the public good, but you know they're just greedy, and consumers are just consuming for the sake of their own greed.
+- It's hard to be serious in life.
+- The 18,000 NASA employees are full of galactic talents and abilities and are ready to accomplish whatever they're directed to do.
+- One of the few benefits of being a journalist is that you're not in the Army.
+- Who, other than a crazy person, does anything besides hang up on a robo-call? Any call, any person, anywhere, under any circumstances.
+- Cleanliness becomes more important when godliness is unlikely.
+- Some day you will be wheeled in for a heart bypass operation, and a surgeon will be the person who is now behind the counter when you renew your car registration at the department of motor vehicles.
+- The perpetuation of slavery, the exile and extermination of American Indians, and the passage of Jim Crow laws weren't carried out at the bidding of a few malefactors of great wealth.
+- America is a meritocracy.
+- I grew up going to public school, and they were huge public schools. I went to a school that had 3,200 kids, and I had grade school classes with 40-some kids. Discipline was rigid. Most of the learning was rote. It worked.
+- We all know the types who listen to Pete Seeger songs; even Pete admits they aren't interesting.
+- You don't despair about something like the Middle East, you just do the best you can.
+- Tom DeLay may or may not have broken campaign finance laws, but he did his best to look like he was breaking them.
+- Earnestness is stupidity sent to college.
+- Seriousness is stupidity sent to college.
+- I've got a 1990 Porsche 911. It's just a Carrera, a very simple, straightforward little thing that goes like stink. I love it.
+- The District of Columbia is an extreme example of disconnect between financial input and educational outcome. Unfortunately, extreme is not the same as abnormal.
+- If there are three words that need to be used more in American journalism, commentary, politics, personal life... it's the magic words 'I don't know.'
+- In a free country, government is a dull and onerous responsibility. It is a parent-teacher conference.
+- Writing on a computer makes saving what's been written too easy. Pretentious lead sentences are kept, not tossed. Instead of sitting surrounded by crumpled paper, the computerized writer has his mistakes neatly stored in digital memory.
+- I don't think anybody's really been successful with theorizing about value or creating a price theory.
+- I spent a lot of time behind the Iron Curtain, and their cars were abysmal.
+- A 'farm' today means 100,000 chickens in a space the size of a Motel 6 shower stall.
+- The world is being run by irresponsible spoiled brats.
+- Democrats hate America being a world power because world power gives power to the nation instead of to Democrats.
+- In the Soviet Union, no industry went under until they all did.
+- My generation of Americans was the first to really care about racism and sexism, not to mention the I Ching, plus, of course, the Earth.
+- In theory, taxes should be like shopping. What I buy is government services. What I pay are my taxes.
+- People think the free market is a philosophy, they think that it is a creed. It is none of those things. Free market is a bathroom scale, it is a measuring tape, it's simply a measurement.
+- The great majority of Baghdad is a slum - a lot of it's new, but it's still slum. It's usually this concrete-block, one-room design with a door and a window, arranged one-up, one-down, often with a shop with nothing in it on the first floor, and then a one-room apartment above it. There's street after street after street of that stuff.
+- I don't watch much television.
+- The body is forever teaching us lessons. There are all sorts of things that we can't do, shouldn't do, had better not do very often or do for too long as we get older. The body makes its presence known.
+- I'm really tired of virtue.
+- I was never a Democrat. I went from Republican to Maoist and then back again.
+- Democrats hate stay-at-home spouses, no matter what gender or gender preference.
+- The divorce rate in 1946 was higher than it ever had been and as high as it ever would be until the '70s. The reason was that prior relationships had not endured the strain of war.
+- When I board an airplane these days, all the middle-aged men are dressed like me - when I was an 8-year-old. They're in shorts and T-shirts. And it's not just on airplanes. It's in business offices, teachers' lounges, and churches.
+- If government were a product, selling it would be illegal.
+- The good news is that, according to the Obama administration, the rich will pay for everything. The bad news is that, according to the Obama administration, you're rich.
+- The anti-individualist enemies that Ayn Rand battled are still the enemy, but they've shifted their line of attack. Political collectivists are no longer much interested in taking things away from the wealthy and creative.
+- I just wasn't cut out to be a Chinese Tiger Mom. I'm more of an Irish Setter Dad.
+- Death is so important that God visited death upon his own son, thereby helping us learn right from wrong well enough that we may escape death forever and live eternally in God's grace.
+- I'm old enough to remember when the air over American cities was a lot dirtier than it is now.
+- Freedom is not empowerment. Empowerment is what the Serbs have in Bosnia. Anybody can grab a gun and be empowered.
+- Writing is agony. I hate it.
+- A deadly sins addendum is long overdue. Life has changed since Pope Gregory the Great scribbled his initial list in the sixth century.
+- For decades in America, there has been an effort to ensure that the rights of those who are not sane are the same as the rights of those who are.
+- Opinions of language are as interesting as opinions of arithmetic.
+- Supposedly, summer vacation happens because that's when the kids are home from school, although having the kids home from school is no vacation. And supposedly the kids are home from school because of some vestigial throwback to our agricultural past.
+- Political leaders are expert at saying nothing.
+- Some people have facts; these can be proven. Some people have theories; these can be disproven. But people with opinions are mindless and have their minds made up about it.
+- You're not a baby boomer if you don't have a visceral recollection of a Kennedy and a King assassination, a Beatles breakup, a U.S. defeat in Vietnam, and a Watergate.
+- President Bush said that if illegal immigrants want citizenship, they'd have to do three things: pay taxes, hold meaningful jobs, and learn English. Bush doesn't meet those qualifications.
+- I spend my days kneeling in the muck of language, feeling around for gooey verbs, nouns, and modifiers that I can squash together to make a blob of a sentence that bears some likeness to reason and sense.
+- Little islands of human happiness, peace, and prosperity are so exceptional at this point in history that I'm not even sure we can draw lessons from them.
+- In Toledo, people grow out. Out to the suburbs. Out to the parts of America where the economy is more vigorous. And all too often, out to 48-inch waistbands.
+- Never wear anything that panics the cat.
+- Abstract anger is great for rhetorical carrying on. You can go on endlessly about the post office, but it doesn't mean you're mad at your mailman.
+- Infant mortality and life expectancy are reasonable indicators of general well-being in a society.
+- Guns are the ultimate bulwark against government misbehavior.
+- Politics is the one field you don't age out of.
+- Don't send funny greeting cards on birthdays or at Christmas. Save them for funerals, when their cheery effect is needed.
+- There is no virtue in compulsory government charity, and there is no virtue in advocating it. A politician who portrays himself as 'caring' and 'sensitive' because he wants to expand the government's charitable programs is merely saying that he's willing to try to do good with other people's money.
+- Children must be considered in a divorce considered valuable pawns in the nasty legal and financial contest that is about to ensue.
+- If ever there were a place where people not only tend not to face economic facts, but it's almost their purpose not to face economic facts, it's Washington.
+- I'm fascinated by political enthusiasm.
+- There's one more terrifying fact about old people: I'm going to be one soon.
+- Accuse a person of breaking all Ten Commandments, and you've written the promo blurb for the dust cover of his tell-all memoir.
+- I like to argue with the radio.
+- Libertarianism is a way of measuring how the government and other kinds of systems respect the individual. At the core of libertarianism is the idea that the individual is sacrosanct and that anything that's done contrary to the well-being of the individual needs some pretty serious justification.
+- I had always thought of Egypt as a rather secular country. And I think it is, but people are quite observant of the strictures of Ramadan.
+- The idea of a world where all people are alike - in wealth or in anything else - is a fantasy for the stupid.
+- If you ask the government to solve all of your problems, it's a bit like asking your wife to cook and clean, to raise the children, to hold down a second job to help with the family finances, to keep her parents happy and well and keep your parents happy and well, and to also - to do the lawn and clean the gutters.
+- War expands government powers. The trouble is that, when the war goes away, the government powers do not.
+- Just because a subject is serious doesn't mean it doesn't have plenty of absurdities.
+- I have never been to a museum in Hong Kong, or a movie or a play. I've never gone club-hopping. I've never taken the tram to Victoria Peak.
+- Toledo is better than exciting, it's happy. Because nothing is more conducive to unhappiness than taking yourself seriously, and taking yourself seriously is difficult when you're baseball team is the Mud Hens.
+- College professors used to be badly paid and worth it. Colleges used to be modest institutions; they should go back to being modest institutions.
+- The Clinton administration launched an attack on people in Texas because those people were religious nuts with guns. Hell, this country was founded by religious nuts with guns. Who does Bill Clinton think stepped ashore on Plymouth Rock?
+- Everybody is xenophobic to an extent.
+- The inherent purpose of American government is let people seek their own goals and to encourage them to be responsible on the various adventures they have on their way to those goals, good, bad, and otherwise.
+- Why do elites hate the poor? It's xenophobia. They don't know any poor people - except their off-the-books Brazilian nanny and illegal immigrant cleaning lady from Upper Revolta who don't speak English.
+- All previous populist movements were demanding things from governments, whereas the Tea Party is saying, 'Give us less, go away.' That's heartening to see.
+- I like to have interesting things to write about. And when one says something is 'interesting,' one almost always means 'bad.'
+- Gun violence has cost us too many political leaders, and hardly ever the worst ones.
+- Northwest Ohio is flat. There isn't much up. The land is so flat that a child from Toledo is under the impression that the direction hills go is down. Sledding is done down from street level into creek beds and road cuts.
+- Family love is messy, clinging, and of an annoying and repetitive pattern, like bad wallpaper.
+- In its worse forms, conservatism is a matter of 'I hate strangers and anything that's different.'
+- I've only been to New Zealand once, about 1989. It was incredibly beautiful, kind of like the ideal of where I live in New England - all that and then some - but I can't say I was there long enough to get any very clear idea.
+- My dad died when I was young; my mom remarried with more haste than sense to a fellow... he wasn't evil or anything, but he was worthless.
+- Crazy old people are our entire source of polling information.
+- The young are adept at learning, but even more adept at avoiding it.
+- On inspection, Gaudi's architecture isn't whimsical at all.
+- The library, with its Daedalian labyrinth, mysterious hush, and faintly ominous aroma of knowledge, has been replaced by the computer's cheap glow, pesky chirp, and data spillage.
+- America's grossly unfair tax system won't lead to class war. Or, if it does, the war will be brief.
+- America has to act. But, when America acts, other nations accuse us of being 'hegemonistic', of engaging in 'unilateralism', of behaving as if we're the only nation on earth that counts. We are.
+- The idea of capitalism is not just success but also the failure that allows success to happen.
+- Mistreatment of al Qaeda members and their friends and hangers-on is something I number among my moral concerns. But it's number 1,000,000,001.
+- Humans are the only animals that have children on purpose with the exception of guppies, who like to eat theirs.
+- No humorist is under any obligation to provide answers and probably if you were to delve into the literary history of humour it's probably all about not providing answers because the humorist essentially says: this is the way things are.
+- Some people think that welfare reform should have hurt Bill Clinton with black voters.
+- Most people sort of enjoy going to work because of the socialisation, a chance to flirt with co-workers and so on, but actually hate the job they do.
+- Demolishing pretensions, especially worthy ones, is a hallmark of the baby boom.
+- I am unboreable in the great outdoors.
+- If you want to join the Republican party, they have to let you in. There's nothing they can do about it. I mean, if Republicans will take Al D'Amato, they'll take anybody.
+- Never be unfaithful to a lover, except with your wife.
+- Fascism is very much a mob movement.
+- You can't destroy America by destroying our elite. Think about America's elite. Think about it down through history. Destroy our elite, and about half the time, you're doing us a favor.
+- Democrats hate success.
+- Kids are disorganized.
+- We need a government, alas, because of the nature of humans.
+- The problem with public school is not overcrowding in the classroom. The problem is not teacher unions. The problem is not underfunding or lack of computer equipment. The problem is your damn kids.
+- Explosion of positive rights started in 1932 with the election of Roosevelt.
+- Detroit's industrial ruins are picturesque, like crumbling Rome in an 18th-century etching.
+- New Hampshire polling data are unreliable because, when you call the Granite State's registered Republicans and independents in the middle of dinner and ask them who they're going to vote for, they have a mouth full of mashed potatoes and you can't understand what they say.
+- Term limits aren't enough. We need jail.
+- Jeans fit the mature male one of two ways, both dirigible in nature. You make a public impression that's either Hindenburg or Goodyear blimp.
+- The idea of a stag hunt evokes chivalry - knights in jerkins and hose, ladies on sidesaddles with wimples and billowing dresses, a white stag symbolizing something-or-other, and Robin Hood getting in the way. An actual stag hunt is more like a horseback meeting of a county planning commission.
+- Gay marriage acceptance is happening in the blink of an eye.
+- Arab-led Islamic fundamentalism destabilizes nations from Algeria to the Philippines.
+- All business is capitalistic. You require capital for any sort of business endeavour.
+- There isn't much room for an outsider point of view in print any more.
+- As a longtime former resident of 15 years in Washington, I wish that everybody would stay off the Mall with their political cause so that we can get out there, you know, and play flag football or Frisbee, or walk the dog or something - you know, which is, you know, what the National Mall should be for, in my personal opinion.
+- Gossip is what you say about the objects of flattery when they aren't present.
+- Health care's not about insurance! Health care's about getting treatment.
+- I understand Twitter has become popular among politicians. This technology allows them to stay in perpetual contact with their constituents. The electorate now has instant information about what politicians have been up to.
+- A friend of mine at the American Enterprise Institute says there are two parties: the silly party and the stupid party. I'm too old for the silly party, so I had to join the stupid party.
+- We have the British motor industry as a role model for what happens when you try to save an industrial dinosaur. Britain was the first country to industrialise and the first to de-industrialise. We should learn from this.
+- When the government runs out of lenders, it can do something that households are forbidden to do: print money.
+- Zero-sum thinking is an obsession of mine, but mostly in economics.
+- Detroit is beautiful - though you probably have to be a child of the industrial Midwest, like me, to see it.
+- Everybody in the Middle East wants to explain why they're right.
+- You're never going to read 'The Wealth of Nations,' and you shouldn't, really. It's 900 pages.
+- Political systems are run by self-selecting politicians. We don't draft people; it's not jury duty.
+- The best and brightest don't go into politics. The best and brightest are at Goldman Sachs.
+- There is only one basic human right, the right to do as you damn well please. And with it comes the only basic human duty, the duty to take the consequences.
+- When I was fifteen, I dreamed of living in the big city, as many a young person does if he is artistic and sensitive. By 'artistic and sensitive' I mean short, skinny, unkissed, bad at sports, and carrying a C average in high school.
+- Soldiers are not policemen, and it's very unfair, even for those soldiers who have some police training, to burden them with police duties. It's not what they're trained for, or equipped for.
+- The French are a smallish, monkey-looking bunch and not dressed any better, on average, than the citizens of Baltimore.
+- My wife and I both come from Irish families. There are two kinds of Irish families: the hitting kind and the kidding kind. If you're fortunate - and both of us are - you come from the kidding kind of Irish family.
+- I live in rural New Hampshire, and we are, frankly, short on people who are black, gay, Jewish, and Hispanic. In fact, we're short on people. My town has a population of 301.
+- My whole family can talk. They are all car salesmen. They are all funny.
+- The budget doesn't have much control over the government. Then again, the government doesn't have much control over the budget.
+- Hubris is one of the great renewable resources.
+- A lot of newspaper columns used to be written in a rat-a-tat-tat, fast-paced style - and they tended to be funny. They were a little relief from the grimmer, grayer parts of the newspaper, and one of the best people at doing this was Will Rogers.
+- The Bible is very clear about one thing: Using politics to create fairness is a sin.
+- I write because I like to make things and the only things I am good at making things with are words.
+- I rarely meet a politician that I don't like personally. They are generally well endowed with charm. Therein lies the danger.
+- The only advantage to being a middle-aged man is that when you put on a jacket and tie, you're the Scary Dad. Never mind that no one has had an actually scary dad since 1966. The visceral fear remains.
+- Israel is slightly smaller than New Jersey. Moses in effect led the tribes of Israel out of the District of Columbia, parted Chesapeake Bay near Annapolis, and wandered for forty years in Delaware.
+- When you're a war correspondent, the reader is for you because the reader is saying, 'Gee, I wouldn't want to be doing that.' They're on your side.
+- Disney's Tomorrowland is deeply, thoroughly, almost furiously unimaginative.
+- Adam Smith's huge failure was the fact that he did not foresee the industrial revolution.
+- The difference between American parties is actually simple. Democrats are in favor of higher taxes to pay for greater spending, while Republicans are in favor of greater spending, for which the taxpayers will pay.
+- Raining on parades requires no skill or effort on the part of a politician.
+- The 1960s was an era of big thoughts. And yet, amazingly, each of these thoughts could fit on a T-shirt.
+- Adam Smith pointed out that there were three things that make us more prosperous, in a general sort of way: freedom to pursue our own self-interest; specialization, which he called division of labor; and freedom of trade.
+- Are you a Democrat because you're a union member? Then why, after eight years of Bill Clinton, does some Chinese guy in Guangdong province have your job?
+- Global warming is a fact. Now it's up to liberals to make it a reality. Hence there is crucial importance in preventing powerful, greedy free market forces from getting in the way of worsening storms and rising sea levels. The Kyoto Accord is a good first step.
+- Feeling good about government is like looking on the bright side of any catastrophe. When you quit looking on the bright side, the catastrophe is still there.
+- Upbeat is for people who want to feel good about their cause: the reformers, the progressives, the revolutionaries, the utopians, the collectivists, and the rest of the altruistic scum of the earth. Why do these people want to feel good? They want to feel good in order to convince themselves that they are good.
+- Freedom is for fun.
+- I think it's always easy to be sympathetic to parts of the government in detail; in their concrete manifestations. Because obviously, we don't have government for no reason.
+- We will win an election when all the seats in the House and Senate and the chair behind the desk in the Oval Office and the whole bench of the Supreme Court are filled with people who wish they weren't there.
+- What Enron was doing, what caused investors to embrace it in a rapture of baffled awe, was hiding debt.
+- There are 1.3 billion people in China, and they all want a Buick.
+- Love can never be fully explained.
+- When buying and selling are controlled by legislation, the first things to be bought and sold are legislators.
+- A U.S. dollar is an IOU from the Federal Reserve Bank. It's a promissory note that doesn't actually promise anything. It's not backed by gold or silver.
+- The baby boomers' politics have covered a wide band of silliness, from the Weather Underground to the Timothy McVeigh types. The great majority of us are well in the middle of that spectrum, but still, there's been both leftie silliness and right-wing silliness.
+- Charles McCarry is the best modern writer on the subject of intrigue - by the breadth of Alan Furst, by the fathom of Eric Ambler, by any measure.
+- The First Amendment only says 'Congress shall make no law respecting an establishment of religion.' It can disrespect all it wants.
+- A Kindle returns us to the inconvenience of the scroll, except with batteries and electronic glitches. It's as handy as bringing Homer along to recite the 'Iliad' while playing a lyre.
+- Excessive speed and quantity are, like chattiness and digression, besetting sins of cyber-assisted authorship.
+- The purpose of sports - even foreign sports - is not to bore people.
+- Political discourse has become so rotten that it's no longer possible to tell the stench of one presidential candidate from the stink of another.
+- Network television has been attempting to lure viewers for years with its low-interest programming only to have those viewers discover later that their brains are bankrupt.
+- Horses and horsepower alike are about status and being cool.
+- Of course, no one wants to ban the vote. Voting should remain available for sporting and recreational purposes. But certain types of votes clearly should be curtailed - 'assault votes,' for example, in which the only purpose of the vote is to harm others.
+- The U.S. tax code was written by A students. Every April 15, we have to pay somebody who got an A in accounting to keep ourselves from being sent to jail.
+- If you are young and you drink a great deal it will spoil your health, slow your mind, make you fat - in other words, turn you into an adult.
+- I have no idea if some societies, anthropologically speaking, aren't really suited for democracy. I don't think that's true.
+- No doubt the ridiculous politicians are right to like politics. They have found careers in which success can be achieved by being ridiculous. Imagine Jimmy Carter or George W. Bush rising to the top of any other profession.
+- The Communist bloc of old was a study in the failure of failure. Losers in the Soviet economy were the people at the end of the long lines for consumer goods. Worse losers were the people who had spent hours getting to the head of the line, only to be told that the goods were unavailable.
+- Rahm Emanuel is, we are almost certain, a vampire.
+- There is a simple rule here, a rule of legislation, a rule of business, a rule of life: beyond a certain point, complexity is fraud. You can apply that rule to left-wing social programs, but you can also apply that rule to credit derivatives, hedge funds, all the rest of it.
+- Anyway, no drug, not even alcohol, causes the fundamental ills of society. If we're looking for the source of our troubles, we shouldn't test people for drugs, we should test them for stupidity, ignorance, greed and love of power.
+- Once you've built the big machinery of political power, remember you won't always be the one to run it.
+- Richard Nixon was the best thing that ever happened to journalism. I mean this guy was wonderful. Just when you thought he could get no worse, he got worse.
+- In our brief national history we have shot four of our presidents, worried five of them to death, impeached one and hounded another out of office. And when all else fails, we hold an election and assassinate their character.
+- Woodstock had a tremendous impact on American artistic life.
+- There are a number of Americans who shouldn't vote. The number is 57 percent, to judge by the combined total of Clinton and Perot ballots in the 1996 presidential election.
+- Now, do I think the baby boomers tend to be self-absorbed? I do.
+- Soccer matches should be something special, something people eagerly look forward to, something that brightens life.
+- I live in New Hampshire. We're in favor of global warming. Eleven hundred more feet of sea-level rises? I've got beachfront property. You tell us up there, 'By the end of the century, New York City could be underwater,' and we say, 'Your point is?'
+- My ignorance is widespread.
+- Lyndon Johnson faced some clear moral issues.
+- Californians are people who insist on growing their own vegetables, but they won't dig up the pretty lawn, won't plant anything for fear of getting dirty, and they use fragrant bath salts from The Body Shop instead of smelly compost.
+- Globalization is simply opening the free marketplace to encompass the entire world.
+- Governments have monopolies on certain things, like eminent domain and deadly force.
+- I had a confused early hippie phase, which was like a cafeteria tray of sloppy, semi-Marxist thoughts, absorbed second-hand.
+- I believe in God. God created the world.
+- If you think health care is expensive now, just wait 'til it's free.
+- No industry in living memory has collapsed faster than daily print journalism.
+- Liberals have invented whole college majors - psychology, sociology and women's studies - to prove that nothing is anybody's fault.
+- You know your children are growing up when they stop asking you where they came from and refuse to tell you where they're going.
+- You can't get rid of poverty by giving people money.
+- Like it or not, I've come to appreciate soccer. Any kid can play, which fits with the inclusive agenda of progressive schools. Although the corollary to 'any kid can play' is that every kid must play because there is an iron grip to the warm hug of progressive inclusionism.
+- Harvard is the home of American ideas.
+- Some taxpayers may object to a print journalism bailout on the grounds that it mostly benefits the liberal elite. And we can't blame taxpayers for being reluctant to subsidize the reportorial careers of J-school twerps who should have joined the Peace Corps and gone to Africa to 'speak truth to power' to Robert Mugabe.
+- Computers seem a little too adaptively flexible, like the strange natives, odd societies, and head cases we study in the social sciences. There's more opposable thumb in the digital world than I care for; it's awfully close to human.
+- Pete Seeger is a modest, unassuming, cheerful, and kind-natured man. He's a good folk singer, if you can stand folk singing. And he's such an excellent banjo player that you almost don't wish you had a pair of wire cutters.
+- Arguing, in the sense of attempting to convince others, has gone out of fashion with conservatives.
+- The problem in Afghanistan is really not so much land as water. It's a dry country with ample amounts of water running through it, but not to good enough effect.
+- I've never been able to get it straight about what these people who are worried about the trade deficit are worried about.
+- Satire doesn't effect change.
+- As I get older, all sorts of things become less funny. Once one has children, any cruelty involving children becomes far less amusing than when one was at the mercy of one's friends' and relatives' children.
+- Public schools helped create the idea of America and inculcate Americans with a few rudiments of knowledge. To judge by that very American item, the Internet, a few rudiments is all anyone cares to have.
+- Children live in the only successful Marxist state ever created: the family. 'From each according to his ability, to each according to his need' is the family's practice as well as its theory. Even with today's scattershot patterns of marriage and parenting, a family is collectivist to a more than North Korean degree.
+- The importance of local governance may not be obvious to an America accustomed to treating city and state downfalls with doses of federal comeuppance. Sometimes there's a reason for that - the Civil War. More often, all reasoning seems absent - No Child Left Behind.
+- Liberals want to live downtown. All over America - in New York, San Francisco, Chicago, Georgetown - there are crowds of liberals living in the gritty, ugly, dirty neighborhoods sensible people are trying to flee.
+- Politics is - once in a while - a forum for serious debate about political philosophy.
+- One of the enduring problems with certain societies in the world - and this is certainly true of a lot of places in the Middle East - is that the capacity for self-governance and self-organizing just isn't there. It has to do with history.
+- We did not become libertarians because we are altruists.
+- Americans are good at pursuing happiness. And the Americans who pursue happiness most diligently show that we're also good at running it down and killing it.
+- Philosophy was once considered science.
+- I think it's been hard for people to understand how Islam can be a good religion, and yet the Islamists are evil. Those of us who have had experience with Islam understand this, just as we understand the difference between snake handlers and people going to church on Sunday morning.
+- Ending wars is very simple if you surrender.
+- The beauty of democracy is that an average, random, unremarkable citizen can lead it.
+- There's something about Marxism that brings out warts; the only kind of growth this economic system encourages.
+- We Americans, who invented traffic, are always being startled by the forms into which it has evolved around the world.
+- Our regulatory bodies strive to create honest dealings, fair trades, and a situation in which no one has an advantage over anyone else. But human beings aren't honest. And all trades are made because one person thinks he's getting the better of the other, and the other person thinks the same.
+- The average IQ in America is - and this can be proven mathematically - average.
+- As a former writer for the 'National Lampoon,' I've probably contributed to the sea of sarcasm in which we live.
+- Obama, in pursuit of power, has been as greedy and irresponsible as any Wall Street tycoon in pursuit of money.
+- The problem, when comparing contemporary television to television in 1974, is that TV has become not just bad but sad.
+- I realised the bohemian life was not for me. I would look around at my friends, living like starving artists, and wonder, 'Where's the art?' They weren't doing anything. And there was so much interesting stuff to do, so much fun to be had... maybe I could even quit renting.
+- Government proposes, bureaucracy disposes. And the bureaucracy must dispose of government proposals by dumping them on us.
+- The Tea Party has definitely increased political involvement, not only among Tea Party members but among people who oppose the Tea Party members. It's been a general stimulus.
+- I'm too tough and sensitive to have to have some pubescent twerp with his mom's earring in his tongue, who combs his hair with Redi-Whip and has an Ani DiFranco tattoo on his shin, come show me how a computer works.
+- My working hypothesis is that stupidity in popular culture is a constant. Popular culture cannot get more stupid.
+- Agriculture is a business that has been up to its bib overalls in politics since the first Thanksgiving dinner kickback to the Indians for subsidizing Pilgrim maize production with fish head fertilizer grants.
+- Something that confirms all fears and many conspiracy theories about government is finding out what our elected representatives would put into law if they could.
+- I don't even know which end of a computer one is supposed to gaze into. I've never used a computer.
+- Banning paper and plastic and making shoppers carry their groceries home in their mouths like dogs is just the thing to make a little tin humanist in the Obama West Wing think he's admiral of the Uzbek Navy.
+- Southern California is a nice place, if you could cut out the show-business cancer. It just keeps spreading.
+- I do have to travel a lot for speaking engagements.
+- Never fight an inanimate object.
+- There's a certain kind of behavior in the Arab world that, to me, resembles the way young men behave when there is no significant influence from women in their lives.
+- America is not doctrinaire. It's hard for an American politician to come up with an ideological position that is permanently unforgivable.
+- The two most frightening words in Washington are 'bipartisan consensus.' Bipartisan consensus is when my doctor and my lawyer agree with my wife that I need help.
+- Thank you, Occupy Wall Street. With your vivid example of anticapitalist squalor, I've been able to convince all three of my children to become investment bankers.
+- Affirmative action makes employers think, 'Black woman nuclear physicist? Hah! Probably let her into Harvard 'cause they were looking for a twofer. Bet she got C's in high school practical math. Give her a job in personnel.'
+- People are not ants or bees. We do not reason or love or live or die collectively.
+- The whole idea of our government is this: If enough people get together and act in concert, they can take something and not pay for it.
+- I think the Baby Boom has enjoyed itself, maybe sometimes a little too much, and we're continuing to enjoy ourselves, maybe a little too much.
+- Giving money and power to government is like giving whiskey and car keys to teenage boys.
+- We journalists don't have to step on roaches. All we have to do is turn on the kitchen light and watch the critters scutter.
+- The prevalence of mobile homes does not correspond with the prevalence of poverty, or with much of anything else. All that can be confidently said about America's mobile homes is that they are massed in places where you wouldn't want to be in one. Florida's mobile homes lie athwart the path of hurricanes. Georgia's are in the way of tornadoes.
+- There are plenty of problems in the world, and doubtless climate change - or whatever the currently voguish phrase for it all is - certainly is one of them. But it's low on my list.
+- The poor are an especially important resource for innovation when they have the bravery and pluck to get out of the poor places in which they're living.
+- I like fiction and the kind of history that gives the grace and flavor of fiction to the past. No bloviation on current events, please. I can write that junk myself.
+- It could be that all awful dictators are frustrated artists - Mao with his poetry and Mussolini with his monuments. Stalin was once a journalistic hack, and I can personally testify to how frustrated they are. Pol Pot left a very edgy photo collection behind. And Osama seems quite interested in video.
+- The subculture of felons is in great vogue among adolescents. Enron, WorldCom, Tyco, and so forth allow us Republicans to say to America's young people, 'We be thugs.' The GOP may capture the youth vote at last.
+- In Israel, waves of anger and fear circulate all the time, but so do jokes and gossip and silky evening breezes. So, too, in America.
+- Ideology, politics and journalism, which luxuriate in failure, are impotent in the face of hope and joy.
+- Politics won't allow for the truth.

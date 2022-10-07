@@ -1,0 +1,49 @@
++++
+author = "William Glasser"
+title = "William Glasser Quotes"
+quotes_len = "43"
+description = "the best 43 William Glasser Quotes"
++++
+- To counter the avoidance of intellectual challenge and responsibility, we must reduce the domination of certainty in education.
+- Effective teaching may be the hardest job there is.
+- What students lack in school is an intellectual relationship or conversation with the teacher.
+- The faster you go, the more students you leave behind. It doesn't matter how much or how fast you teach. The true measure is how much students have learned.
+- I think it is totally wrong and terribly harmful if education is defined as acquiring knowledge.
+- When we depress, we believe we are the victims of a feeling over which we have no control.
+- There is plenty of competition in a Glasser Quality School in that there is winning but no losing.
+- No human being will work hard at anything unless they believe that they are working for competence.
+- Education is the process in which we discover that learning adds quality to our lives. Learning must be experienced.
+- If everyone could learn that what is right for me does not make it right for anyone else, the world would be a much happier place.
+- Sex is on the minds of most people, especially those who shouldn't be having it.
+- This is at the heart of all good education, where the teacher asks students to think and engages them in encouraging dialogues, constantly checking for understanding and growth.
+- When we label anyone 'bad', we will have more trouble dealing with him than if we could have settled for a lesser label.
+- Without pay, no human being will work up to their ability if he or she is not cared for and respected.
+- Running a school where the students all succeed, even if some students have to help others to make the grade, is good preparation for democracy.
+- Caring for but never trying to own may be a further way to define friendship.
+- Everybody needs one essential friend.
+- They have this big book called the 'DSM-IV,' you know, that is supposedly written about crazy people, but I think it is a book that is written by crazy people!
+- Prior to being allowed to enter the profession, prospective teachers should be asked to talk with a group of friendly students for at least half an hour and be able to engage them in an interesting conversation about any subject the prospective teacher wants to talk about.
+- We are driven by five genetic needs: survival, love and belonging, power, freedom, and fun.
+- If we had in this room a hundred teachers, good teachers from good schools, and asked them to define the word education, there would be very little general agreement.
+- To be depressed or neurotic is passive. It happened to us; we are its victim, and we have no control over it.
+- What happened in the past that was painful has a great deal to do with what we are today, but revisiting this painful past can contribute little or nothing to what we need to do now.
+- Since there will be no one left to talk peace after the next war, it makes good sense to break with tradition and hold the peace conference first.
+- It is almost impossible for anyone, even the most ineffective among us, to continue to choose misery after becoming aware that it is a choice.
+- If you improve education by teaching for competence, eliminating schooling, and connecting with students, the test scores will improve.
+- We can teach a lot of things, but if the teacher can't relate by talking to a group of friendly students, he'll never be a competent teacher.
+- In a Glasser Quality School there is no such thing as a closed book test. Students are told to get out their notes and open their books. There is no such thing as being forbidden to ask the teacher or another student for help.
+- Good or bad, everything we do is our best choice at that moment.
+- Using no control and using humor will build a relationship and make a dent to where the client puts the counselor in their quality world and then begins to relate and seek out the counselor. Effective therapy begins with the acceptance of the therapist into the client's quality world.
+- I think education is both using and improving knowledge and that changes the whole picture.
+- We almost always have choices, and the better the choice, the more we will be in control of our lives.
+- There are only two places in the world where time takes precedence over the job to be done. School and prison.
+- Too many of us fail to fulfill our needs because we say no rather than yes, or perhaps later in life, yes when we should say no.
+- As long as acquiring knowledge is the educational goal of schools, educational opportunities will be limited, as they are now, to affluent families.
+- You can acquire a lot of knowledge without ever going to school.
+- Told that the passing grade is a B or competence and that we will help you to get there, students do competent work. The lowest passing grade in the real world is competence. Why do schools accept so much less?
+- Don't marry someone you would not be friends with if there was no sex between you.
+- We don't focus as much in schools on educational knowledge which requires thinking and application, as we do on acquiring facts.
+- If you want to change attitudes, start with a change in behavior.
+- Every single major push in education has made it worse and right now it's really bad because everything we've done is de-humanizing education. It's destroying the possibility of the teacher and the student having a warm, friendly, intellectual relationship.
+- We can pay teachers a hundred thousand dollars a year, and we'll do nothing to improve our schools as long as we keep the A, B, C, D, F grading system.
+- We may be up against a stone wall, but we don't have to bloody our heads against it unless we choose to.

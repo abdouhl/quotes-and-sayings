@@ -1,0 +1,82 @@
++++
+author = "Ving Rhames"
+title = "Ving Rhames Quotes"
+quotes_len = "76"
+description = "the best 76 Ving Rhames Quotes"
++++
+- I like to say that I didn't choose acting - acting chose me.
+- I try to allow the spirit of the character to live through me. That's the only way I know how to approach acting. I have to live it.
+- I don't need dialogue to convey emotion or thoughts to my audience.
+- I spent three days with Don King, and I interviewed 45 people. I studied his speech, his mannerisms. He invited me to a couple of fights, and I watched him.
+- The more versatile you make yourself, the more work you get. Training makes you more versatile and ultimately gets you more work. Julliard taught me that.
+- Entertainment is needed, and so I do think escapism is needed.
+- Don King is as American as apple pie. He is America.
+- People often think I've played the villain more times than I have.
+- I'm a God-fearing man, and I know the only reason why I am here going from poverty to where I am now is God has His hand on my life. I tell people, 'I didn't choose acting; God chose me to act.'
+- Quite honestly I never had a desire to be an actor. I tell people, 'I did not choose acting; acting chose me.' I never grew up wanting to be an actor. I wanted to play football.
+- I think God has blessed each of us with at least one gift. So I think it's a matter of do we find it within our lifetime.
+- Since God is the foundation of my life, anything that streams from that can only be positive.
+- You get Don King's point of view in what is almost a Shakespearean, classical technique. He comes across almost like a lovable rogue, like Iago in 'Othello' or Richard III. He's doing all these bad things, but I kind of like him. It's like 'Pulp Fiction': Everybody's a bad guy, yet you like them.
+- Since I graduated college, all I have ever done for a living was acting.
+- I was more interested in playing sports than acting. I didn't take acting too seriously until the end of my junior year.
+- There's really not that much difference between you and I. And my name really doesn't matter. Hopefully, my heart and my spirit matters to you. Hopefully.
+- How do you cut off the human side and just maintain being professional? So what I've done is I've incorporated that with Kojak - there's times when he allows the human condition, the human experience, to integrate into him as a professional.
+- When I think of the trials and tribulations that black men go through in America and that black artists went through, I feel very privileged.
+- You can feel I am whatever you want to feel I am. God knows who I am, and I know who I am.
+- I'm from New York, and yet I've done only one film executive-produced by Spike Lee and have never done a film that Spike Lee directed. I've never done a film that Keenan Wayans has directed, or Bill Duke.
+- Snorkeling the Great Barrier Reef, I saw something - I don't know what it was to this day. My mind couldn't relate to what it was... If I saw it and knew it was a shark, I wouldn't be as afraid, but I saw something that looked prehistoric, and I haven't been snorkeling since.
+- Using the Africanist model, each generation should take the family name to a higher place. My father's folks were sharecroppers in South Carolina. He went to Harlem. They were still poor, but they moved up. If my parents didn't do this and offer me this background, I wouldn't be here.
+- I've always been taught to just play the truth of the situation. If comedy comes out of that, or drama, whatever comes out of it, at least I'm playing the truth of the moment-to-moment reality.
+- I graduated college in 1983, so that's 32 years, and all I've done for a living is act or commercials or voiceovers. So I have nothing to complain about.
+- I saw that crime pays, but I never got involved in crime.
+- I find it so strange that I throw people off-center.
+- I think there's so much we don't know and the unknown in the ocean; every 10 years or so, we find some fossil that's been there before mankind.
+- Rottweilers are victims of a stereotype. They're not that bad.
+- I can always do theater; I can do Ibsen, I can do Macbeth, I can do Chekhov, I can do Moliere, Othello, I can do Richard III.
+- I don't know if I hadn't grown up poor, and in the neighborhood I did, if I would have had that much to bring to my art form. I call upon my past with characters.
+- I grew up in Harlem in New York, very rough, urban environment, and so what I found is that, if I can have kids travel to different places, countries, areas, it can expand their minds.
+- God is putting me in a position to affect people.
+- Are you intimidated by me? Because if you're intimidated by me, that's something you'll have to deal with.
+- The character of the computer whiz is not one that would normally be associated with me.
+- It's really how you deal with people. Do people respect you? Are you honest with people even if it's something they don't want to hear? Anyone in Hollywood will tell you I'm extremely up front and honest almost to a fault.
+- A lot of times, scripts are written so the character is all one way. Even with 'Bringing Out the Dead,' the character was written a little more generic.
+- 'Mission: Impossible' is fun. But for myself as an artist, I'm really more concerned with the human condition, the human experience, especially from an African American point of view.
+- I'm the spokesman for ADT, and ADT, brother, pays better than most actors make on film.
+- Most American actors are taught the Stanislavsky method... Method acting, but I really think that as an actor you have to develop what works for you. There is really not one way of doing anything. There are many ways of achieving the same goal.
+- I saw how, when my brother smoked reefer, it made my mother cry. He was 16 at the time. And I saw that she broke down and cried. I never wanted to hurt my mother, so I kept away from drugs.
+- Really, if you get in the ring and box with someone for real, I don't think it is a sport. As far as professional fighters, you are literally putting your life on the line.
+- I never grew up thinking I wanted to be a quote-unquote star or anything. My thing was just feeling blessed to be able to make my living acting.
+- Miss Goodblatt would call on me to read. She said I had a talent. So on a whim, I auditioned for the High School of Performing Arts in Manhattan.
+- I really feel that there are things in the ocean that we have no idea about.
+- My dogs are family dogs.
+- I was never a struggling actor, for which I feel very blessed.
+- All I want and all I even ask of people in Hollywood is look, just be honest with me. Please don't lie to me. Whatever the situation is, be honest with me.
+- I grew up in a poverty-stricken neighborhood, but I didn't really know I was a deprived, poverty-stricken child until the media made me aware of it.
+- I think quite a bit of organized religion has become big business. Jesus Christ never sold the word of God. He never gave a sermon and then said, 'For $8.99, you can buy the CD.'
+- My wife is a former homicide detective, LAPD. The wonderful thing that I was able to capture is my wife's experiences from human and professional, and how do you deal with some of the atrocities that happen in L.A. and not bring them home.
+- You don't have to make, you know, $3 Million dollars a movie, or $20 Million dollars a movie, but if you make a living doing what you love doing, then that's success to me.
+- I grew up in Harlem, and the kids used to tease me. You know that song 'Bingo'? Well, they used to sing, 'V-i-n-g-o, and Vingo was his name-o.'
+- We're all about trying to teach the kids life through basketball.
+- For me, acting was a way of releasing all of this stuff that I had inside - and a way for me to tell the stories of the people I knew, so that their spirit could live through me.
+- The training at Juilliard School is classical training, and it really makes one very versatile.
+- I've known Laurence Fishburne for about twenty years.
+- I graduated on a Friday. By Monday, I was doing Shakespeare in the Park.
+- Rosewood is what Americans did to Americans. We have to hold the mirror up... and look at ourselves. Sometimes that's an ugly sight. And sometimes you have to go through that pain - both black America and white America - so we can finally find some racial harmony.
+- My approach to the work is the same, whether I had the lead or a supporting role. I consider myself a character actor in the true sense of the word. Unless I'm doing my autobiography, I'm playing a character.
+- My brother and I slept on the couch. I didn't get my own room until I was in college. We didn't even have a telephone until I was in college.
+- I don't give Hollywood the power to limit me. Only God can limit me.
+- There could be some unknown actor who's a better actor than Ving Rhames, but no one knows that actor, so Ving Rhames will get the job.
+- If someone's intimidated by me, that's something they have to deal with. When I walk down the streets of New York and an old woman grabs her purse when I pass by, I'm not going to give it a whole lot of energy because I'm not in the wrong. I'm a millionaire, and I'm not thinking about grabbing an old woman's purse.
+- When I look at the world, I recognize that unfortunately, it sometimes takes an atrocity like 9/11 to force us to come together.
+- Quite honestly I never had a desire to be an actor. I tell people, I did not choose acting; acting chose me. I never grew up wanting to be an actor. I wanted to play football. In about 9th grade an English teacher told me I had a talent to act. He said I should audition for a performing arts high school so I did on a whim. I got accepted.
+- In about 9th grade, an English teacher told me I had a talent to act. He said I should audition for a performing arts high school, so I did on a whim. I got accepted. Then I got accepted at the Julliard School, and by then, I was serious about it.
+- God has blessed me with a certain amount of presence and a certain amount of charisma.
+- I've always been interested in cross-cultural exchange with the youth.
+- The more you do a stunt, the more you increase the risk of something happening.
+- In this industry, very few actors can control their career.
+- I find early jazz to be the most revolutionary music of its time.
+- I do fish, and as a matter of fact, I used to do a lot of deep sea fishing, but as far as going into the water, I don't go out deep into the water.
+- The only difference between working on a huge-budget film and a lesser-budget film, is the quality of lunch and dinner.
+- I live a very simple life.
+- I try to base my life on the principles of Christ. I try to raise my family on the principles of Christ. I don't know if that makes me religious.
+- 'Mission: Impossible' is basically entertainment, and for what it is, it's fine. I don't think most actors become actors to do that type of film.

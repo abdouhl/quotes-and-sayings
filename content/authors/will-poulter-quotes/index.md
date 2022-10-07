@@ -1,0 +1,90 @@
++++
+author = "Will Poulter"
+title = "Will Poulter Quotes"
+quotes_len = "84"
+description = "the best 84 Will Poulter Quotes"
++++
+- I love the camaraderie that develops on film sets and ensemble casts. It's really special.
+- I was lucky that I had friends who have maintained a very regular attitude with me and haven't changed how they interact with me.
+- I would love to do some motion capture work just to be able to challenge myself.
+- Drama is what I'm really obsessed by. It's what gets me up in the morning, what I live for. But I'll always have a love for comedy because it was my first opportunity, and I associate it with my best friends, who I made during 'School of Comedy'.
+- I just felt that I might to go to university and get some real life. It wasn't stimulating in the same way. I loved being at Bristol, but I missed the thrill of being on set.
+- My brother's my best friend, without a doubt. Me and my big sister get along so well. She moved to East London, though, so points off, but she's wicked. And then my little sister is a little genius. She's super talented and such a great person, always been far more mature and cool than me.
+- I feel like there's a dangerous culture among young actors of going to posey joints and socialising - not doing hard work. I don't want to go and hang out in Soho House L.A. That's literally my worst nightmare. I'd rather be at home reading scripts.
+- I remember power-sliding on my knees the first time I got a job.
+- I haven't skied or snowboarded or anything like that.
+- The transitional period is tough. You can find yourself too old to play high school roles but too young to play the leading man. You have to be quite smart about how you present yourself. Your public image reflects your range.
+- I joined the after-school club, School of Comedy, which progressed wildly, and in quite a Hollywood way. It sounds like 'School of Rock', right up to trying to raise money to pay for a venue in Edinburgh.
+- I wasn't good at anything at school, and acting was the only thing that I really loved doing and was interested in. It was kind of like my only option. For me to get opportunities in acting is so fortunate. I found something I loved doing and wasn't terrible at; it was quite nice.
+- I hate going into the audition room. I find it the most nerve-wracking, inhumane experience, and I think it's such an inhospitable environment to give an honest account of the character and, I guess, your ability.
+- Confidence is the greatest gift for an actor.
+- I love food. I think arguably the thing I'm best at in life is eating food, which is not the best talent in the world, but it's a talent.
+- It's difficult to tell whether people are looking at you because they recognise you from your work or just because you're 6 ft. 3 in. and have the eyebrows of Satan. It's difficult to distinguish between the two.
+- I think the one thing that I've experienced with American films is just that the size tends to be so much bigger, the budgets have been bigger, the size of the sets have been bigger, the number of people working on them is bigger, but that's not to say that I haven't been able to get close to people or develop good relationships.
+- I absolutely love Leonardo DiCaprio.
+- I always wanted to play a 'Batman' villain; that was a big one for me. I may have missed the boat, but I always wanted to do that.
+- I think it reaffirmed something that I believed in and conceptually always had faith in which was that you're most effective when you work as a team. I love that about filmmaking. I stopped playing team sports at 15-16 because of acting. I think I find a kind of new team sport in filmmaking in a way.
+- I don't think Tom Hardy has an actual voice of his own. Except maybe the one in 'The Dark Knight Rises,' as Bane.
+- My teacher told my mum, 'I think William has dyspraxia,' and Mum asked what that meant. She said, 'Well, if I put a chair in the middle of the room and asked every child in the class to walk around it, William would be the only child in the class to walk into it.' Mum was like, 'Yeah, that's my boy'.
+- I am very much a city boy, and I really don't get out into the countryside or the wilderness that much at all.
+- I've not really been let down by anyone I've admired and then worked with.
+- I'd never read 'Prince Caspian'. I watched it and loved that film. Everybody was talking about its lack of success; its relative success in comparison to the other film. It's a great film. It deserved to do a lot better than it did. It's very difficult to make a film that will match up to the first.
+- I need to try and get away from that brat role, or people are going to think I'm a natural brat.
+- Kissing scenes are never romantic or sexy. They're actually super technical, like, 'Move your head; you're blocking her light,' or, 'Stop looking like an idiot when you kiss her.'
+- I've always found that I have to audition, but that's a process that I kind of enjoy. I enjoy the challenge, and 'We're The Millers' was the same. It was a long audition process that I had to go through, but I enjoyed the challenge of that.
+- Working with people like Jennifer Aniston and Jason Sudeikis is such a blessing because I've watched them a great deal. I grew up with 'Friends' and always aspired to work with someone from that cast. Jason is just such an amazing comedian.
+- Al Pacino never looks like he's being filmed.
+- I think we have a responsibility to shape the zeitgeist with the movies we put out there. Because 'After Earth' isn't going to do it. 'The Expendables 3' isn't going to do it. You could make one million amazing films for the amount of money they spend on those films. I get frustrated.
+- I feel character description from a book can mislead you and actually make you fall off course when you're representing a character using a script.
+- I hate the school of thought that says work is work and that you have to be unhappy at work because that's what work is. I totally respect the fact that not everyone has the choices that I have, and that some people have to work jobs that they don't like because they don't have any other options.
+- Hollywood has never been a goal, necessarily - there was no 'Conquer America' game plan for me.
+- I have a relationship with New Line, so I'm grateful to them for taking a punt on me - both for 'We're The Millers' and 'It'.
+- Somehow I got a place at Bristol University. I'm still waiting for the phone call to say that they made a mistake and got the wrong person.
+- The Internet unfortunately means that, although a lot of truth and good stuff can spread as a result of the Internet, I think bad stuff and negativity spreads even more quickly.
+- I am not a fan of tarantulas.
+- What's hilarious is people taking photos and they think you don't know. It's the funniest thing I've ever seen. Like taking a picture of their mate for example but about three foot wide of their face - and the flash is on half the time!
+- This is a business, and no one enters a race not to finish first. I wouldn't say I'm in it for the competition, but I'm certainly not just in it to coast along. I want to be the best I possibly can be.
+- For one thing, there is no guarantee that I am even going to work again. I hope I will and will go on to have a long career.
+- I fully accepted that I cannot grow facial hair, but it is quite emasculating.
+- I'm fortunate enough to have had an opportunity to do a range of stuff, and the thing I admire most in actors is versatility, those that morph and change, those kind of chameleon actors who are unrecognisable from one job to another. That's something that I aspire to establish myself.
+- I actually found 'We're the Millers' one of the toughest, if I'm honest, least fun experiences of my life, which is weird. It was such a huge opportunity for me to work with the people I worked with and I feel grateful to be a part of that, but it kind of messed me up.
+- The fact that there aren't more restrictions on the media is disgraceful.
+- I don't really want to play Will Poulter for the rest of my life, because that's boring.
+- I didn't want to be behind a desk. I didn't want to do a normal job. I had made my mind up. I became despondent prematurely. I had my mid-life crisis when I was 16. I suppose I'd agree with that. But acting has helped me develop a lot in my private life.
+- Sometimes I've been more emotionally disturbed by the experience of shooting a comedy than a drama. After 'We're the Millers', I think playing this battered loser who's confidence was at zero for 90 percent of the movie, I did genuinely feel that way.
+- I think what makes Narnia a magical place is that it offers escapism - escapism from a world that is so different from the reality known by the characters and the reality known by the fans.
+- As much as I would love to do roles in big movies and am keen to establish myself in the industry. I don't want to sacrifice things that I really enjoy, like spending time with my family and friends.
+- I love student life, but I also loved, from a young age, being in a working environment where you are treated as an adult.
+- My dad's a professor of medicine; my mum was a nurse. My little sister is going into healthcare. My older sister is a nurse; my brother's in finance - I'm the runt of the litter.
+- I am the black sheep of my family. They are all super talented and intelligent and got proper jobs. Most of my family is in medicine, actually. They are all too clever to be doing what I do.
+- The thing I get a lot is, 'You've got a very recognisable face.' I'm never quite sure what to make of it.
+- Themes of redemption, temptation, and faith don't necessarily apply directly to religion. A lot of people find faith in their lives outside of God and still deal with notions of temptation and redemption that aren't religious.
+- If I tried to do comedy for the rest of my career, I would not be very successful.
+- If I could be something other than an actor, I'd be a chef; I've got a big interest in food. I'm a proper fan boy.
+- I wasn't picked for any of the sports teams at school because I was half the size of everyone else, but now everyone assumes I must have been some sort of rugby player.
+- Cara Delevingne and I took an eyebrow selfie. We both have prominent eyebrows, but hers are much better than mine. Maybe we should do a swap.
+- There's no other industry in the world where you could spend $100m as frivolously as they do in the film industry. Think about how much good you could do with $100m... it can be spent in 20 minutes on a movie.
+- My problem is I'm not talented enough to do everything, but I want to do everything. I'm like, 'Oh God, I wish I could dance! Oh God, I wish I could rap!' I can't be a rapper, and I'm sure as hell not going to be able to dance for a living, but I want to do it all, you know?
+- Leonardo DiCaprio I find very inspiring... He's my idol. I absolutely love Leonardo DiCaprio. Christian Bale, obviously, being a British actor and going from 'Empire of the Sun.' Now he's Batman.
+- I look up to Leonardo DiCaprio and Matt Damon. I'm a huge fan of their work. I also like actors who really transform themselves, like Joaquin Phoenix. And I loved Robin Williams growing up. He does comedy and drama so brilliantly.
+- It was incredibly daunting for me to go from 'Son Of Rambow' to 'Narnia' because of the natural jump that there is that is dictated by budget, and the number of people working on it. Even though a lot more people saw 'Son Of Rambow' than we expected, a lot more people were always going to go and see 'Narnia'.
+- I feel really blessed that I found what I love doing and was able to make it a living from such a young age. I realize that I'm really fortunate. I didn't train; I kind of got lucky. And I remember that every day. I think I have to remind myself of that to really, fully appreciate life now.
+- High school was interesting. For the most part, I quite enjoyed it. But everyone is trying to find their footing, and school can be a tough environment. Kids can be cruel to each other. It's quite unforgiving at times.
+- I love fashion. I shop like a 16-year old girl. Sneakers. That's what I spend money I don't have on.
+- Anyone who supports your work, I like having the opportunity to thank them for that, and I think also Twitter provides an opportunity for people in the public eye to give a faithful account of who they are.
+- Everyone in New York wants to move to London, and everyone in London wants to live in New York. A few people want to live in L.A., but I'll never understand that. It's too much for me.
+- I just like the prospect of playing lots of different types of characters and just the opportunity to challenge yourself, do something different and surprise people.
+- I'd like to go to university. I'd like to do a bit of travelling.
+- One of the challenges obviously with doing an accent from a time period early in history is that there aren't recordings. You would never really get the opportunity to hear exactly what you were shooting for.
+- I'll just say it: I'm not the sharpest tool in the box. Being forced to go back to school is still a fear of mine.
+- Seeing the actual 'The Chronicles of Narnia: The Lion, the Witch, and the Wardrobe', I absolutely loved it. It became one of my favourite films. It was a real Christmas classic, and it was one of the most popular films ever in British history.
+- I am the biggest Kanye and Jay Z fan.
+- There's such a thing, if you're a finance man, as hitting the figures you need to hit. But there's no equivalent in acting. It's a creative field. It's subjective. That's what I love about it.
+- I first read 'The Lion, the Witch, and the Wardrobe' when I was a kid. And I think it was read to me. Me and my sister both had a copy and loved the books.
+- The will to challenge myself is strong, but I think that's growing, the desire to stretch myself and make it hard.
+- I have got some fantastic friendships that I have had for a long, long time.
+- I come from this bubble in life - I come from a great family and went to a nice school, and I have friends, and life is pretty rosy.
+- How often do I call my mom? You can never call your mum enough, and I should call my mum more often. But I speak to my mum very regularly and have a close relationship with my parents.
+- It may sound strange to say it of someone so famous, but I think Leonardo DiCaprio is underrated, particularly from an awards perspective. He is a very versatile actor. He started very young, and 'What's Eating Gilbert Grape?' is one of my favourite films.
+- I think for anybody, regardless of what industry you work in, when you get a new job, and it's progressive in terms of your career, that is one of the best feelings in the world.
+- I think I'm slightly OCD. I'll be desperate to get a part, but as soon as I do, the sense of pride wears off almost immediately, and fear of not doing a good job sets in. I'll think, 'This is a dream come true,' and then, 'It's not OK until I get a good review.'

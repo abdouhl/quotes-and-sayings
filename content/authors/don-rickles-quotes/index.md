@@ -1,0 +1,168 @@
++++
+author = "Don Rickles"
+title = "Don Rickles Quotes"
+quotes_len = "162"
+description = "the best 162 Don Rickles Quotes"
++++
+- You can't study comedy; it's within you. It's a personality. My humor is an attitude.
+- Room service is great if you want to pay $500 for a club sandwich.
+- When I'm onstage, I'm acting.
+- I shouldn't make fun of the blacks: President Obama is a personal friend of mine. He was over to the house yesterday, but the mop broke.
+- I don't drink much anymore, but when I traveled with Frank Sinatra, God rest his soul, I used to drink like I could do it. He made it a test. In Vegas, the Rat Pack, which I was a little part of, drank all night and slept most of the day. Then, about 5 o'clock, we'd meet in the hotel steam room, lock the door, and steam our brains out.
+- I was always the guy - out of insecurities, I was always making fun, even as a kid.
+- I mean, in my - and I'm not trying to do spilled milk, but in those days it was a little - I think it was much tougher, because you got an image, and you were in a saloon. And it was tough to come out of a saloon and to get in films, and to maintain an image, you know.
+- I ride a recumbent bike for half an hour every day.
+- I'm not one of those guys who wants to die on a stage.
+- It takes many years to be a great comedian.
+- You lose your energy, you lose that excitement and it gets the audience up.
+- I didn't get married until I was 38.
+- Most people think the character I do onstage is the way I am offstage, but I'm just a regular guy who spends time with his family and who turns on the television and watches a lot of sports.
+- If something strikes me as funny, I'll put it in my performance.
+- I don't walk into a dinner party and say, 'You're an idiot; give me my coat.'
+- I have a problem, if the light goes on on TV and it blinks midnight, I don't know how to fix it.
+- I spent two and a half years in the Philippines in World War II.
+- Alan King, a comedian I adored, was considered society, and I was considered the Jewish kid from the neighborhood.
+- My father was an insurance man and a small-time gambler. He was a good man, but he had an eye for the racehorses, and I saw how it used to bother my mother. I've never gambled a dime. Never, in all those years in Vegas.
+- My mother was a Jewish General Patton.
+- Why should I retire? I'm like a fighter. The bell rings, and you come out and fight.
+- Diana Krall I met in, I think it was Canada. She's a lovely lady. Her husband, Elvis Costello, is a great star.
+- After I graduated, I tried Broadway, which was difficult for me. It was tough to get a part on Broadway, so I just started talking to audiences at different social gatherings, and little by little I became Don Rickles - whatever that is.
+- To me, the stand up part in my life is great. I know I can do that. When I get an acting chance, I'm really thrilled.
+- I did a picture 40 years ago with Carroll O'Connor and Telly Savalas, God rest their souls, and Clint Eastwood, called 'Kelly's Heroes,' which we filmed in Yugoslavia for six months.
+- I don't care if the average guy on the street really knows what I'm like, as long as he knows I'm not really a mean, vicious guy. My friends and family know what I'm really like. That's what's important.
+- You know how a fighter always comes into the dressing room way before a fight? That's me - I'm like a fighter.
+- The inaugural of Ronald Reagan, with Frank Sinatra and Dean Martin. And that was the greatest thing. Ronald Reagan and George Bush. That was - I still remember like it was yesterday.
+- Girls were scared of me because I can be loud. Barbara, my wife of 51 years, is very low-key. She was my picture agent's secretary.
+- I like to think I'm like the guy who goes to the office Christmas party Friday night, insults some people, but still has his job Monday morning.
+- I enjoy mixed audiences, not one particular group. Short, tall, scientists, Jews, gentiles, whatever, as long as they breathe and like to laugh.
+- My wife came into my life, and my mother still wanted to be the boss.
+- Sinatra had a lot of mood swings, but he was wonderful to my wife Barbara and to me. He made no bones about who he liked and who he loved, and he had this great charisma. When he walked into a room, it stopped. I've only seen that happen with Ronald Reagan.
+- At 90, I'm still working a couple of dates a month. My mind is very sharp on the stage, so why not? This may sound corny, but I do it because people - young and old - still come to see me, and they're very enthusiastic about my work. They treat me like the Godfather.
+- Compared to what comics say today, I'm a monk, but in those days, it was unheard of to make fun of people like I did. Of course, they exaggerated how outrageous I really was.
+- I don't like to compare myself with anybody.
+- One thing a comedian does, when you step on the stage, you're selling yourself, and certainly I don't think the whole world can love you. But if you can get the majority on your side, you're really in business.
+- Now when I'm not working, I don't really hang out with the young comics.
+- My mother was a big influence. She kept pushing me because I was very shy and inhibited. And schoolwork was very difficult for me because I couldn't concentrate. I was failing almost every subject. To this day, I'm not too good at reading a book. But I was the president of my high school comedy group, and they treated me like a king.
+- When you enter a room, you have to kiss his ring. I don't mind, but he has it in his back pocket.
+- Being in the Navy, when I came home, it changed your whole life. You're 18, you go away for two and a half years, you come home - boy, you're a different person.
+- I couldn't sell air conditioners on a 98-degree day. When I demonstrated them in a showroom, I pushed the wrong button and blew the circuit.
+- Yeah, I make fun of blacks, and why not? I'm not a black.
+- I don't have regrets. I've never sat here and thought, 'Gee, if only I'd done 'The Man Who Came to Dinner' on Broadway, I would have been happier.'
+- It's tough having the last name 'Rickles.' Luckily, my kids handled it great.
+- It's very sweet to have people say nice things about you, and I always accept that.
+- I don't do impressions.
+- I do situations and make fun of authority and life.
+- I have to have energy because I have a lot of expenses. A couple of cars, couple of dogs and a big estate.
+- In our day we went from - we went into saloons. We couldn't cross over like you can today, get a television series and all of a sudden you're a major movie star, you know.
+- I stopped smoking. But my personality I still have. I get up in the morning, and not everybody loves me, so if you want to call that a bad habit, there's that.
+- I say things I get away with, and it becomes a joke.
+- When you stand alone and sell yourself, you can't please everyone. But when you're different, you can last.
+- Show business is my life. When I was a kid I sold insurance, but nobody laughed.
+- When you do comedy, you can't please the world, although I'd like to think that most of my audiences were on my side.
+- I want to be a dog, but I'm a pussycat.
+- Everything I've ever done in my whole career, people might not know, I've never written anything down on paper.
+- Many, many years ago, I stood on the stage and told bad jokes and did Sophie Tucker as an impersonation, and nobody looked up; and suddenly, I looked down and said, 'Sir, I'm getting fed up with you. Either you watch, or I'm going to suck your neck,' or words to that effect, and suddenly people started to laugh.
+- Once in a while, when I'm alone, I think about my age. I think, 'How many more years do I have on this earth?' But I can't really conceive of dying.
+- Every night when I go out on stage, there's always one nagging fear in the back of my mind. I'm always afraid that somewhere out there, there is one person in the audience that I'm not going to offend!
+- I always say, when you're onstage you can't please everybody. I'm sure there are people who may not take to what I do, but that's okay. Thank God the majority are in my corner.
+- My wife is great. She always goes to the bank to see if the check has cleared.
+- Herb Solo at that time was the head of MGM. I said, 'I want to live like Clint Eastwood.' Did I know at that time Clint Eastwood, to him, Heaven was a truck, a dog, and a picnic basket for food or something?
+- When I walk down the street in New York, I swear to God, the building constructor, the guy pounding cement and what not, will yell, 'Hey, you hockey puck!'
+- To this day, when I say that I went to the American Academy, people are very impressed. The reputation of the school has always been fantastic.
+- I was sitting in the toilet and I was by myself. I was tired of playing with the roller, so I said I'd better write a book.
+- Political correctness? In my humor, I never talk about politics. I was never much into all that.
+- I still have drive, but everything is relative.
+- My whole act is off the top of my head.
+- I call myself an actor. I always wanted to be one.
+- The young comedians always ask me, 'What's the secret for staying around?' I tell them, 'There is no secret - just stay around. Longevity is the most important thing.'
+- I'd like to think my performance is today. I never try to - it's so, as you know, watching me, I have a beginning, middle and ending. But every night the show changes and I relate to an audience and I relate to the young people.
+- Sometimes, I knew generally what I was going to do, but I've never written anything down. Call it a sixth sense: the lines just come.
+- Honestly, I didn't realize it - all of a sudden, I was 90. The years skipped by quickly. When it happened, I said, 'Where did the time go?'
+- I'm a New Yorker, originally. I was raised in Jackson Heights. I went to P.S. 148 and then Newtown High School. If World War II didn't come, I'd still be there in school. World War II saved me.
+- Frank Sinatra. Hey, Frank, I saw you in 'The Pride and Passion,' and I want to tell you the cannon was wonderful!
+- Struggling is hard because you never know what's at the end of the tunnel.
+- I'm very shy so I became very outgoing to protect my shyness.
+- Nobody ever dared with Frank, because he had such mood swings, and you never knew how he was going to react. But I could tell the minute I saw him that he was going to be in my corner.
+- Smartphones. Who cares? Smartphones. I only have dummy phones.
+- Johnny Carson was a big influence on me - all of those shows I did with him over the years, like, 100 of them, they made a bit of a name for me at the time, so that part of my life was very good.
+- I was 28 when my father died, and I was an only child.
+- Who picks your clothes - Stevie Wonder?
+- When you first start out with something new, you're always a little uptight.
+- Whatever you do to gain success, you have to hang in there and hope good things happen. Always think positive.
+- After over 50 years of headlining, I've been received very beautifully. But I always say, when you're onstage, you can't please everybody. I'm sure there are people who may not take to what I do, but that's OK.
+- In the 45 years I've worked in casinos, I dreamed of being honored by an organization like the American Gaming Association, especially since I don't even have a hunting license.
+- I never went out looking for glory.
+- Johnny Carson was king of the kings, in my opinion.
+- The highlight of my career was being at the inaugural gala of Ronald Reagan, and I owe that to Mr. Sinatra.
+- I was a mother's boy.
+- I can get an audience screaming in Las Vegas and say, 'Barbara, that was a great show,' and she'll say, 'Would you please hurry up? We have dinner reservations at 9:30.'
+- I used to play golf. I wanted to be a better player, but after a while, I realized I'd always stink. And that's when I really started to enjoy the game.
+- So, I'm on the satellite every Sunday, no matter where we are, with the Rams. Turn on the satellite; got to watch the Rams.
+- I told jokes badly.
+- I don't say I was the first, because, who knows, maybe there was a guy out in Minnesota doing it before me.
+- If I have learned anything, it is to keep my wife happy by sending her lavish gifts. Other men can learn from my success and send their wives and girlfriends fresh flowers for birthdays, anniversaries, and of course, Valentine's Day.
+- We were Orthodox Jews, but we really didn't deserve it. I mean, bacon - my father said, 'Don't put bacon in the house,' but we had bacon. We didn't keep kosher. And we observed which today would be Conservative Jews. But in those days, we belonged to an Orthodox temple. So we made out we were Orthodox Jews, but we really weren't.
+- I have a wonderful road manager, and he travels with me. And my valet and friend travels with me. My little entourage is great, and they take good care of me.
+- I was always the guy who made jokes and ribbed people at parties. After I went to the American Academy of Dramatic Arts I got sidetracked into clubs and started doing comedy.
+- I was in World War II; I cried when they took me in the Navy. That's the last time I cried.
+- I write my own tweets.
+- You got to have a lot of courage. Secondly, whatever it is you're doing, you have to believe in it wholeheartedly. Thirdly, you have to be able to stand up in front of people and know that they'll laugh.
+- I was nice to the people in the Philippines for the two and a half years I was there, because I knew eventually I'd have to kiss up to them so my grandchildren could have toys.
+- I have no idea what I'm going to say when I stand up to give a toast. But I do know that anything I say I find funny.
+- Some people say funny things, but I say things funny.
+- When I got out of high school, I wanted to be an actor but was getting a lot of rejections. I was getting rejected by life. My mother, God rest her soul, told me not to quit.
+- I think if I took therapy, the doctor would quit. He'd just pick up the couch and walk out of the room.
+- An insult is mean or unkind. Milton Berle called me the Sultan of Insult, and I was called the King of Insult. But the guy that gave me the best title - and I use it to this day - was Johnny Carson. He called me Mr. Warmth.
+- Well, I call myself an actor. I always wanted to be one.
+- You've got to be able to sell yourself.
+- I busted my bird for 60 years in the business, but my grandkids only know me as Mr. Potato Head.
+- Eddie Fisher married to Elizabeth Taylor is like me trying to wash the Empire State Building with a bar of soap.
+- I've been hot, I've been lukewarm, I've been freezing, but I've always been a headliner.
+- Bob Hope was totally regimented. I go in and say a line like, 'Hi Bob' and I'd have to do it five times, and then Bob would take me to the writers to say the line different ways. He wouldn't let me ad-lib.
+- Some people call me a legend and the last of the greats, and I appreciate it.
+- I was a big shot in high school - big into social events and at the dramatic society - and I always had trouble in school. Not because I was a dummy, but I was always busy being the Jackson Heights clown.
+- They always use the word 'insult' with me, but I don't hurt anybody. I wouldn't be sitting here if I did. I make fun of everybody and exaggerate all our insecurities.
+- I have my own gym. When you do jokes and they sell, you get a gym.
+- You know what's funny to me? Attitude.
+- My life was in Montreal years ago. Best food in the world.
+- Sinatra was somebody special.
+- Asians are nice people, but they burn a lot of shirts.
+- I cannot tell a joke. But I can do a situation, that it becomes a joke.
+- Las Vegas is the boiling pot of entertainment.
+- Somehow, in my head, I don't think I'll die. I know that everybody dies, of course. I just think that it'll never come to me. It's crazy, but there it is.
+- When I was a younger guy doing comedy, it was a big struggle. Promoters canceled me out of clubs left and right when I called somebody a dummy or a yo-yo. Then they realized I was different.
+- What keeps me going is that young people still want to see me.
+- To this day, if you gave me $1,000, I really can't stand up - You can tell a joke. You're a good storyteller and a good joke teller.
+- If I were to insult people and mean it, that wouldn't be funny.
+- The girls, like, in we'll say Hooters, have less clothing than the girls I worked with in those days. We thought it was wild when they just wore little bells and so forth. But today, in restaurants, some of the waitresses almost work in the nude, you know, to get business.
+- To my knowledge, I was the first guy really to do what I do. And then later on different comedians started trying doing it.
+- I always rib people, but nobody ever gives me a hard time. I don't know why. Maybe they're afraid of what I might say. There's probably a lesson in that somewhere, but I don't know what it is.
+- Ninety percent of the people who come to see me are my fans.
+- Even when I was in high school and the Navy, I was the guy who could rip somebody, and they'd laugh at it.
+- The man I adored, and miss him terribly, was Johnny Carson.
+- There's a difference between an actual insult and a friendly jab. So I don't think I'm offensive onstage.
+- My grandchildren just know me now as Mr. Potato Head.
+- I've never gone to comedy clubs.
+- I used to work over a bar. That was - there was no stage. I stood over a tiny bar. Louis Prima, rest his soul, he worked there. I was the guy that filled in when he was off the stage.
+- The old days were the old days. And they were great days. But now is now.
+- I've never had a written script.
+- You throw your best punch, otherwise don't do it.
+- Everything I've performed has been from my own head.
+- I don't practice or write stuff down - everything I do onstage was just made up before I went on.
+- Compared to what some of the young comics use for material today, I'm a priest.
+- Famous people are deceptive. Deep down, they're just regular people. Like Larry King. We've been friends for forty years. He's one of the few guys I know who's really famous. One minute he's talking to the president on his cell phone, and then the next minute he's saying to me, 'Do you think we ought to give the waiter another dollar?'
+- The average person pushes an elevator button 6 or 7 minutes before realizing it's not working. I did a study on this, you know.
+- An 'insult comic' is the title I was given. What I do is exaggeration. I make fun of people, at life, of myself and my surroundings.
+- No matter where you go in this world, you will always find a Jew sitting in the beach chair next to you.
+- I did a few movies, but the word 'star'... I cannot compare to a star like Clint Eastwood. I used to call Clint 'Larry Dickman' when he would come to my show; then, he started using the name when he would go under cover in a 'Dirty Harry' movie. That's why he's a movie star... he's so creative.
+- I've got an accountant who's been with me forty years. If he makes a mistake, he dies.
+- Funny is funny.
+- I've been to Philadelphia a lot of times over the years, playing the old Celebrity Room and most of the other clubs around there that don't exist anymore.
+- The thing I love about Vegas is that it's a melting pot. It's like working Ellis Island.
+- Among my friends, I'm not a little Boy Scout, and they love my humor, thank God.
+- My wife, Barbara, is great. She arranges when I do work that I have a day off between performances.
+- Bob Newhart, who is my best friend, is one of the guys I adore.
+- Don't call me 'sir; 'King Jew' will do fine.
+- Italians are fantastic people, really. They can work you over in an alley while singing an opera.
+- I exaggerate all our selves, our beings. I make fun of everything: of our life and what we are. But I don't tell jokes, really. I just exaggerate life, and it comes out funny.
+- Half the battle is that people have to like you before you say one joke, one bit of humor.

@@ -1,0 +1,19 @@
++++
+author = "Salmon P. Chase"
+title = "Salmon P. Chase Quotes"
+quotes_len = "13"
+description = "the best 13 Salmon P. Chase Quotes"
++++
+- A resignation is a grave act; never performed by a right minded man without forethought or with reserve.
+- What you have said, Mr. President, fully satisfies me that you have given to every proposition which has been made, a kind and candid consideration. And you have now expressed the conclusion to which you have arrived, clearly and distinctly.
+- I never refused my help to any person black or white; and I liked the office nonetheless because there were neither fees nor salary connected with it.
+- All men are born equally free.
+- The way to resumption is to resume.
+- The President then proceeded to read his Emancipation Proclamation, making remarks on the several parts as he went on, and showing that he had fully considered the whole subject, in all lights under which it had been presented to him.
+- Once I should have been, if not satisfied, partially, at least, contented with suffrage for the intelligent and those who have been soldiers; now I am convinced that universal suffrage is demanded by sound policy and impartial justice.
+- And upon this act, sincerely believed to be an act of justice, warranted by the Constitution, upon military necessity, I invoke the considerate judgment of all mankind, and the gracious favor of Almighty God.
+- What can be indissoluble if a perpetual Union, made more perfect, is not?
+- The Proclamation does not, indeed, mark out exactly the course I should myself prefer. But I am ready to take it just as it is written, and to stand by it with all my heart.
+- The child is pronounced pretty. I think it quite otherwise.
+- The Constitution in all its provisions looks to an indestructible union disposed of indestructible States.
+- The law of the Creator, which invests every human being with an inalienable title to freedom, cannot be repealed by any interior law which asserts that man is property.

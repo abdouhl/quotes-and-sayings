@@ -1,0 +1,95 @@
++++
+author = "Derrick Lewis"
+title = "Derrick Lewis Quotes"
+quotes_len = "89"
+description = "the best 89 Derrick Lewis Quotes"
++++
+- George Foreman acts more like my grandfather. He and my grandfather act just alike - they're both Christian type guys. They try to help everyone.
+- I've been in that situation many times before - where I'm losing and I have to knock a guy out.
+- I've been through so much stuff that I hope even my enemies wouldn't have to go through.
+- Bowing and showing respect - I don't give nothing about none of that. I'm just coming in and fighting.
+- The only reason I want to climb up the rankings - beating the champion and beating guys in the top five - those are the guys that get the endorsements and get the most money and get paid the most. That's the only reason why.
+- I tell people all the time that it would be good if they forget about me next week, that they don't even mention my name anymore.
+- I really don't punch with my left hand anyways.
+- You've really got to stay ready 24/7. You really can't get ready because there's no telling. They'll call you short notice to fight anyone so you really have to stay ready.
+- There's nothing I really want to accomplish. I already set my family up pretty good right now.
+- I like to fight tough fights.
+- You know, once you have the belt you want to be less active, fighting once a year.
+- I go into every fight with a bad back and overweight and a damn-near diabetic.
+- It's a job to me, basically. I'm not trying to be the best fighter in the world or nothing like that. I don't come in trying to think I am the best fighter. I don't care about none of that. It's just a job to me.
+- I speak my mind too much, and the UFC probably don't really like that. But I really don't care.
+- I'm serious, I don't stay in the gym each day like my opponents.
+- It's all the stuff I've been through in my life. From family struggles, people doubting me, things I went through as a child and going to prison, they all played a factor in who I am today. It really made me a better person. Going through those situations can make or break you as a human being.
+- I'm fighting just so I can take care of my family.
+- I have a lot of anger built up in me from my childhood. My wife and kids are the only ones who give me peace in this world.
+- I just really want to put the past behind me, because it makes me angry thinking about it. But it's also the reason I've made it this far in my career. It's like, built up in me. It's what I think about when I fight. My childhood.
+- I set some goals for myself. I really want to run through this whole heavyweight division.
+- Whatever the UFC wants to pay me for, that's fine.
+- I don't know how to do takedowns.
+- I've been in deep waters a bunch of times in my fights.
+- I don't train like a mixed martial artist. I don't respect the sport like everyone else does.
+- Everyone else is a mixed martial artist. I'm not a mixed martial artist, I'm a brawler.
+- You have 20 fights, you should know what it takes to get yourself ready. If you don't feel like you're ready, you let your coach know 'hey we need to work on a little bit more of this.'
+- This heavyweight division, it takes just one punch for anyone. It doesn't matter how hard you train or what.
+- That's what really gets me going, thinking about my past. I think about all the tough times and bad times I've had in my life and I bring all that into the Octagon. That's only because it's hard going in there trying to fight someone who didn't do anything to you.
+- I made my third parole and I believe if I had made it the first time, I wouldn't be here today. I still would've been out there doing stupid stuff.
+- For sure, I would love to fight in Houston.
+- As long as they pay me good, that's all I care about.
+- I gotta work on my overall game.
+- I know I'm the least technical guy in the sport. Most of the champions or guys at the top are real martial artists.
+- I know I only need one punch to knock any guy out.
+- Basically, I guess they just thinking I've been winning my fights just by luck. I just think I've been winning my fights on heart.
+- I don't care where I'm at in the heavyweight division. As long as I win enough, so they keep me. That's about it.
+- Since I was probably eight years old, just about everyday, all the way until I was 14 or 15 years old, just about everyday my mom and my stepdad would roll around in the living room fighting.
+- The one thing about me, if it is a 15-minute fight, I'm fighting every one of them 15 minutes. And if it's a 25-minute fight, I'll be fighting all 25 until the bell rings.
+- A lot of people said I would never make it, and this and that, I'd never be a top 10 fighter, that I'd never fight for a title. Just stuff like that. Achieving all those goals and being the person that I am, this is going against everything everyone said I couldn't do.
+- That would be great if I could be a role model or inspiration to those who have been in my shoes before.
+- I don't even train for these fights. I'm not mad when people say that because it's true.
+- That's usually the way I am - I don't care what my opponent can do. I just focus on myself.
+- I just feel that all the top fighters in the world are making all the money.
+- I really don't like watching women fights.
+- Travis Browne don't know what's he thinking. Travis, he's out there, man. That guy has been knocked out so many times, he's been rocked so many times, he don't know what to say.
+- I just like being in fun fights.
+- You've got to try to find some type of mental edge on your opponent.
+- I know Cormier is a wrestler so you really got to get them hips down on him so I've been working them hips really good.
+- I know just about everything that really goes on with domestic violence.
+- I've been in that situation three or four times before where I'm losing the fight - the fight seems almost over with - and I knew I had to finish him and stop playing possum as much.
+- My heart outweighs all the talent. If they've got more talent, I believe that my heart will still overcome that. You've got to have heart to step inside the octagon anyway.
+- If I'm the champion, the whole UFC division should be ashamed of themselves for a guy that had no damn skills being the champion. They should all just go relocate somewhere.
+- All of my fights, especially all of my UFC fights my whole career, I've never been in there without any kind of impingement and pain wrong with my back.
+- I believe the tough fights bring out the better fighter in myself.
+- I have a couple of properties. Bought some houses and just rent them out.
+- Brock Lesnar is not a fighter. He's scared to be hit.
+- I don't care if I ever fight for the belt or get the belt.
+- I hate being in boring fights. It frustrates me.
+- I don't care if I am ever remembered in this sport for anything.
+- I grew up watching my mom and my stepdad fight.
+- I'm just going to keep fighting, try to stay active as much as possible.
+- I always had dreamed one day Bruce Buffer's going to be introducing me... Derrick 'The Black Beast' Lewis... and I just always pictured him saying it.
+- It would be cool to let people know that it doesn't matter what kind of background you have in your past, that you can still make something out of your life.
+- I go in to fight just to fight. I don't care about submissions, the technique and all of that.
+- The guys in the top five, they're good everywhere. Me, I'm just almost one-dimensional.
+- You eat salad and you're hungry the next 30 minutes and you're hungrier from when you ate the damn salad.
+- I'm not scared to fight anyone, I'll call anyone out.
+- In 2010, Strikeforce came to Houston, and DC was something like 5-0 or 6-0, and I'd seen him at the expo. I seen him walking around and I seen he had a pink cast on his hand, and I was like, this guy is way too fat... because he looked shorter and fatter. Because back then I was slim, I was like 235. So, I was like, man, I could take this guy.
+- I used to only train 30 minutes a day.
+- It's like I say all the time, it's the heavyweight division. It doesn't matter if the guys a black belt or if he's a world-class boxer. We still have a 50-50 chance.
+- I throw so hard because I sit and wait for that perfect moment.
+- I think Cormier is gonna come out and try to wrestle me, try to get me tired, and try to push the pace. I know he might not say that I'm on his level but I think I am and he thinking that I'm not, really.
+- At first, whenever I first got into the UFC, I was like, 'oh my God, I'm in the UFC.' When you come from where I came from, being in the UFC basically meant I was on top of the world.
+- My goal is just to make as much money as I can in the sport, and that's it.
+- I wanted to start in boxing, but you have to train a little harder to be a boxer. A lot of those guys can take punches. MMA, you only have to hit someone so hard to knock them out.
+- I've been having people doubt me all my life.
+- I don't want to fight once a year. I like fighting every other month.
+- The sport itself is dangerous. Anything can happen.
+- If I was really trying to be the best fighter in the world, I would be in the best shape and taking it more serious but I'm not.
+- I don't care what people think.
+- Like a lot of people have said, it's not a bad loss to lose to Mark Hunt, so it's really like a learning lesson.
+- I look at all my opponents, and they could be something else. They could go out and get a normal, regular job. I look at myself and I can't do that. I have a strike on my back. I can't have a normal job. So, I've got to fight for everything I've got.
+- I just believe that my heart is the best in the sport. And I believe that's what carried me through my whole career. Not my talent or my power or anything like that. I just believe my heart.
+- I ain't trying to fight for no title.
+- I'll fight anyone.
+- I just have a crazy sense of humor.
+- I don't fight just because I love it just that much. I'm fighting because it's a job for me.
+- I'm an optimistic guy.
+- I believe I get the belt then I'll get the money. I'm not trying to be the best fighter in the world. It's all about the cheddar.

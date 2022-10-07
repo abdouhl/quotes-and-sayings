@@ -1,0 +1,62 @@
++++
+author = "Pablo Sandoval"
+title = "Pablo Sandoval Quotes"
+quotes_len = "56"
+description = "the best 56 Pablo Sandoval Quotes"
++++
+- I'm not selfish. I am where I am because I have worked very hard and have always done my job.
+- When our backs are on the wall, that's the time when we enjoy having fun, relax out there, do our thing, don't get the pressure on, see the results, day by day, game by game.
+- It was one of those things that I set forth as a goal after my surgery. I have been working very hard with the trainers and the team personnel.
+- I have always loved and appreciated the Giants organization, my Giants teammates, and the fans of San Francisco.
+- I just prepare myself to perform well, to support my teammates to play well, to try to get to the final, to the World Series.
+- I just keep happy and help the team when I get an opportunity.
+- I trust no one - that microphone, that book.
+- I don't pay attention to the media. You guys can say whatever you want. At the end of the day, at the end of the season, if we're doing well, you guys are going to be there.
+- When you're from another country, you want to spend time with your family. All your family can't come here. All your friends can't come here. You spend so much time here, you want to go there, too.
+- My career had fallen into an abyss because I was so complacent with things that I had already accomplished. I did not work hard in order to achieve more and to remain at the level of the player that I am and that I can be.
+- I'm moving forward to do the best.
+- It is difficult. You've got a lot of things outside the field. But you need to learn and understand things you can do.
+- You're going to have some ups and downs, so you have to prepare yourself to be ready. Those down moments come.
+- I have to prove everything. Especially when you're coming from an off year after the injuries, and you come back, and you have to prove a lot of things to the fans, to the team, to your teammates, to the sport. You have to prove a lot of things out there on the field.
+- We live surrounded by critics, so let them talk, let them criticize me as much as they want. Ultimately, that makes me a better player.
+- What really matters is who you are when you step on the field, and I will let my bat and my glove speak for themselves.
+- Things happen for a reason. I'm happy, but not I'm not satisfied with the things I'm doing.
+- It is not about money. It is about how you treat the player.
+- You've got keep your head up, keep fighting, and do the best you can.
+- I don't try to lose weight. I don't try to do nothing. I just try to put in my work, feel better, the things that I can do in the field to be better are better, so that's what I do.
+- I don't worry about numbers. I worry about wins. You can see all the years that my numbers went down and how many championships I've got. That's what I worry about.
+- The taps with the bat on the spikes are one for my grandmother, one for my grandfather, one for my little sister. Then the one on the helmet is showing faith in God that I can do it.
+- I am not taking anything for granted.
+- I don't focus on the scale. I focus on doing my job. The team staff and the program I've been working on, they've been touching on that, but I don't focus on the scale.
+- When I left the Giants in 2014, my comments were emotional, insensitive, and misguided, and I truly regret and apologize for my actions. I am committed to working hard to contributing to the success of the Giants.
+- I just want to do the best things I can do on the field, do the things I know how to in baseball, have fun.
+- When you do some things in baseball in the city where you grow up and then you come back on a second opportunity, it's special.
+- Tell you the truth, the night before, I don't sleep. It's exciting to be in postseason, you fight one-hitter 62 games, you make it.
+- I'm a professional, and I know what I have to do. I know where I've failed and how I've grown up.
+- If it's going to go my way, it's going to go my way. I have to keep working hard.
+- You're human; you make mistakes. You have to put all the things in the past.
+- The fan support was the greatest. It's everything.
+- All the things that are in the past are in the past.
+- It's tough, but you learn your lesson from all the mistakes you make.
+- I did not work hard in order to achieve more and to remain at the level of the player that I am and that I can be.
+- If you don't have good people around you, it's going to be the worst thing for you.
+- I wanted to show my maturity. The criticism I got made me grow up. It motivated me.
+- I'm happy. I learned. I learned from my mistakes. But when you learn, you see all the results; you look more mature, and you put all the pieces together.
+- Venezuelan baseball is more aggressive, more passionate, more exciting. The fans are not the same as in your native country.
+- If I meant that I missed Bochy and Hunter, it's the guys I'd been joking around with most. Hunter is like my brother, and Bochy is like my dad. But at the end of the day, I missed all the guys.
+- I just do my work, try to do everything I can. I don't weigh in all offseason. I just try to get better, be in better position, be an athlete.
+- I'm more mature. I respect more the game as I should.
+- I want to play in the WBC. That was one of my goals to represent my country.
+- You need to learn. You need to grow up. You need to step up and know the difference between what you can do and what you can't.
+- I have no ill will about anything.
+- It has not been easy to wake up every single day at 6:30 in the morning to then head to the gym and start a full day of work. But you have to have that kind of dedication if you want to achieve the goals you have set for yourself.
+- The people that I surround myself with now and my family, they are the key to my success.
+- You learn from the things that happen in your career. You get up and down. You never give up. All the things that happened in my career, thank God it happened early rather than late in my career.
+- I'm going to prove to the fans, going to prove to my teammates, that I can be a better defensive player, offensive player, to win games.
+- You try to live the experience but keep your feet on the ground, not let it go to your head, because that's when you start making mistakes.
+- People want to help me. They want the best for me. I always say thank you to people when they try that. I never get mad.
+- I feel good not just physically but as a person because I know I accomplished my goal, which everybody said I couldn't do in Venezuela.
+- In baseball... you don't stop learning until it's over.
+- I wanted to come back with the team I grew up with.
+- I don't weigh. I don't weigh in at all.
+- During the season especially, we take a lot of swings, we play a lot of games, we swing a lot in games, batting practice, all that, so to maintain your shoulder the strongest is one of the key points that we focused on in the offseason.

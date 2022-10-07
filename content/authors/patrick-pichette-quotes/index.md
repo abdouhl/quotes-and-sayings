@@ -1,0 +1,43 @@
++++
+author = "Patrick Pichette"
+title = "Patrick Pichette Quotes"
+quotes_len = "37"
+description = "the best 37 Patrick Pichette Quotes"
++++
+- I guess you can run from Google, but you definitely can't hide.
+- Everybody knows: people, operations, and the HR component of Google is one critical strategic asset that we have.
+- We all know that mobile's going to change the world.
+- When you start traveling and thinking from a global perspective, you realize how small the planet is and how predatory we are to its ecology.
+- There is something magical about sharing meals.
+- With scale, there always becomes this tension of, how do you keep the start-up philosophy?
+- After taking a two-year sabbatical to spend time with my wife and travel the world, I'm excited to join the Twitter Board and help the company advance its mission.
+- On mobile, knowing where your friends are at any time is actually a pretty important part of your mobile experience.
+- If you live in the digital economy, you have to be careful to have your investment thesis squarely bolted into your reality.
+- Once you have children, you're basically hunkered down until at least late high school.
+- If you think of what you do on your mobile and what you do on your PC, they're typically very different, and because they're different, they bring you additional value and additional opportunities.
+- I spend my weekends with my Android phone in an elastic band that has tied to my Android phone my driver's license and my credit card. That's how I live. I'm not carrying a wallet anymore. Like, a wallet is a medieval item, right?
+- Google will continue to be the place of choice, and we wanted to signal that very clearly to our employees.
+- People die at 100 years old now. When I was a kid, people died at 67.
+- Google is a very responsible company. It's a generous company, but it's very frugal in many ways.
+- It makes no sense to make people drive cars.
+- People should understand that Google changes every day.
+- I just didn't want a boss. The minute you're a CEO, you have a pile of bosses, and you're working 7/24, and you're on everyone's radar all the time.
+- The vast majority of young people I meet would benefit so much from a year off. You should just go waste a year in exploring the beauty of the world and trying the craziest experiences you can.
+- I have made so many friends at Google it's not funny.
+- People think, 'Well, because you're at Google, you can work from anywhere.' Yes, you can work from anywhere, but many just commute to offices... Working from the office is really important.
+- Every time I can find another engineer to add to the Chrome OS platform, I'm going to hire him.
+- When our kids are asked by their friends about the success of the longevity of our marriage, they simply joke that Tamar and I have spent so little time together that 'it's really too early to tell' if our marriage will, in fact, succeed.
+- It's important that you don't lie to yourself. If you lie to yourself, you end up with burnout.
+- In the end, life is wonderful but nonetheless a series of trade offs, especially between business/professional endeavours and family/community.
+- I am a mild introvert. But I have learned to be a very successful extrovert because if you want impact, you have to work with people.
+- People see the speed; people see the innovation, the relentless innovation, and that's what Google is about.
+- Working at Google is a privilege, nothing less.
+- We could auto-replenish as you take things out of the fridge. Why not?
+- Being your own person and standing for what you believe is a critical aspect of a good professional life.
+- The surprising question we get is, 'How many people telecommute at Google?' And our answer is, 'As few as possible.'
+- When work starts feeling too comfortable, fire yourself; go get another job.
+- Humans are animals of habit - they convince themselves they can't change. And that premise is wrong.
+- People forget that YouTube is the second-largest search site on the Web. It just tells you the power of how many people live on YouTube.
+- There is an obsessive focus on speed at Google.
+- Relative to Google or the kind of turnaround we're seeing, we do care about profitability. That is our goal in every one of the areas where we invest.
+- If you're on Earth as a single-purpose engine, and there's only one thing you want to do for the rest of your life, have at it.

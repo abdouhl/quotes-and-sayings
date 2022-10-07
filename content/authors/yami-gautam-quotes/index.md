@@ -1,0 +1,105 @@
++++
+author = "Yami Gautam"
+title = "Yami Gautam Quotes"
+quotes_len = "99"
+description = "the best 99 Yami Gautam Quotes"
++++
+- India-Pakistan war and romance have always been sensitive issues for film-makers in both the countries.
+- One should know their body types well to experiment with trends.
+- I did a whole lot of work before taking up my first movie. From TV commercials to Telugu films, I learnt a lot from them all.
+- For fitness, I've just bought a watch which keeps a track of how many calories I burn, what's my heart rate, which is very fascinating.
+- As an actor, I don't want to do something which I have already done before.
+- When I go out and I see the genuine appreciation from the people, that's a big thing for me.
+- I try and groom myself, be it through fitness or dance.
+- Learning is always great!
+- There have been failures in the past, and I know there will be in future as well. But I have learnt from them.
+- I do not want to do a role which is similar to the previous one or the concept and the genre.
+- 'Sanam Re' is an amalgamation of an emotional love story and a visual treat.
+- I intend not to do an item song ever. I find the term 'item songs' bizarre. I do not want to comment on its presence and its popularity, but I would rather avoid it.
+- I'd love to be able to dance like Madhuri Dixit.
+- There were a lot of offers before 'Vicky Donor,' but I wanted to wait for the right opportunity.
+- My grandfather started a school for the underprivileged in Chandigarh, and that is why we moved from Himachal to Chandigarh. It was a small school, where even I would teach while in school.
+- We all love to be admired and given compliments, but I don't really keep track.
+- 'Vicky Donor' proved that the audience was waiting for well-scripted funny films.
+- My career is a journey for me, and any journey is incomplete without the struggle.
+- There has to be that zeal to do something new and surprise yourself and audiences. You have to stay true to your craft, and that should never be sidelined.
+- I am happy with the response I am receiving for 'Kaabil.' Audiences' love is what we work for, after all.
+- I started my career with television, and whatever work I did was keeping the content as my topmost priority. Same goes with the movies: I never grabbed any work!
+- I use egg whites and an olive oil-based hair mask that deep-conditions the hair and adds incredible shine.
+- It's a great opportunity when one gets something new to grasp, and I feel we should just grab it.
+- I would rather wait and keep working on myself harder and wait for the right opportunity. It is not quantity but quality I should be remembered for.
+- I am following a particular diet, and it requires me to not just eat right but also at the right time. So, I carry food from home.
+- I feel, even if someone is blessed with good hair, one needs to follow the basic hair care regime, and that means investing in the correct shampoo, conditioner, and mask.
+- I love the way Tyra Banks dresses up - she looks so elegant and glamorous in whatever she wears. The confidence and attitude she exudes on and off the ramp is remarkable.
+- To do a romantic scene is the most unromantic thing to do on screen.
+- Yes, I do come with certain reservations, and I'm not OK with certain things, but rather than focusing on what I don't want to do, I focus on what I do want to do, and I bring that energy, and that happens.
+- When I get to work with someone like Prabhu Dheva at the beginning on my career, why would I say no?
+- You need a director, a script, and a role to justify a risk.
+- I take full pride in the fact that I'm from Chandigarh.
+- I have done work that has appealed my heart, and 'Total Siyappa' is something I really liked.
+- I have always been a fan of Kajol Ma'am. The way she portrayed Zooni's character in 'Fanaa' is etched in my memory. I have watched the film several times, and each time I have learnt something new from her performance.
+- Even though 'Vicky Donor' was a huge success, I have had one or two films which have not done well, but that's all right.
+- I had some great experiences, but there were times when films didn't do well right, especially after 'Vicky Donor.'
+- There may be 10 odd things which I want to do as an actor, and we get an opportunity also, but I need to be sure whether the person I am trusting or the role that I am relying on - is it the correct one?
+- It's not just about achieving success; the journey is equally important for me.
+- I make my own face exfoliant at home, using finely ground rice powder mixed with milk or yogurt. I also treat my skin to a honey, rose water, glycerine and lemon face pack. The honey moisturises, and the lemon removes impurities.
+- Like every actress, I, too, had movies that got stuck, but I have learnt to always look at the best in every situation and to give my best to every situation.
+- I would love to go to Ladakh - there are beautiful monasteries there and because I am from Himachal. I would love to go to Paris. I haven't been to New York, which I have heard a lot about. And, I would love to go to Kanyakumari. I think that would be interesting!
+- Consciously picking the right script after a long period of wait helped me grab a perfect film in the rom-com genre.
+- I feel nothing can push you till the time you want to get pushed.
+- I believe in nourishment and having a balanced diet. I avoid bingeing and try and eat healthy, especially lots of amla, and drink lots and lots of water.
+- As a child, I always wanted to be an actor. But as I grew older, the acting dream kind of faded away, and I took to studying a lot. A few years later, a relative of mine who really wanted me to try my hand at acting sent my photographs to a few production houses, and like they say, the rest is history.
+- The challenge starts when you first come to Mumbai. But it's momentary if you win an award.
+- I was very quiet at college and had a certain group of friends.
+- I have always believed in quality work.
+- Every actor wants to do a love story, and courtesy T-Series, I got to do two back-to-back.
+- Junooniyat for love but not necessarily from the romantic perspective. For me, that is for family, that is for my work. For me, both these things are very important, so there is junoon for people I love, which is my family, and my work, which I worship.
+- I have always done work to which my heart says yes.
+- I love feminine soft shades for summers - I like pastels and bright hues, too. I like summer dresses and tank tops; I think they never go out of style. As much as I'm happy with Western wear for red carpet and social dos, I also like Indian ethnic wear for special occasions.
+- My mantra is simple: work gets you work, and good work gets you good work.
+- When I look back at my past mistakes, I realise that there were times when I wasn't myself, and that's why certain styles did not work well for me.
+- Most of the time, we keep looking outside and feeling sad about what others have. Those are mere excuses.
+- It's a pure dream team to work with Hrithik, Sanjay sir and Rakesh sir.
+- I have never anticipated success. I choose work, give it my best shot, and leave it.
+- I can't run my career based on someone else's ideology.
+- We travel a lot and don't get enough time to spend with our family, and so we have to take our pictures, videos, also bother about things like which are the HD quality phones. So I'm very much a part of these typical things.
+- We all should face some failures in life and learn from them. We should accept it and move on.
+- My hair is naturally straight, and I maintain its texture. My weekly indulgence is an egg-white and olive oil hair mask that deep-conditions and adds incredible shine.
+- You can never predict a hit or a flop, but it's about what you are happy doing as an actor. Every actor comes with his or her own mindset.
+- I think a good rapport is required between actors for any film.
+- The reason behind Hrithik being the best dancer is that he never takes his work for granted.
+- I will just generalise it that anything that I find too disgusting is not worth an answer.
+- I do hot yoga and TRX, a kind of suspension training.
+- There is failure in every industry; there is failure in every step. It's just that we are working in an industry where everything is just out there; that is why it looks so magnified. But failure is a part of life.
+- I generally like to wear my hair down, preferably with soft curls. But when I'm having a bad hair day, I like to wear my hair in French braids or fishtail braids.
+- It's an amazing experience to work with Hrithik. He is one of the finest actors, and there is a reason for it. He is extremely hardworking and fully dedicated.
+- I'm not a gadget freak.
+- I'm a believer in home-made recipes and concoctions, so I stick to natural or herbal products as much as I can. I also meditate regularly to de-stress.
+- Shoes are important to me because I don't do much with my clothes.
+- I am not from a film family or a Mumbai girl. The probability of getting a second chance is low, and so one has to be more careful.
+- No matter how long my day has been, I never forget to remove my make-up and slap on some intensive moisturiser before I go to bed.
+- South India has beautiful villages.
+- In all these years, I've understood one thing: that it's only your work that should do all the talking.
+- Whatever I have done so far has led me to 'Kaabil.' It is a big opportunity for me to establish myself more commercially. It is a huge platform.
+- When I came to know that I have to do a dance sequence with him, I was nervous. After all, he is Hrithik Roshan.
+- I'm the only one responsible for the choices I make and the opportunities I get. When you read the script, you don't know how it's going to shape up. You just know what you've been narrated.
+- You will always see big, chunky bags around me. I have always been fond of bags. Bags are extremely essential because I keep my books in them.
+- You can't tag me as a regional actress.
+- Understanding the importance of evolving is very important. Reinventing is very important. To break what you have already done is very important. That growth should never stop.
+- I think you need to love giving compliments as much as you love receiving them.
+- I used to hate stilettos. It took me a lot of time to understand how to walk in them and look graceful. And eventually, you realise their importance.
+- It is very difficult to work in another language, and it is also very challenging.
+- I love crop tops and love the way Taylor Swift teams them. Her style is relaxed; I can relate to it.
+- Hindi films are so deceptive. I thought Mumbai was this big, grand, beautiful city with sea-facing flats.
+- If a film is a huge hit, you do think properly before choosing your next projects.
+- I was born in Bilaspur in Himachal Pradesh, as my parents are both pandits from there. But I was brought up in Chandigarh.
+- I don't look forward to anything. I take things as they come.
+- I have to live up to the love I am receiving.
+- It's a coincidence that most of the films I have done are to do with social causes.
+- Fashion is anything which is you and reflects your personality, and if you are comfortable with what you wearing, you'll look trendy and fashionable for sure.
+- On the sets, Ali Zafar was extremely entertaining... he would just start singing out of the blue. It was just great!
+- I think Kareena Kapoor is gorgeous. She is effortless. I have never seen her go overboard with her make-up or the way she dresses. Even off-screen or when travelling, she looks gorgeous.
+- Delhi is full of energy. It is special to me because I have shot my first film here, and it is closer to my home town Chandigarh. I love the food, the vibe, and the people here.
+- I'm there on all the social networking sites, as it plays an important role.
+- It's difficult when your family are not physically around you.
+- You have to be very strong and headstrong to make your place. You have to know how to say no. Patience is very important.

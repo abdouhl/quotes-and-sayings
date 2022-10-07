@@ -1,0 +1,66 @@
++++
+author = "Siddhartha Mukherjee"
+title = "Siddhartha Mukherjee Quotes"
+quotes_len = "60"
+description = "the best 60 Siddhartha Mukherjee Quotes"
++++
+- Some cancers are curable, while others are highly incurable. The spectrum is enormous. Metastatic pancreatic cancer is a highly incurable disease, whereas some leukemia forms are very curable. There is a big difference between one form and another.
+- Unlike other diseases, the vulnerability to cancer lies in ourselves. We always thought of disease as exogenous, but research into cancer has turned that idea on its head - as long as we live, grow, age, there will be cancer.
+- I had seen cancer at a more cellular level as a researcher. The first time I entered the cancer ward, my first instinct was to withdraw from what was going on - the complexity, the death. It was a very bleak time.
+- We now have poured in an enormous amount of resources into cancer. The National Cancer Institute Project, you know, runs about $5 billion a year. That's a large amount of money, but let's not be grandiose about the amount of money we're actually spending on a problem that is attacking us at the most fundamental level of the human species.
+- Science is among the most profoundly human of our activities. Far from being subsumed by the dehumanising effects of technology, science, in fact, remains our last stand against it.
+- A strong intuition is much more powerful than a weal test. Normals teach us rules; outliers teach us laws. For every perfect medical experiment, there is a perfect human bias.
+- If there's a seminal discovery in oncology in the last 20 years, it's that idea that cancer genes are often mutated versions of normal genes.
+- We know cancer is caused ultimately via a link between the environment and genes. There are genes inside cells that tell cells to grow and the same genes tell cells to stop growing. When you deregulate these genes, you unleash cancer. Now, what disrupts these genes? Mutations.
+- My memory of my household is of one immersed in books and music. I have a very intimate relationship with Bengali literature, particularly Tagore, and my interest besides reading then was music.
+- I am a scientist and I am a physician. So I write papers.
+- Pharmacology is benefited by the prepared mind. You need to know what you are looking for.
+- When you immerse yourself in medicine you realise that hope is not absolute. It's not that simple.
+- Why did I write 'The Emperor of All Maladies?' A 56-year-old woman with an abdominal sarcoma, having undergone two remissions and a relapse, asked me to describe what she was battling. By the time I had finished answering her, I realised that I had written 600 pages.
+- Writing anything as an expert is really poisonous to the writing process, because you lose the quality of discovery.
+- The history is important because science is a discipline deeply immersed in history. In other words, every time you perform an experiment in science or in medicine, what you're actually doing is you're answering someone, answering a question raised by someone in the past.
+- I left Delhi in 1989 and remember very little of how life used to be then. Increasingly, in my recent visits to Delhi, I've started to realize that the city has become intellectually very lively. It makes me want to discover the city over and over again.
+- I wanted to explore cancer not just biologically, but metaphorically. The idea that tuberculosis in the 19th century possessed the same kind of frightening and decaying quality was very interesting to me, and it seemed that one could explore the idea that every age defined its own illness.
+- We don't know why, but pancreatic cancer has a very interesting physiological link to depression. There seems to be a deep link, and we don't know what it is.
+- The trick to my writing, it turned out, was doing so exclusively in bed. The minute I even dared to discipline myself and write at the desk, I produced mounds of nonsense. Yet, sitting in bed, I wrote easily, effortlessly, fluidly. I became the master of perfect indiscipline.
+- Mary Lasker was an entrepreneur; she was a socialite. She was kind of a legendary networker. She became interested in saying, 'Well, you know, if these diseases don't have political support we'll never conquer them.' And she made, really, cancer her special cause.
+- I think the way we think about cancer, the way we treat cancer, has dramatically changed in the last century. There is an enormous amount of options that a physician can provide today, right down from curing patients, treating patients or providing patients with psychic solace or pain relief.
+- Each of us knows a few or several young people whose lives have been devastated by cancer. I don't mean to be nihilistic about it, but it is very much an active killer of people now.
+- The gene that enables birds to learn songs can become cancer-causing. There is no normal physiological process that can't be bastardized by the disease.
+- The idea that cancer genes are sitting inside each and every one of our chromosomes, just waiting to be corrupted or inactivated and thereby unleashing cancer, is, of course, one of the seminal ideas of oncology.
+- In a spiritual sense, a positive attitude may help you get through chemotherapy and surgery and radiation and what have you. But a positive mental attitude does not cure cancer - any more than a negative mental attitude causes cancer.
+- Cancer is not just a dividing cell. It's a complex disease: It invades, it metastasizes, it evades the immune system.
+- If you take 100 breast-cancer samples, 100 types of cancer have 100 different hallmarks of mutated genes. You could be nihilistic and say, 'Oh, God, we'll never be able to tackle this!' But there are deep, systematic, organizational principles at work in all that diversity.
+- I'm human, we all are - all doctors are - and grieving is a natural part of medicine. As a doctor, grieving is a natural part of medicine. If you deny that, again, you'd get into this trap of curing and victory. I think grief is very important.
+- There's a phrase in Shakespeare: he refers to it as the 'hidden imposthume', and this idea of a hidden swelling is seminal to cancer. But even in more contemporary writing it's called 'the big C'.
+- There's a rising cancer trend and, as I said, one of the major contributors is the overall ageing of the population - we aren't dying of other things, so we're dying of cancer.
+- There is a very moving and ancient connection between cancer and depression.
+- Cancer is not one disease but many diseases.
+- I once set myself a deadline: half a chapter a week, 20 minutes a day. The thought froze me instantly, like literary Botox. I returned to my non-schedule: sleeping, writing 20 minutes, and then back to sleep. Breakfast in bed, with juice congealing on the sill: pages and pages began to pour out again.
+- Robert Sandler is a child who died when he was three years old, and he is a child who was the first child that we know of to be treated with chemotherapy.
+- Cell culture is a little like gardening. You sit and you look at cells, and then you see something and say, 'You know, that doesn't look right'.
+- I began wondering, can one really write a biography of an illness? But I found myself thinking of cancer as this character that has lived for 4,000 years, and I wanted to know what was its birth, what is its mind, its personality, its psyche?
+- I think you would have to be a nihilist to say that we are not making progress on cancer, just like you'd have to be hubristically optimistic to say that we have conquered cancer.
+- Because I work on leukemia, the image of cancer I carry in my mind is that of blood. I imagine that doctors who work on breast cancer or pancreatic cancer have very different visualizations.
+- Nearly every one of the genes that turns out to be a key player in cancer has a vital role in the normal physiology of an organism. The genes that enable our brains and blood cells to develop are implicated in cancer.
+- Cancer has enormous diversity and behaves differently: it's highly mutable, the evolutionary principles are very complicated and often its capacity to be constantly mystifying comes as a big challenge.
+- It turns out that the very genes that turn on in cancer cells perform vital functions in normal cells. In other words, the very genes that allow our embryos to grow or our brains to grow, our bodies to grow, if you mutate them, if you distort them, then you unleash cancer.
+- There is a duality in recognising what an incredible disease it is - in terms of its origin, that it emerges out of a normal cell. It's a reminder of what a wonderful thing a normal cell is. In a very cold, scientific sense, I think a cancer cell is a kind of biological marvel.
+- What we do in the laboratory is we try to design drugs that will not just eradicate cancer cells but will eradicate their homes.
+- Sidney Farber was a pathologist. He was called a doctor of the dead. He was a pathologist who sort of lived in the basement of the children's hospital in Boston, and he became very interested in childhood leukemia. And Farber began to inject this drug, aminopterin, into young kids, in order to see if he could get a remission.
+- One day, I had a patient who was going through chemotherapy who came to me and said, 'I'm going to go on with what I'm doing, but I need you to tell me what it is that I'm fighting.'
+- I believe the biggest breakthroughs on cancer could come from brilliant researchers based in India.
+- If something is good, more is not necessarily better. Not always.
+- Good physicians are rarely dispassionate. They agonize and self-doubt over patients.
+- What does it mean to be an oncologist? It means that you get to sit in at a moment of another person's life that is so hyper-acute, and not just because they're medically ill. It's also a moment of hope and expectation and concern.
+- Postwar U.S. was the world's leader in science and technology. The investment in science research was staggering.
+- Most days, I go home and I feel rejuvenated. I feel ebullient.
+- I could write a thesis on the physiology of vision. But I had no way to look through the fabric of confabulation spun by a man with severe lung disease who was prescribed 'home oxygen', but gave a false address out of embarrassment because he had no 'home.'
+- There is an enormous amount of options that a physician can provide today, right down from curing patients, treating patients, or providing patients with psychic solace or pain relief. So, in fact, the gamut of medical intervention is enormous.
+- I think when we use 'stress', we are often using a kind of dummy word to try to fit many different things into one big category.
+- Probably the most important reason we are seeing more cancers than before is because the population is ageing overall. And cancer is an age-related disease.
+- We may have to learn to live with cancer rather than die of it. It means a big change in our mindset and how we do research. We haven't quite reached there yet.
+- Most discoveries even today are a combination of serendipity and of searching.
+- Every era casts cancer in its own image.
+- A breast cancer might turn out to have a close resemblance to a gastric cancer. And this kind of reorganization of cancer in terms of its internal genetic anatomy has really changed the way we treat and approach cancer in general.
+- I think the cardinal rule of learning to write is learning to read first. I learned to write by learning to read.

@@ -1,0 +1,36 @@
++++
+author = "Victor Koo"
+title = "Victor Koo Quotes"
+quotes_len = "30"
+description = "the best 30 Victor Koo Quotes"
++++
+- Our platform is a one-stop shop, from marketing and promotion through to ticketing. But even in the early days, in 2006-07, when we were mostly carrying shortform video, we became the premier movie marketing platform.
+- If you do like what you do, you're cooperating and sharing.
+- Remember, when YouTube was founded in the U.S., America's Funniest Home Videos had been around for a long time. In China, the history of TV as well as user-generated video is very, very short. So, we've actually had to do a lot of things to motivate that.
+- With the scale of our traffic, content library and monetization ability, we are confident to see profitable growth in the future.
+- On the monetization front, our strengthening leadership in internet user base and broadening reach of our platform have already positioned us as a must-buy platform in online video for brand advertisers to reach a nationwide audience within China.
+- Getting direct consumer revenue through movies or games or other culture products is something that we are very suitable for.
+- I do wish to emphasize that in light of the Alibaba deal, Youku Tudou management will remain independent, and we will continue to be open to opportunities for cooperation with other strategic partners going forward.
+- The combined entity Youku Tudou Inc. represents a dominant leader in online video sector in China with the largest user base, most comprehensive content library, most advanced bandwidth infrastructure, and most effective monetization capability.
+- Both YouKu and Tudou do original content for a number of years, and we position it based on our difference in terms of age demographic. And so the content itself is really more suitable for the brand itself.
+- Youku Tudou kicked off 2014 in a positive direction. Mobile has become the number one screen for Youku Tudou, and we are the undisputed leader in all of the important mobile video traffic metrics.
+- Youku Tudou has helped transform how media and entertainment-related content is distributed and marketed since our inception.
+- In China, going public has a cachet from a branding standpoint. It will improve our image to ad agencies, government regulators.
+- The advertising market in China is big and is still growing at a considerable pace. While online video is emerging as a mainstream advertising solution, it still represents a relatively small portion of advertising budget in China.
+- On top of opportunities in further traffic growth, there are increasing opportunities to fully realize the potential of the online video ecosystem, as China continues to evolve into a consumer-driven economy.
+- Since our inception, Youku Tudou as the leader in the multi-screen video space has helped transform how video and entertainment-related content is distributed and marketed.
+- It's very hard to just have a pure form like a Hulu or a YouTube to be successful in China because our view is, users come to a platform; they really don't care whether it is professional or whether it's a user-generated, or it's premium, you see. They want to come to a big database to be able to find the content they want.
+- At the Hong Kong festival, we were co-producers of the opening film, 'Aberdeen,' which is the third part in a popular movie series.
+- 'YouKu' means what's best and what's cool in Chinese. So, the whole product philosophy really revolves around how to help users, from a massive video database, finds what's best and what's cool.
+- Broadening and deepening the relationship with our users and advertisers have always been our strategic priority.
+- Back in 2005-2006 when Tudou and Youku were founded, we saw the inflection point with the opportunity to build the leading PC-based video website.
+- If you don't like what you do, you're probably dragging your feet.
+- With the rapid growth of Internet users in China bringing online video into a new paradigm, the market scale we first envisioned as an online video website back in 2006 has grown significantly.
+- Youku Tudou is a hybrid, like combining Netflix and YouTube. Like Netflix, with Youku, which launched in 2005, we syndicate a library of longform content and create original content. The Tudou model started with user-generated content but is increasingly becoming about partner-generated programming.
+- While we can learn from U.S. models, we certainly can't practice them.
+- The enhanced features of our ad products would require sufficient understanding from our sales force, advertisers, and agencies. To facilitate this, we have held multiple training sessions internally and road show events externally.
+- In the U.S., search engines are king. That is because everyone already knows what they are looking for. Brands have been around for a long time.
+- If Youku had adopted YouTube's business model, we just would not be here. We would not exist.
+- If I hadn't gone to Stanford, I'd be working at P&G now.
+- Our management team strongly believes that the key opportunity of our business does not only come from just the increase in terms of number of users but also how we continue to enhance the value of our platform for our users.
+- The online video business started in both China and the US around 2005/6, when broadband penetration grew big enough.

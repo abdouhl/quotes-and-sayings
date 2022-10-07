@@ -1,0 +1,61 @@
++++
+author = "Derek Cianfrance"
+title = "Derek Cianfrance Quotes"
+quotes_len = "55"
+description = "the best 55 Derek Cianfrance Quotes"
++++
+- Making a film is like making a mixtape. You're collecting all this stuff and putting your favorite stuff into it: you have actors that you like, characters that you're interested in, moments you want to explore, themes you want to deal with, music that you want to put in. It's a pastiche of all these things that deal with how you see the world.
+- I'm not asking actors to act. I'm asking them to behave. I want to see their being, not how they can fake it.
+- After 'Place Beyond the Pines,' honestly, I was sick of myself. Sick of my own ideas. I wanted to do an adaptation, but everything I'd been reading, I just didn't understand it.
+- When people think of biblical movies, they imagine sweeping epics like 'The Ten Commandments.' But 'The Gospel According to St. Matthew' is essentially a documentary about Jesus. It made me aware of how real life and personal experience can create more breathtaking, sensitive cinema than more sophisticated techniques.
+- I feel like the job of an artist is to confront their own darkness and their own demons and fears. And I want to make movies that feel human up on the screen. I don't really relate to dudes wearing spandex and capes.
+- When we make these movies, you sign up for an experience. It's not just, 'Action! Cut!' There's not that safety in it. It's kind of a dangerous place to be. I mean, it is safe, but it gets personal. It's no longer about saying the lines. It's about really having an experience.
+- Now, I love movies so much, but I find a lot of movies to be arrogant in the way they're kind of know-it-alls - they have perfect characters on the screen that know everything about themselves.
+- I think 'GoodFellas' is just a perfect film. From an efficiency of storytelling standpoint, from an entertainment standpoint, from a performance standpoint, from a use of music standpoint, from a cinematography and editing standpoint - to me, it's just a perfect movie.
+- I ask all my actors to do two things: I ask them to fail for me, and I ask them to surprise me.
+- One reason Cassavetes is a hero to me is that his movies grew with him; they reflected the stages of his life. He made movies about where he was at that time. That's what I want to do with my films.
+- With each character in a movie, I'm looking for a human being. I'm looking for a person. And to me, I'm looking for a person that's full of strengths and weaknesses, a person that's full of successes and failures, a person that's full of joy and sorrow. I'm interested in people that are human beings that are alive.
+- When I was a kid, I had two nightmares: one was nuclear war, and the other was that my parents would get a divorce; and when I was twenty, they split up, and I just felt like I needed to confront all those things that scared me as a kid - entering young adulthood and trying to have relationships.
+- I feel like the job in editing is to let the movie tell you what it is. So again, it's like sculpture. You just start taking away, you add a nose here, you cut off, like, the side of the cheek over here in the crease, and you have a face. But it really reveals to you what it means to be over time, and if you have enough time.
+- I think book adaptations, the best one to me is like 'Brokeback Mountain.' Which is a short story, 21 pages, that expands so beautifully into a movie.
+- I love actors that are brave, that are courageous. And courage to me is not the absence of fear, it's the presence of fear, and they go to places that really scare them, because as an audience, that's where you feel danger.
+- I don't think we ever know 100 percent of a person, even ourselves, but I think in families, you get closer to people's secrets and people's darkness - and their light, the full contrast of a person.
+- There's this thing in Hollywood about the sympathetic character and likability. I've never understood that because the people I love most in my life are not likable all the time. My wife is not always likable. I'm certainly not always likable. My dad is not always likable. We're human beings.
+- The only time I judge an actor on set is if they're not failing; if they get it right all the time, I start to question it. I feel like it's too easy.
+- There's something so great when you're watching a movie when you slowly get to know somebody more, because it's like a real relationship.
+- When I grew up, a director was Cecil B DeMille, a guy sitting down with a megaphone speaking. He was the voice of God, the image of God. When I went to start making docs, I quickly turned the megaphone to my ear not to my mouth. It's more about funneling in the words and listening as doc filmmaker.
+- I love people that work with passion and love. When you make choices that way, there's reverberations, consequences. That's what I'm interested in, that echo, that ripple of choice.
+- My older brother gave me a cassette tape of Mr. Bungle, and I couldn't stop listening to it. I used to drive around Colorado in a Mustang II - it was when they got away from the muscle-car Mustangs, so it was sort of old lady. I couldn't go above 45 mph in that car, but I would drive around listening to Mr. Bungle.
+- I'm not the greatest reader. I feel like I have a bit of dyslexia or something, and that's probably why I became a filmmaker. I have the need to communicate, the need to tell stories; and the need to understand stories led me to movies.
+- When I cast great actors, I try to make extraordinary people ordinary, dealing with these extremely small intimate details of interpersonal relationships against an epic backdrop.
+- I think people need fantasy, but I think they also need to know that they're not being lied to. I think sometimes the fantasy can betray people and become more difficult for people's lives than just truth. I can't stand delusion. Delusion makes me sick.
+- I have kids. I can't hardly watch an afternoon football game with them without having to turn off the TV during the commercials. It's too much. I don't know when violence was deemed such a cinematic thing.
+- If you make a movie that's close to your heart, it will be close to other people's.
+- Right now, I think I have time to be three things, in no particular order: a father, a husband, and a filmmaker. That's why I don't go out - I have no space for it. I feel like one of those main things would suffer.
+- From making documentaries all these years, it doesn't feel right to lead someone. In narratives, I'm always trying to shoot as though it's really happening, and I trust my actors are going to make decisions that I'm going to be following. I want to follow them.
+- It's like you take these great actors and put them in an aquarium of life and just watch them swim. That's what makes editing tough because you get all these beautiful, unplanned moments.
+- There's one rule that I have on my movies, which is that anything that you want to do, you can do. But! There's a flip side to that, which is that anything I want you to do, give it a try also.
+- I never learned to be a writer. I never took screenwriting courses. I never read anyone's scripts. As a writer, my only guiding principle has been to write about things that scare me, write about things that make me feel vulnerable, write about things that will expose my deepest fears, so that's how I write.
+- I feel similar to a lot of people. I don't feel unique. So what I'm trying to do in my films is provide something for people like me, but also a collection of scenes that instigate.
+- I shot 'Blue Valentine' on 16mm for the past, and for the present on the Red Camera. I feel that both formats are valid. The stories should dictate the format we shoot on. Filmmakers should have a choice.
+- I'm trying to be the coach. My actors are my players. They're doing things that I'm too cowardly to do myself.
+- In terms of Ray Liotta, when I was a teenager growing up in Colorado, I didn't have pictures of girls on my wall. I had pictures of Ray Liotta on my wall. Along with Mike Patton, he was one of my heroes.
+- As a writer, I always peel back the layers, go to the most sensitive places uncomfortably close to the heart.
+- Every moment is, in some ways, eternal. Once you put something into the world, it stays there.
+- There's something so glorious in giving control to the world. I think that's what I'm trying to do in my films - control the world but also let it be chaotic, let there be life.
+- I don't have a life, really. I take my kids to school, and I go home, and I write. Then I go pick my kids up, make them dinner, put them to bed, and write some more.
+- We had all these smiley family pictures all over the walls of my house, but I always found those pictures to be odd because we weren't smiling all the time. I don't want to paint the picture of a total dysfunctional house, but there were a lot of arguments in that house. A lot of pain.
+- I was a member of the VHS generation. I used to study movies as a kid because I had a VCR and could record a movie on HBO and just watch it repeatedly.
+- To me, discomfort is a gift in the films that I'm making.
+- Look, pain is there in the world, and there's catharsis through that. I feel like there's... a rapture, if we can get through it, if we can confront things.
+- There was a time in my early 20s when I would leave a movie theater and just feel so alone and lonely afterwards. I just felt like my life was nothing like those characters up on the screen, so perfect all the time. Why didn't I talk like that? Why don't I look like that?
+- I don't really collect anything. I grew up in a family that collected things, and then they'd get sick, and people die, and then they have their basements full of stuff that goes from one box to the next, so I try not to get sentimental with stuff. I just try to collect memories; I guess that would be it.
+- One of the bad things about being a filmmaker, about being me, is I can hardly read a book anymore because every time I read something, I have a poaching mentality, like, 'Oh, can this be a movie?'
+- I've always thought that guns are a cowardly tool in the hands of men and women trying to solve problems with each other. And cowardly in the hands of filmmakers. It's taken so lightly in films.
+- I grew up Catholic, so I feel guilty about everything.
+- Lars Ulrich, he was my hero growing up. I wanted to be like him. I played the drums.
+- I was an audience member before I'm a filmmaker. All I've tried to do as a filmmaker was to make movies I want to see.
+- You turn on the news, there're no facts anymore. 'Here's what's happening today,' and then you cut to thirty minutes of people in little boxes, little windows, telling you their opinions on it. It seems like all the news is going on in the ticker-tape on the bottom of the news. It's all opinion, it's all editorial.
+- When I cast someone in a movie, I have to absolutely trust who they are as a human being. Trust is the intangible of moviemaking.
+- As a parent myself, I can appreciate the MPAA and what they're supposed to do, but what happens with NC-17 is that the MPAA is basically taking away the rights of parents. They're basically telling me that I can't show my kids this movie if I decide they can see it.
+- Seeing 'The Gospel According to St. Matthew' was an extraordinary experience because it made me realise that all the biblical stories and images I'd ignored as a child had sunk in by osmosis. I saw that my childhood was deeply rooted inside me.

@@ -1,0 +1,88 @@
++++
+author = "Ezekiel Elliott"
+title = "Ezekiel Elliott Quotes"
+quotes_len = "82"
+description = "the best 82 Ezekiel Elliott Quotes"
++++
+- This is a physical game, and that's how you have to play. When you do that, the defense eventually gets tired of tackling you.
+- I obviously love to run the ball.
+- I'm a guy who can play all three downs, and I excel in all areas of the game.
+- You can't win every game, so I've just got to get back to work and get better next week.
+- When we go out there, we have fun, but we get to work, and I think we're at our best when we're having fun. Having fun is key.
+- I'm not going to change; I'm going to keep grinding. I'm going to do all I can to win.
+- Trust your landmark and run through the smoke. It's going to open up eventually.
+- The best way to learn is getting out there, getting reps, and making mistakes.
+- I'm focused on going out and winning ballgames. Focused on getting better with the team every week.
+- I think I'm a guy who's going to work and work hard from Day 1, and I think I'm a guy who brings a lot of versatility to the position.
+- I wouldn't say I'm a victim of high expectations. The expectations are going to be there.
+- I'm a guy that can play three downs. You don't have to take me off the field. I value blocking.
+- I think I'm a guy who is going to come in and work hard from Day One.
+- It just helped going to work every day, knowing that you're going to work with guys that believe in you; you're going to work for guys that believe in you. You want to perform for them.
+- I think I've been doing a good job of just making sure that I'm taking care of my body.
+- It should be about this team, and it should be about these guys. It should be about our relationship. It shouldn't be about records.
+- In playoff football, you've got to be physical. You've got to run the ball.
+- What's a priority is going out there and winning ballgames every week.
+- The NCAA has its rules. It's our job to abide by them.
+- Notre Dame was my dream school growing up. But in recruiting, they had some other plans, what position they wanted me to play.
+- You can't go out and press. That's when you're going to make mistakes. Just act like you've done it before.
+- The money between the first pick and the 10th pick - that's a big difference! That's like a $10-million-dollar difference.
+- Witten was my guy. I stayed in Wit's hip pocket and did everything I could to learn from him, learn how to be a pro.
+- I have a lot of great players around me. I have the best O-line in football. It's what's expected.
+- I just don't like how long the jersey is. I don't like to tuck it in, so I like to tuck it up under.
+- That's something I kind of started Week 1, so when it got to where I'm getting a little beat up, I have a routine already for getting my body back together. Just getting in the cold tank, making sure you're getting massages.
+- I wasn't going to play on defense in college.
+- We've talked before what is important is week in, week out, getting wins and getting better.
+- I'm a guy who expects a lot from himself.
+- I think I have great hands out of the backfield.
+- I'm a versatile guy. I'm a third-down back.
+- Whoever wins MVP, whoever wins whatever those awards are, that's not my decision.
+- I take pride in being a jack of all trades.
+- Once you make a mistake, it's kind of in your head what you need to do and what exactly is going on.
+- When you let those defensive backs know that you're a physical player, they don't really want to tackle. That's it. That's why you see me get a hurdle every game. Those guys don't want to tackle me when I get to the second level.
+- The criticism is what I expect, honestly, because I'm criticizing myself every day when I come in here and watch that film. I'm trying to get better.
+- I think actually it's kind of sad because something I looked forward to just getting to the NFL growing up was just being able to have more fun, the rules loosen up, being able to celebrate.
+- I'm a competitor.
+- My job is to go out there and play football. My job is to go out there and win football games.
+- There's only one professional team in Columbus, the Blue Jackets, but Ohio State is a football state.
+- I'm a great pass catcher. I'm excellent in pass protection, which is the most important thing. You can't play, you can't get on the field if you don't protect that franchise quarterback.
+- I'm just trying to go out each week and get better. I just have to be patient, and it's going to happen.
+- I hate to lose more than I love winning, and I'm coming to Dallas to win a Super Bowl.
+- Nobody's expectations are going to be more than mine.
+- I think I probably have one of the easiest jobs in America. I get to run behind the best O-line in America.
+- I live for the high expectations.
+- During the game, there has to be a moment where you have to set the tone. You have to let them know that you're a physical player.
+- I think I do deserve more than 11 carries. I think I really do.
+- I just like the ball in my hands whether I'm running it or catching it.
+- If we go out there, and we play well and win football games, all the good stuff will come with it. It's not my job to worry about something I can't control.
+- With every rep, you're going to get better.
+- I want to go play behind that great offensive line they have down in Dallas.
+- Ohio means a lot to me. Kinda like a second home, just the memories I have here and the fans I made while at Ohio State with the things that I accomplished at that great university.
+- We should be able to have a little more fun. I think it's entertainment to the fans.
+- To me, a good running back is a good defense. A good running back helps you keep your defense off the field.
+- I think they're taking a little bit of the fun out of this pro game.
+- I'm going to finish my runs hard, and I'm going to try to set the tone.
+- The more you see, the more you're going to learn. Just got to take advantage of the opportunity and get ready to play ball.
+- Winning the Super Bowl would be way more special than the rookie rushing record.
+- I am tired of hearing about Coach Harbaugh; I think he needs to get in check with reality because, at the end of the day, you can't talk smack about a rivalry when you haven't won a rivalry game. You got to win ballgames to be able to talk behind it.
+- I think at Ohio State, we're professional athletes in Columbus.
+- Honestly, the type of runner I am, I'm a physical guy, and I try to set the tone early in the game, so you're going to see it a lot in the first and second quarter.
+- We want to play a physical game and impose our will on people.
+- I've worked on my game, and I don't think it has any holes, no weaknesses. I say that with humility because you can always work to get better. But I run inside, I run outside, and I'm just not a guy you have to take off the field for certain packages.
+- It would be special, just to know I had the best rookie season a running back has had in this league, especially a record that's been however old it is.
+- I've given it all from my combine to my pro day to my meetings with teams.
+- You kinda got to embrace expectations, but it's not something I pay attention to.
+- You definitely have to think of the perception of things before you actually do certain things. It may not seem like it's a big deal to you yourself, but there's a bigger picture.
+- You don't want to attack one game more than another.
+- The way I approach things is that I'm a physical player.
+- I think it's just a chemistry thing, feeling each other out. The more you play with each other, the better it's going to be.
+- I'm going to go out there and do what I do and play football, and everything will work out.
+- I'm a great inside and outside runner.
+- It's always great to get more reps.
+- You can't really sit around when you're sore. You've got to get up and work all that lactic acid out.
+- Once you make that first mistake, it kind of clears up everything, and everything can come to you.
+- Every play, I'm trying to get as many shots on the opposing team as I can, so when you get to the fourth quarter, they obviously don't want to be on the field anymore.
+- That's just how I live my life. That's how I was raised: to demand excellence out of myself.
+- I understand what's expected of me. I understand the lineage for the running back position of the Dallas Cowboys.
+- Honestly, when I'm out there, I really don't even think about them as guys with names. I look at them as numbers.
+- I feel blessed. All the great running backs that have come through Ohio State - Archie Griffin, Eddie George, Beanie Wells - I'm happy that I was able to carry on that lineage this season.
+- I don't think, as a player, I have a weakness on the field. I've done a great job of becoming good at everything, so I think that's what separates me.

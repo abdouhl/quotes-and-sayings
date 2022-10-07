@@ -1,0 +1,90 @@
++++
+author = "Elaine Stritch"
+title = "Elaine Stritch Quotes"
+quotes_len = "84"
+description = "the best 84 Elaine Stritch Quotes"
++++
+- When I want to do something badly enough, I do it, but there is a practical side of me that thinks I should be paid fairly.
+- I could have made a lot of money doing 'Golden Girls,' and I would have been good. But the image of it! And for me to work with Betty White every day would be like taking cyanide.
+- If I see someone saying the rosary in the wings, I know they've got talent.
+- I smoked, I drank, I did all the kicking my heels up type things, but I went to Mass on Sunday.
+- You cannot tell an audience a lie. They know it before you do; before it's out of your mouth, they know it's a lie.
+- I think the most interesting New Yorkers are the people who were not born here.
+- I'm a good acting partner for me... when I don't have anyone else, I do really well!
+- Isn't this fantastic, what a star I am?
+- I think it's the wrong way around to say, 'When you get older move to the country.' I think when you get older you move to New York.
+- I like being talked about. I think some people really don't... because they're secure enough and they don't need that.
+- I'm a hotel baby, absolutely: it's hard to think of a hotel I haven't stayed in.
+- You never know what is happening to yourself when it is happening.
+- Betty White is probably a very nice woman.
+- I do believe in the infallibility of the Pope, because I think we have to believe in something.
+- As a diabetic, I'm a walking picnic. I have to eat measured amounts of food at certain times.
+- All of the writing on '30 Rock' is a joy to go into. It's pretty hot stuff.
+- I'm funny when I want to be. And I'm even funny when I don't want to be.
+- I can't explain chemistry. I really can't. I haven't got a clue what it's all about. It just happens. It's like falling in love. You can't explain why you fall in love or explain why it's this particular person.
+- Talent is very dangerous. It alienates people.
+- I don't have to go to a doctor and have my face changed. It terrifies me that women do that.
+- All you have to do is say, 'I'm going home,' and you're the most popular girl at the party.
+- The closer a part is to you, the harder it is to play. Anything else is just imitation. If I'm playing a Russian countess, I get the hat, the accent, the outrageousness. Easy. Playing a murderess? Perfect.
+- I love holidays in New York. I love 'em. I want to celebrate something all the time, and New York has holidays for every day of the week, practically. I like holidays in New York City.
+- The people in New York - their humor is on a level that goes, uh, very deep, you know?
+- If I see a great performance on television, onstage, in the movies, I go to work the next day with a renewed energy and less fear. These great artists take me out of my life and make me want to go there.
+- I'm loaded with talent.
+- My biggest dream was to get out of Michigan - to discover life beyond the Sacred Heart Convent.
+- There's something about it that makes sense, Lent. You give something up, and everything's more joyful.
+- I find it easier to abstain than do a little bit of anything. I'm not a 'little bit' kind of dame. I want it all, whatever I do.
+- There's something that really frightens me - and that's fear.
+- I mention I'm going home, and I'm a star immediately! This used to happen with my boyfriends - as soon as I'd say, 'I gotta go home now,' they fell in love.
+- I like glasses so I can go out without my makeup. Just grab your coat and get your hat and go.
+- I compare Stephen Sondheim with humor, because humor is unanalyzable. You can't analyze humor. You just have to get through it.
+- I love audiences. My God, the best friends in the world!
+- I don't want to see my family all the time, and they're delighted, I'm sure, to be aware of that.
+- I care about money, very much. I want it. I don't ever want to be without it. My mother once said about me, 'Elaine has to have money.'
+- Talent is seductive.
+- I love reviews. Anybody who tells you they don't read reviews is a liar.
+- There will always be ladies who lunch. Always. And apparently they live a long time.
+- I just serve others through entertaining. That's when I am happy.
+- Fans recognize me all over the place. But the second you need anything, they're never around! They're like the police!
+- I am not influenced by other human beings. But I am inspired.
+- Fear is the base of what everybody does wrong in their lives.
+- There are a lot of things I do that I don't want to, but I have to. It's truly an emotional need for me to perform.
+- I think taking care of yourself, health-wise, in every way, is a 100 percent winner.
+- You can't be funny unless you're tragic, and you can't be tragic unless you're funny.
+- New Yorkers stop me on the street all the time to say, 'You're terrific! You're the nuts!'
+- I don't think there's any thrill in the world like doing work you're good at.
+- I don't have a great talent for explaining myself in acting because I can't explain it.
+- I think being boring is just the worst sin of all time.
+- There were a lot of lyrics that I sang but didn't understand. But I had this facade in performance of looking like I wrote the book.
+- I love New York. I went to New York to become an actress, and I did it. And I won all the awards known to man. And I'm happy. And I came home. I came, I saw, I conquered. And it feels great.
+- Audiences are not strangers to me. They're the best friends I've got in my life.
+- Honestly, this is a big thing to say, but I don't think I've ever been bored. If I even get an inkling of it, I split.
+- Certain type of actresses get younger instead of older. I always say, 'Only ingenues age.'
+- I don't wear a wig. I'd feel terrible onstage with a wig. I hate to be so 'Actors Studio'-ish, but I like to feel it's me out there.
+- For me, going to London is like coming home. In fact, I've often entertained the idea of ending my days there.
+- I like celebrities. I love people who are famous. Always have.
+- Quite frankly I don't know how to be happy. I have not a clue.
+- What I want to understand is what I am talking about on the stage. What I don't want to understand is what the government is talking about when the government tells me about taxes.
+- I have not had any of that surgical stuff. I am too curious to find out exactly how I progress every day of my life naturally. That is what fascinates me.
+- There's certainly nothing lasting and definite about the theater.
+- When I'm playing comedy, it is such a crap shoot of what will work and what won't.
+- I always say, 'If you can't give a reason for the banana peel being in the alley, then don't have the comic slide over it.' Do you understand what I mean? First explain how the banana peel got there quickly. And then there's a reason for all the comedy.
+- I loved being on Broadway, but performing has become exhausting, and I just don't want to live in New York anymore. I'm just sick of the competition in New York, the feeling that I always have to rehearse to keep up my performance. I don't feel like rehearsing, even though it should be my favorite thing in the world to do.
+- Let me tell you about those convents. All that crap about extending the pinkie finger while sipping tea is a myth. Convent schools are breeding grounds for great broads and occasionally one-of-the-boys. Convent schools teach you to play against everything, which is what I'm still doing.
+- I think I have more humour in me than anger. But those two things are great bed-fellows, performance-wise.
+- Diabetes is a lousy, lousy disease.
+- I don't want to see a movie twice. I don't want to do anything twice.
+- This age thing is all up to you. It's like happiness is up to you. You just have to understand what it is before you get it.
+- These performers that go on about their technique and craft - oh, puleeze! How boring! I don't know what 'technique' means. But I do know what experience is.
+- My idea of serenity - that wonderful word that everybody's trying to get into their life - is call-waiting.
+- Why haven't I made more movies? Nobody asked me.
+- I don't think I'm gonna die tomorrow or even two weeks from now, or even ever. I just don't know - who the hell knows what's gonna happen to them? Nobody! Isn't that comforting? Nobody has a clue. I like that we don't know. And I like that it's somebody else's decision, not mine.
+- My movie career - if such a thing even exists - is laughable.
+- Dying is easy. Comedy is hard.
+- Making clever speeches takes a lot of work and a lot of time.
+- I have no intention of retiring. Even my blood sugar is better when I'm working.
+- I tell the truth, and it has gotten me into a lot of trouble. My dad used to say to me, 'If you tell the truth all day long, you will end up in jail.'
+- I never found anyone who could look after me as well as I could look after myself.
+- When the hospital sends for me, when the ambulance comes and I ease my way out of the world, I'd rather be in Detroit, Michigan, than Lenox Hill.
+- I love Birmingham, Michigan. It's lovely - you know, it's very similar to the Hamptons.
+- I never thought about living in New York. I just thought it was great.
+- You have to be very, very good looking to get ahead in motion pictures.

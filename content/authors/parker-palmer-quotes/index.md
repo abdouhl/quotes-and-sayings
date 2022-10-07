@@ -1,0 +1,24 @@
++++
+author = "Parker Palmer"
+title = "Parker Palmer Quotes"
+quotes_len = "18"
+description = "the best 18 Parker Palmer Quotes"
++++
+- When I was depressed, nobody expected anything of me, nor did I expect anything of myself. I was exempt from life's demands and risks. But if I were to find new life, who knows what daunting tasks I might be required to take on?
+- There are a million 'oughts' in the world. There's a million ways in which I ought to be serving the world. But the ways I'm gifted to serve and the opportunities that come to me to serve are not a million.
+- Whatever America's founders believed about Christianity - and they believed a wide range of things - they clearly rejected the idea of an established church.
+- I think the pursuit of happiness is the pursuit of reality because illusion never leaves us ultimately happy.
+- I think there's a lot of anesthesia being - that's been pumped into American culture, the mass media television, various forms of entertainment, and the illusion of wealth that we now understand to be an illusion as well as the illusion that America is a world power.
+- Whether we're Democrats or Republicans or independents, we have to learn to hang together or we're gonna hang separately.
+- Movements begin when oppressed people make - and keep remaking - a deeply inward decision to stop consenting to external demands that contradict a critical inner truth, the truth that they are worthy of respect.
+- As a Christian, I'm passionately opposed to American pretensions that we have special standing with God; to political office-seekers who play on our religious differences; and to the religious arrogance that says, 'Our truth is the only truth.'
+- We have been deformed by educational and religious institutions that treat us as members of an audience instead of actors in a drama, so we become adults who treat democracy as a spectator sport.
+- Even when life challenges us, it's a gift beyond all measure.
+- Political civility is not about being polite to each other. It's about reclaiming the power of 'We the People' to come together, debate the common good and call American democracy back to its highest values amid our differences.
+- What passes for political realism may make for lively academic debates. But it often functions, ironically, as a tool of social control, rendering us passive with an analysis that overwhelms and paralyzes us.
+- We are a profoundly interconnected species, as the global economic and ecological crises reveal in vivid and frightening detail. We must embrace the simple fact that we are dependent on and accountable to one another.
+- Every religious tradition is rooted in mysteries I don't pretend to understand, including claims about what happens after we die. But this I know for sure: as long as we're alive, choosing resurrection is always worth the risk.
+- America's freedom of religion, and freedom from religion, offers every wisdom tradition an opportunity to address our soul-deep needs: Christianity, Judaism, Islam, Buddhism, Hinduism, secular humanism, agnosticism and atheism among others.
+- Fascist movements kill off their critics, literally or metaphorically, while democratic movements value, invite and even welcome criticism.
+- Inner-life questions are the kind everyone asks, with or without benefit of God-talk: 'Does my life have meaning and purpose?' 'Do I have gifts that the world wants and needs?' 'Whom and what shall I serve?' 'Whom and what can I trust?' 'How can I rise above my fears?'
+- Proposing inner-life solutions to our political and economic catastrophes is something done, say the critics, only by people who've spent more time in la-la land than in the 'real world.'

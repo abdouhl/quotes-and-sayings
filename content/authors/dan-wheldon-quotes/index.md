@@ -1,0 +1,16 @@
++++
+author = "Dan Wheldon"
+title = "Dan Wheldon Quotes"
+quotes_len = "10"
+description = "the best 10 Dan Wheldon Quotes"
++++
+- I get bored. We seem to have been having a little bit more time off this winter than last winter. I'm always itching to get back in the car. It's going to get harder, so I've got to make sure that I'm doing everything I possibly can do to make sure I can start next season how I ended this season.
+- The last thing I want my child to see is Dad running around in the middle of the pack. That would really upset me. And that would upset him. I would be embarrassed to take him to school with kids saying, 'Hey, how'd your dad do this weekend?' 'Well, he finished fifth or sixth'.
+- I think you're certainly going to see much closer racing. But, no, these are very good teams in the IRL. I just can't stress how competitive they all are and how close it's going to be.
+- But, no, I don't think there will be any kind of problem as far as setting up to be competitive, but you've got to get it right if you want to be the first one across the line.
+- But I think primarily, it's the fans that make this race.
+- I haven't seen it this busy since I've been an IndyCar driver. So I think that's a great kind of thing that's happening for the IndyCar Series, in general, right now. But it's an event that I'm very proud to be part of. I love it. I can't wait to come back next year.
+- The two championship contenders, Dario Franchitti and Will Power, are starting right next to each other in the middle of the grid. Honestly, if I can be fast enough early in the race to be able to get up there and latch onto those two, it will be pure entertainment. It's going to be a pack race, and you never know how that's going to turn out.
+- Then as everything, like I say, things started to come together, when things started to go our way, that's when you results started to come. I was no different driver. I was certainly learning every time I went in the car.
+- I think I've explained earlier on in the year that I kind of underestimated how important experience was in this series, especially when you're up against such good quality drivers.
+- But I have to say I'm incredibly proud of the Panther Racing National Guard Team, and in my IndyCar career there's not many races where I've honestly left the track feeling that we've executed everything perfectly. And I have to say, I thought they did an absolute phenomenal job. The pit stops were just first class.

@@ -1,0 +1,32 @@
++++
+author = "Diana Quick"
+title = "Diana Quick Quotes"
+quotes_len = "26"
+description = "the best 26 Diana Quick Quotes"
++++
+- I'm a complete addict of The 'X Factor,' so I can see why everyone gets so inspired. But there's a downside to celebrity: your life is up for grabs, your career is much more disposable, and you are therefore vulnerable. It's a high price to pay.
+- My parents liked to go dancing, and they encouraged all of us to bring our friends home. My brother had a skiffle group, and there would often be dancing in the house. And my parents would come and dance with us.
+- I have a cottage near Aldeburgh, and from there it's a sturdy two-mile walk across farmland to an empty beach, where I collect hag stones and run around with the dog. I'm a keen walker, and I love Suffolk's big skies.
+- The sheeplike nature of travel - being on a beach with thousands of other people is not my idea of fun. I also don't like being a tourist because you don't know what's really going on in a country.
+- I buy most of my plants from nurseries outside London these days, but there is a man who mysteriously appears each February to sell plants from a derelict site in Market Road. I think he's Greek, but people say he comes from Essex. He vanishes at the end of May only to reappear in December as suddenly as he went.
+- I don't pretend to be happy all the time. I think to be human is to be happy and unhappy by turns. But I have a great capacity to enjoy myself, and it seems to grow as I get older.
+- Good looks are not something you earn. But as you get older, how you look is a reflection of the life you've led.
+- I moved to Kentish Town from Chelsea in 1983, partly because I had a lot of friends already living in the area and because it took an hour off the journey to my house in Suffolk. It has a villagey feel, and it's still a very mixed community, which I like.
+- When Mary arrived, I felt a mixture of emotions, including panic and overwhelming love. I felt a great sense of responsibility, not just towards my child but also towards her father. There have been many influences on my life, but that thing of finally becoming a family person was the greatest.
+- I don't wear much make-up in my non-working life, though I love to dress up and put on a face for a special occasion. As I get older, I see less of the fantasy 'Indian' self I inherited from my father, and I see my mother looking back at me.
+- As a young actor, I played a lot of 'exotic' parts and was stuck with the tag 'sultry.' I had to refuse such parts if I were ever to play anything else. It did the trick, but my agent feared it made me harder to cast.
+- I'm an actress, not a celebrity.
+- That was the fun of acting, being a blank canvas you could transform into the character - Indian princess, 20s vamp, Mother Courage, Oxford don, 94-year-old wife.
+- There have been setbacks, illnesses and other obstacles, so inevitably I've had disappointments. But once you realise that things can't always go your own way, you're on the right track to being able to handle your own life.
+- When I was growing up and trying to get my foot on the ladder, I had the self-belief that my mother taught me, and it never occurred to me that anything could go wrong. I've learned life can't be like that.
+- My father was a very warm, gregarious, sociable person who had many interests. He lived his life very much in the present, full of activities and the next project. He had many hobbies. He was not given to retrospection.
+- I discovered that there is Indian blood in my ancestry on my father's side - a fact that had not been talked about in my family. No wonder I've often been cast in exotic roles - Indian princesses, Russian revolutionaries, Algerians, Gypsies and Greeks.
+- I walked across Tuscany from Siena to Rome, which was a lovely way to see the landscape. It was sunny but not too hot, and we made detours to look at treasures - churches, paintings, little hill villages. The first couple of days, you feel your knees are turning to jelly. But, at the end, you feel very limber. I hope I can always do it.
+- I'd love to play a femme fatale in a film noir. I'm thinking of one of those roles that Lauren Bacall or Bette Davis might have played. What I wouldn't like is to suddenly find myself being cast, as many senior actresses seem to be, as the abbess in a convent.
+- I did a couple of sketch shows with Mike Palin and Terry Jones... and then I got hired by Granada to do a weekly topical show.
+- I don't think it's ungracious to seek cosmetic help - it has crossed my mind from time to time, and I have been tempted. But it's too short-term. Once you start down that road, you have to keep going.
+- It's always been fun for me to play a variety of parts, and over the years, I've been lucky with the things I've been asked to do.
+- I always take an Alastair Sawday guide. I stayed in three or four places in India that they had recommended, and every one of them was wonderful.
+- 'The Discovery of France' by Graham Robb is teaching me lots about a country I've long loved but realise I didn't really know.
+- What was I like in 1966? I was 19 years old, very confident, and life was a big adventure.
+- If you try to live as well as you can, then hopefully your face will reflect that. But it's unfair that we put so much pressure on women to look good and then give them so much stick when they go under the knife to achieve this.

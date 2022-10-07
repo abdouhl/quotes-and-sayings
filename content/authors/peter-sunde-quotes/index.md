@@ -1,0 +1,106 @@
++++
+author = "Peter Sunde"
+title = "Peter Sunde Quotes"
+quotes_len = "100"
+description = "the best 100 Peter Sunde Quotes"
++++
+- Of course I would have preferred to win in the Supreme Court as personal vindication and to vacate my sentence.
+- I've been distilled to this computer nerd.
+- I think if someone sues Google, it will be very, very interesting.
+- Filesharing in Sweden can't get you into prison, so there's nothing criminal about helping people to fileshare.
+- SuprNova will be for the beginners. It's easier to use than most sites out there and we want everybody to be able to use it.
+- I'll live with whatever sentence I'll get in the end - I'll just finish my book.
+- Finland actually made Internet access a human right a while back. That was a clever thing of Finland. But that's like the only positive thing I have seen in any country anywhere in the world regarding the Internet.
+- The reason for the real name policy is Mark Zuckerberg wants to make another dollar.
+- Most of the people leaking movies or giving out movies are because they love the movies.
+- We see this in legislations such as SOPA, PIPA, ACTA, IPRED, IPRED2, TPP, TRIPS, just to name a few. All of these legislations have the same goal - make sure that the control of the Internets goes to the rich people that already have some sort of control outside of the Internets.
+- I've signed a few autographs.
+- Most entrepreneurs, when they become successful, they turn into idiots... It's the same thing with rockstars and entrepreneurs: big money and big egos.
+- Flattr Plus has nothing really to do with ad blocking.
+- People ask if I would have done anything different if I could. The answer is no.
+- We've centralized all of our data to a guy called Mark Zuckerberg, who's basically the biggest dictator in the world as he wasn't elected by anyone.
+- Not everything people do is good - people make Coca Cola and some people want it and some people don't, but we don't outlaw it.
+- I don't care if the record labels survive. The music will survive anyhow.
+- All communication on today's networks are being monitored by government agencies and private companies.
+- So I think we should stop celebrating entrepreneurs and just celebrate innovation instead.
+- Pirate Bay gives you the opportunity to share information for free, but there is also a need for something where you can share money as well.
+- Like most people who go to prison for an unfair thing, we become more persuaded in our own beliefs.
+- Facebook is the biggest nation in the world and we have a dictator, if you look at it from a democracy standpoint. Mark Zuckerberg is a dictator.
+- Non-commercial file sharing should of course become legal and protected, and must re-think copyright all together.
+- You actually need to go somewhere and vote and make sure you don't have corrupt police. But there's a faith in technology as the savior, as the new Messiah, and that's definitely not the case.
+- Mark Zuckerberg is a rich white dude from a really privileged background.
+- The Pirate Bay is not in Sweden. It's a distributed system. We don't know where the servers are. We gave them to people we trust and they don't know it's The Pirate Bay.
+- People are obsessed with price tags.
+- Everybody has lost their digital privacy.
+- You should never tell people where they can't go or what they can't do.
+- I see Flattr as a natural extension of Pirate Bay.
+- I stay true to my word.
+- Piracy is not a threat, it's a need.
+- We don't create things anymore, instead we just have virtual things. Uber, Alibaba and Airbnb, for example, do they have products? No. We went from this product-based model, to virtual product, to virtually no product what so ever. This is the centralization process going on.
+- The most ironic thing is that The Pirate Bay's enemies include not just the U.S. government but also many European and the Russian one.
+- We are four individuals on trial. But The Pirate Bay has its own life. It is not dependent on us as persons.
+- Things like Digg, Twitter, etc., are really interesting because they remove the idea of the all-mighty producer and puts tools into the hands of everybody.
+- We all know how evolution works, except one industry that refuses to evolve: the entertainment industry. Instead of looking at evolution as something inevitable, the industry has made it their business to refuse and/or sue change, by any necessary means.
+- In all honesty, the reason we did The Pirate Bay was to bring freedom and take back control from a centralized system.
+- With the neutrality of the network being infringed with more and more laws against individual liberties and access to culture, we are taking away more benefits from people than what they are contributing.
+- I'd rather see us sponsor culture by pushing more money to music education, and facilities for your people to create music. It would be much more sane for cultural advancement then extending copyrights.
+- The 'solution' to file sharing was never centralizing content control back to a few entities - that was the struggle we were fighting for. Netflix, Spotify etc. are not a solution but a loss.
+- It's serious to actually be found guilty and get jail time. It's really serious and a bit weird. But it's so bizarre that we were convicted at all.
+- My view of journalism is that it needs to be independent but it's not independent when someone is paying the bills for you.
+- I started off copying disks on my computer when I was eight or nine.
+- We're just a general-purpose search engine and torrent-tracking system. You can put whatever you want on the Pirate Bay. We don't participate in how the people communicate with each other. We only participate in bringing the possibility to communicate and share files.
+- Illegal downloading will exist forever - it can't be stopped, people don't want it to stop.
+- For private use, filesharing and copying should be legal.
+- Everything in my life has come from an urge to share. Everything I've learned is from friends, family and copying.
+- The solution for piracy is to redefine piracy. Make things possible for everyone, without being labelled it as a crime.
+- I think the only solution is to have a lot of solutions.
+- I'm not on Facebook but there are a lot of drawbacks in my offline world. No party invitations, no updates from my friends, people stop talking to you, because you're not on Facebook. So it has real life implications.
+- I've been a member of the Swedish Green Party at the same time as the Swedish Socialist Party. Both are very progressive parties, though they're not always in sync with their other European counterparts.
+- The distrust of the political system is unhealthy.
+- It's about removing the barriers between producers and consumers. I want to get rid of that mindset so that people realize in order to create, you have to participate.
+- I mostly eat lettuce.
+- Piracy is the majority of the Internet.
+- I don't believe in the American dream anyway, becoming a billionaire and buying expensive cars.
+- In the beginning, it was technology, and it was fun, and then it turned to politics, and it's been changing so many people's lives. We didn't realize that to begin with.
+- I haven't asked for any contributions, and I try to do things without using money - it feels more real and honest.
+- If we were making millions, we wouldn't have day jobs.
+- A lot of people are giving up on politics and thinking they can solve issues with technology. These kind of arrogant behaviors towards the rest of the society are a bit disgusting.
+- If we say Facebook doesn't agree with our rules in our country we are going to stop Facebook in our country. We censor a lot of things, why not censor Facebook?
+- The Pirate Bay was never for making people not pay, it was for making people free to choose what to share and who they want to share it with.
+- When I was 9 years old I got my first computer, an Amiga 500.
+- I would say that I admire people that come up with ideas we never thought of before.
+- The feedback we get from users is very positive, but the businesses are very hateful towards us.
+- Traveling has turned into a sort of lifestyle, I suppose.
+- We do this on our free time and because we think it is fun. But we do not have an obligation to feed content to organizations that knowingly try to distort what we are doing and portray us as crooks.
+- In Sweden I am considered the Finnish-Norwegian, in Norway Finnish-Swedish, and in Finland Swedish-Norwegian. I've never really belonged anywhere.
+- I'm still waiting for the revolution against globalization in the rest of the world. The corruption that's eating away our systems; the false belief that democracy exists; and this idea of democracy actually being 'the solution' at all.
+- We need a revolution instead of a technology evolution.
+- In a way, owing a hundred million is easier than a hundred thousand, because you stop imagining that you will ever be able to pay the money back.
+- I actually hate being called an entrepreneur.
+- Copyright is not the thing that makes artists money, it's only for their brokers and distributors.
+- We're not saying that everything should be free, it should be free and so on, we don't say that it doesn't have to be for free, it just has to be free in terms of freedom.
+- I want to show the absurdity on the process of putting a value to a copy.
+- If you have a more oppressed Internet, you have a more oppressed society.
+- If you're not the right kind of person, society won't give you the help you need.
+- Every time anyone did an advertisement on The Pirate Bay they would get a call from the record or movie industry saying they'll sue them for financially assisting with a crime.
+- The old saying 'If a tree falls in a forest and no one is around to hear it - Does it still make a sound?' can be adapted to: 'If someone does something interesting on the Internet and nobody is around to talk about it - Did it still make an impact?'
+- I'm a socialist. I know Marx and communism did not work before, but I think in the future you have the possibility of having total communism and equal access to everything for everybody.
+- Facebook brings the Internet to Africa and poor countries, but they're only giving limited access to their own services and make money off of poor people. And getting government grants to do that, because they do PR well.
+- We're past the idea of putting price tags on things. We're going to put a price tag on access to things.
+- The Internet is a decentralized network with unlimited sources of creativity.
+- To be honest, it's not really hard to run a torrent site, or set one up.
+- The entertainment lobby has bullied Sweden around.
+- We are quite sure the Pirate Bay is legal in Sweden.
+- I don't want to ride in a self driving car that can't drive me to a certain place because someone has bought or sold an illegal copy of something there.
+- As far as I know, no money ever won in a lawsuit by IFPI or the RIAA has even gone to any actual artist.
+- The fight goes on with or without me, I'm just a pawn. But at least I'm a pawn on the morally right side.
+- Spread and participate in culture. Remix, reuse, use, abuse. Make sure no one controls your mind.
+- The Pirate Bay was never for the money.
+- Apple is going on the path to control computer use.
+- I would say we, as the people, kind of lost the Internet back to the capitalist society, which we were hoping to take it back from.
+- The Pirate Bay has its own trackers. We have more info on the torrents since people upload them to the site and describe them.
+- Most people think that people hate me, but I haven't really met a lot of people that dislike me at all.
+- No, the Pirate Bay is more like sugar - it's bad for you but you can't stop using it. Bad because you get sued for it.
+- We need new voices, new people, new activists and new ideologies in the piracy scene.
+- I think that we need to take care of the Internet itself right now, in order to permit it to be an important part of everyday life in the future as well.
+- The U.S. government is losing popularity every day in Europe, and people don't want to see us give in to them.

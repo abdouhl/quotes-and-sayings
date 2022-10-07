@@ -1,0 +1,87 @@
++++
+author = "Susie Dent"
+title = "Susie Dent Quotes"
+quotes_len = "81"
+description = "the best 81 Susie Dent Quotes"
++++
+- Glogg is a Scandinavian mulled wine, sweetened with honey, almonds, raisins and spices. Its name suits its purpose so beautifully.
+- Youthquake' wasn't an entirely predictable choice for Oxford's Word of 2017. It hasn't been on the lips of an entire nation, nor is it new. But it amply fulfilled the criteria Oxford requires for selection.
+- If we want to change the nuance of a particular word we have to change that ourselves.
+- I'm a big believer in change and embrace the fact that English is probably the fastest-moving language in the world.
+- Language is essentially tribal, so jargon can actually be a really good thing because it unites people.
+- Political boundaries in their most physical terms can make or break an election. The manipulation of electoral districts can make them either 'blue-hot' or 'red-hot' depending on the level of intensity felt in either camp to such shifting ground.
+- New words travel from one variety of English to another and at a rapidly increasing rate, thanks to the way language is exchanged today over e-mail, chat rooms, TV, etc.
+- According to my parents, I've always liked to tune into the conversations of others. But rather than hope for a snippet of salacious gossip, it has always been the words themselves that I wanted to understand.
+- For the Anglo-Saxons, meat was the main meal of the day, which revolved around 'before-meat' and 'after-meat.' But it has ended up as the metaphor for the most basic: 'meat and potatoes' is as far from sassy - from 'sauce' - as you can get.
+- English may be the fastest moving language in the world, but there are plenty of concepts, sensations and everyday occurrences which lack a pithy word to describe them. Take the clunkiness of 'the day before yesterday' and 'the day after tomorrow': German provides single words for both.
+- The one thing - apart from assumptions about German - that I have to challenge frequently is people assuming that lexicographers are fierce protectors of the language when in fact our job is not to put a lid on it.
+- As a nation we love our dialects, and there is a lot of regional variance in the names for different foods - barmcake, bap or bun anyone?
+- In the middle of the 20th century, aspirations to sound 'proper' were passionately pursued. Dictionaries as late as the Seventies include many pronunciations that could cut the proverbial glass.
+- For the Anglo-Saxons, food determined a person's position in society.
+- Quite often people ask me 'Is there a word for... ' and go on to highlight a gap in our language that we need to fill.
+- I can do some of the number puzzles.
+- One of the things I noticed is that if you look up the word ambition you will see that when it's applied to women, it's almost always negative. If a woman is ambitious she's cutthroat, she's seen as more unpleasant. Whereas when its attached to a man it's far less negative.
+- I've been obsessed with words since I was a little girl, and I am fortunate that each week as resident word expert on 'Countdown' I am ideally placed to quiz my guests in dictionary corner about the words and phrases they use.
+- Every sport, every profession, every group united by a single passion draws on a lexicon that is uniquely theirs, and theirs for a reason.
+- There is an art to eavesdropping, but I think to some extent we are all guilty of picking up those little odds and ends that can be quite intriguing if you analyse them.
+- I'm an Arsenal fan and an even bigger Arsene fan.
+- I don't intentionally eavesdrop. I'm not looking for salacious gossip, I'm just looking for vocabulary items.
+- English has always been a mongrel tongue, snapping up words from every continent its speakers encountered.
+- Footballers, managers, pundits and fans make up possibly the biggest tribe of them all, especially in this country. Whatever is said by pundits is echoed across sofas and in pubs all over the nation.
+- Slang has different functions: many of the words we use are playful and a lot are tribal - we speak the same way as the groups we are part of. A great deal are also euphemistic, so it's no surprise that a third of us are perplexed by their meanings and origins.
+- Why use salty when you can have brackish? It carries a sense of part-water, part-salt, too, just like the sea.
+- Above all, Jane Goodall continues to teach us that, as humans, we are no more entitled to our glorious planet than the chimps she so lovingly protects.
+- Slang has always moved this way. From Cockney rhyming slang to codes swapped among highwaymen, they're tribal badges of identity, bonding mechanisms designed to distinguish the initiated, and to keep strangers out.
+- If you eat foie gras, I would really urge you to look at the practice that goes in to producing it. It is totally barbaric and involves force-feeding on the most horrific scale imaginable.
+- I'm not a brazen extrovert, but I'm not as blushing or demure as people might think.
+- The character of our language defines us, and dictionaries say as much about us as about the way we speak.
+- I work with the Oxford Dictionary databases, which sounds really boring, but they're actually fascinating as they show you how current words are being used.
+- I love both garlic and onions, and this word pithily captures the rich tastes of both.
+- Can I get a mochaccino?': a statement that, for many, is worse than any number of nails down a blackboard. Not on account of the coffee - most of us drink Ventis aplenty these days - rather it's the 'can I get?' - three words that regularly top the list of British bugbears.
+- In the 1900s, bleaching lotions and skin-lighteners were a female imperative no matter what her colour, often carrying suggestive names like 'Fair-Plex Ointment' and 'Black-No-More.' The tiniest touch of rouge was allowed, but only if applied with great subtlety.
+- One of the joys of language is its constant evolution, and a lexicographer's job is both to track new words and to reassess those from the past.
+- In many cases, the line between a thriller and a crime novel has become too blurred to be useful.
+- Claggy is often seen as a negative word, yet for me it describes perfectly that full-mouthed feel of a treacle tart of banoffee pie.
+- I was fascinated by the shape of words even before I knew what they meant.
+- Linguistic supersizing is on the increase, and it may show the influence of advertising-speak and corporate jargon on language, in which everything needs to be hyped to get noticed. It means that some of our greatest words are losing their power.
+- The term 'psychological thriller' is an elastic one these days, tagged liberally on to any story of suspense that explores motivations while keeping blood and chainsaws to a minimum.
+- I'm a work in progress. I've started doing spin classes, which always clears my head.
+- German has always felt the language that I come back to. It's given a very hard time by most people for being ugly and guttural. In fact, it's one of the most melodic, lyrical languages around. And German literature is amazing. It's just a treasury for me.
+- If a term becomes too popular, its irritant value is ramped up. The impulse is then to replace it with something else.
+- I've been a worrier for as long as I can remember.
+- My work, my love of words, became my refuge, both when I was working on bilingual dictionaries for Oxford University Press and then via my involvement with 'Countdown' - and now 'Catsdown,' as I call it.
+- In South Korea, some 20 million people share just five surnames. Every one of Denmark's top 20 surnames ends in '-sen,' meaning 'son of,' a pattern that is replicated across Scandinavia. British surnames have never favoured such neatness, and we can be grateful for that.
+- The notion of 'Queen's English' is usually applied to our pronunciation.
+- I like to introduce a few lost gems when I can to fellow word-lovers, and would genuinely love some of them to make a comeback.
+- No one expects the tone of an election to be mild-mannered, least of all a presidential one.
+- Friable isn't often used of food, yet its meaning lends itself perfectly to pastry and crumbly biscuits.
+- I remember as a child of five or six lying in the bath marvelling at the different languages displayed on the shampoo bottles around me. From that moment on it was always words not numbers that held a fascination for me.
+- What I've discovered is that from football fans to undertakers, secret agents to marble-players and politicians, we all are part of at least one tribe. By tribes, I'm talking anthropologically; these groups are determined less by genes and more by the work they do or the passions they pursue.
+- The word 'eavesdropper' originally referred to people who, under the pretence of taking in some fresh air, would stand under the 'eavesdrip' of their house - from which the collected raindrops would fall - in the hopes of catching any juicy tid-bits of information that might come their way from their neighbour's property.
+- Britain's fascination with its changing language is renowned.
+- Most crime novels offer a curious kind of escape, to places that jag the nerves and worry the mind. Their rides of suspense give a good thrill, but it's rarely a comfortable one.
+- The extraordinary thing about new words is that probably only about one per cent of them are new. Most are old words revived and adapted.
+- Super Tuesday is the day on which most states hold their primaries. Its darker partner is Dirty Tricks Thursday: the Thursday before an election when candidates release scandalous stories to garner bad publicity for their opponent: the timing means the accused will have little time to refute the allegations.
+- Slang moves on so fast that most new words disappear soon after they are coined. But there is always something that sticks behind.
+- The earliest dictionaries were collections of criminal slang, swapped amongst ne'er-do-wells as a means of evading the authorities or indeed any outsider who might threaten the trade.
+- The best time to catch tribal jargon is when it's not looking.
+- As dialect began to be collected in the late 19th century, such words as Yorkshire's 'gobslotch' emerged, revealing the burgeoning association between gluttony and stupidity.
+- When eyeliner was introduced in the Twenties by Max Factor, a pioneer of Hollywood film cosmetics who began selling to the public, even the word 'makeup' was a revelation.
+- I really was the nerd in the car that read vocabulary books. If we were going on day trips, I would quite like to have just stayed in the car with my German and French vocab books. It's embarrassing to admit to it now.
+- In the earliest days, make-up and moralising were intertwined. The 'cosmetic slops and washes' of the 17th and 18th centuries aimed to smooth complexions and revive a woman's 'bloom' - but their critics were never far behind.
+- Bizarrely, our English word 'sturdy' may go back to the Latin turdus, thrush. Anyone described as 'sturdy' in the 1200s was wilfully reckless and possibly as immovable as a sozzled bird.
+- Among the best of Hitchcock's own psychological thrillers is 'Spellbound,' whose story unusually wrapped the subject of psychoanalysis around a murder mystery.
+- Almost half the adult population finds discussing the subject of money difficult. Slang words help us to navigate these conversations by making us feel more comfortable and confident.
+- Booze' was once a popular term in the slang or 'cant' of the criminal underworld, which may explain its rebellious overtones today.
+- I love American English, not least because a lot of it was ours to begin with. Indeed, many Americanisms can be found in the works of William Shakespeare.
+- In all my years in 'Countdown's' Dictionary Corner, the subject most guaranteed to rankle with our viewers is the presence of Americanisms in the dictionary.
+- We all know that little words or phrases can mean a lot, yet so few of us know just what to say. Phrases, such as 'chin up,' or 'it could be worse,' usually have the opposite effect; they feel tired and impersonal, even dismissive.
+- From the start, English has happily absorbed words from every tongue it's encountered.
+- The battle between server and servee is as ancient as it is well disguised, and it follows, therefore, that waiters have developed a private lingo that allows them to mock, complain, or simply entertain themselves.
+- Unlike our neighbours on the mainland of Europe, we have resisted creating an academy to legislate over proper English. We each have our linguistic bugbear, but few of us would want to freeze our mother tongue.
+- When I was growing up, I worried that people would dismiss me as a boring swot because I always had my nose in a vocabulary book - usually in French or German.
+- I've been collecting linguistic oddities for years and years, ever since I was small. I've got loads of notebooks where I've jotted down things I couldn't make sense of.
+- We are surrounded by hundreds of 'tribes,' each speaking their own distinct slanguage of colourful words, jokes and phrases that together form an idiosyncratic phrasebook, years in the making.
+- New words can spread like wildfire thanks to social media - you only have to look at 'mansplaining' and 'milkshake duck' to see language evolution at work - so why not old ones too?
+- Probably my favourite winter-word of all. Apricity is the warmth of the sun on a chilly day.
+- The enduring image I will keep of Jane Goodall is of her emotional goodbye to a chimp she had rescued and nurtured, on the day of the animal's release.

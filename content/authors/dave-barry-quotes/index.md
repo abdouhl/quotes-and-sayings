@@ -1,0 +1,89 @@
++++
+author = "Dave Barry"
+title = "Dave Barry Quotes"
+quotes_len = "83"
+description = "the best 83 Dave Barry Quotes"
++++
+- I would not know how I am supposed to feel about many stories if not for the fact that the TV news personalities make sad faces for sad stories and happy faces for happy stories.
+- For me, the worst part of playing golf, by far, has always been hitting the ball.
+- Have you noticed that whatever sport you're trying to learn, some earnest person is always telling you to keep your knees bent?
+- The information encoded in your DNA determines your unique biological characteristics, such as sex, eye color, age and Social Security number.
+- Not all chemicals are bad. Without chemicals such as hydrogen and oxygen, for example, there would be no way to make water, a vital ingredient in beer.
+- And so by the fifteenth century, on October 8, the Europeans were looking for a new place to try to get to, and they came up with a new concept: the West.
+- Don't you wish you had a job like mine? All you have to do is think up a certain number of words! Plus, you can repeat words! And they don't even have to be true!
+- The Sixties are now considered a historical period, just like the Roman Empire.
+- Your modern teenager is not about to listen to advice from an old person, defined as a person who remembers when there was no Velcro.
+- Geographically, Ireland is a medium-sized rural island that is slowly but steadily being consumed by sheep.
+- The major parties could conduct live human sacrifices on their podiums during prime time, and I doubt that anybody would notice.
+- If you have a big enough dictionary, just about everything is a word.
+- Guys are simple... women are not simple and they always assume that men must be just as complicated as they are, only way more mysterious. The whole point is guys are not thinking much. They are just what they appear to be. Tragically.
+- The simple truth is that balding African-American men look cool when they shave their heads, whereas balding white men look like giant thumbs.
+- In fact, when you get right down to it, almost every explanation Man came up with for anything until about 1926 was stupid.
+- The problem with writing about religion is that you run the risk of offending sincerely religious people, and then they come after you with machetes.
+- The four building blocks of the universe are fire, water, gravel and vinyl.
+- I believe that we parents must encourage our children to become educated, so they can get into a good college that we cannot afford.
+- Snowboarding is an activity that is very popular with people who do not feel that regular skiing is lethal enough.
+- I have been a gigantic Rolling Stones fan since approximately the Spanish-American War.
+- My problem with chess was that all my pieces wanted to end the game as soon as possible.
+- To better understand why you need a personal computer, let's take a look at the pathetic mess you call your life.
+- If you had to identify, in one word, the reason why the human race has not achieved, and never will achieve, its full potential, that word would be 'meetings.'
+- American consumers have no problem with carcinogens, but they will not purchase any product, including floor wax, that has fat in it.
+- The leading cause of death among fashion models is falling through street grates.
+- The Internet is the most important single development in the history of human communication since the invention of call waiting.
+- What I look forward to is continued immaturity followed by death.
+- If God had wanted us to be concerned for the plight of the toads, he would have made them cute and furry.
+- I am not the only person who uses his computer mainly for the purpose of diddling with his computer.
+- Although golf was originally restricted to wealthy, overweight Protestants, today it's open to anybody who owns hideous clothing.
+- We operate under a jury system in this country, and as much as we complain about it, we have to admit that we know of no better system, except possibly flipping a coin.
+- Auto racing is boring except when a car is going at least 172 miles per hour upside down.
+- Life is anything that dies when you stomp on it.
+- Hobbies of any kind are boring except to people who have the same hobby. This is also true of religion, although you will not find me saying so in print.
+- Fishing is boring, unless you catch an actual fish, and then it is disgusting.
+- It always rains on tents. Rainstorms will travel thousands of miles, against prevailing winds for the opportunity to rain on a tent.
+- There is a breed of fashion models who weigh no more than an abridged dictionary.
+- 'Escargot' is French for 'fat crawling bag of phlegm'.
+- The ultimate camping trip was the Lewis and Clark expedition.
+- We believe that electricity exists, because the electric company keeps sending us bills for it, but we cannot figure out how it travels inside wires.
+- Gravity is a contributing factor in nearly 73 percent of all accidents involving falling objects.
+- It is a well-documented fact that guys will not ask for directions. This is a biological thing. This is why it takes several million sperm cells... to locate a female egg, despite the fact that the egg is, relative to them, the size of Wisconsin.
+- What may seem depressing or even tragic to one person may seem like an absolute scream to another person, especially if he has had between four and seven beers.
+- Skiers view snowboarders as a menace; snowboarders view skiers as Elmer Fudd.
+- You can only be young once. But you can always be immature.
+- Magnetism, as you recall from physics class, is a powerful force that causes certain items to be attracted to refrigerators.
+- We idolized the Beatles, except for those of us who idolized the Rolling Stones, who in those days still had many of their original teeth.
+- The world is full of strange phenomena that cannot be explained by the laws of logic or science. Dennis Rodman is only one example.
+- Newspaper readership is declining like crazy. In fact, there's a good chance that nobody is reading my column.
+- Camping is nature's way of promoting the motel business.
+- Dogs feel very strongly that they should always go with you in the car, in case the need should arise for them to bark violently at nothing right in your ear.
+- As a child, I was more afraid of tetanus shots than, for example, Dracula.
+- Eugene is located in western Oregon, approximately 278 billion miles from anything.
+- Scientists now believe that the primary biological function of breasts is to make males stupid.
+- If you were to open up a baby's head - and I am not for a moment suggesting that you should - you would find nothing but an enormous drool gland.
+- Never assume that the guy understands that you and he have a relationship.
+- Once again, we come to the Holiday Season, a deeply religious time that each of us observes, in his own way, by going to the mall of his choice.
+- Bill Gates is a very rich man today... and do you want to know why? The answer is one word: versions.
+- Thus the metric system did not really catch on in the States, unless you count the increasing popularity of the nine-millimeter bullet.
+- The Internet: transforming society and shaping the future through chat.
+- The real threat to whales is whaling, which has endangered many whale species.
+- Never under any circumstances take a sleeping pill and a laxative on the same night.
+- We journalists make it a point to know very little about an extremely wide variety of topics; this is how we stay objective.
+- The Democrats seem to be basically nicer people, but they have demonstrated time and again that they have the management skills of celery.
+- The only kind of seafood I trust is the fish stick, a totally featureless fish that doesn't have eyeballs or fins.
+- It is a scientific fact that your body will not absorb cholesterol if you take it from another person's plate.
+- In 1765, Parliament passed the Stamp Act, which, as any American high school student can tell you, was an act that apparently had something to do with stamps.
+- To an adolescent, there is nothing in the world more embarrassing than a parent.
+- I realize that I'm generalizing here, but as is often the case when I generalize, I don't care.
+- Skiing combines outdoor fun with knocking down trees with your face.
+- Nobody cares if you can't dance well. Just get up and dance.
+- The nuclear generator of brain sludge is television.
+- I want a pit crew... I hate the procedure I currently have to go through when I have car problems.
+- Sharks are as tough as those football fans who take their shirts off during games in Chicago in January, only more intelligent.
+- Violence and smut are of course everywhere on the airwaves. You cannot turn on your television without seeing them, although sometimes you have to hunt around.
+- The one thing that unites all human beings, regardless of age, gender, religion or ethnic background, is that we all believe we are above-average drivers.
+- People who want to share their religious views with you almost never want you to share yours with them.
+- It was Public Art, defined as art that is purchased by experts who are not spending their own personal money.
+- The problem with winter sports is that - follow me closely here - they generally take place in winter.
+- Big business never pays a nickel in taxes, according to Ralph Nader, who represents a big consumer organization that never pays a nickel in taxes.
+- We'll try to cooperate fully with the IRS, because, as citizens, we feel a strong patriotic duty not to go to jail.
+- The word user is the word used by the computer professional when they mean idiot.
+- Eating rice cakes is like chewing on a foam coffee cup, only less filling.

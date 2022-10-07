@@ -1,0 +1,29 @@
++++
+author = "Otto Schily"
+title = "Otto Schily Quotes"
+quotes_len = "23"
+description = "the best 23 Otto Schily Quotes"
++++
+- The attacks on the Paris Metro in the 1990s were committed by members of the local Muslim community, immigrants from the Maghreb region of North Africa.
+- Procedures outside the stadiums and in the parking areas still need to be optimized, for example so that emergency medical services can leave the grounds on their way to the hospital faster.
+- The military has been tremendously important in the past during catastrophes and in protecting the population. But it shouldn't become an auxiliary police force.
+- The vast majority of Muslims living here are peaceful citizens. Unfortunately, however, we also see religious and political fanaticism among Muslim groups in Germany.
+- Incidentally, our railroad facilities are under video surveillance by the federal police. However, the federal and state governments will have to determine whether video surveillance shouldn't be significantly expanded to a certain degree.
+- Who knows what would have become of me, if my parents had not had their influence on me.
+- The hatred Muslim extremists feel against the West feeds on certain conflicts in the world.
+- On September 11 last year international terrorism entered a new dimension.
+- After Madrid, we intensified our investigative efforts once again, and we are in the process of bringing about expansions in security laws and creating an index file system.
+- Nevertheless, I do know that we are part of a danger zone, we have military operations in Afghanistan and we're training the Iraqi police force. The terrorists also have us in their sights.
+- Freedom of the press is not questioned when investigative journalism unearths scandals, But that does not mean that every classified state document should be made available to journalists.
+- We can no longer apply the classic criteria to clearly determine whether and when we should use military force. We are waging war in Afghanistan, for example, but it's an asymmetrical war where the enemies are criminals instead of soldiers.
+- We have points in common with the FDP, particularly when it comes to tax.
+- We feel very honored to have been offered the responsibility to host this great event, Berlin is a wonderful city that is developing at a tremendous rate, and this decision means that we can now prepare to welcome the world's best athletes to a fascinating place.
+- There is no question that Iraq is one of the main problems. You'd have to be blind not to see what a magnet and generating force it's become for terrorist groups.
+- The terrorists who committed the 2003 Istanbul attacks were locals, that is, Turks. And when filmmaker Theo van Gogh was murdered in the Netherlands last year, the murderer and his supporters were also part of the Muslim community.
+- It's a mistake to assume that Islamists always come from the slums. Indeed, many come from affluent families but for some reason just couldn't manage to integrate into Western society, even though they had good opportunities for advancement.
+- It is a warning to all those who may think about becoming involved with a terrorist network, people who are willing to destroy their own lives are hard to deter.
+- This fanaticism is what feeds terrorism. And this is precisely why Muslims must play an active role in opposing hate sermons and incitement to terrorism and extremism in their mosques.
+- And now when we hear that Iran and Iraq plan to cooperate more closely and that a fundamentalist is coming to power in Tehran - a man about whom we cannot be sure that he is absolutely averse to terrorism - it is very worrisome.
+- On the other hand, all kinds of adventurous schemes to add security checkpoints to subway and bus systems have been circulating since the London attacks. This is nonsense. No one can guaranty 100 percent security.
+- Arresting and detaining these dangerous people can make sense, at least until a final decision is reached on their deportation. However, such detention must always be subject to time limits and court review.
+- This will help us next year with the World Cup. I can imagine a lot of visitors from abroad will be here and asking what happened between 1933 and 1945. A lot of that will come up. I think this will make an important contribution to those discussions.

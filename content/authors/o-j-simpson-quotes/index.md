@@ -1,0 +1,35 @@
++++
+author = "O. J. Simpson"
+title = "O. J. Simpson Quotes"
+quotes_len = "29"
+description = "the best 29 O. J. Simpson Quotes"
++++
+- I'd like to get back to my family and friends - believe it or not, I do have some real friends.
+- Don't feel sorry for me. I've had a great life, great friends.
+- I've always thought I'd been pretty good with people, and I basically have spent a conflict-free life, you know?
+- I've been very clear. I won. I didn't commit the crime.
+- What do you mean you have my children at the police station? Why are my kids at the police station?
+- The Oscar or the Emmy says you've reached a level of competence in this business, and I would love to have one.
+- I've done my time. I've done it as well and as respectfully as I think anyone can.
+- I had one fight in my adult life. I had the famous '89 fight with Nicole, which she admits that she initiated the physical part.
+- I'm not a guy that ever got in a fight on the street and with the public and everybody.
+- I really have reached a point where I can write a book about all of this.
+- The day you take complete responsibility for yourself, the day you stop making any excuses, that's the day you start to the top.
+- If there wasn't no fight, there wasn't no weekend.
+- I had some problems with fidelity in my life but pretty much got along with everybody.
+- I don't know how often I can discuss one incident in my entire life, but I'll continue to do that.
+- Nobody ever accused me of pulling any weapon on them. I would never, ever pull a weapon on anybody.
+- Money takes wings. The only thing that endures is character.
+- I didn't beat her. I just pushed her out of bed.
+- Nicole will come up in conversations where it's in a part of the conversation. Or we may be somewhere and I would tell some story about their mother and I. You know, we always honor her birthday.
+- I'm absolutely, l00 percent, not guilty.
+- I tend to watch a little TV... Court TV, once in a while. Some of the cases I get interested in.
+- I always put my fantasies in the realm of goals.
+- I believe in the jury system.
+- I'm enjoying the money, the big house, the cars; what ghetto kid wouldn't?
+- Oh my God, Nicole is killed? Oh my God, she is dead?
+- I have always wanted to be liked and respected.
+- I could not tell you the date of my mother's death. I could not tell you the date of my dad's death. These are not dates that I find significant.
+- My NFL pension can barely pay my son's tuition. You know, it's very little money.
+- I tell inmates all the time, 'Don't complain about your grind. Do your time.'
+- I think I've been a great citizen.

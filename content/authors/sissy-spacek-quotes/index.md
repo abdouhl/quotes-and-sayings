@@ -1,0 +1,127 @@
++++
+author = "Sissy Spacek"
+title = "Sissy Spacek Quotes"
+quotes_len = "121"
+description = "the best 121 Sissy Spacek Quotes"
++++
+- Film is an amazing art form, but so is life. When your career and your life can work together, and one can support the other, it's just great.
+- There are classic horror films that, if you are a human being in this world, you have to have seen. They've become a part of our culture.
+- I had a dozen years to act before starting a family, then found that motherhood dwarfed everything else. Once or twice a year, I take a project that appeals to me for its redeeming social value.
+- I follow the roles.
+- My biggest thrill in life is to read in the afternoon until I fall asleep and take a nap.
+- There's nothing like not washing your teeth or washing your face or brushing your teeth in the morning.
+- When I was a little kid, I used to spend a lot of time thinking about what I'd wish for if a magic fairy gave me three wishes. First, I wanted to be loved. Then, I wanted to be beautiful. And, finally, I'd wish for a million more wishes.
+- It's difficult to just let go of a character. Especially after you've been preparing and researching for weeks.
+- My children came along at a perfect time in my life. My career was soaring, and they didn't care who I thought I was. They just wanted to eat. It brought me down to earth.
+- That was the magical thing about the Seventies: artists ruled. Because films were relatively low-budget, nobody cared. We could just go off and work.
+- I don't like to do something just to prove I can do it.
+- You get angry and frustrated wondering, 'Are there enough parts for women?'
+- For me, life is a bowl of cherries.
+- I'm drawn to ordinary people who find themselves in extraordinary circumstances, which is a big part of the human condition.
+- I think people in the north and the south and the east and the west, anywhere they come from, are just as interesting, and they're humans. They have the same realm of emotions that we all have. But I'm just more drawn to the Southern character and the different types, and Southern literature is so lyrical and so wonderful.
+- I think that no human gets away unscathed in this old life. We've all experienced loss and grief and pain and tragedy.
+- I've been into exercise my whole life, been a runner and been into health and fitness always.
+- Celebrity status for me came slowly. I wasn't an overnight sensation. I had time to prepare emotionally.
+- I need to fill myself up with real life. That's kind of the well I draw from.
+- It's really nice when the studio is behind what you're doing, because that's often not the case.
+- I'm not Meryl Streep. My God - she's the greatest actor that ever lived. It's sad that ordinary actors like me are compared to her.
+- I swore to my parents that no one would ever be able to buy me.
+- My roots allow me to let go of the fear of failure.
+- Jingle taps on the majorette boots were an important part of a little girl growing up in the South.
+- It's not seeing myself 40 feet tall on a movie screen - it's the work. That's what thrills me.
+- I don't have any regrets, because I think life is like a creek. It kind of meanders along, and you instinctively do the things you are meant to do. There's no great plan except doing really good scripts, meeting great filmmakers. And I have to have something that I can bring to the role.
+- We like to believe we are in control of our destinies, even though we never are and we never have been.
+- I've not had a mean life.
+- Living in New York always felt to me like living in the middle of a carnival. It never stopped. There was something very exciting about it.
+- I used to play softball every summer back in Quitman. My two brothers demanded I be tough. There were certain girls they wouldn't let me invite over because they were too feminine and fragile.
+- I go where the good work is being done.
+- New York gets under your skin, and I think once you've fallen in love with New York, you take that with you. I love New York.
+- My cousin, Rip Torn, persuaded me not to change my name. You shouldn't change what you are in the search for success.
+- I only learn from the people I work with.
+- Some families can experience terrible tragedy and deal with it, and others not. I find those things fascinating.
+- You don't forget the movies, but you forget the details of them.
+- Hollywood is a film industry, a film business. I don't approach my career in that way. I see it as 'art,' and I become involved in films that ring my bell.
+- For a while, I just sang at a steakhouse. I would go from table to table and really just survived on tips.
+- I feel like if I don't get a film and somebody else does, then that film never belonged to me. The ones I get belong to me.
+- Hollywood is like a piranha. They don't give you breathing room. You don't have time to let your career breathe.
+- I actually never got in a play in school. My teacher said I never learned my lines.
+- The business has been good to me.
+- I wanted to be Joni Mitchell.
+- For me, I never really wanted to be in a 'Sissy Spacek' vehicle. That was not my intention. I got to be the 'Everygirl.'
+- My daughter is far more talented than me in the songwriting department - far more.
+- I had no fear 'cause it seemed everyone in the audience always applauded whatever I did. Course, maybe it was because I always seemed to know everyone in the audience.
+- I think giving up people is a difficult thing.
+- Rarely in film acting do you get to do a scene for very long.
+- The name Sissy came because my brothers called me that.
+- There is a long tradition of pungent living in the South. It was wonderful to have that imprinted on me so early in life. I already had my core when I left my little town in Texas.
+- There have been several television movies, 'Carrie 2,' two musicals! I remember thinking, the first time there was a musical on Broadway, 'Oh my gosh! The people who ordinarily go to the theaters, that's not really the audience.'
+- I think the thread running through most midwives is the passion.
+- That's what I love about acting and love and drama and art: that humanness we all share.
+- I like to do films that I would want to go see, basically. I'm not out to make a fast buck.
+- I think that we all fantasize about that teeny tiny time in the film industry when women ruled, back in the '40s.
+- There's something about Southern characters.
+- I've always been a people-watcher, and as an actor, later, I just mined all those little details.
+- In every movie, there's always some physical thing that triggers the character for me. In 'The Long Walk Home,' it was the girdle. Every time I'd put that girdle on, I'd feel my character wiggle to life.
+- You want to live your life and live it just as fully and as deeply as you can. That's your deep well of reserve. That's where you get all your - the fodder for your work.
+- There's a real danger in trying to stay king of the mountain. You stop taking risks, you stop being as creative, because you're trying to maintain a position. Apart from anything else that really takes the fun out of it.
+- I'm not very big. But I've got a big bark and a lot of heart.
+- You know, I don't know what the future will bring, but I'm ready for whatever comes!
+- Most things in my life I had before leaving home. Values, support, great family. I was shaped at an early age. A musician playing guitar, I wanted to be a folk singer.
+- I love the women I've played.
+- There are fewer roles, and I've done so many things already that I don't want to repeat, so to find something you haven't done is harder. I don't want to play a country singer again.
+- One day, it just dawned on me that I'm from Texas, and that's what I am.
+- I just make films that attract me.
+- When I first met David Lynch, he was living in the stables of the American Film Institute... He'd work all night and have his crew lock him in during the day, and he'd sleep.
+- With my coloring, I'm nothing in black and white. I've seen my films sometimes on black-and-white TV. Disaster.
+- I connect with just plain old everyday people. Human behavior fascinates me, the people who are the nuts and bolts of this country who help hold up the world.
+- Oftentimes you read scripts, and you get to one and you think, 'OK, is this good, or is this just better than all the other ones that I have been reading?'
+- I got an automatic breadmaker. It's the greatest! I get more points for that. You computerize in the results you want, and it's no fail. I'm a modern homemaker.
+- I loved growing up in a little town. I loved knowing people. I loved going to the store and running into people. I loved going into the store and having forgotten my bag, saying, 'Charge it, put it on my bill.' I loved going to the gas station and saying, 'Pete, fill it up.' I loved that continuity of life.
+- I wanted to put all my family stories down for my girls, and I remember everything so vividly. I just wanted to put everything down while I still can remember it all.
+- Just about every town in Texas has a beauty pageant. Ours was called The Dogwood Fiesta. I was in one of those. I played the guitar and sang - and lost.
+- The human condition is the human condition, and what we try to do is illuminate the human condition.
+- Texas is just so rich with characters. Women who live alone in a little house on a thousand acres with nothing but cattle and a pickup truck. And an airplane.
+- I am a woman of simple tastes.
+- Junior and senior high school years were not a good time.
+- Hollywood's fickle. It's always been that way, and it will always be that way. And it's always going to be somebody new and exciting comes along. That's just the way it works, and it will always work that way. And I think that if you give it everything to the exclusion of your own real life and family, you've sold yourself down the river.
+- Our perception of celebrities in Hollywood is not the reality. The reality of our lives is so much like everyone else's life. We have family members we love, everyone gets up in the morning, they have three meals a day and they go about their business.
+- I wouldn't sell those New York actors short.
+- I studied homeopathy for years and years. Herbs and all kinds of acupuncture, acupressure, alternative medicine. I think it's just better to treat the whole person.
+- I'm not paralyzed with fear, but I realize it is important to live as if there's no tomorrow, always trying to maintain your integrity and have no regrets.
+- When I started out in independent films in the early '70s, we did everything for the love of art. It wasn't about money and stardom. That was what we were reacting against. You'd die before you'd be bought.
+- I like horseback riding. I like to hike. I play guitar and sing.
+- It's really about the work - if you are doing it for the right reasons - really to illuminate the human condition.
+- Music is my thing. In fact, that's what I wanted to do. I thought of myself as a musician. I had never thought about acting.
+- I'm a binge-watcher!
+- I didn't worry about leaving the fast lane - I was just so consumed with my baby that it seemed like the right thing to do. I never felt like I left New York, though. If you've lived in a place and loved it, you never feel like you left it.
+- Everybody who loves me calls me Sissy, so I guess that's just who I am. When I'm 80, they'll still be calling me Sissy. Oh, well, I guess there are worse things.
+- Texas is so big, and the place where I grew up was so little, and I was such a little thing growing up in the middle of it. I had two choices: I could either spend my life feeling insignificant, or I could look on the life I lived as a microcosm of the universe.
+- When I lived in New York City, I loved it so much. But every six months, I had to go home to Texas to remember who I was. Get filled back up.
+- There's kind of a time you get warned about where the rug gets pulled out from under you: beyond ingenue, before you get into character stuff.
+- I live a very wonderful life centered in my home and community. We're real involved with the school.
+- What's normal? I think I'm normal... Maybe I'm abnormal because I get such a thrill from real life, just real life, everyday things.
+- My father's family is German and Czech.
+- I lived an idyllic 'Huckleberry Finn' life in a tiny town. Climbing trees. Tagging after brothers. Happy. Barefoot on my pony. It was 'To Kill a Mockingbird'-esque.
+- Our life is our life. If we waste it, we're fools.
+- You need to live life to be able to have something to draw from.
+- I think the movie business, you meet people, and you work intensely with them, and you have these relationships - there's an intimacy to it and a familiarity to the relationship because you're having to let go of all your barriers so you can let people in and work with them.
+- There are stories you can tell on TV that can't be told in movies anymore.
+- I've done some of my best work in films that fell right through the cracks, so I try to not make career moves but to build a body of work.
+- If you live only a movie-star life, you know only movie-star things. I needed to live a regular life with normal people around.
+- Ultimately, you have to work for your own enlightenment - for smarts - or it gets boring.
+- Nothing in life prepared me for the way I felt about being a mother. Until then, I sort of felt like a blank sheet of paper. I was always trying to second-guess myself, to be what others wanted me to be.
+- I'm a fool for a brilliant filmmaker. And for someone who wants to try new things.
+- If somebody wants to think of me as a movie star, that's fine, that's great. It sort of makes me giggle.
+- Nature is really big and loud the farther south you get.
+- If I hadn't left Texas, I might not have met the director Terrence Malick, and I wouldn't have met my husband and I wouldn't have had the children that I've had. Life is interesting like that.
+- The important thing is to be part of a good project with good, talented people.
+- I write about Texas, New York, California and Virginia, and they're all important places in my repertoire.
+- My parents were devoted. Civic minded. We had family counsels. Three of us children against two of them. We lived a 'Leave It to Beaver' time.
+- Nature is my church. The wind in the trees and the bugs and the frogs. All those things are comfort to me.
+- I'm a flower gardener.
+- Fame sweeps you away. I had to go home every six months to remember who I am.
+- I hated country music growing up, but it gets in your bone marrow, kind of like a disease.
+- I love a lot of the '70s musicians, like Bonnie Raitt. And I love Sheryl Crow. But probably my favorite musician is a woman by the name of Schuyler Fisk.
+- It's a whole other way of working when you work in films: You know exactly the arc of your character.
+- I think my mother's family came on the Mayflower from England - D.A.R., you know.
+- I'm a fool for a good role in a creative piece where there are really such talented writers and wonderful actors.

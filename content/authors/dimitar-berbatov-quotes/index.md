@@ -1,0 +1,106 @@
++++
+author = "Dimitar Berbatov"
+title = "Dimitar Berbatov Quotes"
+quotes_len = "100"
+description = "the best 100 Dimitar Berbatov Quotes"
++++
+- When someone has great qualities, sometimes they don't have to put much effort into things.
+- I wouldn't say I have felt troubled here at United. I am not troubled. I am lucky. I have loved my time here.
+- Top-level football gives you fame and money, but it takes away a lot, too.
+- When a club legend becomes your manager, he automatically gets the attention of the players, purely because he had been there and done that.
+- Sometimes, against the underdog, you can lose because they want it more. It happens to every team.
+- When you come to a new club, the first two or three days are always a bit hectic.
+- I left Manchester United with my head held very high. I gave 100 per cent, and no one could doubt my performances, especially when you compare how many minutes I actually played.
+- I'd like to start my managerial career in England.
+- When I get the ball, the players need to start running, and then I just feed them with the ball.
+- You need to be a professional - how you train, how you eat, how you sleep, where you go outside of football.
+- The Premier League is in my heart.
+- Young players try and imitate the best players like Ronaldo. They try to imitate the hair, the clothes, the cars, the tricks. I try to tell them how hard Cristiano Ronaldo trained in training and after training. He only wanted to be the best. Everything else came after.
+- I came from a background where we didn't have bread. I know what it's like to live with money and no money.
+- When I play all the time, I play with a smile on my face, and then I can help my team with my goals and my game and the way I can play football.
+- Sometimes you don't play well or you don't score, and in those times, the pressure comes from all around you as well as from yourself.
+- When United wanted me, I was like a horse with blinkers on. I was not interested in anyone else. City offered more money, but the team was weaker, and their history couldn't compete with United.
+- Because we are a small country, unlike England, Italy, or Brazil, we don't have as many good players.
+- I am the happiest guy around; trust me.
+- I want to teach the young people the way I see football. The way I eat, the way I am in training.
+- When I signed for United, I felt like it was a reward for everything that I'd been through in my life.
+- I always tend to think my goals are beautiful goals. That is what I want to score - beautiful goals - and create beautiful chances.
+- It doesn't matter how many goals you score; one goal is enough if you don't let one in your net.
+- I will dream about winning the Golden Ball until I stop playing.
+- Sometimes the things I do look effortless, but it's not like that. It's very difficult, but because of my style, I make it look easy.
+- When you train with good players or watch matches on TV, you want to do what they do.
+- Sport is healthy, but it can be the opposite of that at the top level. You have so many injuries; you put your body through so much. You wake up at 2 in the morning, and you cannot move.
+- I have handled pressure and expectation all through my life. I am not scared of it.
+- When I set myself a target, I aim to reach it.
+- As a striker, people look at the goals you score. But for me, my game is more than just about goals, it is how you link with other players.
+- Every team is going to lose; every team is going to win.
+- I am a realistic type of guy. I am my biggest critic.
+- Those who know me, my really close friends, know that I play for enjoyment and to entertain the fans.
+- I don't like to show my weaknesses.
+- For me, if the ball's in the net, it doesn't matter if it's an overhead kick or just a tap-in.
+- As long as I feel good, I'll have the desire to play.
+- There are small things that every coach brings when they go to a new team. Like, you need to press this way or the other way.
+- Every coach has their own philosophy for getting the best out of players, and sometimes these can seem strange to the public.
+- Everything I do, I want it to be perfect. I know it can't be like that every time - but that is my aim.
+- If Lukaku is not as good as others with his first touch, then give him a ball that he can handle.
+- You can find yourself doubting yourself. But that's when you need to keep faith and realise everything is going to be okay. You work hard in training and keep doing the things you're good at.
+- I am a very proud person.
+- I am a relaxed guy. I play that way, and I can't change my style. I watch games and see guys who panic on the ball - they look so nervous. I can be calm, because I sometimes know what I want to do before the ball comes to me.
+- Football is a simple game. It is not difficult to play football: just pass the ball around.
+- I don't want to show my emotions in public.
+- Players want to enjoy their football and talk up their performances.
+- If every player is on the left, and I am on the right, you need to trust me that I have seen something the other players have not seen.
+- I am not an icon.
+- Like Nemanja Vidic, I came from a small town in a small country in Eastern Europe, but we had reached the top.
+- Not everybody loves the way I play.
+- Most players play with a dream that some day, when they have finished, people will tell their grandchildren that they were a good player. I am the same.
+- On the pitch, you can have the feeling that everything is happening for you, from passing to tackles.
+- As soon as I score, my mother texts me, so when I go in the dressing room, her text is there waiting for me to read!
+- I just want to entertain and make people enjoy the game and smile.
+- I can't play for the national team if I'm not playing for my club.
+- I like Lukaku. No matter what harsh judgement he gets, he's a good player - he's powerful and quick - but he needs more support. It's easy to criticise and judge, but he needs support give him a push to boost his confidence.
+- My mind was always set on joining Manchester United. How can you not go to United?
+- I am a striker, and people expect strikers to score goals. But I don't see myself as a striker.
+- Every human being is different.
+- Sometimes self-esteem affects you on and off the pitch. Until you face your next game and you miss an easy chance, for example, then you feel not as great.
+- Jose Mourinho knows how to control to big players in the dressing room, to control egos. He's done it all his life and knows how to work it into the team.
+- Obviously, I like to play a lot with the ball.
+- Nobody wants to play bad football in a game; everybody wants to win, and every player wants to show how good he is. But, you know, sometimes you simply have a game where nothing is happening.
+- Half the people might like me - the other half might not. But throughout my life, I have had high expectations for myself - so I just try to make the non-believers into believers.
+- When you know how to read football, it is easier for some players.
+- Sometimes you need a special player to do something out of the ordinary.
+- It's always good to beat a top team like Chelsea.
+- I like to play with the ball and have the freedom to move around.
+- The small details are important if you want to be a good player.
+- I never considered myself to be a star - only a forward working for the team.
+- You want to feel special as a striker; you want to be the main guy, and you know, if the coach wants you, he's going to be good for you.
+- I wanted to win trophies and play for the biggest club, and the biggest club in England is Manchester United.
+- I don't smile all the time, but I smile inside.
+- I don't play for the money.
+- I just want to play every game, and when I do this, and I'm healthy with no injuries, then the fans can see the way I play.
+- I cannot speak for other players, but it is always good when the manager comes to ask how you're feeling and makes you feel calm before you play the game.
+- If we win 1-0, I don't care if the goalkeeper scores.
+- A player may have a future only if he respects the players who taught and advised him.
+- I don't play for money. I play for glory and winning championships.
+- I think every person is different in coping with pressure; every person thinks differently. For me, sometimes it is difficult because people expect so much of me.
+- Not many know this, but in training sessions, I like to play in the center-back position sometimes. I think I'm good at that position, and my father used to be a central defender. Some people don't realize that if you play in that position, you can better understand how the defender thinks.
+- Dreams do come true sometimes.
+- I was the Premier League's top goal scorer in 2010-11 and never wanted to be on the bench.
+- When you get a bit older, you gain more experience, and you try to put it to good use, to help yourself in different ways and also the young players.
+- I try to do different things, beautiful things, to play the game the way I see it, and I think I'm doing it pretty well.
+- When you're young, you're cocky.
+- I hope when I finish with football, I'll be happy with what I've achieved.
+- In life, everything is possible. If you believe and have faith in yourself, then it can happen.
+- I am a perfectionist, and I set high standards.
+- Every player has their doubts in their self, but they need support.
+- Football is a simple game.
+- Ronaldo is brilliant, Messi more my kind of player. He sees the game so clearly. He can score, create; he's the complete player - the best ever, probably.
+- You always want to run before you can walk.
+- All the players are human beings and need more support to bring their confidence up.
+- To win the league, you don't just need great players, but you need players who have the mentality of title winners.
+- I like to play like that, with beauty and grace.
+- I come from a small country, and I always dreamt big.
+- My heart is in the Premier League. I can honestly say that when you've played there, your heart stays there even if you are physically elsewhere.
+- I credit my success to my mother. Her prayers and support are everything to me. I know all she does for me, and I know nothing I do can ever pay back the amount of support she has given me.
+- For me, it was the right decision to go to United, because going to the top of the mountain was my dream, especially when you come from Eastern Europe, from a small town, and no one's done it before you.
+- A player becomes great only when he realises he has great team-mates.

@@ -1,0 +1,155 @@
++++
+author = "Dwayne Johnson"
+title = "Dwayne Johnson Quotes"
+quotes_len = "149"
+description = "the best 149 Dwayne Johnson Quotes"
++++
+- It took Simone a long time to understand why people want Daddy's autograph. I'd tell her, and my wife would tell her, too, 'People see Daddy in the movies, and they are excited to meet him.' But she couldn't really grasp it.
+- I would never win an award for not loving pizza.
+- Come on, you can't name a truck after a chick.
+- I enjoyed working with Stephen Merchant. He was wonderful. I've been such a big fan of his acting.
+- When I was a kid at four years old, that's when I started amateur wrestling with my dad and family. And when that's instilled in you, it never goes away.
+- I was born to play Hercules. I have loved and honored the mythology over the years - since I was a kid. When I first broke into Hollywood, 'Hercules' was one of the movies that I - not chased, because I didn't have the power to chase anything - but always had in the back of my mind.
+- I've learned never to say never.
+- With all the... success that I've been lucky enough to get? That doesn't happen unless the home life is solid.
+- The one thing that I keep learning over and over again is that I don't know nothing. I mean, that's my life lesson.
+- Barack Obama did tell me that I was one of Michelle Obama's favorite actors.
+- My goal was never to be the loudest or the craziest. It was to be the most entertaining.
+- If I had to describe myself to an alien I'd say I was bigger than the average human, enjoy a drink or two with a good meal and have a bigger head than most. I'd also say I'm really handsome - especially if they were a female alien.
+- I've always loved the showmanship of professional wrestling. While I love making movies, I love that platform, too.
+- There's this lingering philosophy that movie stars shouldn't do TV.
+- But being on location and shooting, whether its in Puerto Rico or Atlanta, it always reminds me of how really cool my job can be. Interacting with the fans is one of the best parts of it.
+- When he speaks to you he speaks with an earnest vibe and an earnest energy.
+- I'll be honest: I haven't ruled politics out.
+- Around every corner, always protect the engine that powers you.
+- That's a traditional Samoan dance. I was lucky that I was able to fly my cousins, who are professional dancers, up from Hawaii and they were able to be in the movie with me. We had a great time.
+- Success isn't always about greatness. It's about consistency. Consistent hard work leads to success. Greatness will come.
+- The successful men I admired all built their bodies.
+- My genetic make-up is one of physicality. I'm a visceral guy.
+- Attitude and enthusiasm play a big part in my life. I get excited about the things that inspire me. I also believe in laughing and having a good time.
+- Oh, I can keep many secrets, so I would be a phenomenal secret agent. I love secrets.
+- I started in action, and then I went to comedy school.
+- The single most powerful thing I can be is to be myself.
+- I've always loved the idea of playing Black Adam.
+- But I do believe that there's going to be a time where all movies are going to be made in 3D and it's just going to be a given, and that is going to be an exciting time.
+- The one thing I couldn't identify with was the blue cowboy outfit he put on.
+- The only film I've enjoyed starring a wrestler was Mickey Rourke in 'The Wrestler.'
+- My philosophy is, it's always very rewarding when you can make an audience laugh. I don't mind making fun of myself. I like self-deprecating comedy. But I'd like you to laugh with me occasionally, too.
+- I plan on taking athletics as far as I can.
+- When a family film is done well, there's a character that every member of the audience can relate to. I want to be one of those guys.
+- I used to get into a lot of fights.
+- I want someone who can trust that my big hands are going to take care of them.
+- If you check your ego at the door when it comes to comedy, you've got a pretty good shot at making a great movie that you can commit yourself to, you can jump off the proverbial cliff with, and have a great time, and the audiences respond to that.
+- When I was a kid, I loved Elvis, and Harrison Ford as Indiana Jones. But I had no connection to Hollywood - and being a movie star was such a far-fetched idea, growing up in Hawaii.
+- Before ever meeting Priyanka Chopra, I had heard her name coming out of Bollywood and was impressed: she was beautiful, talented, had made nearly 50 movies, earned multiple awards - a massive star.
+- I grew up where, when a door closed, a window didn't open. The only thing I had was cracks. I'd do everything to get through those cracks - scratch, claw, bite, push, bleed. Now the opportunity is here. The door is wide open, and it's as big as a garage.
+- Check your ego at the door. The ego can be the great success inhibitor. It can kill opportunities, and it can kill success.
+- I've always seen first responders as unsung heroes and very special people because, when everyone else is running away from danger, they run into it.
+- Football changed my life and it gave me a platform to get out my aggression and it gave me a sense of value.
+- I've been known to have a good step or two. I'm half Samoan, you know, and part of our culture is singing and dancing daily.
+- Wrestling was like stand-up comedy for me. Every night I had a live audience of 25,000 people to win over. My goal was never to be the loudest or the craziest. It was to be the most entertaining.
+- I love the 3D revolution. I love the technology today that continues to push the envelope, continues break the new ground, and continues to raise the bar.
+- Not only do I think being nice and kind is easy but being kind, in my opinion, is important.
+- I like the idea of making a big, fun, adventure type of movie.
+- If I want to be called 'The Rock,' I'll be called 'The Rock.' If I want to go back to wrestling, I'll go back to wrestling.
+- If I love you, I show you I love you every day. Little things, big things.
+- If you ever see The Rock working out in the gym, don't think you can just go up and disturb his workout and expect him to take a picture. He's there to work, so kindly just pass the silverback on by or he'll rip your face off.
+- For me, training is my meditation, my yoga, hiking, biking all rolled into one. Wake up early in the morning, generally around 4 o'clock, and I'll do my cardio on an empty stomach. Stretch, have a big breakfast, and then I'll go train.
+- As we all know, sequels can be tricky.
+- In wrestling, there's a shelf life, and some wrestlers don't pay attention to the shelf life.
+- 'Be Cool' was a defining movie for me.
+- I've been through natural disasters. I lived down in Miami and was down there for Hurricane Andrew which was a Category 5. There were members of my family that thought they were going to die. Everyone was in the bathtub.
+- I'll never, ever be full. I'll always be hungry. Obviously, I'm not talking about food. Growing up, I had nothing for such a long time. Someone told me a long time ago, and I've never forgotten it, 'Once you've ever been hungry, really, really hungry, then you'll never, ever be full.'
+- I love making people laugh and feel good, and that's awesome and special for me to be able to do that, but there really is nothing like kicking ass whether it's on a major scale, or whether it's in more of a dramatic fashion. Being physical and taking care of business the old-fashioned way is something that I love doing.
+- Maybe I'll give Broadway a try. But you know what would be great? Hosting the Oscars. I promise you, that would be a show no one forgot.
+- My freshman and sophomore years in high school, I spent a lot of time trying to get back on the right track. I was arrested multiple times by the time I was 16, so I had a little harder time trying to adjust like a lot of us do in high school.
+- Some of the kids in school used to call my father a fake or a phony. That kind of thing brought on a few fights.
+- When I say I'm going to take care of a woman, I don't just mean physically or sexually or romantically. I'm going to take care of her emotionally and spiritually. I'm going to take care of her in all ways. I take a lot of pride in that today.
+- I grew up in a musical family; the majority of my growing up was done in Hawaii. It's what we do. You sing, you dance, you play ukulele and you drink.
+- I absolutely believed when I was young because the Tooth Fairy was always good to me. The Tooth Fairy generally left me a dollar or two dollars and, as a kid, that was a lot of money.
+- I learned a long time ago how to be coachable.
+- I love WWE, and I love that platform. There is no other platform in the world that gives me that instant gratification. There is just no other platform.
+- I want to be a man who is truthful and who won't let pride get in the way of my ripping myself open to my partner and saying, 'Here I am. This is me.' I feel there's something powerful when a man reaches a point in his life when he can be completely vulnerable.
+- I'm a passionate, hardcore fisherman. Biggest fish I caught? A 200-pound tarpon.
+- I was brought up as an only child, and we were very close. But when I was 14, we got evicted. We came home to a padlock, and I looked up at my mom and she was crying, and there was nothing to do.
+- Mickey Rourke's character in 'The Wrestler' - that was my dad, that was my uncles, that was so many members of my family. It was the only thing they knew. And then they would end up wrestling for a hundred bucks, go to autograph signings for two hundred bucks.
+- I'm always asked, 'What's the secret to success?' But there are no secrets. Be humble. Be hungry. And always be the hardest worker in the room.
+- I can eat two large pizzas and a tray of brownies in one sitting. I'm not sharing that. We can get another one, but I ain't sharing.
+- You've got to keep your finger on the pulse of what your audience is thinking, and know what they'll accept from you.
+- What was important to me was entertaining the audience, and whether that meant winning, losing, singing, or whatever it was on the live show we were doing every week, which was awesome, I was game for it.
+- For me it came from the material. It was so well written and brought the opportunity to work with great actors. And of course the opportunity to 'mince about' was an added element that I wanted to take advantage of!
+- You don't sign up for a divorce when you get married. It's very painful. But it's taught me a great deal about myself.
+- I've never gone wrong trusting my gut.
+- As a father, safety is always a top of mind issue for me.
+- I was a bit challenged when I was younger to stay on the right path.
+- I never wanted to stay in one genre; I never wanted to be pigeon-holed or defined as the actor who only worked in one genre. I want to be able to work in all different genres. For me it's fun, and that's how I grow as an actor.
+- Because of my wrestling background, nothing a director can throw at me on a set can faze me.
+- Life is anything but predictable.
+- I don't race cars.
+- In Hollywood, a lot of times when something is in development, it just takes a lot of time.
+- I love making movies, but there's nothing like performing live.
+- I was a good football player, and I had a chance to play with some great players.
+- When I was ten, I won the horseshoe-throwing contest at summer camp. I was also the Wiffle ball champion in my town.
+- I do all my own stunts. I'm kidding.
+- I've been fortunate to have had the life I had prior to Hollywood. I wasn't starving; I was going to eat the next day.
+- I can't deny that the thought of being governor, the thought of being president, is alluring. And beyond that, it would be an opportunity to make a real impact on people's lives on a global scale. But there are a lot of other things I want to do first.
+- The goal for me is always to have the opportunity to work in different genres. This is a great and exciting time in my career, where I can have the opportunity to work in different genres, and also I recognize there's not a lot of actors who have that opportunity and I'm grateful for it.
+- Wrestling was like stand-up comedy for me.
+- Playing big, heroic characters with heart is always a lot of fun. I enjoy making movies like that, and a lot of people love to live vicariously through those characters.
+- When I was 8, I thought I was Harrison Ford, Gene Wilder, Richard Pryor, Elvis, and Chuck Norris all at once.
+- I'd love to do a musical. I've been known to have a good step or two. I'm half Samoan, you know, and part of our culture is singing and dancing daily.
+- I'm very low-key. I don't really blend in, so it's difficult to go out in public. I like to do things that are kind of quiet, whether it's a dinner at my house or a restaurant, or a movie night at home.
+- I was raised by strong women, and that DNA is in my daughter and wife.
+- When you have something as unique and special as the 'Fast & Furious' franchise, you want to create an experience for the fans that they can only feel and experience at Universal Parks.
+- Ain't nothing like a good cry.
+- The sexiest thing that a woman can do, wear, and say all fall under one word to me: subtlety. To be subtle in the things that she does and the things she says and the things she wears - I appreciate the details.
+- My parents were dealing with evictions and repossessions and electricity getting shut off, and I just realized that I had to get it together.
+- In the '60s and '70s and early '80s, the trainers would grind you, and eventually they would break something - they would break an ankle in ways that it would heal. It was just the way of the business, to ensure that you learned respect for wrestling.
+- The men I idolized built their bodies and became somebody - like Sylvester Stallone and Arnold Schwarzenegger - and I thought, 'That can be me.' So I started working out. The funny thing is I didn't realize back then that I was having a defining moment.
+- I love Steve Carell.
+- WWE is a space where I thrived, and I loved, and I still do. I love connecting with an audience; that is the greatest thing about going back to WWE.
+- I can hold my own when it comes to burping. I've got a good feeling that I could win a championship.
+- I liked his ability to deal with a lot of the negativity that surrounded him. Even though he was in a world that he didn't want to be in, he still saw the bigger picture.
+- I break ground. I trailblaze.
+- My parents weren't actors or studio executives.
+- I have an immense amount of respect for acting. I've always loved movies and was always fascinated by movie-making. But to become an actor, I wanted to commit myself.
+- I don't have a need for speed. I'm not that guy.
+- I knew early on that I wanted to entertain in some form. And I knew I would work as hard as anyone to do it.
+- If you tell me there's something I can't do, I'll want to do it even more. Especially when it comes to entertaining.
+- Yeah, I was a delinquent. It was when I was in the ninth grade. I was doing stupid stuff, and the cops came into the class. I was humiliated more than anything.
+- For different roles, my condition and training and diet does alter. Depending on the role, it will really dictate the type of training I do.
+- I know Gov. Christie. We've met a couple of times.
+- To be immortalized in a ride is a very cooI thing.
+- By the time I was 23 years old, I had multiple arrests.
+- I like the idea of working in different genres and transcending genres and hopefully finding success, and ultimately make movies people like.
+- I knew credibility would come only in time and through earnest performances.
+- I didn't have to win, and winning wasn't important to me. Being world champion wasn't important to me. What was important to me was entertaining the audience, and whether that meant winning, losing, singing, or whatever it was on the live show we were doing every week, which was awesome, I was game for it.
+- It's the philosophies of being an athlete that carry me today.
+- My mom cleaned toilets for a long time, and she'd seen a lot of terrible things, but she was still the strength of our family. And there are women like that all across the country - all around the world - who show that type of fortitude.
+- My grandfather was one of the very, very first, if not the first, Samoan wrestlers to become known on a worldwide basis.
+- When I was a kid, I never thought much about football. I thought about following in my family's footsteps and going into professional wrestling.
+- With drive and a bit of talent, you can move mountains. I know. I've done it.
+- I was fortunate and I was lucky that I had a couple of people in my life who cared about me. I had good, loving parents.
+- As an athlete, you'd better laugh at yourself when you slip in the mud.
+- For 'Hercules,' I went for the demigod look: big and mean. When you're playing a character like the son of Zeus, you only get one shot.
+- I like to use the hard times in the past to motivate me today.
+- Every once in a while I get the highly inappropriate proposal which is like, 'Wow, Really! You don't even know me and I don't know you at all, and you want that to happen? Tonight? Ok, I get off work at 7.30.'
+- One of the skills I had to learn and become proficient in is kissing a man. I had never kissed a man. Will Smith did it in his movies, so did Jake Gyllenhaal, and I figured it was my time. So it was me and Steve Carell - fantastic.
+- I have good friends who are politicians on both sides.
+- Nutrition is so important. It can't be stressed enough.
+- When I was 8 years old, I saw 'Raiders of the Lost Ark' in Charlotte, North Carolina. I walked out of there and was so inspired. I loved the movie, and I knew I wanted to be that guy.
+- I think that always makes it fun, trying to create a heroic character and putting your own twist on it and injecting your own personality into it.
+- I found that with depression, one of the most important things you could realise is that you're not alone.
+- The Revlon Run/Walk effort to focus on women's cancer has my wholehearted support and gratitude.
+- Wrestling is intimate. You can reach out and touch the wrestlers.
+- Working out anchors my day.
+- We all live with cancer, whether it is present in ourselves or affects someone we love.
+- Part of my daily regime is my glucosamine and, of course, a multitude of multivitamins. Branched-chain amino acids, glutamine, of course protein. I have one protein shake a day, and that is immediately after my training.
+- What I like to do is get the family in the pick-up truck... and then we just go for a drive. That's it!
+- My reputation precedes me now.
+- I think there are a number of things that you can do to encourage your kids' dreams, but I do believe in speaking by experience of having a lot of help along the way, stumbling in the past. We've all stumbled, and we certainly all deserve to get up and walk again.
+- I played with two lines of action figures when I was a kid: G.I. Joe and Star Wars.
+- It is no surprise that animation is Hollywood's most successful and innovative genre.
+- With action films, it's great if it's not just driven by action, but by a good story and interesting characters, as well. Though, there's nothin' like kicking butt!
+- There are definitely people who disagree with certain creative decisions you make. Pleasing everyone is pretty hard.
+- I am not The Rock. I am Dwayne Johnson.

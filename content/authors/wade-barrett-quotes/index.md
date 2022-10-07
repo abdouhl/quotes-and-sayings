@@ -1,0 +1,106 @@
++++
+author = "Wade Barrett"
+title = "Wade Barrett Quotes"
+quotes_len = "100"
+description = "the best 100 Wade Barrett Quotes"
++++
+- Traditionally, WWE used to shy away from that Internet kind of fan base. But I think increasingly, in life in general and every aspect of entertainment, social media, the Internet fan base is now massive.
+- The best thing about WWE without doubt is being able to step out in front of the incredible fans that we've got.
+- I enjoy the challenge of taking someone on.
+- It's difficult not to like Justin Gabriel when you see him in the ring. He's one of those guys like an Evan Bourne or a Rey Mysterio, a high flyer.
+- I left WWE because I was utterly miserable wrestling at the time and I needed to get away from the business.
+- I try as much as I can to bring out my own British flavor.
+- Ninety-nine percent of the time, I'm pretty laid back and relaxed, but I can get very intense quickly.
+- I think Bad News Barrett was just having a laugh every single night.
+- I don't know about changing my mind regarding The One-Man Band. I've always personally found him incredibly entertaining, which is one of the reasons why, in the past, I surrounded myself with guys like him. I think he's a complete buffoon, don't get me wrong, but personally, I find him very funny.
+- Once upon a time if you go back to the early 2000s all the way to 2014 all I cared about in life was being a wrestler, going on the road, performing in front of crowds, getting big, climbing the ladder.
+- The moment you get comfortable is the moment you get stagnant, so I want to make sure I keep evolving.
+- I think second place is the first loser in the competition.
+- I want to be champion of the world.
+- I felt very lucky that I not only got to be on Piper's Pit and work with Rowdy Roddy Piper who I feel is one of the best promo guys in the history of the company, but I also got to get interviewed by Mean Gene Okerlund who is another favorite from my childhood. I was a huge fan.
+- I've always had that confidence in my performance ability and my ability to speak in character.
+- I've done a lot of work with recruitment, which involved me giving sales pitches and things like that and spending a lot of time on the phone selling my services to people.
+- If you go back in time to the '60s, the '70s, probably the early '80s, British professional wrestling was the most respected region of professional wrestling on the planet, and somewhere along the way that got lost and wrestlers were forced to America or Japan or even Mexico to make a living.
+- I want to be the first English WWE world champion.
+- I'm definitely never going to be John Cena, the life and soul of the party.
+- With my genetics, you have to be careful of doing too much cardio. I'm an ectomorph and you can lose a lot of size quickly if you overdo it on cardio.
+- Daniel Bryan is someone who I definitely think I can have good matches with.
+- I like music, I like boxing, I like watching football.
+- Wade Barrett is a lot of things, but he certainly is not a loser.
+- I think there was an opportunity as Bad News Barrett to turn me in to a babyface. I am not saying that I would have gotten to the level The Rock got to but it was certainly a chance for me to do something different and keep me motivated and stimulated by what I was doing on the show.
+- So in the pro wrestling world, everything is massively over the top and every reaction that you do in the ring is kind of corny if we're honest - it's not supposed to be serious - it's a comic book world.
+- I think Bad News Barrett was a lot of fun.
+- When I became King Barrett, the influence I had in the character was taken away. I was told, 'This is your outfit, and here is your promo that you have to say word-for-word.' Any time I tried to tweak the storyline because I thought it wasn't working, or because it wasn't me, I was denied.
+- I think one of the things that happened to me in the last couple of years in the WWE where I realized how unhappy I was in that environment, was that I realized that I needed variety and balance in my life.
+- I'm a huge fan of Adrian Neville and I have been for a long time.
+- Even to get to NXT now - which is the bottom rung of the WWE ladder - you have to be really good just to get there. They generally don't take guys who can't wrestle.
+- The most important thing in the Royal Rumble is saving as much energy as you can. The guy who's going to win is usually going to be the guy who can defend himself the longest.
+- I'm lucky that I have a deep, strong voice naturally, and the rest of it I just worked on as far as confidence and projecting myself.
+- When you're with WWE, you are operating within very fine boundaries that you cannot step outside of.
+- If you have the same guys at the top of the card all the time, people get bored of it. They don't want to see the same guys wrestling over and over again.
+- Dusty Rhodes really liked me, I bonded with him.
+- Yes, I started off as a bare-knuckle boxer.
+- After making repeated attempts to change my career trajectory and having those efforts turned down, my passion for playing the role of a WWE Superstar went away.
+- I was told by thousands of people I would never make it.
+- The only thing that matters in WWE is winning and getting paid.
+- I love doing commentary, and I love working with NWA, as that's been a goal of mine for a long time.
+- I improved my died by dropping a lot of carbohydrates like bread, rice and pasta and now I'm eating a lot more fruits and vegetables.
+- So, the older I got the more I started to appreciate balance and variety in my life, and once you get a taste of that returning and realize how happy it can make you it is very difficult to conceive giving that up again.
+- Many people don't realize just how dangerous professional wrestling actually is. People can get seriously injured and even paralyzed.
+- Wrestling is quite cyclical in its nature.
+- I've focused on being as lean as I can.
+- I have watched stuff like Mixed Martial Arts and boxing, and sometimes it's disappointing because the big fight is over like in 30 seconds or so.
+- The one thing I try to do is bring something to my fight scenes that no other film fighter could ever do.
+- I think Nexus is one of the favorite periods of my career, and I think we had a lot of success, and I think people responded to it really well.
+- I think the biggest difficulty from transitioning from professional wrestling to the acting world is generally toning down your performance.
+- It's pretty much impossible to do anything when you're in WWE because you're so busy constantly.
+- I remember when I was younger and seeing guys like The Rock cut these promos telling the world how terrible they are. How they are a bunch of losers and stuff like that. He was so funny when he did it that you couldn't wait 'til he came out and started insulting you.
+- Back in 2004 I trained at an independent wrestling school and performed in front of crowds of around 200, then I got signed to a contract with the WWE to continue my development.
+- There is nothing more terrifying than lying in the ring and feeling that your hand has gone numb.
+- I was always a fan of wrestling, right from the time I was nine or so. But eventually I decided I wanted to do professional wrestling myself, not just watch.
+- I wrestled for 14 or 15 years. I've got a bunch of injuries, I'm tired, I'm getting old, I'm getting some grey hair now.
+- I'm actually a big supporter of the majority of the guys from The Nexus.
+- The interesting thing about film fighting is that it's very different to the kind of fighting we do in pro wrestling.
+- I've always worked out very hard, very intensely, with a lot of free weights.
+- My parents knew I was a massive wrestling fan.
+- I always dreamed of getting in WWE and becoming a big star. But it's not something you could ever guarantee. It's like a kid wanting to play in the Premier League.
+- It is a grind lifestyle and it never ends until you get hurt and then you sit home rehabbing for three months or whatever it is until you get back straight on that train grinding again, which is how you make your money in the pro wrestling world.
+- I've had a lifelong passion, and really obsession, with professional wrestling since I was a very small kid.
+- I don't know if I'll ever get used to walking into the local shop or a local restaurant and having three or four people recognize me.
+- With my intellect, I'm somebody who can think fast, think on my feet and can think under pressure.
+- You just have to look at my nose to see what kind of lifestyle I led... sports and fisticuffs.
+- I've never gone out and courted favors. I've never gone out to be booed, either. It's just me being myself.
+- When I was first in the locker room with The Undertaker and John Cena it was very strange. But it gets to a point that these are going to be guys you are working with you get over that pretty quickly. You can't be star struck.
+- I stopped drinking alcohol, which probably was the biggest change. I used to be a very big beer drinker. Being from England, that's a very common thing.
+- It was amazing to work with a cast like Terence Howard and Colin Farrell.
+- I certainly didn't come to entertain the crowd. I am here to get my hand raised and make it to the big events like WrestleMania, where I can make an even bigger payday. And that's what I am going to do.
+- Even in terms of the technical stuff there's a very traditional British flavor that comes out. Our characters are influenced by our culture so there's definitely something unique about British wrestlers in the U.S.
+- I think the way British wrestling lost its way in the mid '80s was that the athleticism and the sporting side to the drama kind of went away and it almost became a joke of a TV show.
+- I'm not a terribly popular person in life. I can handle that.
+- In terms of timing, there's never a good time to get injured.
+- If you look back at people like The Rock there are times when earlier in his career he was doing heel stuff and he was so entertaining that people cheered for him. The natural thing to do was turn him babyface.
+- To me, OVW was one of my favorite periods in my career. I felt like I was on the greatest adventure of all time. I was there five months before WWE developmental moved down to Florida.
+- The difference between me and other Superstars is that I am more intelligent, possess a superior streetwise viciousness and am motivated by money.
+- One of the problems with being a WWE Superstar is that I literally get zero time off unless I'm injured, and usually when I'm injured I'm sat on the couch unable to move because I've just had a surgery.
+- For the most part I excel as being the bad guy, and that's definitely a strong point for me.
+- There's certain elements involved in pro wrestling that aren't solely down to the performer. There's only so much I can do. I've kind of stopped beating myself up about things not working out the way I want them to every time.
+- Wrestling was a part-time thing and I was starving doing it. When the opportunity came up to wrestle with WWE and come to the states, it was a no-brainer.
+- The fact is, there's a ton of opportunities out there now for professional wrestlers which, when I was coming through, weren't really there. The only game in town realistically was WWE, and it was very, very difficult to see yourself working anywhere outside of that.
+- I couldn't just be good on the mic. I needed to be good on the mic; I needed to be good in the ring; I need to be good in my presentation; my ring attire need to look good, my appearance. Everything about me needed to be the best. I couldn't be weak in any area because you're only as good as your weakest aspect.
+- By the time I got to 2015, I was sliding down the card. I was getting opportunities that I thought were kind of wasted. Like, I became the King of the Ring, which sounds like it should be impressive, but what it was followed up with was zero rises.
+- When I was coming through as a professional wrestler, as a young man in 2003 and 2004, there really wasn't much of a wrestling scene in the U.K. to take advantage of or make a living in, so I was forced to have to go to the U.S. and kinda make a living from it out there.
+- Sometimes being away from TV for four months or six months or whatever it's been can really help you. People miss you and are happy to see you back. On the other hand, people can forget about you.
+- Most people can differentiate between the guy you see on TV and the real-life guy.
+- I think the digital revolution and the opportunity for smaller brands to get big platforms now is fantastic for professional wrestlers and professional wrestling in general.
+- I started off in FCW working for Dusty Rhodes and being the color commentator down there in 2008 to 2009, and I've always loved it ever since.
+- Maybe I need a catchphrase. Maybe I need a t-shirt that'll be a big sell. Maybe I need to do more with my in-ring skills. There was always something in my head like, 'I can improve this and I can improve that.'
+- I'm much happier on my own. Being a member of The Corre, for example, I was obviously better than all three of those guys. However, I made the mistake of holding them as equals. No more.
+- I think increasingly WWE is a global company - as much as they can they want to push out into new markets like Europe.
+- Most fans don't realize 75 percent of the matches we have are non-televised. I prefer a non-televised show because it is more ring-focused and fan interactive.
+- I realized, statistically, the chances of me getting to the WWE and being very successful were very slim. I always hoped it would happen for me.
+- For the majority of guys, their character is just an extension of what they are really like. I'm generally a pretty nice guy but I'm a bad guy in WWE. So I always say it's like an extension of my dark side.
+- I couldn't care less what anyone thinks about me. When I look in the mirror and see what's looking back at me, I'm incredibly happy. Nobody's opinion is going to change that.
+- People never try to prove themselves against me unless they've had a few beers in them.
+- I think when I left WWE, Vince blocked my phone number so he never wants me calling him again.
+- One of the most exciting parts of the Nexus and 'Bad News' Barrett eras were I had a lot of influence in the character and I had a lot of influence in how I was going to portray myself.
+- While I was working for the WWE in 2013 and 2014, TV deals had come to me, movie deals had come to me, sponsorship deals had come to me, and they were all turned down by WWE because they would involve me being taken away from their shows.

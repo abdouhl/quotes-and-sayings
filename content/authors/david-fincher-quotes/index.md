@@ -1,0 +1,41 @@
++++
+author = "David Fincher"
+title = "David Fincher Quotes"
+quotes_len = "35"
+description = "the best 35 David Fincher Quotes"
++++
+- I was a disinterested student.
+- My idea of professionalism is probably a lot of people's idea of obsessive.
+- I think intelligence is totally subjective; it's like sexiness.
+- When you make the kind of movies I make, you get weird letters from people.
+- I loved Luke Skywalker and I loved Darth Vader and I loved watching them work it out.
+- I don't know how to depict intelligence.
+- I like the idea of R-rated franchises.
+- You can make movies for a select audience, but you have to market it to them.
+- You won't see me on Barbara Walters; Oprah, that's not who I am.
+- When I'm watching somebody act, it's a behavior editorial function - I look at someone act, and I might say, 'I don't believe him when he says that.' I don't know why I don't believe him, probably because the people that I've met, they don't act like that when they say stuff like that and mean it.
+- Again, a franchise to me doesn't have to be a billion dollar title.
+- Hollywood is great. I also think it's stupid and small-minded and shortsighted.
+- There are some movies I can watch over and over, never get sick of. I'll put one of those on and be puttering around the house. Then a certain scene will come on and I'll just have to go over and watch.
+- Entertainment has to come hand in hand with a little bit of medicine.
+- Everything seems really simple on paper until you take a camera out of the box.
+- You know, I don't think I've ever listened to someone's commentary. Ever.
+- It's a bad day when you don't get the work done that you need to get done or you don't get it done to the satisfaction.
+- A lot of people hated 'Alien 3.'
+- Some people go to the movies to be reminded that everything's okay. I don't make those kinds of movies.
+- For a number of years, I'd been around the kind of people who financed movies and the kind of people who are there to make the deals for movies. But I'd always had this naive idea that everybody wants to make movies as good as they can be, which is stupid.
+- I'm totally anti-commercialism.
+- For a romantic comedy to be three hours long, that's longer than most marriages.
+- We were working with this lousy print and it just wasn't going to be good enough. I said that we should get the original negative and do it from that. Well, a couple guys pointed out that the negative was locked up over at Deluxe.
+- Yet as a director, I don't feel you have to identify with your characters as a requirement to make a movie.
+- I learn the most from making my own mistakes.
+- The fact is, you don't know what directing is until the sun is setting and you've got to get five shots and you're only going to get two.
+- I like characters who don't change, who don't learn from their mistakes.
+- And I love shooting football.
+- In film, we sculpt time, we sculpt behaviour and we sculpt light.
+- Oh, yeah, I love DVD's. I don't have what you'd call an extensive collection, maybe a couple of hundred or so. But I have something on almost all the time.
+- How do you shoot a 150-day movie? You shoot it one day at a time.
+- If I could be anyone, it would be Brad Pitt.
+- Perfume is pretty good because nobody has to hold the product by their face or use it.
+- A movie is made for an audience and a film is made for both the audience and the film-makers.
+- I like studios. I just don't like bureaucracies.

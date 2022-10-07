@@ -1,0 +1,52 @@
++++
+author = "Derek Bok"
+title = "Derek Bok Quotes"
+quotes_len = "46"
+description = "the best 46 Derek Bok Quotes"
++++
+- Despite the hours spent debating different models of general education, the choices faculties make rarely lead to any significant difference in the cognitive development of undergraduates.
+- I believe that Harvard can have, and must have, a strong affirmative action program that reflects our commitment to equal opportunity while fully respecting the academic standards of the University.
+- Although professors regard improving critical thinking as the most important goal of college, tests reveal that seniors who began their studies with average critical thinking skills have progressed only from the 50th percentile of entering freshmen to about the 69th percentile.
+- Ever since economists revealed how much universities contribute to economic growth, politicians have paid close attention to higher education.
+- The oldest of the arts and the youngest of the professions.
+- Doctoral training is devoted almost entirely to learning to do research, even though most Ph.Ds who enter academic life spend far more time teaching than they do conducting experiments or writing books.
+- There are no tests similar to SATs to tell us how much undergraduates know. State legislators, who appropriate billions of dollars each year to higher education, are naturally interested in finding out what they are getting for their money.
+- I think it's very important to emphasize that there are many, many different educational institutions in what we call higher education, and they educate an enormous diversity of students. I think all of those institutions have to define particular roles for themselves; they can't do everything at once.
+- I don't regard the fact that there's a disparity in test scores nearly as importantly as I do the need for diversity, because I know from long experience that test scores, though useful, are a very limited measure of things that matter in choosing students.
+- There's a great deal of difference between thinking reflectively about moral issues and achieving higher standards of ethical behavior.
+- There is far too much law for those who can afford it and far too little for those who cannot.
+- Teaching methods are often inadequate for the goals faculties are trying to achieve. Important courses such as expository writing and foreign languages are frequently taught by untrained graduate students and underpaid adjunct teachers.
+- Again and again, universities have put a low priority on the very programs and initiatives that are needed most to increase productivity and competitiveness, improve the quality of government, and overcome the problems of illiteracy, miseducation, and unemployment.
+- Good teaching is creating really interesting generalizations out of war stories.
+- Freshly minted Ph.Ds typically teach the way their favorite professors taught.
+- Education, and I regret to say this as an educator, but there's no indication that education has a direct effect on happiness.
+- I won't say there aren't any Harvard graduates who have never asserted a superior attitude. But they have done so to our great embarrassment and in no way represent the Harvard I know.
+- I suspect that no community will become humane and caring by restricting what its members can say.
+- I think one thing that does cause unhappiness is protracted anxiety and worry.
+- Once you start worrying about a national football championship, then you begin to worry about getting the quality of athlete, and the numbers needed, to win a national championship. And that worry leads to pressure to compromise academic standards to admit those athletes.
+- The University has a moral obligation to provide equal opportunities to women, minority persons and all other groups who work or seek to work at Harvard.
+- I don't think the alternative to Yale is jail by any means. On the other hand, there is a mass of research that does show that there are real advantages to your subsequent career in going to selective institutions.
+- For some students, especially in the sciences, the knowledge gained in college may be directly relevant to graduate study. For almost all students, a liberal arts education works in subtle ways to create a web of knowledge that will illumine problems and enlighten judgment on innumerable occasions in later life.
+- What we are doing in educating students is trying to prepare them to live more fulfilling lives for the decades after they graduate. And trying to provide a better, richer, fairer, more decent society for the generations after.
+- The vast majority of students probably emerge from college with an adequate grasp of no more than a single method of inquiry. Even this capacity may erode over time if it does not relate to experiences and problems that recur in the student's later life.
+- I think the minority students that we admit to Harvard are every bit as meritorious as the white students that we admit.
+- Efforts to develop critical thinking falter in practice because too many professors still lecture to passive audiences instead of challenging students to apply what they have learned to new questions.
+- Fewer than half of all university professors publish as much as one article per year.
+- If we are prepared to invest the necessary time and effort, affirmative action can contribute to Harvard's quality and not detract from it.
+- Universities are in a position where they can think very creatively.
+- Most high governmental officials who speak of education policy seem to conceive of education in this light - as a way to ensure economic competitiveness and continued economic growth. I strongly disagree with this approach.
+- Critics of American colleges typically attribute the failings of undergraduate education to a tendency on the part of professors to neglect their teaching to concentrate on research. In fact, the evidence does not support this thesis, except perhaps in major research universities.
+- As countries embrace mass higher education, the cost of maintaining universities increases dramatically relative to an elite system.
+- In 1968, the situation at Harvard was not one of which we can be proud. In that year, the proportion of minority persons in salary and wage positions was approximately 3 per cent. Virtually no minority workers were employed on Harvard construction projects.
+- Early admission programs tend to advantage the advantaged.
+- The most obvious purpose of college education is to help students acquire information and knowledge by acquainting them with facts, theories, generalizations, principles, and the like. This purpose scarcely requires justification.
+- I think any self-respecting educational institution ought to judge its policies by its best estimate of what their long-term consequences for their students and for the society will be.
+- The college that takes students with modest entering abilities and improves their abilities substantially contributes more than the school that takes very bright students and helps them develop only modestly.
+- Colleges do not merely offer preparation for the future; they occupy four years of a student's life, and an institution should do what it can to make these years absorbing and enjoyable.
+- I think it's sort of an outrage that companies should have to hire firms to teach the college graduates they employ how to write.
+- The first country to adopt happiness as an official goal of public policy is the tiny little country of Bhutan in Asia near China and India.
+- Greater inequality in Europe has made people less happy.
+- Colleges and universities, for all the benefits they bring, accomplish far less for their students than they should. Many students graduate without being able to write well enough to satisfy their employers... reason clearly or perform competently in analyzing complex, non-technical problems.
+- Economists who have studied the relationship between education and economic growth confirm what common sense suggests: The number of college degrees is not nearly as important as how well students develop cognitive skills, such as critical thinking and problem-solving ability.
+- Apart from finding a first job, college graduates seem to adapt more easily than those with only a high school degree as the economy evolves and labor-market needs change.
+- What college is all about is some kind of 4-year game about who is going to end up with the highest grades. And I don't mean to say that academic achievement isn't important. But it is, after all, a means to an end.

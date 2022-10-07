@@ -1,0 +1,36 @@
++++
+author = "Sebastian Horsley"
+title = "Sebastian Horsley Quotes"
+quotes_len = "30"
+description = "the best 30 Sebastian Horsley Quotes"
++++
+- I used to have about a hundred suits in my late twenties and early thirties when my stock was riding high and I was rich.
+- I regret everything. But so what? At least I have cause.
+- Why shouldn't I be allowed to say stupid, outrageous things?
+- The problem with compassion is that it is not photogenic.
+- I like living sparsely. In the main room, there's no furniture - no tables, no chairs, no coffee table - not even a decaffeinated coffee table.
+- If I want to dislike women, I should be allowed to. As it happens, I love them. Women to me are privately worshipped and publicly disdained.
+- Dandyism is a lie which reveals the truth, and the truth is that we are what we pretend to be.
+- An artist has to go to every extreme, to stretch his sensibility through excess and suffering in order to feel and to communicate more.
+- I am not an intellectual. An intellectual is someone who looks at a sausage and thinks of Picasso, whereas I just say 'pass the mustard'.
+- I don't talk, I quote. I can't help it. It's better to be quotable than honest.
+- My theory is that the way you cope with the depths will ascertain the heights that you reach - they are intimately connected - and if you have a lust for life, you are also going to have a lust for death.
+- My grandfather was a practising Quaker. My father was a nihilist. But nihilism, if you like, is the beginning of faith anyway.
+- You may look back on your life and accept it as good or evil. But it is far, far harder to admit that you have been completely unimportant; that in the great sum of things, all a man's endless grapplings are no more significant than the scuttlings of a cockroach.
+- I am a fraud. I have cobbled together my personality from hundreds of little bits. I am simultaneously the most genuine and the most artificial person you will ever meet.
+- If someone thinks I'm posh, it just shows how lowly they are. Some people think I went to Eton. I'm far too stupid to get into Eton.
+- I think you are born, and I think you die. I have a pragmatic nature, but I yearn to believe.
+- I like to remind myself that every morning I'm making a choice to live.
+- A woman is supposed to have curves like an old Bentley, not like some old bike.
+- I am half-Byronic, half-moronic; part-shaman, part-showman.
+- If I hear that people are litigious, I immediately dismiss them.
+- I do a lot of things for effect, which is not to say I am superficial, but that I know how to put ideas across.
+- I live my life like an open book, even though it's open on the wrong page.
+- People who have a reputation for being evil are usually good.
+- I consider myself to be very correct and proper: an upright citizen.
+- Pain can be vitalising; it gives intensity in the place of vagueness and emptiness. If we don't suffer, how do we know that we live?
+- Being a dandy is a condition rather than a profession. It is a defense against suffering and a celebration of life.
+- Think of how many boring, blameless lives are brightened by the blazing indiscretion of me.
+- Everyone says Oscar Wilde was a dandy, but he wasn't - he was an aesthete. He took pleasure in food and stuff like that. Dandyism is much more austere - much more Calvinistic, more neurotic - it oscillates between narcissism and neurosis.
+- The universe is neither friendly nor hostile. It is merely indifferent. This makes me ecstatic.
+- I keep the shutters closed because I like to work in a hermetic environment. I like mirrors. When you look out of the window, all you see is ugliness, but when you look in the mirror all you see is beauty.

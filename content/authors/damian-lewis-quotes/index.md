@@ -1,0 +1,122 @@
++++
+author = "Damian Lewis"
+title = "Damian Lewis Quotes"
+quotes_len = "116"
+description = "the best 116 Damian Lewis Quotes"
++++
+- I'm always forming bands.
+- Having been on a private jet only two or three times, it's one of life's great luxuries.
+- No Western government has ever played the long-term in terms of foreign policy.
+- I've had loss in my life, and I like to think my mother's energy lives on in some faintly Buddhist way. I do find some comfort there.
+- My parents came to see me in a play at Eton when I was 16. And then, when I said I wanted to try for drama school, they knew there was enough passion there for them to be brave and back me.
+- What I do believe in is the moral code of Christianity.
+- I loved doing 'Homeland.' I loved playing Brody.
+- I didn't know 'Homeland' was going to be 'Homeland.' I just did it because it was a terrific script, and they pitched me the story line, and I was like, 'Huh, that's interesting.'
+- I've done classical theaters. I played Hamlet myself and Romeo.
+- I'm not very good at strategizing.
+- L.A. still ranks as one of my guilty pleasures, along with butter-pecan ice cream and Coldplay albums.
+- The best shows succeed because they tap into a national conversation.
+- I'd feel guilty just doing gags.
+- There are jobs that come along in your life, if you're lucky enough, that elevate you in a considerable way. And 'Homeland' was definitely one of those jobs.
+- I grew up in London, one of four children. We were a very loud family, not a lot of listening, plenty of talking. My mum was a hearth mother: she loved to gather us all around her - Sunday lunches were a big thing. She was very good at thinking on her feet - people used to say she should go into politics.
+- Why do you think so many actors are only half-developed people? It's very easy when you're a young actor to have these intense, explosive friendships for short periods of time, because you can control what's shown of you. Then you go on to your next job and reinvent yourself again. I think it's important to find something constant.
+- Television audiences are ruthless - look what happened to 'The Killing.'
+- I remember, when I was doing 'Nicholas Nickleby', James Archer came to see me at the interval and said, 'My father would like to see you after the show.' It felt rather as if I had been summoned by the Queen, and I was cocky enough to think, 'Who the hell is he to summon me?'
+- Quiet people, people who aren't given to emotional outbursts, people who are economic with words - they're also fun to play, but you find yourself needing a laser precision in those roles. Otherwise you just sort of stand around, looking slightly brain-dead. You worry about being uninteresting.
+- I've always been a narcissist.
+- You have to go where the good writing is.
+- I just don't consider myself to be, you know, an American actor. I don't want that life.
+- There is a machismo about an American male who is robust, athletic, able to build things, and he takes care of stuff. And it's a point of pride.
+- I want to make a clear distinction between people who take acting seriously and people who call themselves actors because they've been on reality TV or something.
+- It's such an overused phrase: 'to be part of the conversation.' But it's true. It is nice to be part of the conversation - just be sure they are talking about you in the right way.
+- For me the rehearsal period is the part I most enjoy. It's the creating of the story.
+- I think very few people still understand the distinction between CEOs on Wall Street and the hedge-fund billionaires operating separately.
+- In England we burnt redheads at the stake, because we thought they were witches. There are still young redheads in Britain getting ripped for having red hair. 'Oy, Ginger!'
+- I suppose where I am sort of reflects the work I have chosen to do. Are there occasional frustrations because I can't work with a certain director because it's a big studio movie, and I don't have enough of a studio profile? The answer is yes. But generall... generally, I have the career I have chosen myself.
+- I found that the quality of TV material that came to me was so great and was just often better than the film material I got. And when I find a good movie that I really like, I jump on it because it's exciting to do.
+- I love going for a swim. Growing up in England, anywhere with a pool seems like the height of glamour to me.
+- It's constantly fascinating for me that something that feels absolutely right one year, 12 months later feels like the wrong thing to do.
+- I went to boarding school from the age of eight - first to prep school, then to Eton. One thing that kind of education teaches you is community living: there's little retreat. That's why people come out of it and talk about lifelong friendships forged in the furnace.
+- I've discovered just how symbiotic the relationship is between writers, directors and actors. They ask the same questions and strip down texts in exactly the same way.
+- Of course the lower classes have always felt downtrodden and aspired to a better life. But there is this theory that people respond to a class structure in England - there was a time when people knew who they were and knew whom they served and as long as management wasn't abusive, it was a good life for people.
+- I'm one of those idiots; when I'm working in America, I wake up with an American accent and stay with it all day till make-up comes off.
+- I love playing sport.
+- You know, this idea of going around the world imposing democracy by growing a middle-class, a trading merchant class that is independent of your faith, is a good notion, but we're all partially different - it's no good imposing systems on people that it doesn't suit.
+- An interesting insight into the ruthlessness of studio executives: I was having a conversation with Alex Gansa, a creator of 'Homeland,' and I said, 'So you guys must have seen 'Life' and liked me in it, right? That's the most recent thing I've done over here.' And he went, 'No, Damian. You actually nearly didn't get the job because of 'Life.'
+- The irony is that, coming from a white-collar British background, I tend to play blue-collar Americans!
+- All you should try to do is behave with honour. If you can. At all times.
+- I'm sponsored by Audi, so I have this rather lovely rather arrangement where they just insist that I'm always in the latest model.
+- If you only do issue-based drama, you can become a boring wanker.
+- When I'm working in America, I wake up with an American accent and stay with it all day till makeup comes off. I just want everyone to be at ease, and not have the show's creators think, 'Oh my god, he's so English, why did we hire him?'
+- People need revelation, and then they need resolution.
+- I'm not good enough to flip in and out of my Brit accent to my American accent.
+- I'm no more or less antisocial than the next person.
+- It's good to be busy on a film set because there is a lot of sitting around, so if you've got two roles to play at one time, then that's great to do.
+- I am Damian Lewis, not Daniel Day-Lewis.
+- A cricket ball broke my nose when I was a kid so I couldn't breath through it. Before I had it operated on I used to stand on stage with my mouth slightly open.
+- '24' had to withstand accusations of being right-wing, but 'Homeland' is a far more liberal show.
+- The lesson I learned is that sometimes the task you have at hand needs all of your concentration and focus.
+- I'm not an American, but I have this weird connection to America in different ways through my dad living here for five years, my godfather being an American who I'm very close to.
+- Fallible characters are more interesting than superheroes in the end.
+- I just try to live my life every day by doing the right thing.
+- I'm one of those pesky Brits.
+- If you have the same drive and passions that everybody else has - for example, if you're trying to do the right thing for your family and do the right thing for people you employ - then you can be forgiven quite a lot.
+- My kids think America is swimming pools on the roof, screening rooms, and hot dogs. They love it here.
+- My background was fairly conservative, and I think there's a strong notion of duty in a background like that, and I don't think that's always helpful.
+- I have a three-year-old and a four-year-old at home, and my mornings are about just dealing with the fact of that. I oddly enjoy it.
+- If you think you don't want to play another psychopath, but the script is amazing, and the director is fantastic, and the story is incredible, then you may end up playing your third psychopath in a row.
+- It's certainly true that I was brought up in that British amateur tradition, the one which always held that if you were reasonably good at cricket, knew one or two Latin texts and a few zingy Oscar Wilde quotes for dinner parties, you were pretty much ready to go and run some outpost in Hindustan.
+- I've always had a 'Work hard, play hard' attitude to life - I still do - but sometimes you get involved in something that needs a calm, methodical approach.
+- You can't do something that is morally vacuous or dysfunctional and then write it off saying, 'It wasn't my film, I was just doing a job in it.'
+- There's a high head count on 'Homeland.'
+- I'm very lucky.
+- Producing is a world of compromise and actors are utterly spoiled all the time.
+- Temperamentally I'm not a natural producer, because I don't have the patience.
+- It's sad that children don't spend enough time looking around and being amazed by what's in the real world.
+- That's all you can do as an actor - take the best thing available.
+- This high-end, novelistic form of TV, you know, is just peppered with despicable people who do marvelous things and marvelous people who do despicable things.
+- There is a latent anger in a lot of people that went to boarding school at an early age. I was eight. And I loved it over the five years, but I think the adjustments for eight-year-olds are a lot. And I think it informs who you are for a long, long time.
+- My heroes were all in the theatre.
+- I was, if you like, a successful schoolboy in that I had a degree of talent in all the required things that make you a success at school.
+- I went to boarding school, and what that teaches you is to cope emotionally at a young age and to suppress a lot of emotion. Being in the army is, in a way, similar.
+- You just have to take control of your own performance.
+- I guess I'm just good at playing repressed individuals. I'm lucky because those are often the roles that catch people's eyes.
+- Seeing a man praying to Allah is enough for some people to assume he is a terrorist.
+- There's something important, as an actor, about allowing yourself to be approached by people to do roles. People see different things in you.
+- I came of age as a male lead actor just as the TV landscape dramatically shifted.
+- Acting can be a narrow and isolated experience, because you only examine your particular part.
+- None of us, remember, knew that 9/11 was gonna happen. We didn't live in a state of anxiety and fear about Osama Bin Laden. The CIA might have, and they failed to prevent it. But the general public didn't have any knowledge. Now we have knowledge of it, and it's a very clear and present danger in our lives.
+- You know, I think I am faintly spiritual.
+- Would I have traded 'Homeland' for anything else? No. Would I trade 'Billions' for anything else? No.
+- Dramatically it's always more interesting to conceal rather than reveal things.
+- I investigated post-traumatic stress disorder. I've been to a unit where people are suffering from it, and I read a lot of literature. I looked at footage of soldiers in the combat zone. I found 'Restrepo' to be unbelievably useful.
+- There are lots of different reasons to choose roles.
+- You can't be sent away to prison for life and feel OK about it.
+- I had no ambition to go to America and be in a TV show. It's not like I've rejected something or decided that I've found something better. Your life just takes you off in strange and different directions.
+- It's successful, middle-class Arab men and women, professionals with seemingly happy family lives, who are prepared to go to paradise for a greater cause. That's terrifying.
+- It's important to have a big-enough house in order to have space.
+- I'm not averse to telling people off.
+- There's this sort of cloud that hangs where people are like: 'How long can you keep the heat of 'Homeland' going?' People have short memories is the truth, and Hollywood loves the new and shiny.
+- Writing and directing might be a red herring, and really I'm just re-examining what it is to act, to do it well and do it properly.
+- My wife has a horror the children will start talking American if we spend too much time out there.
+- I am extremely lucky, and I enjoy the level of work that I am able to work at.
+- I'm very sad 'Life' wasn't a big hit, But it was undone by politics at NBC. It was intense. I moved my wife, and we had two children back to back. So working those hours and living abroad in L.A. was a handful. But it was a great experience.
+- I don't mean this grandly, but it was never my intention to live in L.A. and do a big network show.
+- We had a good time mucking about during 'Band of Brothers' when we were young and single.
+- If you pick up an eighteenth-century play, at the top it says 'The Argument,' and then you have a list of characters, and then you have the play. I was just always struck by that - that, of course, good drama is about conflict.
+- A lot of these American actors have this - in my view - misplaced view that they have to look like Action Man. The trouble is, they all run the risk of being interchangeable.
+- I've been careful to work with good people on interesting material, mostly.
+- I found the hedge-fund guys I met all to be very, very concentrated listeners - watchful and articulate and quick to defend, if needed. They all seemed to have this contained sitting posture. The legs, if they weren't crossed at right angles, tended to be close over the knee, their hands put together.
+- I'm a slow starter.
+- You know what it's like to feel anxious - it's horrible feeling anxious. It's stressful having that feeling, having butterflies in your stomach, even for a day, and you don't sleep at night.
+- In the end, there's something of the puritan work ethic about me that roles really must sustain me on an intellectual level.
+- I think people like to be scared. I think people like tension and suspense in a movie.
+- My parents were incredibly inclusive.
+- I don't believe Jesus was the son of God, although I'm inclined to think he might have been a great prophet.
+- I think you can't be really posh and be an interesting actor. I'm a bit of a posh rough.
+- I want to do theatre and film and direct my own things and develop.
+- If you believe - which I do - that acting is a bit like advocacy for your character, then of course I want to find the positive points.
+- It's an unfair comparison because when things are developed in the UK, they're developed at script stage only.
+- When I was at drama school, I remember going to Amsterdam for new year and sitting with friends on the front of a P&O ferry in the wind, having some sort of 'Titanic' moment, declaring ourselves to be the new kings of theatre.
+- There are ways of avoiding becoming tabloid fodder and therefore giving people license to pry into your private life. And there's a distinction between being an actor and being a celebrity. You may become a celebrity through acting, but you don't need to do so.
+- I will always find a defense for characters, and that's why it's fun playing characters that are morally ambiguous, or are at least perceived superficially as being problematic.

@@ -1,0 +1,27 @@
++++
+author = "Patti Scialfa"
+title = "Patti Scialfa Quotes"
+quotes_len = "21"
+description = "the best 21 Patti Scialfa Quotes"
++++
+- I like writing a body of music that has a cohesive, emotional thread through it.
+- Forget the press - just being a partner of somebody who's very, very famous, it's hard to keep your center and your personality intact.
+- We always make a hot breakfast for the kids: oatmeal, pancakes, bacon, scrambled eggs, the whole deal. We like to have that time in the morning together as a family.
+- With any long-term relationship, you have good days and bad days.
+- I was always friends with a lot of guys, maybe because their girlfriends were girly-girls, and they felt safe with me.
+- I like having the space of my own project.
+- You come to the city, and you have a chance to find out who you really are.
+- You know how you get close to something you want and then you start doing things to ensure that you don't quite get it? I did a lot of that.
+- I've been writing and making my own music for a long time.
+- I did feel funny about being fair and having red hair and freckles. I did not like that because I grew up in a neighbourhood where no one had red hair. I felt very conspicuous but not in a nice way.
+- All my kids play guitar, sing, and dabble with writing.
+- For writing, I get up early in the morning - 5 o'clock, 4:30. I'm a morning person... So I try to do it while people are asleep. The mornings are the nicest.
+- When you're married to someone famous, people know you, but they're not really seeing you.
+- People were a little leery when I was doing the press for my last album 'Rumble Doll,' yes. It's always that thing that this is a dilettante or a pet project.
+- When I was younger, I'd go to the Museum of Television and Radio in New York and watch this beautiful clip of Billie Holiday playing with a bassist, a pianist and Gerry Mulligan, who was a friend of mine, on baritone sax. At one point, she looks over at Gerry, and they just smile. When those moments happen, it's just lovely.
+- My real priorities were my family - my kids and Bruce - and my work with the E Street Band.
+- I grew up in an era where you had to find your own way as a woman. When I was a kid, there was this whole physical and emotional neatness and purity that a woman was supposed to have, and I didn't fit into that.
+- There was such a lack of modern, recognizable role models for a young girl in the 1950s. I mean, 'Leave It to Beaver' didn't speak to me. That's why I latched on to music.
+- You drive past your old high school, and even if everybody treated you terribly, you still go take a look, don't you?
+- I don't really sell many records.
+- I loved a lot of different kinds of music, but for my own thing, I went for the singer-songwriters.

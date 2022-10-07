@@ -1,0 +1,32 @@
++++
+author = "Sarah Waters"
+title = "Sarah Waters Quotes"
+quotes_len = "26"
+description = "the best 26 Sarah Waters Quotes"
++++
+- I love research. Sometimes I think writing novels is just an excuse to allow myself this leisurely time of getting to know a period and reading its books and watching its films. I see it as a real treat.
+- I do love the past but wouldn't want to live in it.
+- I wouldn't mind being a fly on the wall in a few Victorian parlours.
+- I've never managed to get very far with Henry James.
+- My nan was a nursery maid. Most people weren't in big houses. They were maids of all work.
+- People say, 'You're like Dickens', but I'm not like Dickens. Zadie Smith is a Dickensian writer because she's writing about society now, just as Dickens was writing about his society.
+- I used to write at home, but it didn't ever occur to me to be a writer.
+- I like dramas because there's a big overlap between film and fiction, so I feel relatively qualified to talk about plot and characterisation and that sort of thing.
+- Novels are nothing but evolution, but there does come a point when that stops, and the story is sealed within the pages of the book. That doesn't happen with a play. Even performances are different every night.
+- The relationship you have with your mother is like nothing else. They do kind of know everything about you, even though they don't confront it. That is often a dynamic from childhood onwards. As a teenager, you want to be independent and do slightly furtive things.
+- My parents were the first in our family to go to grammar school. My grandparents were in service.
+- I was mad about the theatre growing up, really mad. We had a local theatre, the Torch, and I used to usher there. I would see the shows over and over again.
+- Ours is a world which feels so unsettled and dangerous in large ways, whether it's terrorism or global financial meltdown or climate change - huge things that affect us deeply, and yet things about which we can do, individually, very little.
+- I'm interested in stories that aren't getting told: it's where my interests lie.
+- I've ended up feeling fonder of 'The Paying Guests' than of any of my other novels.
+- I never expected my books to do even as well as they have. I still feel grateful for it, every single day.
+- It was a great childhood. We weren't especially wealthy or anything, but I felt I had a kind of safety and freedom.
+- I love film and, particularly, shorts. You don't get to see them often, and they're a great little form, like a short story.
+- The early '20s were like the waist of an hourglass. Lots of things were hurtling toward it and squeezing through it and then hurtling out the other side.
+- I was encouraged to be imaginative and read, and it was a great childhood for a budding writer because I had the time and the freedom to go into a world of my own.
+- I used to hate flying. I would sit there, rigid, convinced that if I relaxed, the plane would drop out of the sky.
+- Sometimes I think I'd be perfectly happy to go on rewriting 'Tipping the Velvet' forever because it was so much fun.
+- I knew I'd always be a second-rate academic, and I thought, 'Well, I'd rather be a second-rate novelist or even a third-rate one'.
+- All I can do is write about whatever grabs me.
+- When theatre works, it's like nothing else, and when it doesn't, which is often, it's excruciating. It's perhaps not so excruciating when a novel goes wrong, but there is a kind of magic that can and should happen.
+- My story is the story of many postwar British families. Upward mobility. A council house and then new affluence.

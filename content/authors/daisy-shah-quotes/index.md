@@ -1,0 +1,106 @@
++++
+author = "Daisy Shah"
+title = "Daisy Shah Quotes"
+quotes_len = "100"
+description = "the best 100 Daisy Shah Quotes"
++++
+- When you are working with Salman you learn things continuously, there is always a scope of improvement.
+- I'm not quitting Sandalwood.
+- What's better than being able to entertain people? When you receive love from the public, it doesn't matter what the film circuit or critics say.
+- I would like to balance my career, do meaningful cinema and also do fluff films.
+- I am playing the character of Sanjana in 'Race 3' and it is very a dark character in the initial phase of the film but towards the end, it gets transformed into a positive character.
+- There's no need to go out in public and give explanations. As long as you know what's going on between two different individuals and what kind of relationship they share, I don't feel that the world really needs to know about it.
+- Given a choice I would only want to work with Salman again and again, but that's not how the industry works.
+- I want to balance commercial and off-beat roles.
+- I observed how a man does action sequences and then adapted it for myself. As a woman, the way I perform the stunts will be different from the way a man does it.
+- Nothing is easy and if you don't get a role, maybe you weren't good enough to play it.
+- The film industry is a tough place to survive.
+- In Mumbai you have people of all cast and religion.
+- I believe that once you get into acting, you shouldn't limit yourself.
+- If a person thinks that I can't add value or I'm not capable to be a part of their film, then I'm ready to work harder on myself.
+- Besides controlling my diet, I did functional training, weights, pilates and cardio everyday.
+- I think life is about challenges. You have to face the challenge since your birth.
+- It is my drawback that I am not manipulative and this trait doesn't work in the industry. People in the industry are very manipulative. For me, I will say it if I don't like, and I don't know how to butter people. Even Salman Khan is like that, he is very straightforward and not manipulative at all.
+- As an actor, one should be open to all kinds of roles.
+- I have never met Saroj Ji when she's not instructing someone, she's always ready to make you understand, she's always ready to help you improve.
+- I will think of doing television only when I'll be looking forward to doing reality shows.
+- I'm going to miss Saroj Ji and I will cherish all the fond memories I have of her.
+- While dancing you have to be feminine, and performing action requires you to be masculine.
+- I think it's all about how you feel - if you feel sexy inside, then it will show on the outside.
+- I'm lucky to be blessed with good skin but I always ensure that my skin is well hydrated and moisturize regularly.
+- I want to work and work on better films, projects and myself.
+- The more you talk about your personal life, the more people are going to judge you so it's best to keep a low-profile.
+- Looking sexy isn't easy. It takes hard work and dedication.
+- I completely agree with the term 'adopt, don't shop.' We usually have fantasies and preferences regarding the breed of dogs, but what about the strays?
+- In the past, I used to work out but not eat much. That would store extra fat in my body. Once I started eating healthy, the results came in faster. That gave me the confidence to don a bikini on screen.
+- Speculation and rumor is nothing new in the industry.
+- An actor's life is pretty much like any profession, full of highs and lows; only because this is the glamour world - everything gets reported.
+- I am associated with good brands, such as my concert tour with Salman Khan. I'd rather do that than take up work for the sake of working.
+- All my tattoos have been spur-of-the-moment ones and not planned.
+- The fact is I get shocked every time I meet Salman. I don't know why.
+- Just because you have a mouth and nobody is stopping you, you can't say whatever you want.
+- I think it's a huge a opportunity for me, because I am part of a film that has stars like Salman Khan, Anil Kapoor and Bobby Deol. It will grab eyeballs and I will get noticed, too. I hope 'Race 3' opens more doors for me.
+- What eventually counts is whether your film was successful at the box-office or not, or more so if the film has made its money, and 'Race 3' did that.
+- Initially, dancing for me was just for pocket money. The dancers are paid well and you get paid on a daily basis. Eventually when I got promoted as an assistant choreographer I was getting paid more. This was during my college days.
+- I will not consider any offer for an item song. I will turn it down.
+- I do not interact much with people whom I don't know.
+- This is one technique - going into my shell - that has helped me get over my disappointments.
+- I think whether you work with Salman or not, his presence in your life is more than enough.
+- I am more of an introvert person who is a little shy to get into random chat. I would rather observe people silently.
+- If there are projects that are worthy enough, I will give it my best shot.
+- I feel anything done half heartedly is a waste.
+- No matter how late it is, always remove your make-up before sleeping or else your skin will breakout.
+- I could have signed 10 films after 'Jai Ho,' but those films would have done nothing for me. I wanted to wait for the right project.
+- We actors feed off the energy of our fans and when we see them enjoying our dance so much, it gives us all the more reason and motivation to perform better.
+- While dancing for me was fun, becoming a choreographer was not something I wanted to do.
+- Doing a sport film is not easy.
+- If based on popularity, people will come to theaters because of my name, then I would be very happy, but it isn't about Daisy, it is about the director and the film and the co-actors.
+- I am a Gujarati, born and brought up in Mumbai.
+- Given a choice I want to do a yin and yang tattoo on the middle of my chest and right next to my heart.
+- While it is great to work in films, I am super duper excited to be a part of the Da-Bangg Tour yet again as we get instant reactions from the crowd and the amount of love and energy that they give you is great to experience.
+- I already own two houses - one in Malad and another in Thane - but I sold off the Thane apartment and bought one in Bandra, because it was convenient and larger than my other homes.
+- I have only worked with Saroj Ji once in my life and in the one time that I worked with her, I learned so many things.
+- I wanted to get into theatre as I feel people take you more seriously than as a film actress.
+- Most importantly, if you feel sexy, you look sexy.
+- If you've made it big in Bollywood, such as Kareena Kapoor Khan and Katrina Kaif, and then you do an item song, it becomes a 'guest appearance.' That's how it works. Sadly, that's the attitude of our Hindi film industry.
+- Doing stunts all by myself has been a deliberate decision because I wanted to do all stunts by myself because female actors don't get the opportunity to work in action films, and I think when you get such an opportunity, then you have to make most of it.
+- It is about meeting the right people at the right time that makes you go where you do. And I know that in our industry, everyone works hard but not everyone gets recognition.
+- The way Salman connects with his audience, I love it! I am trying to learn that from him.
+- Salman never forgets his promises and gave me a second chance in 'Mental'. He is the giving type.
+- Luck plays an important role in Bollywood. We all work really hard to earn success but our luck has to be on the right side, especially from where I come from.
+- It's not about how much screen time I have, what matters is reaching out to a huge number of people.
+- 'Gujarat 11' has a good script; it is a full package of entertainment, comedy, emotions and has a message for the audience.
+- I have only become more popular since 'Race 3' memes.
+- I was one of the assistant dancers of 'Race' 10 years ago, and now I am one of the lead actors of 'Race 3,' where I have got a chance to share screen space with some of the legends of our country like Anil Kapoor and Salman Khan. I am overwhelmed.
+- Meeting Salman for the first time was my fan moment. He is very endearing... he looks super hot in everything.
+- I think filmmaking is a team work and it's a shared responsibility.
+- Salman makes sure that everyone grows along with him. He is not somebody who will step on your shoulder and move ahead, he will make sure that whoever is with him, he/she should grow with him and that is the best thing about him.
+- I never thought about acting, I wanted to be an air hostess.
+- For me, saying no to Salman is a big no-no in its self.
+- I like to do meaningful tattoos and it's for myself and not the world. My tattoos are private.
+- The best thing about my career is the journey.
+- I had so much of fun doing the action for 'Race 3.'
+- I think a lot of people prefer watching films on TV, in the comfort of their homes.
+- Let me just make my mark as an actor first, and then an item song can be the second step.
+- For me, to get break in 'Jai Ho' was a challenge and my journey after that depends on my work and luck so, I think blessing of my parents has helped to reach this stage and I am really fortunate that Salman Khan lifted me from one level and helped me to reach another level.
+- My focus is on giving my best and I have to enjoy my performance as then only audience will enjoy.
+- If you do an item song, then you're categorized as an item girl; if you focus on acting, you're categorized as an actor.
+- I don't know why I do not find the people in Delhi warm.
+- I have always been a big fan of Salman... whenever I see him or meet him, I choke.
+- When I was in school, I would use a roller brush to curl my hair inwards. Once, the brush got stuck in my hair and I had to chop off my hair with a knife. It was a total disaster!
+- I don't have stage or camera fright but there is a little anxiety while performing in-front of a lot of people.
+- I was closest to my dad and he always knew that I am responsible and would look after my family. For him, I was always the boy child and not his girl.
+- When it comes to a woman's expression, I don't think there's anyone who did it better than Saroj Ji.
+- I have heard a lot about Delhi's food but never got a chance to try the street food here. The only food in Delhi I have had is in the hotels I have stayed in and it is always amazing.
+- I have tried girl-next-door. I have done the role of a corporate woman. A love story is something that I would like to work on.
+- Eat healthy and do not forget to workout, this is going to build your immunity.
+- Whether it's dance or action, what's important is hand and body co-ordination. When you are a good dancer then automatically while performing action, the co-ordination is that much easier.
+- People felt I could only be best for roles of a simple girl. I wanted to break the mould and so I did 'Hate Story 3.'
+- My dad worked as a floor manager in a clothing mill in Dombivli and my mom is a housewife.
+- As far as I am getting interesting projects to work in, it doesn't matter whether it's Bollywood, South or Gujarati. The script is the hero for me.
+- I am glad I found Salman Khan when it comes to work in this industry. I hope that people who really want to make it, find their Salman Khan someday.
+- A bit of nervousness is essential as in a way it helps you deliver your best.
+- You will never get anything in your life which is not written in your destiny.
+- In terms of work, I would like to work on a biopic and some people that I have met have mentioned that my life, in some way, is similar to Mumtazji. She was also a dancer and then became an actress so in that way, I relate with her. So I think if I get the chance, I would like to work in a biopic on Mumtaz.
+- Salman Khan is loved by a million people and if he has put his faith on me so, I don't want to disappoint him.
+- Yes, I have a small coffee corner where I like to sit. It's right next to the windows and the power seat of the living area. When I sit there, I can see Bandra Reclamation in front of me.

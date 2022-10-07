@@ -1,0 +1,106 @@
++++
+author = "Emily Atack"
+title = "Emily Atack Quotes"
+quotes_len = "100"
+description = "the best 100 Emily Atack Quotes"
++++
+- A social life is just as important to me as my work life because I think if you have a healthy balance of the two, you'll be really happy.
+- I have learned that I am terrified of everything, but I can get the job done.
+- I fancy all the Disney princes, obviously. I also fancy some objects and animals that are in Disney films, like the French Candlestick from 'Beauty and the Beast,' and I used to be slightly jealous of the feather duster that he used to slightly get off with.
+- I'm on camera all the time, so being body confident is important.
+- I think we're all guilty of judging, and I look a certain way - I wear a lot of make-up and fake tan.
+- I used to use Facetune to get rid of blemishes, and slimming apps because I was scared of being called fat, but no more.
+- If you're part of a show that is watched by millions of millions of people, of course there are going to be nasty comments. You can't take them personally.
+- My ex-boyfriend didn't hear me fart once, and we were together six years. I hated the thought of grossing him out, so I think some things should be left to do privately.
+- I want a part playing a really ugly geek, with no make-up and my hair all tied back, so I could just be a character without worrying how I look.
+- You can't have an organised life and a five year plan and be an actor.
+- I think, as an actor, you are constantly playing other people. I would like people to get to know me on a more personal level.
+- I don't make any plans. When I finish one job, I make the most of some time off, then get back on it again.
+- I take each thing as it comes and appreciate everything that's in front of me now because people in this industry are so fixated on the next thing that they don't enjoy the moment. It passes you by, and all of a sudden, it's over.
+- In this industry, there's a massive pressure to be a certain weight.
+- I bet I would make a really good daughter-in-law.
+- You've got to learn to laugh in the face of adversity.
+- Being a curvy girl, I've always, in the past, dressed just what's flattering rather than what I actually really want to wear. I'm trying to say that you can wear whatever you want.
+- From being on a panel show, they always need the blonde airhead sat in a corner they can make fun of, and I'm here to go, 'No, we're not the punchline.'
+- I've done a lot of film, so I'd like to get back into television.
+- I'm not saying I won't get dolled up again, but I'm not going to worry about it all so much.
+- The most important thing in the world is the moment you're in now, so take it and be grateful.
+- I have amazing, amazing fans who are just lovely.
+- When In The Style came to me asking if I wanted to do a collection, I said very clearly what kind of collection I wanted it to be, and the lovely thing was that they were looking to do the same kind of thing. I stated that I didn't want any retouching, and I want the women modelling the clothes to represent all women.
+- My social life is so important to me.
+- I can survive in the jungle, so now I can do anything.
+- Sometimes it's hard to admit, though, especially if you're known as a happy person, because you feel you're letting people down if you're not being happy 24 hours a day.
+- I could do with losing a few pounds off my bum, but I enjoy my social life and going out for dinner far too much to have the nicest bum in the world.
+- It's weird because I do act like best friends, but still, I don't sit there and say my mum's my best friend. That doesn't really cover it.
+- I have been through a lot in my life, my parents divorced when I was 16, and it was a very difficult time.
+- I'm a believer in feeling good in your skin, so I put bikini pics on my Instagram.
+- I love food so much. I love cheese and champagne and salads, fries, yum.
+- I had so much self doubt in the past, but I'm trying to push myself.
+- I thought I was weak and couldn't be on my own. But actually, I can do it; I just need to be a bit braver.
+- Fame can be a double-edged sword, and you have to take the bad with the good. The highs are incredibly high, and the lows can be incredibly low.
+- I'm never going to be the best skater, but I feel like I'm getting better.
+- My advice to anyone is to try to go cold turkey of make-up and fake tan and see how liberating it feels.
+- It's a shame - we've got so many hilarious women, and think there's a certain repression there.
+- I am so lucky in that I have the most incredible followers and support network.
+- That was the biggest fear for me - being seen without my straight hair, my makeup or fake tan, being seen without my armour on. That terrified me.
+- There's so many different kinds of beauty.
+- You are taught about puberty and the menopause and how tough they can be, but a quarter-life crisis, you're not prepared for.
+- I've learned that I need to appreciate time by myself and that I don't need a partner to complete me.
+- I've always been frightened of turning thirty.
+- I avoid social media and articles with negative comments about myself, because the first few times that I got called 'fat' broke my heart; it absolutely destroyed me. It's awful when someone says something like that to you.
+- I sounded like a fantasist at school when you'd go round the class, and they'd say, 'What do Mummy and Daddy do?' I was like, 'Mummy's an actress, and Daddy's a musician, and he plays his guitar with Bonnie Tyler.' And the teachers used to, like, roll their eyes, like, 'She's mental!'
+- I get one horrible comment very rarely, and I wouldn't say I'm a victim of awful, constant trolling like a lot of people are in the industry.
+- If I looked like a Victoria's Secret model, I would still get nasty comments.
+- I'm naturally a very happy person, but I've had times with depression and have got through it with therapy.
+- Some bloke said to me in a restaurant whilst I was eating my dinner, 'No, stop. Starvation suits you.'
+- I've learned to accept who I am.
+- I'm deleting all my editing apps I used to slim myself down and airbrush pics.
+- 'Adulting' will cover some topics that I, as a young woman, constantly think and worry about, so I hope others find it relatable - and funny!
+- I'm not afraid to admit I have therapy. It's nothing to be ashamed of, and it really does help.
+- I think as a blonde person with make-up on, you're automatically the punchline to the joke.
+- I love Keith Lemon. I love Holly Willoughby.
+- I have a great life, amazing family and friends, so it's easy for people to be like, 'What have you got to be sad about?' But it's not that; it's a chemical imbalance in your brain that sometimes needs to be treated.
+- Everyone is comparing lives on social media and wants the perfect body, perfect image, perfect outfit, perfect life - we're striving for this perfection, and it's so unhealthy because there's no such thing as perfection.
+- I'd got into the habit of needing that security, love, and acceptance from a guy to make me happy.
+- I will now be very mindful about it, and if I feel like I've been on my phone too much one day, I'm going to be more conscious of that and not be so obsessed.
+- I'm not a tart. I feel like I've been treated like one in the past.
+- For ice skating, you really have to block out your fears and throw yourself into it - there must be trust in your partner and a trust that you will be safe.
+- She's gorgeous, my mum: one hell of a woman.
+- The 'Celeb Juice' job was never mine - people just guessed - but it was quite funny to watch the rumours.
+- I am so proud of my parents. Through all that, they're best friends; they still go to curries together. You don't have to be together to show an example of how a relationship can work.
+- I will never doubt myself again.
+- In America, funny women are allowed to be glamorous and funny, but over here, you're not.
+- I find it so hard to lose weight: it takes me weeks and weeks of dieting and training just to lose three pounds.
+- There have been auditions where they've said nicely, 'Would you be willing to go to the gym for this role?'
+- Being happy is a beauty. It's not about having the perfect face or perfect make-up.
+- It's not all about having the perfect body, perfect hair, perfect smile.
+- If you ever get a chance to just plonk yourself out of the world for a bit - do it! It's so amazing.
+- Growing up, my brother and sister were my best friends in the world - and still are.
+- I got really bored of sitting around waiting for work or for the next movie to come along that only 100 people would see. I got bored of being skint, of twiddling my thumbs, wondering how to take my life to the next stage.
+- I worry about things constantly.
+- Divorce, splitting up a family, is a terrible thing.
+- I know I'm in a very appearance-driven industry, but this is who I am, and there's no point starving myself into someone I'm not.
+- I want it to resonate: there's no rule for how to live your life. You can do things your own way.
+- My whole life, I've been judged for how I look, which is part and parcel of being in the public eye, playing sexy roles and posing for lad's mags, but I want people to like me for my personality and brain.
+- I'm dying to do a drama.
+- I love Instagram and photography.
+- I fancy cartoons; don't even get me started on 'Aladdin.'
+- I'm just a regular size, and I'd love to see more women like that cast in lead roles.
+- This is the thing: I get motion sickness.
+- I don't have any real phobias, but I don't like creepy crawlies just like everyone else.
+- It is hard as an actor when you are typecast at a really young age and come out of that pigeonhole thing.
+- In this industry, it's very fickle; you don't know where you are.
+- I've never really had the confidence to sing in front of people; then, I got into acting.
+- The jungle has taught me to accept who I really am - my skin is play and freckly, my bum and hips are big, and my hair is frizzy - that's who I am.
+- I've been in relationships and had long-term boyfriends since I was 13, so I've always had that emotional pillar of support. I'd got to a point where I felt like I couldn't live without that.
+- I've been told I'd get so much more work if I was smaller, but going out for dinner and drinks with my friend is more important to me than size.
+- It's dangerous that we can all paint a completely false picture of ourselves.
+- In the jungle, you learn about the other beauties in life. In everyday life, it's all about looking perfect, but in there, there's none of that.
+- Just because we wear hair extensions and make-up doesn't mean we're the punchline for every joke.
+- I have been brought up in an environment which was quite an exciting childhood.
+- My whole family are in the entertainment industry. It is always something I was used to; I was quite lucky growing up. To all my friends, it was quite exciting, but to me it was quite normal.
+- I've had an incredible upbringing, but it was quite chaotic.
+- I've had a lot of hilarious things happen to me.
+- I have so much self-acceptance.
+- I definitely feel the pressure to lose weight and be smaller than I am.
+- I struggle getting ready for things.

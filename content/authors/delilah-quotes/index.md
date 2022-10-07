@@ -1,0 +1,50 @@
++++
+author = "Delilah"
+title = "Delilah Quotes"
+quotes_len = "44"
+description = "the best 44 Delilah Quotes"
++++
+- It always cracks me up when program directors or music directors or companies will say, 'Well, we did research, and we interviewed 25 people in our focus group, and this is what they said.' And I'm like, 'I've talked to 25 people in two hours! I talk to 50, 60, 70 people a night! Five or six days a week!'
+- I wanted to do something that nobody else was doing. I didn't have a mentor. There were no other women on the radio.
+- I respect and admire the Mormon faith. And I am eternally grateful that we live in a country where we have the freedom to worship as we choose.
+- Just be yourself, and enjoy the blessings that God's borne out on you.
+- I really do think that putting expectations on a holiday is setting yourself up for failure.
+- I never in a million bazillion trillion years imagined that my life would have this many layers of love and richness.
+- Every one of our affiliate stations was established and exists to reach women 25 to 54.
+- You can either get bitter, or you can get better.
+- God gives different people different gifts, and there are some people that can listen to an instrument and within a fraction of a second tell, you know, where it's off key or what note doesn't resonate correctly.
+- I was 25 when my first husband walked out of the house and left me with a 10-month-old. And a house payment and a car payment. But suffice it to say I have a lot of love in my life.
+- I was attracted to the bad boys, the troublemakers. You know, the ones that were really cute but didn't come home. So I have a couple of failed marriages under my belt, but that's OK.
+- You know how most kids have posters of sports heroes on their walls? They gave me reams of the old news copy, and I had those taped in my bedroom. And I would practice reading the news.
+- All the money you make, all the awards you win, all the plays you produce, all the things you accomplish - the only thing that will remain is the love and the relationships that are formed in your lifetime.
+- Like millions of parents, I chose to send my children to a religious school that shares my belief system, which is central to my life. I objected to changes in the school that, in my opinion, did not reflect that belief system.
+- When I see people wasting their hours doing nothing productive, nothing to contribute to the world, nothing to build relationships, it makes me sad. Actually, it makes me mad. I want to scream, 'Wake up!'.
+- Every single night, I try to get people to realize that love is what is most important, and that they need to use every opportunity given them to reach out in love. Schmaltzy and corny, I know, but it's true.
+- I think the saddest thing in the world will be for people who face their death and realize they never lived. That won't be me.
+- We had an argument, and he told me to be home at midnight, and I said no. And so when I did come home, the door was locked. And I had gotten a set of luggage for graduation that day, and it was on the front porch, packed. He thought that he was going to prove a point and I was going to say, 'Oh, I'm sorry, Daddy, I'm sorry'.
+- Well, people can get advice almost anywhere, but they can't find a companion almost anywhere. And far more than being an advice-giver or somebody who just plays sappy love songs, I really am a companion on the radio at night.
+- All this crap the church puts on you about divorce is just crap. You do the best that you can do, and when you can't do it, you can't do it.
+- I have more love in my life than I ever dreamed or imagined.
+- I'm not Dr. Phil. I'm not Dr. Laura.
+- The part that I loved about radio wasn't getting on the air - it was all this great stuff my listeners would tell me.
+- I had never heard anyone doing what my show does, which is put the focus on the human condition - whatever you're going through, good or bad, right or wrong, straight or gay, whatever. That human experience is the meat of the show.
+- Music is the language of the angels. You can hear just one or two chords, one or two notes of a song, and bam - you're right back there, you're right back in that moment, you're back in that day, you're back at that prom, you're back in the car.
+- I have never once celebrated a Valentine's Day as a romantic holiday. For me, it's another opportunity to tell my kids or whoever how much I love them. I hang pink crepe paper and make heart-shaped pancakes!
+- Oddly enough, even though our show is structured around women, our target audience is women, I get more calls from men every night than women.
+- 'Endless Love' is such a perfect love song for a wedding or for a Valentine, because that is the committed kind of endless love. All the lyrics are perfect.
+- A lot of times, in our culture and our society, we put romantic love somehow on a higher plane than self-love and friendship love. You can't do that. You have to honor and really fully invest in all these different loving relationships.
+- Everybody thinks I'm so nice because they hear me so nice at night. And I'm like, 'No, I'm just tired. I'm exhausted, OK?'
+- It blows me away the number of truck drivers or macho guys that will call, and then I start peeling back the layers, and I find out they've been listening to me for 10 or 15 years, and they know every lyric to every sappy song.
+- It's what I do best - pry into people's business and mind their business. I can't help myself. I can't even go through the grocery line of the grocery store without talking to people and then giving them my opinion.
+- I founded 'Point Hope' so that I could accomplish some things I wanted to do for children who had no one to advocate for them, children who had no voice. Since I have been blessed with a voice on the radio each night, I thought I would use my celebrity position and my financial resources to help these kids.
+- I have a card catalogue in my brain of every lyric of every sappy love song ever written.
+- Occasionally, I share advice, but most of my advice is based on my personal experience.
+- I made just about every mistake a person could make before God came into my heart. If some of those painful experiences can help someone avoid the same mistakes I made, then perhaps my heartache was not totally in vain.
+- I don't have any problems getting people to open up.
+- Songs say what our emotions can't. I love that about music.
+- My little brother can play the guitar; he can sing. He was a worship leader at his church. Me, no talent.
+- I buy very little of what's sold to me in the church. Very, very little.
+- When someone is on the phone telling me a story, I'm hearing the soundtrack that goes with it.
+- If you're a parent, love your children. If you're married, honor your spouse instead of looking on the Internet for love in all the wrong places. I'm talking about real relationships, not false intimacies.
+- Put the kids in a cool bath, then get them to bed, then light a candle. Do whatever you need to do to ease your troubled mind.
+- After we air the call, it's gone. I always thought, 'What a waste.' That's such a powerful story, and there's no way to revisit it or share it.

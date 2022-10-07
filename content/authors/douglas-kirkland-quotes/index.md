@@ -1,0 +1,24 @@
++++
+author = "Douglas Kirkland"
+title = "Douglas Kirkland Quotes"
+quotes_len = "18"
+description = "the best 18 Douglas Kirkland Quotes"
++++
+- When you put an individual on the cover of a big picture magazine, like 'Life of Look', their career skyrocketed. As a photographer, you were very empowered; people came to you, bowing to you and what you represented.
+- I like to talk to people and, obviously, to photograph them.
+- I always considered, with every shoot, I was on trial; every time I pick up my camera and start out on the relationship, I am at degree zero. There is no coasting.
+- When you look at my pictures, you are seeing my life.
+- Growing up in a cold place, in Southern Ontario, Woolrich was a brand of choice for us because it was always warm and comfortable. The parka with the fur on it was standard fare for us. It's extraordinary that they have kept up with the times. Beyond the parka, they have changed, and they have some pretty hip, cool items which I wear.
+- I have a genuine philosophy. I do not want to make negative pictures about people, and so I do everything I can to help make them feel comfortable in front of the camera. That is what is going to control your picture, because you are alone if your subject is not with you. And that's the simple answer to getting a good picture.
+- Chanel is here forever. She changed fashion, she changed culture, and she changed how people dress.
+- I did photograph Angelina Jolie up in Vancouver when she was making 'Life Or Something Like It', and they gave me the drawings they wanted me to photograph of her up there, but she didn't really care for them that much, and ultimately they weren't even used.
+- Chanel is everywhere. Pick up a magazine. You'll find Chanel all over it. That's the imprint that she had. I mean, she did so much.
+- It's fundamental to succeed in coming into contact with your subject. Whether it's a big Hollywood star or a passer-by in the street, it makes no difference.
+- I'll photograph weddings, friends - I'm not too good for anything.
+- The misfortune is that many people, men and women, think that the perfect face has no flaws, no pores in the skin; and that gives unrealistic levels of esteem. Somebody feels they're not right because they haven't got that type of refinement.
+- I will refine somebody in a minor way, but I don't want to totally change them. I don't want them to look like plastic dolls.
+- You must adapt to the situation. This is where the pictures come from.
+- Whatever I did in 1960, half a century ago, I couldn't do that today and enter the field. The field has changed so much, you have to adapt to the times whatever you're doing. That's the reality of life: you have to be a different person today than you had to be then.
+- I believe Photoshop is in some way the contemporary darkroom, the creative area that all photographers have available today.
+- Respect and mutual respect are important. I, for instance, often show my latest work so that people can see how I work.
+- I consider myself very lucky. I'm known for photographing celebrities, but, in a nutshell, my first love is photography.

@@ -1,0 +1,52 @@
++++
+author = "Wilson Pickett"
+title = "Wilson Pickett Quotes"
+quotes_len = "46"
+description = "the best 46 Wilson Pickett Quotes"
++++
+- One of the secretaries at Atlantic Records caught me pinching one of the other secretaries on the butt one morning. She said, 'My, you sure are wicked.'
+- You can talk about all the great guitarists you want Jimi Hendrix or whoever but as far as I'm concerned, Duane Allman is the best. No one ever played like him.
+- Me, I'm very happy with the fruit I've gotten out of my career.
+- I perform as much as I can, to the extent I don't want to sell myself out.
+- I think people are entitled to have a new album by Wilson Pickett in their homes every year.
+- Sometimes it's more than you can bear to be on the road and take care of all that other stuff.
+- I took five hit records to Memphis, and '634-5789' was stolen from me totally. Those songs are worth millions. I've never understood how someone could just steal your song like that.
+- When I started buying my mother all these homes, like a second home in Kentucky, where I moved most of my family, they began to rely on my wallet.
+- I thought wasn't nobody supposed to get gold records except those people on Motown, like Smokey Robinson and Diana Ross.
+- If you get the disco or rap format on the radio, an R&B record doesn't fit, because it will break up the mood.
+- If I'm not getting played on the radio and I'm not making any money, I have nothing to lose by telling the truth.
+- I don't want to stay in the graveyard era of music.
+- When I make a record, I want to use some electronics, although I still want to keep things pretty basic.
+- I'd lived in New Jersey for 30 years. That was long enough. It's too crowded up there, and it's a very dangerous place to live. There's a whole lotta crime.
+- I heard Otis Redding singing 'These Arms of Mine' and I knew that was the band I needed.
+- I don't do disco.
+- Motown was pop, Atlantic was R&B.
+- I took a long rest period. I didn't know heads or tails of what anybody wanted; it seemed as if R&B had been put on the shelf.
+- I have allergies, so I use an inhaler, but it's all right.
+- I can't keep singing 'Midnight Hour' for the rest of life. I gotta change.
+- I don't bother anybody, but I don't let people walk over me.
+- Disco music can only take you so far because it's plastic.
+- People like me and Aretha Franklin and Joe Tex, we had predicted that inside of five years disco would be all over, that it was just a fad. But we didn't anticipate being knocked out of the pocket altogether.
+- You see, I wanted to sing gospel, but I wanted to make me some money, too.
+- All my ideas have blown away with the wind.
+- I made two or three albums with money from my own pocket, but I couldn't get them released or played on the radio. I got tired of beating my brains out. I got very depressed. I took a break from the business. Then I got bored with that and had to come back.
+- The baddest woman in my book... my mother. I get scared of her now. She used to hit me with anything, skillets, stove wood.
+- Detroit, my lord, what a place.
+- I have boxes of gospel LPs and 78s. The Davis Sisters, the Soul Stirrers, the Pilgrim Travellers. I love all that.
+- I live in Virginia alone, and sometimes there's too much time to think. So you turn on the TV, but sometimes that don't do, so you turn the music on, and sometimes that don't do, and so you try and write a song, and sometimes that don't do... So you just take it as it comes.
+- I write about things that are really happening, serious things.
+- Singing like I do is very hard, and as you get older, it's getting harder and harder all the time.
+- If I wasn't in show business I don't know what I would have been - a wanderer or something, you know? But God blessed me with the talent and the chance. I knocked on enough doors, and this is what I can give myself credit for.
+- I used to get a lot of fan mail.
+- Joe Stubbs was very jealous of me, especially after 'I Found a Love.' We'd be on stage and he'd lay traps for me, make me look bad.
+- There are no Soul singer Wilson Pickett singers in disco.
+- I had recorded a song 'If You Need Me' for the Correc-Tone label, but it was a small label and distribution was a problem.
+- I got very bored with the music business.
+- Soul is R&B.
+- If you leave God and go to the devil, you're going to go to hell.
+- The older songs were better songs, because they had lyrics with a story to tell. Aretha and Otis told stories.
+- All disco singers are non-professionals who can't do live shows. It loses what black people have created.
+- We used to have a lot of fun. We got cheated out of a lot of money, but we seemed to enjoy ourselves anyway.
+- The R&B will always prevail. It will always last. The blues will always last.
+- Anytime you've got artists singing songs, doing grooves that they don't want to do, it's terrible.
+- I don't want to die on the stage.

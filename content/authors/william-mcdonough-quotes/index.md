@@ -1,0 +1,18 @@
++++
+author = "William Mcdonough"
+title = "William Mcdonough Quotes"
+quotes_len = "12"
+description = "the best 12 William Mcdonough Quotes"
++++
+- I am very focused on large-scale deployments of renewable power and how we're going to get this done. Imagine our military bases covered with solar thermal collectors that could generate steam and electricity.
+- We achieved our mission to the moon. Let's look home from that lofty perch and reimagine our mission on Earth - that is what we need to do here. Together, we can upcycle everything. The world will be better for our positive visions and actions.
+- I suggest we take our heads out of the tar sands and look up to see the sun. We don't own it, but it provides us all with great, endless value. So, too, the wind. These free, renewable sources of 'energy currency' are perfect partners to what we own together.
+- I think the job of an original designer is to inspire.
+- Art is about going a little nuts... Kids do art for fun. It's playing.
+- We are all born artists... Almost everything kids do is art.
+- The magic question is, 'What for?' But art is not for anything. Art is the ultimate goal.
+- Not everything needs to be recycled.
+- We get jealous not because we're evil, but because we have little artists pent up inside us.
+- Design is inherently optimistic. That is its power.
+- If you continue to act like an artist as you get older, you'll increasingly feel pressure. People will question your actions.
+- I see that idea that we need a new form as something critical. I mean, we do need to invent and not be benchmarking all the time. That's important to me.

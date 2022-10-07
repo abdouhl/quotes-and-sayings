@@ -1,0 +1,38 @@
++++
+author = "Dan O'Brien"
+title = "Dan O'Brien Quotes"
+quotes_len = "32"
+description = "the best 32 Dan O'Brien Quotes"
++++
+- I was a good decathlete until I got with a coach that really knew how to train specifically for the event... I'd really describe it as like being a juggler; you have ten balls and you're trying to get them all in the air at the same time.
+- Breaking the world record in '92 was a very special personal moment, but I'd say my favorite moment as a decathlete was winning the Olympic gold medal. It was a lot of years of work, and when I won it, it was more a sense of relief than jubilation or exaltation.
+- When first starting to work with someone you try to get them in the same mindset that you were in when you were successful, and I realized the best thing you can ever do is realize that they are not you. They have a different persona and mindset, and you have to figure out what works best within your communication with that athlete.
+- I call myself a chameleon.
+- I was playing little league baseball when Bruce Jenner was winning the gold but I don't think I was really paying attention at that time.
+- It's important for me to think I'm mixed-race.
+- The decathlon includes ten separate events and they all matter. You can't work on just one of them.
+- You have to be able to be a good loser. You have to be okay knowing you're going to fail every day in something without getting mad and upset.
+- There is nothing better than having a personal-best day, being in shape and pushing myself beyond my own limits.
+- Nowadays, to be a good world-ranked decathlete, you need to be good at everything.
+- I've always had to have some kind of failure before I was successful.
+- After the failure in '92, my goal was to be a good pole vaulter. I used that as motivation.
+- As a young child, I was never a crier. I never cried to get my way, or even when I was in pain.
+- When I was little, I wasn't allowed to put sugar on my breakfast cereal because it made me so hyper.
+- I got interested in decathlon because a coach that I had was a big fan of Bruce Jenner, and he just saw the ability in me - but when it came down to it, I knew my best chance at a college scholarship would be in track and field.
+- Through everything I've gone through- and I've been everywhere, at the top of the world, in jail, hung over drunk - I never gave up my dream of winning a gold medal in the Olympics.
+- I was playing little league baseball when Bruce Jenner was winning the gold, but I don't think I was really paying attention at that time. It wasn't until 1980 - I think I was 12 years old - that I thought, 'Wow that's what I want to do. I want to be on the Olympic team.'
+- Try everything, because you're never sure what you're going to be great at.
+- As athletes, we're defined by what we've accomplished. Those are what most people remember and what you get paid for. But I learned more from my failures than from all of my successes put together - failures as an athlete and as a person.
+- Take pride in exactly what it is you do and remember it's okay to fail as long as you don't give up.
+- I just love playing so much, competing so much. You're able to put your losses behind you. One of the greatest attributes a decathlete can have is the ability to forget... to look ahead, not behind.
+- Breaking the world record in '92 was a very special personal moment, but I'd say my favorite moment as a decathlete was winning the Olympic gold medal.
+- I think what my parents did was perfect. They were strict, concerned about my safety and held me back just a little.
+- You need to become more than one type of athlete. You have to be a sprinter, a weight man and a distance guy all in one.
+- If you never give up, you'll be successful.
+- It really means a lot that I won the gold medal - but I woke up the next morning expecting to feel different. I felt the same.
+- And there is such a thing as a decathlon high. It's like a rock rolling down hill, picking up momentum. You get better and better.
+- To me, the decathlon is its own little society and I am part of that culture.
+- When my world record got broken in 1999, it hurt a little bit, to say the least. But I was in a leg brace at the time and I had just had knee surgery and I couldn't do anything about it.
+- It took me time to realize that the men who won Olympic gold medals in the decathlon are just men, just like me.
+- I didn't get a ton of interest from colleges in baseball and football, but I was outstanding in track and had the sense that this would be my meal ticket... Track was a sport where I saw immediate improvement, and I had a lot of good support behind me... and the coaches had a lot of experience and pushed me in that direction for sure.
+- As a young athlete, it was first about having fun; then it was about winning.

@@ -1,0 +1,31 @@
++++
+author = "Phillip E. Johnson"
+title = "Phillip E. Johnson Quotes"
+quotes_len = "25"
+description = "the best 25 Phillip E. Johnson Quotes"
++++
+- Some theists in evolutionary science acquiesce to these tacit rules and retain a personal faith while accepting a thoroughly naturalistic picture of physical reality.
+- So one reason the science educators panic at the first sign of public rebellion is that they fear exposure of the implicit religious content in what they are teaching.
+- According to the scientific naturalist version of cosmic history, nature is a permanently closed system of material effects that can never be influenced by something from outside - like God, for example.
+- The second advantage claimed for naturalism is that it is equivalent to rationality, because it assumes a model of reality in which all events are in principle accessible to scientific investigation.
+- The problem with allowing God a role in the history of life is not that science would cease, but rather that scientists would have to acknowledge the existence of something important which is outside the boundaries of natural science.
+- The monopoly of science in the realm of knowledge explains why evolutionary biologists do not find it meaningful to address the question whether the Darwinian theory is true.
+- As a theist I believe that God exists and that God creates.
+- In short, the proposition that God was in any way involved in our creation is effectively outlawed, and implicitly negated.
+- Modernism is typically defined as the condition that begins when people realize God is truly dead, and we are therefore on our own.
+- Evolutionary biologists are not content merely to explain how variation occurs within limits, however. They aspire to answer a much broader question-which is how complex organisms like birds, and flowers, and human beings came into existence in the first place.
+- All the most prominent Darwinists proclaim naturalistic philosophy when they think it safe to do so.
+- Truth as such is not a particularly important concept in naturalistic philosophy.
+- The assumption that nature is all there is, and that nature has been governed by the same rules at all times and places, makes it possible for natural science to be confident that it can explain such things as how life began.
+- In short, it is not that evolutionary naturalists have been less brazen than the scientific creationists in holding science hostage, but rather that they have been infinitely more effective in getting away with it.
+- Most importantly, I agree that the truth of these matters should be determined by interpretation of scientific evidence - experiments, fossil studies and the like.
+- To philosophical materialists God is no more than an idea in the human mind, and not a very important idea.
+- Although I insist that God has always had the power to intervene directly in nature to create new forms, I am willing to be per-suaded that He chose not to do so and instead employed secondary natural causes like random mutation and natural selection.
+- No doubt it is true that science cannot study God, but it hardly follows that God had to keep a safe distance from everything that scientists want to study.
+- If modernist naturalism were true, there would be no objective truth outside of science. In that case right and wrong would be a matter of cultural preference, or political power, and the power already available to modernists ideologies would be overwhelming.
+- Darwinism is not merely a support for naturalistic philosophy: it is a product of naturalistic philosophy.
+- A constitutional democracy is in serious trouble if its citizenry does not have a certain degree of education and civic virtue.
+- The restriction of religion to private life therefore does not necessarily threaten the vital interests of the majority religion, if there is one, and it protects minority religions from tyranny of the majority.
+- First, Darwinian theory tells us how a certain amount of diversity in life forms can develop once we have various types of complex living organisms already in existence.
+- In the most important sense a creationist is a person who believes in creation, and that includes people who believe that Genesis is a myth and that creation involved a process called evolution and consumed billions of years.
+- Evolutionary naturalism takes the inherent limitations of science and turns them into a devastating philosophical weapon: because science is our only real way of knowing anything, what science cannot know cannot be real.

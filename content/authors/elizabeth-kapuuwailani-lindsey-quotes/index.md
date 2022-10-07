@@ -1,0 +1,14 @@
++++
+author = "Elizabeth Kapu'Uwailani Lindsey"
+title = "Elizabeth Kapu'Uwailani Lindsey Quotes"
+quotes_len = "8"
+description = "the best 8 Elizabeth Kapu'Uwailani Lindsey Quotes"
++++
+- All of us want to be better. Human nature is always seeking advancement.
+- My work is as an ethnographic rescuer: a conduit between past and future generations. The urgency of this effort cannot be overstated.
+- For centuries, cultures throughout the world have used indigenous technologies to navigate life's complexities. From navigator-priests in Micronesia to mystics in India, vast sums of knowledge are available if we but recognize it.
+- True navigation begins in the human heart. It's the most important map of all.
+- As a child, I was raised by native Hawaiian elders - three old women who took care of me while my parents worked.
+- I believe that when an elder dies, a library is burned: vast sums of wisdom and knowledge are lost. Throughout the world libraries are ablaze with scant attention.
+- We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness is at an all-time high. We must course-correct.
+- From the boardroom to the bedroom, we're connected 24/7, yet loneliness is at an all-time high. More people are reaching for mobile devices than for the hand of someone in need. Where did our humanity go?

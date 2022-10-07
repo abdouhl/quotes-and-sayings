@@ -1,0 +1,48 @@
++++
+author = "Offset"
+title = "Offset Quotes"
+quotes_len = "42"
+description = "the best 42 Offset Quotes"
++++
+- The bigger the crowd and the more hyped they are, the more hyped I am.
+- We had an era where we wasn't getting paid, before the 'Versace' and all that.
+- We willing to work with anybody that wants to work with us. It's open arms. It ain't no hating on no situation.
+- You can never forget God. If you forget God, he's gon' forget you.
+- A lot of times when people get copied, they get copied and washed out. But you can't even duplicate how we do it because it's just so genuine. It's just us.
+- The streets will get you in jail.
+- I ain't get the opportunity to get coached until being a star.
+- Offset is a boss.
+- That's what I need to work on - my charisma in front of people.
+- You got to grow up and mature when you see you've got something going for real.
+- My style Offset. Straight up Offset. Ain't nobody like me. It's who I am.
+- I need all my kids to be educated and wealthy.
+- I don't like to discuss my investments.
+- 300 was the biggest hurdle. They tried to hold us against our will.
+- You gotta flex. You gotta look good, bro. Especially coming from the outskirts and wanting to take over the whole Atlanta.
+- Our music is a get-up music. Get you up music, uplift your spirit. That's what I'm trying to give you.
+- I stay away from the studio too long, I feel like I'm abandoning myself.
+- I got kicked out of all Gwinnett schools 'cause I got in a fight, and I had to go to military school.
+- My brothers kept me relevant. They got my back 100%. After all the times I've been incarcerated, they've always had my back.
+- My style is like no other.
+- I want to have generational money.
+- See, 'Bad and Boujee' was really a ladies' record. It made all of them want to stand up a little more and feel a little better about themselves.
+- I believe in God. Spirit, I'm big time on that.
+- The watch everybody rap about, I have in real life.
+- My mama was the man of my household.
+- You know how a machine is built to do one thing and one thing only? Well, the Migos machine is built to make the hits! No matter how it come out, it's gonna be a hit!
+- Guys, fellas! You'll lose your wife trying to stop them from being the best they can.
+- When you get a blessing, you pass it on.
+- If you started listening to me in the same time we started rapping, we're aging together.
+- 'Bad and Boujee' connects with everybody.
+- God do everything for a reason.
+- Most people don't make it to a second album.
+- I gotta keep my wordplay and make sure I don't lose nothing.
+- It's a blessing to have people to support you from across the world.
+- We like to get money. Whoever wants to work with us and make some money, let's do it.
+- A lot of groups, they get put together. But we don't even think of each other as a group. I don't think I'm in a group with two other guys, where I don't know their moms and their grandmas, their aunties, and I don't know where they came from. This is my immediate family. These are the only people I know. That's why we be around each other so much.
+- To all my fans, I love y'all. I wouldn't have made it without you.
+- I feel like hip-hop is the new pop because it has a lot of influence because of our culture.
+- We've got songs for the women, songs for when you're going through things.
+- I've never had a stylist or anything. I don't let people style me.
+- He was a king that had everything, and he lost it all but still had faith. So God blessed him with 10 times more. When I was in jail, like Solomon, I didn't understand why I was going through what I was going through. I was on the right path. Wasn't riding dirty. Then I got trapped in this hole. So I reached to the Word.
+- I don't want to be one of those rappers who had it, but right now they be on a TV show to keep them going. I would rather be out the scene, getting my money on Bitcoin.

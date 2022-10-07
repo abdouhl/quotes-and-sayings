@@ -1,0 +1,16 @@
++++
+author = "Walther Bothe"
+title = "Walther Bothe Quotes"
+quotes_len = "10"
+description = "the best 10 Walther Bothe Quotes"
++++
+- The Laboratory for Radioactivity consisted of only two rooms at the time; at a later date, when tests of radioactive substances became more extensive, it expanded into four rooms.
+- Rossi was the first to describe another system working with valves in parallel; it has the advantage that it can easily be extended to coincidences between more than two events, and is therefore predominantly used today.
+- The material particle nature of primary cosmic radiation has been confirmed, although the processes turned out to be extraordinarily more complicated than we had assumed.
+- During this time I had the singular good fortune of being able to discuss the problem constantly with Einstein. Some experiments done at Einstein's suggestion yielded no decisively new result.
+- This result was confirmed by different researchers using various experimental arrangements.
+- Strict conservation of energy in the elementary process had thus been confirmed also by a negative experiment.
+- Many applications of the coincidence method will therefore be found in the large field of nuclear physics, and we can say without exaggeration that the method is one of the essential tools of the modern nuclear physicist.
+- To demonstrate this simultaneity is by no means trivial, because it may for example happen that the product nucleus always forms in an activated state at first.
+- In this case, the particle formed has correspondingly less energy, whereas the product nucleus passes into the ground state with emission of the quantity of energy saved as gamma radiation.
+- Direction coupling between the various radiations generated in a nuclear reaction both with one another and with the initiating radiation can also be detected and measured by coincidences; this provides valuable information about the structure of the atomic nuclei.

@@ -1,0 +1,19 @@
++++
+author = "Priya Sachdev"
+title = "Priya Sachdev Quotes"
+quotes_len = "13"
+description = "the best 13 Priya Sachdev Quotes"
++++
+- When a celebrity is spotted carrying a particular bag, everybody wants to own the same thing.
+- There are some brands that we didn't expect to do well in India, like Alice + Olivia. But they sell like hot cakes because women here seem to love it.
+- You have to accommodate the rich and the new rich under the same roof.
+- Rentals are 10% of the sales of luxury brands globally, and we are able to achieve that in India by experimenting with location.
+- Luxury cannot afford to intimidate.
+- India now has serious fashion consumers who do not think twice before splurging on an expensive luxury product.
+- The ballerina style is here to stay. An added advantage is that the shoes blend well with Indian as well as Western attire.
+- There is a lot of growth taking place in capturing aspirational consumers and converting them to luxury as they evolve.
+- Women are more fashion conscious and are paying a lot of attention to what's happening globally.
+- The socialite is becoming more important in a luxury brand's marketing strategy as she pulls in the 'right kind of crowd.'
+- TSG is competing with Middle East, East Asia and Europe in offering prices that are either lower or at par with these markets.
+- We have contributed through Indian culture; so many international collections are Indian-inspired. Why we don't make an international impact? We have talent, but we have not leveraged it, not married commerce to design.
+- I'm very superstitious, and I think it's bad luck. You don't have to show your love by tattooing it.

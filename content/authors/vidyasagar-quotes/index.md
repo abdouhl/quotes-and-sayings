@@ -1,0 +1,43 @@
++++
+author = "Vidyasagar"
+title = "Vidyasagar Quotes"
+quotes_len = "37"
+description = "the best 37 Vidyasagar Quotes"
++++
+- I have always worked hard. The only thing missing was a smile from Lady Luck.
+- I enjoy and understand melody before I create it. But the challenge is that I've also got to satisfy the film going audience of today.
+- Ilaignan,' the script of which has been penned by Chief Minister M Karunanidhi, is a period film that is set in the romantic era of classical music. You will find Western classical music mixed with our Indian melodies.
+- I joined my father for recordings when I was 11 or so. By then, I could play a dozen instruments. My first professional recording was around that time. I played the vibraphone for Shankar-Ganesh in a Tamil film.
+- All genres of music have their own beauty.
+- It is alright to ape Western music, but we have to ask ourselves if that is what we need in our films.
+- Even if you want to try out something new, that should not be done without losing your roots.
+- People, irrespective of the language they speak, love good music.
+- I was only 26 when I started my career. Those days I only wanted to work. When my films did not work, I didn't know what to do. But I never went to anyone for work. Work came in search of me.
+- I started off playing the harmonium and singing. By the time I was eight or so, my interest moved to Western instrumental music.
+- I want to talk less and let the music speak for itself.
+- Well yes, I think melody is still my forte.
+- My father set a strict regimen for me. He insisted that I learn to play many musical instruments before I choose one.
+- I am probably the only composer in South India who has delivered many superhit songs but was not considered a success.
+- In Kerala, three of my movies release on the same day and interestingly I am the competitor for myself there.
+- I believe in destiny. What has to come my way always does, sooner or later.
+- I've composed music for many remakes and they've all come out much better than the original.
+- I was lucky that I could work with directors like Kamal, Lal Jose and Sibi Malayil. They understood music and gave me a free hand.
+- Since my childhood, I had a great liking for Karunanidhi and admired his writing skills.
+- Madurai G. S. Mani was my guru, and later M. Balamuralikrishna taught me a lot.
+- Though 'KK' is an urban film and has more scope for fast-paced numbers, I've made sure that there's a bit of melody in all the songs.
+- I always compose on the harmonium.
+- If you observe, all classic love songs have a tinge of melancholy that comes naturally with the composition.
+- Doing background score for a film is not an easy task. It requires constant and deep learning and it is the only way to create a score with finesse.
+- Of course, I can speak Malayalam.
+- It is disappointing to find that music in Malayalam cinema is drifting away from its strong melody-base.
+- With time, I've learnt that personal likes or dislikes don't count a lot.
+- I was born in Vizianagaram but have lived all my life in Chennai.
+- It is disappointing to note that you no longer find enough of melodious music in Malayalam films.
+- I won the national award for the best music composer and also had the fortune of scoring music for songs penned by M. Karunanidhi for the movie 'Pasakiligal.'
+- I listen to world music a lot.
+- In all the background scores I do, I take care to see that the theme enriches the storyline and does not deviate from the mood of the scenes, context, characters and the entire movie.
+- I am happy that my hard work in 'Chandramukhi' has been recognized well.
+- Even Bollywood films set in rural areas have music with a western touch. So, this has resulted in listeners losing touch with their cultural roots.
+- I like philharmonic music a lot. That kind of symphonic music has always been an integral part of the arrangements in many of my songs and background scores.
+- I was thrilled when I was offered the opportunity to compose music for three songs penned by Karunanidhi in 'Paasakiligal.'
+- Remember, the West's rock or pop was created for their languages, not ours.

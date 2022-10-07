@@ -1,0 +1,46 @@
++++
+author = "David Frum"
+title = "David Frum Quotes"
+quotes_len = "40"
+description = "the best 40 David Frum Quotes"
++++
+- Today's Republican party is too beholden to factions generally.
+- Whenever you discuss politics, it is always better to use individual names rather then the term neocon.
+- The great power the president has is that he is the most prominent person in the biggest media event on the planet. He has the attention of the nation and the world. When he speaks, everybody listens.
+- My view on candidates on money is unless it's proven that the donor stole the money, the campaign keeps the money.
+- Republicans originally thought that Fox worked for us and now we're discovering we work for Fox.
+- Maybe it's true that people with less extreme views who are also interested in public affairs have been driven out by a marketplace that doesn't offer them anything of the tone they want to listen to.
+- Why should we not expect self-designated environmental leaders to practice what they preach?
+- In journalism I can only tell what happened. In fiction, I can show it.
+- People who watch a lot of Fox come away knowing a lot less about important world events.
+- Speech writers are more vulnerable to vanity than any other group of people in Washington.
+- We, as conservative intellectuals, should not be in the business of making excuses for bad parliamentary decisions by Republican leaders in Congress.
+- The elite isn't leading anymore. It's trapped.
+- To balance China, the democracies will need new friends - and India with its fast-growing economy, youthful population, and democratic politics seems the obvious candidate.
+- Republicans have to move to a point of greater unity.
+- The thing that sustains a strong Fox network is the thing that undermines a strong Republican party.
+- Events don't happen because I write a speech. I am allowed to write a speech because events are going to happen.
+- I always believed as a speechwriter that if you could persuade the president to commit himself to certain words, he would feel himself committed to the ideas that underlay those words.
+- If you go on TV and say there's no other country in the world where you can be born poor and become rich, you get a huge megaphone. If you tell the truth, which is that most of the studies show actually the United States is worse than anybody except Britain in upward mobility, there is no audience for you.
+- Partly because of the desperate economic situation in the country, what were once the leading institutions of conservatism are constrained.
+- The five million people who watch cable news are the political nation, the people who really care.
+- I'm a latecomer to the environmental issue, which for years seemed to me like an excuse for more government regulation. But I can see that in rich societies, voters are paying less attention to economic issues and more to issues of the spirit, including the environment.
+- A presidential speech is always the work of many hands.
+- There is no right to work in a think tank, and these are very privileged positions.
+- Look, the media are trapped by changes in the technology and business of their industry.
+- A novel makes it possible to understand not just events, but the people who control the events; not only their choices, but also their motives.
+- My mom was truly an iconic figure, a great journalist and a pioneering woman who died at 54 of cancer without ever having revealed to viewers that she was ill.
+- If right and left are competing to be the biggest victim, who is competing to be the government?
+- A generation ago, or two, when there were three channels, plus PBS, and when you needed - when you needed 15 million people to make a living, the media could focus on the broad country. And most people had no choice about getting political information. It was there at 6:30 whether you wanted it or not.
+- America under 30 is a more non-whites place than America over 60. And we know that non-whites and whites vote differently.
+- As thrilling as it was, speechwriting is ultimately frustrating for someone who wants to be a writer.
+- My mother cared more about how you reasoned than about the conclusions you reached.
+- I am really and truly frightened by the collapse of support for the Republican Party by the young and the educated.
+- What I say is I am somebody who cares about conservative ideas. I want to see them implemented in governance.
+- So if I have two pieces of cake, do I have twice as good an experience as the first piece of cake? One of the things I've found in life is that the first piece of cake is the best.
+- Journalism can go right up to the door of the room in which the decisions are made. A novel can go inside the room - and inside the character's heads.
+- There are a lot of wonderful people in America who shouldn't be on the Supreme Court - and a lot who should be on the court who aren't such wonderful people.
+- Think tanks do have points of view, and they are absolutely entitled to defend them.
+- Nobody ever won an election by spitting at his political opponents.
+- The big winners under the American fiscal system are the rich, who pay some of the lowest taxes anywhere in the world; the old, who are the main beneficiaries of the American social service state; farmers, rural people. These are Republican constituencies.
+- People need to understand that in Washington, the process is the punishment.

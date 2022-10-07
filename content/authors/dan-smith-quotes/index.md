@@ -1,0 +1,72 @@
++++
+author = "Dan Smith"
+title = "Dan Smith Quotes"
+quotes_len = "66"
+description = "the best 66 Dan Smith Quotes"
++++
+- I'm into really terrible, trashy American horror films. I think the 'Final Destination' 'sinquology', to phrase it, is brilliant! It's un-toppable in terms of how incredible it is.
+- 'The Shining' is operatic and sensational and... really shocking. It has this amazing meld of classical music and modern interpretations of classical music, and incredible imagery. From the set design to the costumes, there's so much to unpack.
+- Sometimes it's necessary for your sanity to hone in on the things that you love and the people you enjoy hanging out with.
+- I'm a massive pessimist.
+- Our favourite album that we always listen to in the car is '2001' by Dr. Dre, which is just the ultimate album of all time.
+- We've been having a great time writing for other artists in and amongst making our Bastille albums and mixtapes.
+- I guess the way people release music and the way people listen to it has changed and is changing constantly. We wanna get the music out as quickly as possible. We're sitting on a lot of stuff and constantly making new stuff as well.
+- There's always room to make stuff that is completely morose and downbeat, but we'd probably spiral into a state of complete despair if our music reflected the lyrics all the time. I think that's almost the fun game with some songs, is this complete tearing of two feelings at once.
+- I know who buys our music: we have such a diverse fanbase.
+- I write songs, but the guys play on them, they have opinions on them, and we tour together and spend all our time together.
+- I think there's some people that absolutely love attention, and I'm not necessarily one of those people, but we're so, so lucky to be able to do this with our lives. There are certain aspects that maybe are not amazing, like having to represent us.
+- When we first started out we only had five or six songs we could play live, so if we ever got an encore, we used to do our cover of City High's 'What Would You Do?' We'd be playing it and people's mouths would be moving singing all the words, but they'd be thinking, Where is this song from? It's such a brilliant pop song but the lyrics are so dark.
+- I listen to unhealthy amount of Kanye. The Fugees. Also, 'The Miseducation of Lauryn Hill.'
+- IHeartRadio was a mind-blowing experience. We're just this little band in England, and we played in between Alicia Keys and Nicki Minaj. It was incredible and surreal.
+- 'Fire Walk With Me' was so divisive because the tone was so different than the TV series. But now television is almost more of a free medium than cinema.
+- When 'Flaws' went to No 21, we thought it was the most chart-bothering thing we'd ever do. We had a little party and started thinking about the next album.
+- I think everyone has such varied taste in music.
+- 'Saturday Night Live' was 100% the most surreal TV we've ever done. Leonardo DiCaprio was on the same show.
+- I made a lot of the first album on a laptop in my bedroom after college and after work.
+- There haven't been many examples of times when we've done a cover and not put it out in some form.
+- We love to visit Las Vegas. It is so much fun, so iconic; it is always a pleasure.
+- I really like people to be able to interpret stuff in their own way, I like the ambiguity of the medium. We're just four guys in a band trying to articulate things in a questioning way. Who are we to tell people what to think?
+- Whenever we're on the red carpet, we look like competition winners. It's a joke.
+- To be honest, I'm always really interested when people say they can relate to our songs. On the first album, that wasn't something I'd ever anticipated or thought about.
+- Reading interviews with other people, I see them say, 'All I want is for our band to be massive', but it was never an ambition of ours to be in a band that's this big. That's so far from how my mind works that I find it puzzling. There's nothing wrong with being ambitious, but we're not.
+- The Backstreet Boys posted a cover of our single 'Good Grief.' It was so cool, and they reached out to us, saying, 'When you're in town, come to the show.'
+- I'm not interested in writing overtly autobiographical songs. I would rather explore interesting stories. I like the idea of the songs being evocative and distinctive, so I have in my mind the atmosphere that a film could evoke. I like to think of them existing in their own little world.
+- There's definitely a couple of people I'll play stuff to when it's nearly finished just to see what they think; Mark, our producer, his wife is Australian and just listens to the radio - she's awesome - and, I guess, is quite a casual music listener.
+- Often, with our music, there's quite a lot going on, so people hear melodies that sound up and catchy, and production, and maybe don't really listen to what the songs are about, so it's nice to sing a song like 'The Currents' and really mean it.
+- I love the studio. I love writing and producing both for us and for other people.
+- There's a lot of variety in our gigs, our records, our mixtapes, and our videos.
+- I generally wear a lot of black clothes, and I think that comes from wanting to be as neutral as possible. We use a lot of visuals on stage, so I kind of hope people are watching those and not looking at me.
+- It was quite nice having a routine, going to the studio every day and finishing off 'Wild World'.
+- After everyone's gone to bed, I still find myself sitting at the computer writing songs. It's a nice reminder that this has always been a kind of hobby that I get on with because I really love it.
+- Mark Crew, the only producer we've ever worked with, has been joining us on tour as often as possible.
+- Playing new songs at festivals is weird, obviously. People at festivals are always a bit drunk, and probably just want to hear stuff they know by bands they love, or are checking you out and don't know your stuff very well.
+- When we started making mixtapes, we were just ripping stuff off YouTube and DVDs, naively thinking that because we were putting it up for free, it was gonna be fine.
+- When we started out in the U.K., there were songs that we made, we put them on the Internet, and we immediately started touring the U.K. We borrowed our friend's mum's car, and drove ourselves around for, like, a year playing gigs in pubs and tiny little venues. In that respect, we're pretty grass roots as a band. We've done all that together.
+- I think basically, there are some bands and acts who feel the need to cultivate a persona or act a certain way or get quotes or whatever, because they feel like that helps them get promotion, and I feel like we're a band who have always just made music that we love and kept ourselves to ourselves and got on with it.
+- There are moments, when you're playing your songs to thousands of people, which are amazingly satisfying. I'm very self-critical, so I find it hard to go along with moments like that.
+- My songs used to be significantly more bizarre. I used to play a big electric piano and a loop pedal. I was really into Regina Spektor, and I liked her narrative lyrics that were quite off the wall. I used to layer things up and try and replicate what I'd been doing with my bedroom recordings.
+- I remember being obsessed with 'The Score' by The Fugees. I used to listen to a lot of really melodic music with a lot of harmonies. The Beach Boys used to make me happy, and Simon and Garfunkel, and I used to listen to a lot of film soundtracks as well.
+- The mixtapes, and a lot of our music, it comes from a place of fandom and appreciation and of respect and of nodding toward stuff that we feel really affectionate towards.
+- It was ages ago now, but when we started Bastille, I didn't necessarily want people to know or care if it was a band, and it came from a place, really, of just much rather having people listen to the songs rather than caring about the people making it.
+- I'm quite a reserved person, but when it comes to being on stage, something just clicks, and I sort of run around like a mad man. I find myself jumping in the crowd, climbing up on things, and dancing absolutely atrociously. I like to see the whites of everybody's eyes, jump around with everybody.
+- Most friendship groups will have someone who starts a new relationship, and you just don't see them for four months. And that's always kind of sad, almost like an inverted break up. I guess the ideal situation is that whoever the new partner is can be subsumed into the friendship group.
+- I love wearing Converse or Vans and wear a lot of bombers or denim jackets. I'm also a bit of loser, so wear a lot of film and band T-shirts. My friends say that I look like a cartoon character because I'm always wearing the same kind of stuff.
+- A lot of our songs are based in reality but imagined or using fictional characters as a way to write about something. I think inspiration comes from anything and everything, and it's filtered through our brains, and it comes out sounding like our band.
+- There's a part of me that wants to let all the different moments of 'Wild World' to have their moment and be released properly.
+- Lip synching in a video is usually my idea of hell.
+- I love David Lynch's style. Someone once thought I was his son, so I must have been doing an alright job at emulating it.
+- The first turning point, when I stopped doing things by myself and the Bastille project began, was the inclusion of more electronic music into the sound.
+- I once went on a date where the girl drove and so couldn't drink. I was nervous, so drank quite a bit - it didn't end amazingly. As much as I love movies, I think cinema dates can be weird because you essentially sit next to each other in silence for a couple of hours.
+- It's such an interesting experience seeing how different people react to music and the generosity of some and the craziness of others - people who go see bands in different countries, know all the words to the songs, and get tattoos. It's so unexpected.
+- I'm massively obsessed with Frank Ocean, so it's always great when he decides to release music.
+- I never, ever imagined leaving Great Britain.
+- I run our Twitter and Facebook pages, because I feel it's important to maintain a personal relationship with fans.
+- I don't necessarily feel 100 per cent comfortable standing up on stage in front of lots of people, but I don't think most people would. It's a pretty bizarre thing to do. It can also be absolutely incredible having thousands of people singing back lyrics that you might have written in your bedroom or wherever.
+- I was obsessed with harmonies and how to put songs together in lush soundscapes. But I don't know what it was all about, really.
+- In 'Good Grief', in trying to create this sense of the huge downs and ups, stumbles of this process, we're almost using the music to make it uplifting, so it's not completely hopeless.
+- It would be wicked to do a mad '90s tune and make it a duet with Rihanna. I love her new album 'Anti.' I'm into quite dark R&B.
+- The idea of doing film and music together is an absolute dream.
+- It's fun to take songs from a completely different context and reframe them. We did two mixtape albums called 'Other People's Heartache' and 'Other People's Heartache Pt. 2,' which were full of those kind of covers and mash-ups, mixed with film music and film quotes.
+- There are so many different points to 'Wild World,' and it sounds quite different to what people would expect from us.
+- One of the best things about being in a band is that we're so lucky to be able to travel the world. It takes us to all these cities that we've never seen before.
+- I've never been interested in diarising my life through song. So much stuff has been done before. So many people have brilliantly articulated the pain of heartbreak or the joy of love or whatever. Those elements exist in our music, but I guess I strive to write about unconventional things instead.
