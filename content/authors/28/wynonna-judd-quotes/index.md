@@ -1,0 +1,38 @@
++++
+author = "Wynonna Judd"
+title = "Wynonna Judd Quotes"
+quotes_len = "32"
+description = "the best 32 Wynonna Judd Quotes"
++++
+- I know that the internet has helped a new world audience find me.
+- The mother-daughter relationship is the most complex.
+- It took me 36 years to be able to be by myself and like it.
+- I've learned lately that no one is going to hand me a permission slip and tell me to take time out for me.
+- Success takes us to the top and away from those we love.
+- Digital downloading of music has affected us all in adverse ways.
+- Without love in you life, you have nothing.
+- Silence is refreshment for the soul.
+- My story of success and failure is not just about music and being famous. It's about living and loving and trying to find purpose in this crazy world.
+- My music is about the journey, about love and the human experience.
+- I learned again that the mind-body-spirit connection has to be in balance.
+- I am most proud that I stayed true to the music of my soul.
+- When you are real in your music, people know it and they feel your authenticity.
+- You have to fill your cup. You then give away the overflowing, but you keep a cupful for yourself.
+- I never took a music lesson in my life, it just came naturally.
+- I have a very deep and wide relationship with my fans.
+- If I can make a connection, one connection, to any one listener in the world, I consider that successful.
+- The love of these people and of my fans mean more than any award or special accomplishment.
+- I used to only worry about the #1's and all of the awards. But that was a long time ago.
+- Because I now realize, after all this time, I have never truly felt worthy of all that I have been given.
+- I don't take my fans' love and dedication for granted.
+- It sounds corny, but I've promised my inner child that never again will I ever abandon myself for anything or anyone else again.
+- I have always loved the process of making the music, reading the letters from the fans who get married to my music, have children to my music and play my music at their funerals.
+- I also believe my musical abilities are a true gift from God.
+- We are losing our superstars like Johnny and June Carter Cash and that breaks my heart.
+- I am a fan of today's sound as long as we don't get too slick, and yet I am very reverent of my roots.
+- To heal from the inside out is the key.
+- Most of us are imprisoned by something. We're living in darkness until something flips on the switch.
+- The failures and successes are necessary for learning.
+- There's a place for all types of country music as long as there is honesty and realness and a real human experience for the fans.
+- I am a child of God.
+- I always make music that is true to my spirit.

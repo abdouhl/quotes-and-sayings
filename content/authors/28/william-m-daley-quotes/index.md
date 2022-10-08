@@ -1,0 +1,61 @@
++++
+author = "William M. Daley"
+title = "William M. Daley Quotes"
+quotes_len = "55"
+description = "the best 55 William M. Daley Quotes"
++++
+- While imperfect, the electoral college has generally served the republic well. It forces candidates to campaign in a variety of closely contested races, where political debate is typically robust.
+- Illinois needs a real strategy for job creation that grows the economy over the long term with high-wage jobs that rebuild the middle class.
+- We can't give the impression to our allies or friends in Asia that because the president is against TPP... that therefore, economically, we're going to pull away from Asia.
+- What comes into the Oval Office are not the good or easy decisions. The easy decisions are made elsewhere. The things that make it to the Oval are always the hard ones.
+- I know something about trade agreements. I was proud to help President Clinton pass the North American Free Trade Agreement in 1993 and create what is still the world's largest free-trade area, linking 426 million people and more than $12 trillion of goods and services.
+- There is no question of the benefits that opening a market of a billion people will bring to American businesses. But as I said last year, this will test China and the world trade system.
+- Commerce was the best job I could ever have.
+- You can use all the flowery words in the dictionary, but sooner or later, you have to let people know where you stand.
+- It's been proven in Washington: It's very hard to negotiate and try to get a deal done in public.
+- Trump is a different politician. He was a different businessman. His campaign was different. What you saw in his campaign is what you're going to see in his presidency.
+- The chief of staff has to reflect and sometimes complement the strengths of the president he serves.
+- When the manufacturing decline began in earnest in 2001, the main culprits were the offshoring of jobs to China, with which we have no trade deal, and automation.
+- Most Republicans and the business community extol the virtues of trade, depicting it as an engine of economic progress, while most Democrats and unions attack the exportation of American jobs, claiming that trade agreements are destroying our economy.
+- Sanders insists the party adopt 'the most progressive platform ever passed' at its Philadelphia convention. Since when does the runner-up get to dictate the platform?
+- No one knows the Senate better than Joe Biden; he lived there for 35 years.
+- Bernie Sanders is making a big and potentially dangerous mistake with his continuing insistence on changes to the Democratic Party's rules and platform. I should know. As chairman of Al Gore's 2000 presidential campaign, I understand too well where such ideological stubbornness can lead.
+- As commerce secretary, I led the Clinton administration's effort to ensure China's entry into the World Trade Organization and the permanent normalization of trade between the U.S. and China - steps that produced a 76 percent increase in U.S. exports to China in just three years.
+- Party leaders aren't responsible for every candidate's gaffe.
+- It's logical and fair to allow only registered or self-identified Democrats to choose their party's nominee (although numerous states do have open primaries). Letting more non-Democrats choose the nominee doesn't guarantee success in a November general election. And it does nothing to encourage people to join and work for the party.
+- President Obama came into office in '08 with the belief that - and the public's belief in him - that he was moderate, that he wasn't a big spender.
+- I got through at Ignatius. I did OK, not great in any of my academic endeavors.
+- Trade is an integral part of our foreign policy.
+- It sounds good to say, 'We're going to do this,' on C-SPAN, but try to do that in real life, and it's not going to work.
+- Centrist voters typically decide general elections, so hard-left or hard-right platforms don't help.
+- Bob Gates understands the difficulty of going to war. This is a man who spent almost his entire life working for the government.
+- The Republican establishment's 2008 embrace of Palin set an irresponsibly low bar. Coincidence or not, a batch of nonsense-spewing, hard-right candidates quickly followed, often to disastrous effect.
+- As president, you can't just say, 'I want this,' or, 'Do that.' A president has to lead the American people to where he wants to go, and the chief of staff needs to help him get it done.
+- There's a growing sense among large corporations that to solve global problems like climate change, the responsibility can't fall just on the government. The business community has to be a big piece of that.
+- When a state offers your company an attractive package of incentives to relocate, you have to look at it, and if it significantly boosts your bottom line, you have to take it or answer to your investors.
+- There is no path to middle-class prosperity without tearing down barriers to American exports.
+- Now that Donald Trump has won the presidency despite losing the popular vote, there's a growing cry to rethink, or even abolish, the electoral college. This would be a mistake.
+- Politics is all about relationships, people. A lot of it's emotional. It's not rocket science.
+- There is no room for politics in the Commerce Department.
+- If we don't set the rules for commerce in the Asia-Pacific region, China will.
+- Palin's blatant lack of competence and preparedness needs no belaboring. What's critical is that substantive, serious Republican leaders either wouldn't or couldn't declare, before or after the election, 'This is not what our party stands for. We can and must do better.'
+- I was Al Gore's campaign chairman in 2000, when he won a half-million more votes than George W. Bush but lost the presidency.
+- As a pro-business Democrat, I understand the obligations of publicly traded companies to maximize returns to shareholders.
+- Obviously in a campaign, people say lots of things that they find, when they get in the office, life's a little different.
+- Whether McCain actively sought Palin in 2008 or passively yielded to aides' pressure, he set a new standard for GOP candidates who rely on lots of sizzle and little substance.
+- While a truly national third party wouldn't necessarily be bad, smaller niche parties are ill-suited to our federalist system.
+- In my opinion, it is not in our interest to have complicated negotiations with a region, and then have to follow it up with 535 negotiations at home. I have experienced recounts, and it is better to vote once.
+- There are some who want to move us back to the days when we were protectionists and keep all goods off our shores.
+- Lots of people throw around phrases of 'no-fly zone,' and they talk about it as though it's just a game - a video game or something. Some people who throw that line out have no idea what they're talking about.
+- Business leaders should show what our political leaders seem to lack - that is, a common-sense view of the times.
+- A chief of staff has to reflect the president's governing style.
+- The mistake we made in the 1990s was overestimating the potential of NAFTA's positive impact.
+- There are 14 Cabinet spots, and God only knows how many hundreds of people want them.
+- Some people would like the world to go back to the 1950s.
+- Young people - motivating them in any election is hard to do.
+- The Microsoft actions announced today are exactly the kinds of industry initiatives we need. Microsoft is using its resources to bring real privacy protection to Internet users by creating incentives for more websites to provide strong privacy protection.
+- Our focus must be on making America the best place on earth to do business.
+- If anything, the Democrats' salvation may lie in the fact that Republicans seem even more hell-bent on allowing their radical wing to drag the party away from the center.
+- The reason CAFTA should be enacted is not economic benefits: it is national security.
+- Contrary to what most people think, there is a Rich Daley under Mayor Daley.
+- Most people who talk about either entitlement cuts or revenue - when you have to put pen to paper, it is much more difficult.

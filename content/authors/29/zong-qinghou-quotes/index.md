@@ -1,0 +1,16 @@
++++
+author = "Zong Qinghou"
+title = "Zong Qinghou Quotes"
+quotes_len = "10"
+description = "the best 10 Zong Qinghou Quotes"
++++
+- The U.S. and European markets have become mature, profit margins are lower, and equipment isn't so new. Because profits are relatively low, it limits the willingness of companies to invest in newer equipment.
+- In China, you have to have a strong leader for a business to get anything done.
+- We don't need to solve the problem of the rich-poor gap. We need to solve the problem of common prosperity.
+- For a long time, I couldn't even afford food and clothing. I climbed from the very bottom of the society.
+- People who get rich early should help the rest get rich.
+- We are working to understand the tastes of people born in the 1980s and 1990s - it is very different from my generation. We do our own research. Marketing research companies, I think, are relatively academic.
+- Many people find themselves with illness as they become successful: higher blood pressure and diabetes.
+- If the nation is rich but people are poor, the country cannot be strong, and society will be unstable.
+- When you are poor, you'll have to think of ways to be better off.
+- I believe wealth should be in the hands of those who know how to create more wealth.

@@ -1,0 +1,102 @@
++++
+author = "Washed Out"
+title = "Washed Out Quotes"
+quotes_len = "96"
+description = "the best 96 Washed Out Quotes"
++++
+- I don't think I would change anything. I think we've done a fairly good job of remaining sane and making the right decisions.
+- When we're back home, I feel pretty domesticated.
+- I naturally like that dreamy, shoegazey sound on my vocals. A lot of reverb helps, and so do a lot of delay effects on everything.
+- My general taste is towards the melancholy.
+- The Washed Out thing happened really quickly, and I wasn't really actively promoting the songs. I didn't think of them as any more than demos, really, and it sort of became a thing on its own.
+- A lot of the things I was doing on the first couple Washed Out releases was very naive.
+- I remember at one point, with a previous release of mine, I stumbled upon a shareware site, and the total number of downloads was in the thousands, maybe the hundreds of thousands. But there's no doubt that the Internet and that kind of sharing has been a huge benefit for the band.
+- I didn't realise how much I ate Mexican food, like tacos and burritos three times a week, until I came to Europe and couldn't find any.
+- When I'm not touring, I hardly ever leave my house. Part of it is I get to do what I'm most passionate about, which is work on music and make new songs.
+- Maybe in the future, you'll be able to understand what I'm saying. I'm going more for an atmospheric vibe in my songs. And I really don't want to ruin the illusions people may create for themselves.
+- I have a small studio set up in my house in Athens. I'll wake up, have a nice breakfast, and I won't surface until dinnertime. I'm very domesticated in that way.
+- I try to be as optimistic as I can. I feel like that's the beautiful thing about art and music. It can take you places, and they can be a positive influence. A very soothing influence. Honestly, I feel like there's enough pain and terrible things that happen in life. That's beautiful thing in art, you can really idealize things.
+- Being outside is a loose theme on 'Paracosm.' Acoustic-sounding instruments have that warmth to them that is really important to communicate. It was really important for me to tell a story - my favorite records have a narrative feel.
+- I was gonna work in a university, but no one was hiring.
+- I lived in a neighborhood where there weren't many kids. I had a couple sisters, but I was very much a loner. Whatever film I had seen that day or that week, I would completely find myself in that world.
+- When I think about making 'Within,' it was not a very fun experience at all.
+- In your imagination, you can perfect things in a way you can't do in your everyday life.
+- You hear ten seconds of a song, and you know it's OutKast. There's a strangeness about it because it's catchy, but it's not just pop for the sake of pop. They're pushing the envelope.
+- I felt like I was building this world brick by brick with each layer of instrumentation I was doing. I could see it growing in some ways. I feel like most writers feel the same way. You're almost living inside of this magic world that you're building.
+- Obviously, you want to honour the sound of your music, but I'm definitely open to trying new things and making myself use a different palette of sounds.
+- I was definitely the kid in the back of the class with his head down the whole time not wanting to speak up and say anything.
+- It is easy to get an interesting loop to happen, but it becomes a collage when the song and loop are constantly changing.
+- There are things I can accomplish in the studio via manipulation on the computer or some kind of effect that are nearly impossible to do live. On the flip side, there are some things that happen live that can't be pulled off in the studio.
+- When I first started writing songs, I never intended on singing. I didn't really consider myself a singer at all. I was just kind of recording the demo vocals as a holding place until someone else came and sang.
+- Escapism or nostalgia, for me, is not about having a terrible life and trying to get away via imaginary ideas or something.
+- It's very hard to find perfection in your life. But in the art world you can do that.
+- I normally start at the computer with something really simple like a four-bar loop of a drum sample or a bass line. And then I just start adding layers of synthesizers.
+- I just have the normal ringtone, unfortunately.
+- For some, being involved in a scene is a great thing because the social element can drive creativity. For me, though, it's never really been like that. It's the opposite. I've always had this instinct to escape.
+- I have a little basement studio set up here at my house, and I do probably 80 percent of the recording here on my own. With multi-tracking technology, I can play various parts on top of one another.
+- I was at a slight disadvantage in that I had never played in bands or done any performances before, and that's just as important as writing, recording, and putting records out. It's been a lot of hard work, balanced with a lot of pinch-myself moments of touring in crazy parts of the world.
+- When I look back at the record and listen to it, I can sort of see where I was at when I was making it - these brief little moments, different places I was at emotionally.
+- The thing that's good about music-making software like the DAW-kinda systems is that they're all generally the same; the kind of interface is normally laid out in a similar way. Depending on the program, the sounds might be quite different, but they tend to all have a drum machine or synthesizer or a sampler.
+- If a band or artist isn't tweeting or writing posts on Facebook every day, there can be this kind of mystique built about them, and I find myself retreating from the spotlight more and more.
+- The beautiful thing about working with new instruments is that you sort of approach it with a fresh perspective.
+- I do try to structure everything in a way that's very much like a pop song. I try to keep the arrangements really simple, just to make everything essential.
+- I just make up lyrics off the top of my head. A lot of times, there's a phrase I really like, and I kind of build the song around that.
+- I come from a background of hiding everything behind a computer.
+- I like an even-keeled, slow-paced job.
+- A lot of the early Washed Out material was done on a couple of synthesizers that did most of the work, but that's the great thing about synths - you can recreate sounds or make an entire record with just one piece of gear.
+- I'm not the most technical producer, so the weird mixes and blown-out sound happen naturally.
+- I'm without a doubt a producer first. The lyrics happen towards the tail-end of the process, mainly because they're more stream-of-consciousness. It's very rare that I'm going to tell a really concrete story.
+- Something on mainstream radio is very in your face with the vocals. I tried that, and it just doesn't feel like Washed Out. It's got to have that haziness to it.
+- The music is at this weird intersection of dance music and indie music. It's not quite dancey enough to do a full-blown DJ set, and it wasn't quite rock enough for a rock band. But I guess it's what makes us unique - drawing from a lot of different influences.
+- Ultimately, what interests me is using exotic sounds in my songs.
+- I definitely enjoy my time by myself - and that's kind of the weird thing about touring; you're kind of constantly surrounded by people - but I actually do enjoy going out and doing things and being around people.
+- Travelling is really great for giving you tons of ideas, but it's really hard to actually record anything on the road.
+- I get very bored easily. I'm a child of the Internet or whatever; I want more and more of new and interesting things.
+- I definitely enjoy the kind of magic that happens being on stage with a group when everything's working. The vibe when that's happening gets even better if the audience is involved and you can feel that interaction. That's something you don't get with your headphones on in a studio; it's much different.
+- I want people to make sense of what I'm talking about.
+- For the longest time, I was trying to be DJ Shadow, I think. But I slowly developed my own style. It was trial and error, for sure.
+- Where I grew up in the middle of Georgia, hip-hop is king, and on Friday and Saturday nights, local DJs do mixes. It's a great mix of local stuff and then some of the bigger hits and remixes of the hits, and it just has this nice flow with a dirty-South sound to everything.
+- I try to stay on a pretty normal schedule of nine-to-five.
+- My parents live out in the middle of nowhere, in the middle of this peach orchard. It's actually Peach County, one of the largest peach-growing counties in Georgia. It's very rural, and there is nothing much going on, so I guess that's had a big influence on everything as far as just not having much to do.
+- Any musician - I would say 99% of musicians - needs some help along the way. Most people, even if they're self-produced, have someone else mix it, or they'll have someone else master the record. Inevitably, it's like somebody else's personality being put into your art.
+- Obviously, I never want to make the same record twice. I want to keep moving forward. That's the real challenge, I think.
+- For the most part, the real work is done in the songwriting stage and recording; the next step is presenting to people.
+- The way I work is by infinitely playing a very simple loop over and over, and then I start layering things.
+- I'm very much a fan of having something tactile you can hold.
+- I'm very happy in my life, but I do feel that music has a power to transport you to places or to beautiful moments in your past.
+- I've struggled with depression before. For me, music was always a very positive way to will myself out of that situation.
+- I don't really write all that well with others.
+- I never wanted to just press play on some DJ set and let the lights do all the work. I value old-fashioned performance a little more than that.
+- In some ways, I feel like I've always dabbled in nostalgia. It's just what I do; it comes naturally.
+- I listen to a lot of different kinds of music, and I feel like I can pull ideas from practically anything. You name it - I'll probably like it.
+- I never want to make a complete, 180 reactional record. I wanted a connection to what I've done in the past but still move forward and evolve.
+- For me personally, I'm always writing from what's happening in my emotional life. Even without thinking about it a lot of the time, it comes out in the songs that I'm writing.
+- I'm not a very technical musician at all.
+- The one sound I think of when I think about dreaming is the harp glissando, which is this really atmospheric run up and down the scale that's really dreamy.
+- I've always, in some way, incorporated sampling into my work.
+- My music is a personal thing, and I feel like if I talk too much about the songs, or if there's too much of my personal life out there, it ruins it.
+- I put some songs on the Internet back in 2009 - that's kind of how everything started with Washed Out. I had never really planned on being in a band or anything like that. It was kind of a hobby I did on my own, just recording music.
+- I personally love the record-making more than the actually performing and travelling. It's funny, the drastic shift in lifestyle that comes with it. It certainly satisfies my more adventurous side, but it leaves little time for contemplation and all of that.
+- Over a year's time, I felt like I squeezed in five years of touring experience, which was a really huge help moving forward.
+- I've always written pop songs. I tend to take inspiration from more experimental genres, like ambient music, but at the root of the song, it's verse-chorus-verse.
+- I love listening to pop radio.
+- I know of some guitar-based rock bands that refuse to record anything that they can't play live. But some of the best stuff I come up with are studio-based performances - bringing out whatever accident I had in the studio and building a song around that.
+- One of the great things about music is how it can take you places.
+- Honestly, I've just made music so long by myself, in some ways I don't feel I'm a very good collaborator.
+- The way that I sing is very mumbled-together, and so I guess I'm kind of stuck with it now.
+- It's a weird dynamic - I guess there is a fine line between hope and sadness. Sometimes you can be feeling both at the same time.
+- I don't think it's an exciting thing to move back in with your parents.
+- The entire making of 'Within and Without' was a series of experiments and trial by error. When I started writing, I didn't have a strong idea of what the record was going to end up like.
+- I took piano lessons when I was really young, like five years old, and I didn't really enjoy that very much. It was kind of too strict. So when I was probably 11 or 12, I started playing guitar and just kind of taught myself.
+- My philosophy is generally to keep things as simple as possible.
+- I think '80s pop music subconsciously informs what I'm doing.
+- There are certain sounds that have a loaded past. Like the sound of a harp, if you go back to old movies, represents a dream sequence; it transports you there.
+- I'm entirely self-taught, which I think is both a blessing and a curse.
+- Texture is very important. Just the feel of everything. It's not always about recording everything in pristine quality and having everything mixed where it's absolutely perfect. It's more about a vibe.
+- It's like a painter with various layers of paint. I start with a drum loop and add keyboards, and then melodies start to take shape. The vocals happen later. I've never really done therapy before, but it's a form of therapy. Everything else falls away.
+- I do have the personnel that we use in the back of my head when I'm working, but I also don't want to limit myself.
+- When you work this intensely on something, the recording process becomes a bit like cabin fever. I shut everything out and, for a while, I totally lost perspective. To an outsider, I imagine the whole recording process sounds like torture.
+- Making music is pretty much the only thing I can do.
+- The types of melodies I tend to write kind of have this bittersweet quality; they're meant to be uplifting but kind of have this melancholy vibe to it.
+- We lived in Atlanta for a couple of years, and had a lot of fun, but my best work happens when I isolate myself. It's all about turning inward.
+- My first big influences were more hip-hop based - people like DJ Shadow and Four Tet.

@@ -1,0 +1,31 @@
++++
+author = "Woody Hayes"
+title = "Woody Hayes Quotes"
+quotes_len = "25"
+description = "the best 25 Woody Hayes Quotes"
++++
+- On our first date, all Anne wanted to talk about was Bob Feller, the new pitcher for the Cleveland Indians.
+- As the youngest, I don't think there was any doubt I was spoiled.
+- A man is always better than he thinks.
+- Nobody despises to lose more than I do. That's got me into trouble over the years, but it also made a man of mediocre ability into a pretty good coach.
+- The bowl games are only supposed to be a fun reward.
+- The game of football is one of strategy and tactics.
+- I may not be able to outsmart too many people, but I can outwork 'em.
+- The most deceptive course in football is straight at the goalposts.
+- I speak at a lot of banquets in small towns, because small towns have so many great people.
+- Success is the only motivational factor that a boy with character needs.
+- I am not very smart, but I recognize that I am not very smart.
+- The five big mistakes in football are the fumble, the interception, the penalty, the badly called play, the blocked punt - and most of these originate with the quarterback. Find a mistake-proof quarterback and you have this game won.
+- Without winners, there wouldn't even be any civilization.
+- A good general always makes you search for his weaknesses.
+- Paralyze resistance with persistence.
+- Nothing that comes easy is worth a dime.
+- Football is, after all, a wonderful way to get rid of your aggressions without going to jail for it.
+- My brother and I were still in high school playing football, and we were both middleweight, and we couldn't find anyone else to fight in our weight class, so we'd fight each other. I was a stand-up fighter, and Ike was a weaving type of fighter, and we fought that way out there at Cy Young's farm, and we put on quite a show.
+- I'm no longer the head football coach at Ohio State.
+- No back in the history of football was ever worth two fumbles a game.
+- I'm not trying to win a popularity poll. I'm trying to win football games.
+- The players fire the coach, and as long as I'm on the same wavelength with them, I can coach as long as I want to.
+- I don't apologize for anything. When I make a mistake, I take the blame and go on from there.
+- I don't like nice people. I like tough, honest people.
+- Success - it's what you do with what you've got.

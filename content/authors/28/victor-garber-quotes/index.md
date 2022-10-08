@@ -1,0 +1,40 @@
++++
+author = "Victor Garber"
+title = "Victor Garber Quotes"
+quotes_len = "34"
+description = "the best 34 Victor Garber Quotes"
++++
+- Theatre demands different muscles and different aspects of one's personality.
+- I find out more about Jack every week. Essentially, I'm the same character, but I'm having more fun this season because I'm doing more aliases, you know. I like the surprise of not knowing.
+- I like the fact that Jack is always wearing a tie except when he's on a mission. I do like it when I get out there and dress up, or dress down, a little bit.
+- I think from a very young age I always have this desire to perform.
+- I have no interest in directing. I've no talent for it.
+- Being on a television series is sort of life-altering on every level.
+- When I first read the script a few years ago I thought it was one of the best written scripts I had ever read.
+- It's disgusting that a Broadway show can't try out anymore, that no matter where they are in the world, there is this massive dialogue going on between people damning or praising it.
+- Sometimes, his methods and his motives are questionable and even his morals are questionable in the way he does things. But I think his intention is always to protect his daughter.
+- My mother couldn't have been happier when I said I was moving to New York.
+- I had done some TV movies that were great experiences but, no, I wasn't looking to do a series.
+- You can only do so much theatre.
+- The first thing I read was of my character on the phone talking to Sydney's fiance. Though short, it was so beautifully written, and it made me laugh. I thought if I wanted to play a character, this would be it.
+- I remember the first reading of the script we had and everybody was sitting around the table. I was very impressed with the level of acting that was in the room, particularly with Jennifer who has so much responsibility.
+- One day, we were doing a serious scene and fast talking like we do and we could not stop laughing and the director had to stop the production. We had to go to our trailer and calm down and do it all again.
+- If you were to come to the set of Alias, you'd know how silly we all are. And I mean, silly.
+- We, some cast members and I, even went on a weekend trip together and spent the weekend at an inn, because we enjoy each other's company so much, and it was so cool.
+- Thank goodness I started getting movie roles and then television shows came along. So I was very fortunate to be able to do all three and I like all of them.
+- Sometimes his methods are questionable, and even his morals are questionable, but his intention is always to protect Sydney. So in that way I think he's a good parent.
+- In our show you have to pay attention and know what happened before. I think it's very intelligent entertainment. It makes demands of viewers that a lot of shows don't.
+- I'm very serious about acting.
+- And when I go to see plays, I marvel at how people can do that. I've done it all my life, but I still find it mystical.
+- I've been amazed that it's so popular with people. But it's been fantastic. People are very excited when I walk into a place and they recognize me from the series.
+- The hardest thing for me is not to keep laughing. Jennifer particularly is like a clown.
+- What I realized was how difficult an hour show is and how miserable you can be if you're not happy doing it.
+- You have to find something there that relates to the characters and reality on some level.
+- I find that everything I do is demanding, like Jack Bristow is a complicated man and I do a lot of explaining in the show, it takes a lot of energy and concentration.
+- That's why, when Alias came along, I knew I'd be OK if the show was on for five or six years because the writing was so good and the creative team was so strong.
+- The crew loves working on the show, even though we have to work really hard. There's nobody in the show that's difficult. We really have a great group.
+- I believe that acting in any medium is the same thing, it's discovering the truth in where you are.
+- The most sinister aspect of Jack is his detachment, his ability to distance himself from his feelings.
+- It's about these people who are inextricably together for whatever reasons, and they happen to be in the spy world. It's about relationships, and the bottom line is, that's why you care.
+- The stage is where I feel most comfortable, and I miss it all the time.
+- Then I did one fight scene, and they said it looked good. Because I did it well enough, they've given me more.

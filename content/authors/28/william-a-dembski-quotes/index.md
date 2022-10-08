@@ -1,0 +1,28 @@
++++
+author = "William A. Dembski"
+title = "William A. Dembski Quotes"
+quotes_len = "22"
+description = "the best 22 William A. Dembski Quotes"
++++
+- The problem with merely writing so that you can be understood is that the wrong people, in advancing their agendas, are only too ready to misunderstand you. Writing so that you cannot be misunderstood anticipates and preempts those who would willfully distort what you are trying to say.
+- Even with the right political climate, would the wrong people refrain from doing the wrong thing?
+- The problem of good as it faces the atheist is this: Nature, which is the nuts-and-bolts reality for the atheist, has no values and thus can offer no grounding for good and evil. Values on the atheist view are subjective and contingent.
+- Government has a legitimate sphere of operation. The problem arises when that sphere continually expands, encompassing areas where government lacks legitimacy.
+- As a biblical inerrantist, I believe that what the Bible teaches is true and bow to the text, including its teaching about the Flood and its universality.
+- The atheist is cheating whenever he makes a moral judgment, acting as though it has an objective reference, when his philosophy in fact precludes it.
+- There is an immediate payoff to intelligent design: it destroys the atheistic legacy of Darwinian evolution. Intelligent design makes it impossible to be an intellectually fulfilled atheist.
+- I'm not saying that atheists can't act morally or have moral knowledge. But when I ascribe virtue to an atheist, it's as a theist who sees the atheist as conforming to objective moral values. The atheist, by contrast, has no such basis for morality. And yet all moral judgments require a basis for morality, some standard of right and wrong.
+- Wrong people are wrong not because of their faults but because of their presumed virtues.
+- If you have no authority to legislate my freedoms, then I'm truly free, at least from you.
+- Give us detailed, testable, mechanistic accounts for the origin of life, the origin of the genetic code, the origin of ubiquitous bio macromolecules and assemblages like the ribosome, and the origin of molecular machines like the bacterial flagellum, and intelligent design will die a quick and painless death.
+- Because government has tremendous power, it attracts people who are eager to game the system, obtaining by force of law what they could never achieve through consensus.
+- The wrong people will do everything in their power to guarantee that the wrong political climate will continue. It seems, then, that the wrong people ensure the wrong political climate and the wrong political climate ensures the wrong people. How then to break free of this vicious circle?
+- Without a unified political climate of opinion, there is little or no political profit in doing the right thing.
+- Precisely because intelligent design does not turn the study of biological origins into a Bible-science controversy, intelligent design is a position around which Christians of all stripes can unite.
+- In God becoming human in Jesus Christ, God has established solidarity with the human condition.
+- Wrong people are wrong because they use their freedom to deny it to others.
+- Intelligent design, unlike creationism, is a science in its own right and can stand on its own feet.
+- Because we don't see the evil destroyed now and thus experience the suffering that evil inevitably inflicts, we are tempted to doubt God's existence and goodness.
+- As long as the wrong people hold power, how can the right political climate even arise?
+- Natural selection certainly operates. It explains how bacteria will gain antibiotic resistance; it will explain how insects get insecticide resistance, but it doesn't explain how you get bacteria or insects in the first place.
+- Intelligent design is a modest position theologically and philosophically. It attributes the complexity and diversity of life to intelligence, but does not identify that intelligence with the God of any religious faith or philosophical system.

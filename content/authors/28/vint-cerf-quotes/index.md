@@ -1,0 +1,123 @@
++++
+author = "Vint Cerf"
+title = "Vint Cerf Quotes"
+quotes_len = "117"
+description = "the best 117 Vint Cerf Quotes"
++++
+- It doesn't matter if it's a wireless or wired network. I think network management can be introduced that is equally sensible.
+- I wore a coat and tie all through high school: my way of being rebellious in the late 1950s.
+- It may seem like sort of a waste of time to play 'World of Warcraft' with your son. But you're actually interacting with each other. You're solving problems. They may seem like simple problems, but you're solving them. You're posed with challenges that you have to overcome. You're on a quest to gain certain capabilities.
+- In 1970, there was a single telephone company in the United States called AT&T, and its technology was called circuit switching, and that was all any telecom engineer worried about.
+- At some point, you can't lift this boulder with just your own strength. And if you find that you need to move bigger and bigger boulders up hills, you will need more and more help.
+- There was something amazingly enticing about programming.
+- I think exploring the Internet's - and the Web's - ability to facilitate personal linkages is remarkable; and expect to see additional social networking applications and services emerge.
+- The net's future is far from assured, and history offers much warning. Within a few decades of Gutenberg's creation, princes and priests moved to restrict the right to print books.
+- To be honest, I joined Facebook as an experiment. I accepted all invitations just to see how many people would ask to be 'friends' - it quickly overwhelmed my time to process even the invitations and requests, let alone to actually go there and do anything.
+- I want more Internet. I want every one of the 6 billion people on the planet to be able to connect to the Internet - I think they will add things to it that will really benefit us all.
+- When I first joined Google in October of 2005, I was warned that I shouldn't be offended if people were doing their e-mails while a meeting was going on.
+- Improving the Internet is just one means, albeit an important one, by which to improve the human condition. It must be done with an appreciation for the civil and human rights that deserve protection - without pretending that access itself is such a right.
+- Google Apps for Education is a suite of applications intended to be helpful to higher level educational institutions, but in the long run, I think Google has a role to play in helping to assemble relevant content for classroom use.
+- In the earliest days, this was a project I worked on with great passion because I wanted to solve the Defense Department's problem: it did not want proprietary networking and it didn't want to be confined to a single network technology.
+- In a small company, you often see a lot more of what goes on in a broader range of things. And that's good.
+- I am annoyed by people that send messages via FaceBook because I get an e-mail telling me there is a message on FaceBook - so I end up processing two messages for every one sent.
+- Given that my title at Google is Chief Internet Evangelist, I feel like there is this great challenge before me because we have three billion users, and there are seven billion people in the world.
+- Like almost every major infrastructure, the Internet can be abused and its users harmed. We must, however, take great care that the cure for these ills does not do more harm than good. The benefits of the open and accessible Internet are nearly incalculable, and their loss would wreak significant social and economic damage.
+- I expect to see a lot of household appliances on the Net by 2010, as well as autos and other mobile devices.
+- The computer would do anything you programmed it to do.
+- There's an old maxim that says, 'Things that work persist,' which is why there's still Cobol floating around.
+- History is rife with examples of governments taking actions to 'protect' their citizens from harm by controlling access to information and inhibiting freedom of expression and other freedoms outlined in The Universal Declaration of Human Rights. We must make sure, collectively, that the Internet avoids a similar fate.
+- I was very nervous about going up to teach at Stanford and very nervous even about going to ARPA.
+- The Internet has introduced an enormously accessible and egalitarian platform for creating, sharing and obtaining information on a global scale. As a result, we have new ways to allow people to exercise their human and civil rights.
+- By 1988, I'm seeing this commercial phenomenon beginning to show up. Hardware makers are selling routers to universities so they can build up their campus networks. So I remember thinking, 'Well, how are we going to get this in the hands of the general public?' There were no public Internet services at that point.
+- There is a project that's underway called the interplanetary Internet. It's in operation between Earth and Mars. It's operating on the International Space Station. It's part of the spacecraft that's in orbit around the Sun that's rendezvoused with two planets.
+- One thing that I can tell you that we have not done very well is to build in broadcast capability into the network, and we don't take advantage of broadcast radio.
+- Their Internet usage is growing very rapidly, and even they can do the math: If everyone in China needed an IPv4 address - just one - this country would use up one third of the entire public IP address space.
+- There needs to be some regime that is overseeing access to broadband to make sure we have openess; otherwise, there is a risk it won't be open anymore. We spent quite a bit of time with Verizon policy people in addition to participating in a multilateral discussion with the Federal Communications Commission.
+- The Internet is literally a network of networks.
+- The three-piece suit has become sort of my trademark. You don't see them much anymore. It has several benefits: You may be overdressed on some occasions, but you can manage to fit into a huge range of circumstances.
+- Free is not going to go away. Either the advertising model will still work, or there will still be literally hundreds of millions of people who want to put their information on the Net and want people to have access to it.
+- 85% of all video we watch is pre-recorded, so you can set your system to download it all the time. You're still going to need live television for certain things - like news, sporting events and emergencies - but increasingly it is going to be almost like the iPod, where you download content to look at later.
+- But what we all have to learn is that we can't do everything ourselves.
+- I used to tell jokes about Internet-enabled lightbulbs. I can't tell jokes about it anymore - there already is an Internet-connected lightbulb.
+- Sleep is a waste of time.
+- It's the Industrial Revolution and the growth of urban concentrations that led to a sense of anonymity.
+- There's nothing special about wireless networks except that wireless capacity is sometimes less than what you can get, for example, from optical fiber.
+- I can't say I'm particularly happy about all the spam and the viruses and the equivalent that we see on the Net, but I think technology can deal with many of the problems that we're now seeing, whether it's filtering or whatever, and laws may help a lot.
+- Allowing a handful of broadband carriers to determine what people see and do online would fundamentally undermine the features that have made the Internet such a success, and could permanently compromise the Internet as a platform for the free exchange of information, commerce, and ideas.
+- There is an underlying, fundamental reliance on the Internet, which continues to grow in the number of users, country penetration and both fixed and wireless broadband access.
+- The idea that Google, Yahoo, and eBay are getting a free ride is absolutely unfair criticism. We have to build out our own infrastructure. And we have to inter-connect to the public Internet.
+- One thing we know for sure is that the Web is a collaborative medium unlike any we've ever had before. We see people working together, playing together, interacting in social settings using these media. We hope that will emerge as the new tool for education.
+- While many governments are committed to maintaining flexible regimes for fast-moving Internet technologies, some others have been quite explicit about their desire to put a single U.N. or other intergovernmental body in control of the Net.
+- Some people argue we should solve all the problems on Earth before going off the planet, but that's like telling Lewis and Clark to stay put until the rest of the East was settled. No way.
+- So, for me, working with larger companies has often been very satisfying, precisely because of the ability of bringing critical mass to bear on a given effort.
+- There is an odd mix of permeability and impermeability in the Net. You won't be able to communicate with everyone, and not every application will be accessible to everyone.
+- You don't have to know how to build an automobile or a television set or a laptop to know how to use it.
+- There is a high bar for something to be considered a human right. Loosely put, it must be among the things we as humans need in order to lead healthy, meaningful lives, like freedom from torture or freedom of conscience.
+- In a town of 3,000 people, there is no privacy. Everybody knows what everybody is doing.
+- The Internet lives where anyone can access it.
+- The government has a responsibility to protect society, to help maintain society. That's why we have laws... The rule of law creates a set of standards for our behavior.
+- We have already discovered how quickly we become dependent on the Internet and its applications for business, government and research, so it is not surprising that we are finding that we can apply this technology to enable or facilitate our social interactions as well.
+- The Internet is a really big tent. In theory, it can support the full range of models, one of which is, 'Here's my information and I'm happy you can use it,' and the other one is, 'Here's the information and you can't have it unless you pay me for it,' and perhaps some things in-between. There is a full spectrum of models.
+- What would happen if our clothes were Internet-enabled? Can you imagine if you lost a sock? You could send out a search, and sock No. 3117 would respond that it's under the couch in the living room.
+- In the larger companies, you have this tendency to get top-down direction.
+- Although the FCC has tried to introduce net neutrality rules to avoid abusive practices like favoring your own services over others, they have struggled because there has been more than one court case in which it was asserted the FCC didn't have the authority to punish ISPs for abusing their control over the broadband channel.
+- We will have more Internet, larger numbers of users, more mobile access, more speed, more things online and more appliances we can control over the Internet.
+- The internet has become one of the motors of the 21st century economy, allowing all of us to reach a global audience at a click of a mouse and creating hundreds of thousands of businesses and millions of jobs.
+- Commercialization of assets off the planet would mutually reinforce the growth of interplanetary communication.
+- Information flow is what the Internet is about. Information sharing is power. If you don't share your ideas, smart people can't do anything about them, and you'll remain anonymous and powerless.
+- The Internet browser is the most susceptible to viruses. The browser is naive about downloading and executing software. Google is trying to help by releasing the Chrome browser as open source.
+- Privacy may actually be an anomaly.
+- Choosing a single most important development is incredibly hard to do because a lot of different things had to happen before the Internet could be deployed in the fashion it is today.
+- The idea that you can somehow erase the Internet is silly.
+- We all know the Internet didn't explode until it became a commercial enterprise. Space communication will probably have the same characteristic.
+- We've never lived in an environment in which it has been so easy to capture information and share it. That fact that it is digital and easy to transmit exacerbates that. I don't know that we know yet what social norms we wish to adopt.
+- Remember, 'governance' is a big word that includes human rights, freedom of speech, economic transactions on a worldwide basis - it touches everything. It's everywhere, and that's why Internet governance is Topic A in many corners.
+- No matter what you do, any country in the world is going to have the ability to set its own rules internally. Any country in the world can pull the plug. It's not a question of technical issues, it's not a question of right or wrong, it's not a question of whether global Internet governance is right or wrong. It's just with us.
+- Several authoritarian regimes reportedly propose to ban anonymity from the web, making it easier to find and arrest dissidents. At Google, we see and feel the dangers of the government-led net crackdown. We operate in about 150 countries around the globe.
+- What is special about VOIP is that it's just another thing you can do on the Internet, whereas it is the only thing - or nearly the only thing with the exception of the dial-up modem and fax - that you can do on the public switched telephone network.
+- The more we can organize, find and manage information, the more effectively we can function in our modern world.
+- The bottom-up, loosely-coupled, bilateral and multi-stakeholder practices that have created the network of networks we call the Internet allow for a broad range of business models.
+- Yet in all those cases I finally steeled myself to seize the opportunity, and find a way to muddle through and eventually conclude that I had, in fact, chosen the right path, as risky as it seemed at the time.
+- Writing software is a very intense, very personal thing. You have to have time to work your way through it, to understand it. Then debug it.
+- You don't have to be young to learn about technology. You have to feel young.
+- There has been a substitution of ideology for fact and scientific and engineering data in this administration.
+- I just am a huge cheerleader for getting kids interested in science and technology.
+- Henry Kissinger once told me he was very concerned about the Internet's impact on people's ability to absorb information in a concentrated way, because we've become accustomed to looking up something, getting a snippet and being satisfied with that - as opposed to reading through and considering a weighty tome that goes into great depth.
+- We live in a very complex world.
+- We had no idea that this would turn into a global and public infrastructure.
+- The Internet is brittle and fragile and too easy to take down. It's a conduit for criminal activity. We need international treaties to prosecute the bad guys, but we don't have them.
+- I'm projecting somewhere between 100 million and 200 million computers on the Net by the end of December 2000, and about 300 million users by that same time.
+- When I joined Google, they asked me what title I wanted. I said, 'What about archduke?' They said, 'Well, that didn't meet our nomenclature. Why don't you be our Chief Internet Evangelist?' This was in 2005.
+- In 1973, the only cryptographic technology we could get our hands on was classified.
+- Virtually any appliance is going to be online. Appliances will talk to each other and to the power-generation system. Our appliances will pay attention to our preferences.
+- Yet we still see continuous reports of bugs.
+- The immediacy of the mobile changes it from what we're accustomed to in the personal computing world to something that's instantaneous... What's interesting and powerful about the mobile environment is that it's connected to services on the Internet. This augments both platforms.
+- Today we have 1 billion users on the Net. By 2010 we will have maybe 2 billion.
+- There's a tremendous amount of energy in Japan and, increasingly, in China.
+- You should know that I've been hearing-impaired, not quite since birth, but I've been wearing hearing aids since I was 13, so I'm very conscious of the difficulty of voice communication.
+- Sorting through what social conventions we ought to adopt for the Internet is a pretty tricky and complicated topic. I think we are just going to live through a lot of these issues until we discover what social norms make sense.
+- My reaction to a lot of the current situation that we're in is based in part on a serious concern that the present administration's course ignores reality.
+- The Internet of Things tell us that a lot of computer-enabled appliances and devices are going to become part of this system, too: appliances that you use around the house, that you use in your office, that you carry around with yourself or in the car. That's the Internet of Things that's coming.
+- Movie distribution may very well have migrated fully to digital form by then, making a huge dent in the need to print film and physically distribute content.
+- Written communication is a tremendous help for me, and so when electronic mail was invented in '71, I got very excited about it, thinking well, gee, the deaf community could really use this, or the hard-of-hearing community as well.
+- Internet and government is Topic A in every nation, all around the world. There is the question of getting the Internet built. That involves persuading government to have regulatory policies. It involves new technology to bring the Internet to rural places.
+- First of all, in terms of investment in Internet-related developments, venture capitalists - once burned - are now very cautious and are investing in areas that actually make business sense.
+- We never, ever in the history of mankind have had access to so much information so quickly and so easily.
+- The purpose behind terrorism is to instill fear in people - the fear that electrical power, for instance, will be taken away or the transportation system will be taken down.
+- It's important that the adults appreciate that young people are capable of doing really astounding work.
+- Although I've had several major career changes, I was extremely hesitant about making some of them.
+- The idea was that you could grow a system like the Internet one network at a time and then interconnect them. In some sense, the most important thing was the invention of the architecture protocols that enabled the Internet.
+- When I helped to develop the open standards that computers use to communicate with one another across the Net, I hoped for but could not predict how it would blossom and how much human ingenuity it would unleash.
+- Will we shoot virtually at each other over the Internet? Probably not. On the other hand, there may be wars fought about the Internet.
+- Instant messaging and chat rooms have basically created a level playing field for deaf people.
+- For systems in which you already have a lot of hardware and software, change is difficult. That's why apps are so popular.
+- Governments should look at investment in broadband as a national priority on the grounds that having broadband access for virtually everyone creates opportunities for the development of the economy that wouldn't otherwise be available.
+- At the roots, people are still people. That's why Shakespeare is so popular no matter what the language.
+- The post office doesn't guarantee delivery, but it tries really hard. It's called best efforts communication. If you put two postcards in the post-box, they don't necessarily come out then in the same order that you put them in. So, that means that there's potentially disorder with your delivery, and that's also true in the Internet.
+- It seems pretty clear that the Internet has an important economic role to play for China as it reaches out to the rest of the world.
+- One of my favorite books is 'The Swiss Family Robinson.' The reason is, I'm fascinated by the postapocalyptic recovery. What do we do in a disaster? How do we make do?
+- Energy, health care and education are just three examples of areas in which information and information management are critically important. How are we using our energy? What appliances in homes or business are consuming the most energy? When do they consume it? Can the load be shifted? How efficient are these devices?
+- While the United States has never decreed that everyone has a 'right' to a telephone, we have come close to this with the notion of 'universal service' - the idea that telephone service (and electricity, and now broadband Internet) must be available, even in the most remote regions of the country.
+- The big deal about the Internet design was you could have an arbitrary large number of networks so that they would all work together.
+- The first commercial routers came out about 1986, and services came in 1987.
+- With Internet technology you can capture a photo, a quote, or an article, store it locally and upload it into the Net more than once, if you wish, to multiple sites. Can you imagine then forcing the search engines to somehow not index that information?

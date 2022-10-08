@@ -1,0 +1,37 @@
++++
+author = "Valentina Tereshkova"
+title = "Valentina Tereshkova Quotes"
+quotes_len = "31"
+description = "the best 31 Valentina Tereshkova Quotes"
++++
+- The missing toothbrush was nothing compared with the fact that the spacecraft was orientated to ascend, not descend. I would have gone up and up instead of going back down to the ground.
+- After being once in space, I was keen to go back there. But it didn't happen.
+- You don't think about the danger. The spaceship becomes your home.
+- Of course, it's a dream to go to Mars. I want to find out whether there was life there or not. And if there was, then why did it die out? What sort of catastrophe happened?
+- I see Vostok-6 quite often in the centre for cosmonaut training. And every time I pass it by, I stroke it and say, 'My lovely one, my best and most beautiful friend, my best and most beautiful man.'
+- A bird cannot fly with one wing only. Human space flight cannot develop any further without the active participation of women.
+- I love Star City - it is my home.
+- We didn't have rest days or weekends because we had to get ready as fast as possible, so we could beat the Americans, who were also racing to send a woman into space.
+- I never aimed to be on television or in the press. We all have a personal life, and being a public figure disrupts that.
+- I think Star City should have Unesco World Heritage status. It will need to be adapted a little bit and made more glamorous than it looks now, but it should definitely be protected for the future.
+- To tell her that I joined the parachute club was too hard for me. I didn't want to trouble her; besides, I was not completely sure about the success of my new adventure.
+- Russia is still the leader in world space exploration. But its position of leader involves great responsibility - we have no right to lag behind. We can and we must move constantly forward.
+- On Earth, men and women are taking the same risks. Why shouldn't we be taking the same risks in space?
+- They forbade me from flying, despite all my protests and arguments. After being once in space, I was desperately keen to go back there. But it didn't happen.
+- Anyone who has spent any time in space will love it for the rest of their lives. I achieved my childhood dream of the sky.
+- I am deeply grieved by the loss of the crew of Columbia. I express my sincere condolences to the families and friends of the astronauts. I believe that their names will remain as the bright sparkling stars in the universe and will light the way for those who will follow them on the difficult roads of space exploration.
+- Once you've been in space, you appreciate how small and fragile the Earth is.
+- One cannot deny the great role women have played in the world community. My flight was yet another impetus to continue this female contribution.
+- Hey sky, take off your hat, I'm on my way!
+- The ideals of the party were close to me, and I have tried to adhere to those principles all my life. In essence, they are the same as in the Ten Commandments in the Bible. I will never change my convictions.
+- I would not say that female cosmonauts are not welcomed in the Russian space program. I must say, however, that all spaceflight hardware, including spacesuits and spacecraft comfort assuring systems, were designed mostly by men and for men.
+- There was a lake beneath me, but the big, heavy parachute which had to be opened two miles above the ground couldn't be steered. My first thought was, 'Lord, they send just one woman into space, and she has to end up in the water.'
+- I would enjoy flying to Mars. This was the dream of the first cosmonauts. I wish I could realize it! I am ready to fly without coming back.
+- I felt fine after 24 hours and asked the state commission to prolong my stay in space to three days. And I carried out the entire schedule. Could I have done that if I had been half-dead?
+- I am very resourceful, as any woman would be.
+- It was very difficult to control the descent. At a height of seven kilometres, I catapulted out of my capsule and parachuted down to Earth. I was very familiar with parachutes because I was a sky diver before.
+- More women should actively participate in space flight. There are many well educated women working in the space industry; they are very good candidates.
+- I am convinced that the modular structure of the Mir will be the main trend in manned orbital stations development in the next century.
+- If women can be railroad workers in Russia, why can't they fly in space?
+- Cosmonauts can keep their word like men and women - particularly women.
+- It doesn't matter what country or what political system you are from. Space brings you together.

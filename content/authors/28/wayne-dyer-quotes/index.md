@@ -1,0 +1,186 @@
++++
+author = "Wayne Dyer"
+title = "Wayne Dyer Quotes"
+quotes_len = "180"
+description = "the best 180 Wayne Dyer Quotes"
++++
+- Self-worth comes from one thing - thinking that you are worthy.
+- When you're just like everybody else, you've nothing to offer other than your conformity.
+- Abundance is not something we acquire. It is something we tune into.
+- I don't believe in 'thinking' old. Although I've transitioned through many bodies - a baby, toddler, child, teen, young adult, mid-life and older adult - my spirit is unchanged. I support my body with exercise, my mind with reading and writing, and my spirit with the knowing that I am part of the Divine source of all life.
+- The willingness and ability to live fully in the now eludes many people. While eating your appetizer, don't be concerned with dessert.
+- I don't write the books. God writes the books and delivers the speeches.
+- In a universe that's an intelligent system with a divine creative force supporting it, there simply can be no accidents. As tough as it is to acknowledge, you had to go through what you went through in order to get to where you are today, and the evidence is that you did.
+- A mind at peace, a mind centered and not focused on harming others, is stronger than any physical force in the universe.
+- A lot of people have a sense-of-entitlement mentality that somebody else ought to do these things for them. People are mad at the government for not getting jobs for them. I don't understand why it's the government's responsibility.
+- Miracles come in moments. Be ready and willing.
+- You do indeed have a past, but not now! And, yes, you have a future, but not now! You can consume your now with thoughts of 'then' and 'maybe,' but that will keep you from the inner peace you could experience.
+- Trust and value your own divinity as well as your connection to nature. Seeing God's work everywhere will be your reward.
+- Transformation literally means going beyond your form.
+- One of the huge imbalances in life is the disparity between your daily existence, with its routines and habits, and the dream you have within yourself of some extraordinarily satisfying way of living.
+- My father, who was jailed for stealing on more than one occasion, just abandoned his fatherly responsibilities and disappeared. I grew up working from the time I was nine years of age. Money was a big issue everywhere I lived.
+- You'll see it when you believe it.
+- There is nothing your highest self wants more than peace. This peace makes you feel worthy of all of the richest blessings of the universe, and when you radiate this out into the world, it is returned to you without fail.
+- Go for it now. The future is promised to no one.
+- How people treat you is their karma; how you react is yours.
+- We've been programmed, from the time that we were very, very little, about what we can't do - about what is impossible.
+- Everything you need you already have. You are complete right now, you are a whole, total person, not an apprentice person on the way to someplace else. Your completeness must be understood by you and experienced in your thoughts as your own personal reality.
+- There's nothing wrong with anger provided you use it constructively.
+- Highly functioning self-actualized people simply never imagine what it is that they don't wish to have as their reality.
+- By staying focused on what I intend to create, by believing that the universe is all-providing, and by knowing that I'm worthy of the unlimited beneficence of the Source of being, I just keep attracting prosperity to me.
+- Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.
+- There is no way to prosperity, prosperity is the way.
+- I don't write with a machine. I write with a pen and a paper, which is what is most comfortable for me.
+- I spent years studying the teachings of Patanjali, and he reminded us several thousand years ago that when we are steadfast - which means that we never slip in our abstention of thoughts of harm directed toward others - then all living creatures cease to feel enmity in our presence.
+- I think and that is all that I am.
+- The presence of passion within you is the greatest gift you can receive. Treat it as a miracle.
+- Whenever you're going through a tough time, generally, you become more compassionate, you become softer, you become more thoughtful, kinder. These are all spiritual qualities that will help you to align yourself with God and God consciousness rather than with a split fear-based consciousness.
+- Live one day at a time emphasizing ethics rather than rules.
+- Within all of us is a divine capacity to manifest and attract all that we need and desire.
+- Water is the softest of all things, yet it is the most powerful. The ocean patiently allows all things to flow into it. It is always flexible. The Tao is not about grasping, but allowing, like water.
+- When I chased after money, I never had enough. When I got my life on purpose and focused on giving of myself and everything that arrived into my life, then I was prosperous.
+- Everything you are against weakens you. Everything you are for empowers you.
+- Judgements prevent us from seeing the good that lies beyond appearances.
+- Relationships based on obligation lack dignity.
+- My enthusiasm seems to cause my world to endlessly offer me cooperative, co-creating experiences. I'm willing and I'm eager, and not just about my writing - I feel the same way about staying in shape, enjoying my family, giving a lecture, or whatever it may be.
+- The last suit that you wear, you don't need any pockets.
+- When you judge another, you do not define them, you define yourself.
+- I cannot always control what goes on outside. But I can always control what goes on inside.
+- What comes out when life squeezes you? When someone hurts or offends you? If anger, pain and fear come out of you, it's because that's what's inside.
+- When your higher self is present, it always promotes peace.
+- If life is a checker game, someone else is moving the pieces. It isn't us. Don't be surprised by amazing coincidences. There are no accidents. Consider, as I learned to do, the incredible interconnectedness of all of life.
+- Practice radical humility. Take no credit for your talents, intellectual abilities, aptitudes, or proficiencies. Be in a state of awe and bewilderment.
+- I've learned over the years that when I go to that place of passion within me, there's no force in the universe that can interfere with my completing a project.
+- You can either be a host to God, or a hostage to your ego. It's your call.
+- Our lives are a sum total of the choices we have made.
+- In my entire life, any time I've ever lost something, I've gotten something even better going around the next corner. It's like one door closes and another door opens. As long as I can walk through the produce section in every grocery store in this country and eat the grapes that they're going to throw away, I know I can be fine.
+- An artist or a creative person of any kind goes about their work because it's their path, it's what excites them, it's what aligns their soul with who they truly are, who they showed up to be.
+- The truth is that there is no actual stress or anxiety in the world; it's your thoughts that create these false beliefs. You can't package stress, touch it, or see it. There are only people engaged in stressful thinking.
+- Our intention creates our reality.
+- I have always marched to my own beat, and most frequently, it was inconsistent not only with my own immediate family, but with my culture as well.
+- As I followed my dream - stayed in-Spirit, that is, inspired - I made more money in the first year after I gave up my employment than I had made in the previous 35 years of my life.
+- I am particularly drawn to the form of meditation called Japa. I know it works.
+- When you are spiritually connected, you are not looking for occasions to be offended, and you are not judging and labeling others. You are in a state of grace in which you know you are connected to God and thus free from the effects of anyone or anything external to yourself.
+- Genius is a potential that lives within you and every other human being. You have many moments of genius in your lifetime. These are the times when you have a uniquely brilliant idea and implement it even if only you are aware of how fantastic it is.
+- Your life is like a play with several acts. Some of the characters who enter have short roles to play, others, much larger. Some are villains and others are good guys. But all of them are necessary; otherwise, they wouldn't be in the play. Embrace them all, and move on to the next act.
+- Take the complications, rules, shoulds, musts, have tos, and so on out of your life. By uncomplicating your life and removing the trivial pursuits that occupy so much of it, you open a channel for the genius within you to emerge.
+- I grew up in the east side of Detroit in an area where there was very little, except for a lot of scarcity, poverty and hunger. I never woke up saying, 'I'm an orphan again today, isn't this terrible? Poor me.'
+- Meditation is a vital practice to access conscious contact with your highest self.
+- If you change the way you look at things, the things you look at change.
+- Anything you really want, you can attain, if you really go after it.
+- It's always interesting about God because it's like all of the religions in the world say that they pray to the same God, and yet they ask that same one God to divide itself up and agree with this one and fight against that one.
+- Only the insecure strive for security.
+- When you face a 'performance' that might provoke the 'I'm scared' response, choose love and approach your opportunity as a chance to dance with God. It's more fun than 'Dancing with the Stars!'
+- Never, and I mean never, allow anyone else's ideas of who you can or can't become sully your dream or pollute your imagination. This is your territory, and a 'Keep Out' sign is a great thing to erect at all entrances to your imagination.
+- Faith is the complete reliance on the power and goodness of Spirit and the firm belief that you are always connected to this goodness. Always affirm your faith and not your doubt.
+- Keep in mind that no matter how perfectly you get your life in order, you will never be rid of all your problems. Problems are a way of life, always have been, always will be. But how you elect to view those problems is all up to you.
+- What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.
+- You are important enough to ask and you are blessed enough to receive back.
+- Van Gogh never made a penny in his entire lifetime. He painted because it was his soul, his excitement. It was what aligned him with his Source of being. It's the same with me and writing.
+- Wanting to feel good is synonymous with wanting to feel God.
+- You can't choose up sides on a round world.
+- There is not a separate God for each person. There is one universal intelligence flowing through all of us.
+- I always joke that my kids' favorite holiday is Father's Day. They love the way I celebrate the occasion by writing each of them a thank-you letter and a generous check. It's my way of letting them know how much I appreciate the great pleasure and privilege of being their dad.
+- Strong emotions such as passion and bliss are indications that you're connected to Spirit, or 'inspired,' if you will. When you're inspired, you activate dormant forces, and the abundance you seek in any form comes streaming into your life.
+- The child inside of you knows how to take things as they come, how to deal most effectively and happily with everything and everyone it encounters on this planet. If you can recapture that childlike essence of your being, you can stay 'forever young at heart.'
+- Your Highest Self is not just an idea that sounds lofty and spiritual. It is a way of being. It is the very first principle that you must come to understand and embrace as you move toward attracting to you that which you want and need for this parenthesis in eternity that you know as your life.
+- You leave old habits behind by starting out with the thought, 'I release the need for this in my life'.
+- Maxim for life: You get treated in life the way you teach people to treat you.
+- I write because writing is something that I have to do. And it doesn't matter whether people like it or not. When I write, I feel the pressure and anxiety that come with taking an empty piece of paper and trying to fill it with something from your own consciousness.
+- Your children will see what you're all about by what you live rather than what you say.
+- A great hallmark of mental wellness is the ability to be in the present moment, fully and with no thoughts of being elsewhere.
+- My own eight children all march to the beat of their inner music, and in some cases, it is definitely far away from what I hear. I've had to honor their instincts and their choices, and merely guided them out of harm's way until they could be their own guides.
+- Remind yourself that the greatest technique for bringing peace into your life is to always choose being kind when you have a choice between being right or being kind.
+- Know that any and all thoughts that you have regarding your own skills, interests, and inclinations are valid. To reinforce the validity of your thoughts, keep them private. Tell yourself that they're between you and God.
+- Give yourself a gift of five minutes of contemplation in awe of everything you see around you. Go outside and turn your attention to the many miracles around you. This five-minute-a-day regimen of appreciation and gratitude will help you to focus your life in awe.
+- I have observed that society in general always seems to honor its living conformists and its dead troublemakers.
+- Stop acting as if life is a rehearsal. Live this day as if it were your last. The past is over and gone. The future is not guaranteed.
+- People who want the most approval get the least and people who need approval the least get the most.
+- I know that I came into the world with what I call 'big dharma' - with a blueprint to teach self-reliance and a positive loving approach to large numbers of people all over the globe. I am ever so grateful for the circumstances of my life that allowed me to be pretty much left alone and to develop as I was so intended in this incarnation.
+- The child in you, like all children, loves to laugh, to be around people who can laugh at themselves and life. Children instinctively know that the more laughter we have in our lives, the better.
+- Thoughts are mental energy; they're the currency that you have to attract what you desire. Learn to stop spending that currency on thoughts you don't want.
+- I never sell a book. I sell myself. And the way to sell yourself is to be an instrument of love.
+- One of the greatest lessons of my own life was learning to turn the inner rampage of hatred and anger toward my own father for his reprehensible behavior and abandonment of his family into an inner reaction more closely aligned with God and God-realized love.
+- The ego is only an illusion, but a very influential one. Letting the ego-illusion become your identity can prevent you from knowing your true self. Ego, the false idea of believing that you are what you have or what you do, is a backwards way of assessing and living life.
+- When you seek the presence of your creative Spirit and are filled with passion about virtually everything you undertake, you'll successfully remove the roadblocks from your life and enjoy the active presence of Spirit.
+- I was inspired to spend an entire year - my 65th year - reading, researching, and meditating on Lao-tzu's messages, practicing them and ultimately writing down these insights as I felt Lao-tzu wanted us to know them.
+- Needing to have things perfect is the surest way to immobilize yourself with frustration.
+- Successful people make money. It's not that people who make money become successful, but that successful people attract money. They bring success to what they do.
+- You are doomed to make choices. This is life's greatest paradox.
+- Having a mind that is open to everything and attached to nothing seems to me to be one of the most basic principles that you can adopt to contribute to individual and world peace.
+- Comfort and luxury are usually the chief requirements of life for your ego - its top priorities tend to be accumulations, achievements, and the approval of others.
+- Your body has space within you that cannot die.
+- It's never crowded along the extra mile.
+- If you are living out of a sense of obligation you are slave.
+- The essential lesson I've learned in life is to just be yourself. Treasure the magnificent being that you are and recognize first and foremost you're not here as a human being only. You're a spiritual being having a human experience.
+- You cannot be lonely if you like the person you're alone with.
+- When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.
+- The components of anxiety, stress, fear, and anger do not exist independently of you in the world. They simply do not exist in the physical world, even though we talk about them as if they do.
+- Everything that's created comes out of silence. Your thoughts emerge from the nothingness of silence. Your words come out of this void. Your very essence emerged from emptiness. All creativity requires some stillness.
+- We only need so much to survive, but this world we live in tells us we need more stuff to be happy. We're inundated with our televisions, the Internet and advertising that says in order to be happy you have to have these things. When you say, 'Gimme, gimme, gimme,' you will always be in short supply.
+- Don't program yourself to break down as you age with thoughts that decline is inevitable. Time may be passing for our bodies, but because they house our ageless souls, we never need to see ourselves as old and infirm.
+- In times of need, God can come to you in a myriad of disguises.
+- When I was young, my brother David and I were farmed off to foster homes, and I spent time in orphanages. My father abandoned us. Here's the most important person in my life, and I never met him.
+- Fear is present when we forget that we are a part of God's divine design. Learning to experience authentic love means abandoning ego's insistence that you have much to fear and that you are in an unfriendly world. You can make the decision to be free from fear and doubt and return to the brilliant light of love that is always with you.
+- The Tao teaches us to let go of things. Use the 80/20 rule. If you take all your clothes, you'll find out that you only wear 20 percent of them. Take what you have and don't use and circulate it. Give stuff to people who truly need it. After all, we come into this world with nothing; we leave this world with nothing.
+- We are Divine enough to ask and we are important enough to receive.
+- The fact is that since you're a divine creation who originated in the world of Spirit, you have exactly the right amount of smarts to accomplish all that you need and want to do while you're here on earth. It's all perfect... and so are you!
+- Simply put, you believe that things or people make you unhappy, but this is not accurate. You make yourself unhappy.
+- The highest form of ignorance is when you reject something you don't know anything about.
+- Be a force of love as often as you can and turn away negative thoughts whenever you feel them surface.
+- Find joy and solace in the simple, and cultivate your utopia by feeling the Tao in every cubic inch of space.
+- Meditation is difficult for many people because their thoughts are always on some distant object or place. One form of meditation is to label the thought as it appears and then choose to let it go.
+- Begin noticing and being careful about keeping your imagination free of thoughts that you do not wish to materialize. Instead, initiate a practice of filling your creative thoughts to overflow with ideas and wishes that you fully intend to manifest. Honor your imaginings regardless of others seeing them as crazy or impossible.
+- Conflict cannot survive without your participation.
+- Our present moment is a mystery that we are part of. Here and now is where all the wonder of life lies hidden. And make no mistake about it, to strive to live completely in the present is to strive for what already is the case.
+- It is impossible for you to be angry and laugh at the same time. Anger and laughter are mutually exclusive and you have the power to choose either.
+- Writing is challenging work because it's so easy to get consumed with how it's going, what's going to happen to it, who's going to like or not like it. You want to get all of that stuff out of your head and just let the work flow.
+- My favorite affirmation when I feel stuck or out of sorts is: Whatever I need is already here, and it is all for my highest good. Jot this down and post it conspicuously throughout your home, on the dashboard of your car, at your office, on your microwave oven, and even in front of your toilets!
+- When I was an orphan, I was the richest kid at the orphanage because everyone else was complaining about not having anything. But when I discovered that you could get two cents for a Coca-Cola bottle, I would follow people around who were drinking it and ask them if they were almost through with it.
+- As the father of eight children, I'm quite convinced that each individual arrives here with their own unique personality. We are intended here from an invisible held of infinite potentiality. That which has no form, has no boundaries - it's the I that's in the ever-changing body.
+- What is the Tao Te Ching? Five hundred years before the birth of Jesus, a God-realized being named Lao-tzu in ancient China dictated 81 verses which are regarded by many as the ultimate commentary on the nature of existence.
+- The greatest service that can be offered to children who show personality traits or inclinations that might not be understood by the adults around them is to allow them to express their own unique humanity.
+- There's no substitute for the practice of meditation.
+- Everything is perfect in the universe - even your desire to improve it.
+- My earliest books focus almost entirely on psychological tools to help readers employ effective commonsense approaches to problems. There are no references to God or a higher self in the first 15 or so years of my publishing history.
+- Give yourself more opportunities for privacy, when you are not bombarded with duties and obligations. Privacy is not a rejection of those you love; it is your deserved respite for recharging your batteries.
+- Dream and you shall become.
+- Most of us are raised to believe we are ordinary. The anchor of the universe is present in every child. A parent only needs to guide and step aside and let them fulfill their dharma. Help children remember that they can do or be anything.
+- It makes no sense to worry about things you have no control over because there's nothing you can do about them, and why worry about things you do control? The activity of worrying keeps you immobilized.
+- Become slower in your journey through life. Practice yoga and meditation if you suffer from 'hurry sickness.' Become more introspective by visiting quiet places such as churches, museums, mountains and lakes. Give yourself permission to read at least one novel a month for pleasure.
+- Your timeless self does not age and has no fear of the future. Contemplate your physical self and all its possessions, and practice laughing peacefully at it all.
+- By taking responsibility for how you choose to respond to anything or anyone, you're aligning yourself with the beautiful dance of life.
+- Writing is like anything else - the more you do it, the better you get at it, the easier it comes, and the less concerned you'll be about what's going to happen to it, where it's going, what it sounds like, whether it's right.
+- One of the most important decisions you'll ever make is choosing the kind of universe you exist in: is it helpful and supportive or hostile and unsupportive? Your answer to this question will make all the difference in terms of how you live your life and what kind of Divine assistance you attract.
+- Deficiency motivation doesn't work. It will lead to a life-long pursuit of try to fix me. Learn to appreciate what you have and where and who you are.
+- I grew up in an era of pretty severe poverty. My parents weathered the Great Depression, and money was always a very big concern. I was weaned on a shortage mentality and placed in foster homes largely because there simply wasn't enough money to take care of the most basic of needs.
+- You aren't your work, your accomplishments, your possessions, your home, your family... your anything. You're a creation of your Source, dressed in a physical human body intended to experience and enjoy life on Earth.
+- Real magic in relationships means an absence of judgment of others.
+- Everything in the universe has a purpose. Indeed, the invisible intelligence that flows through everything in a purposeful fashion is also flowing through you.
+- To be more childlike, you don't have to give up being an adult. The fully integrated person is capable of being both an adult and a child simultaneously. Recapture the childlike feelings of wide-eyed excitement, spontaneous appreciation, cutting loose, and being full of awe and wonder at this magnificent universe.
+- There is no greater power in Heaven or on Earth than pure, unconditional love. The nature of the God force, the unseen intelligence in all things, which causes the material world and is the center of both the spiritual and physical plane, is best described as pure, unconditional love.
+- Your Highest Self only wants you to be at peace. It does not judge, compare, or demand that you defeat anyone or be better than anyone.
+- A person standing in front of an audience without enthusiasm for his subject and his actions is disconnected from his spirit.
+- I think that cancer is a life form that exists out there, and it exists in us. I think even the concept of healing is a spiritual principle that we have to really look at. I think the word itself is something we ought to get rid of, because it implies that there is illness - that there is something wrong.
+- The fact that you are willing to say, 'I do not understand, and it is fine,' is the greatest understanding you could exhibit.
+- I always tell audiences when I talk about writing: Writing isn't something I do; writing is something that I am. I am writing - it's just an expression of me.
+- 'Your Erroneous Zones' was the book that went over the top simply because I believed in it so much.
+- My purpose is to help people look at themselves and begin to shift their concepts. Remember, we are not our country, our race, or religion. We are eternal spirits. Seeing ourselves as spiritual beings without label is a way to transform the world and reach a sacred place for all of humanity.
+- I implore you to see the universe as a warm and supportive one because you'll look for evidence to support this view. When you anticipate that the universe is friendly, you see friendly people. You look for circumstances to work in your favor. You anticipate good fortune flowing into your life.
+- Doing what you love is the cornerstone of having abundance in your life.
+- You cannot always control what goes on outside. But you can always control what goes on inside.
+- People who truly understand what is meant by self-reliance know they must live their lives by ethics rather than rules.
+- You can never get enough of what you don't want.
+- In my own life I know that my state of cheerfulness is a reliable gauge of my level of spiritual enlightenment at that moment. The more cheerful, happy, contented, and satisfied I am feeling, the more aware I am of my deep connection to Spirit.
+- The Tao teaches us not to intervene and interfere. The things we love we have to learn to leave alone. And the people we love we have to learn to let them be.
+- Loving people live in a loving world. Hostile people live in a hostile world. Same world.
+- Freedom means you are unobstructed in living your life as you choose. Anything less is a form of slavery.
+- There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen.
+- Self-actualized people are independent of the good opinion of others.
+- Love is the ability and willingness to allow those that you care for to be what they choose for themselves without any insistence that they satisfy you.
+- If you have passion, there is no need for excuses because your enthusiasm will trump any negative reasoning you might come up with. Enthusiasm makes excuses a nonissue.
+- If you want to be a voice for peace in the world, begin by making peace a permanent condition of your own life.
+- Heaven is a state of mind, not a location, since Spirit is everywhere and in everything.
+- Remember that your imagination is yours and yours alone. You have the inborn capacity to use it in any way that you choose. No one else is responsible for your imagination. Anything placed in your imagination and held there ultimately becomes your reality.
+- The truth is that you can only come to know God when you give up the past and the future in your mind and merge totally into the now, because God is always here now.
+- Begin to see yourself as a soul with a body rather than a body with a soul.

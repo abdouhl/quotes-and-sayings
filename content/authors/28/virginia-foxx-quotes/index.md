@@ -1,0 +1,34 @@
++++
+author = "Virginia Foxx"
+title = "Virginia Foxx Quotes"
+quotes_len = "28"
+description = "the best 28 Virginia Foxx Quotes"
++++
+- China's idea of fair trade is government subsidies of its textile and apparel exports to the United States, currency manipulation, and forgiveness of loans by its government banks.
+- If we do not make tough decisions now, future Americans will have to make even tougher ones.
+- Liberty is not the unique right of Americans or even Westerners, but is mankind's right.
+- China is crippling our manufacturing economy and eliminating our jobs by illegally flooding our markets.
+- America does not fight for land, glory or riches.
+- The first misconception is that embryonic stem cell research is not legal. The fact is, embryonic stem cell research is completely legal. Research on embryonic stem cells has taken place for years.
+- Obesity among young Americans is a serious problem that can have serious ramifications in the long run.
+- A stem cell is essentially a blank cell capable of becoming another, more differentiated cell-type in the body, such as a skin cell, a muscle cell or a nerve cell.
+- I like the idea of giving workers control and putting their money into their personal accounts.
+- This is my first term. I was told it was going to be an exciting term, and a lot of things would be done, and I cannot think about something more exciting than save Social Security.
+- From a parent's right to know what their children are doing, to protecting citizens across the country from the growing threat of gang violence, the House Democrat leadership is simply out to lunch.
+- Republicans are pushing legislation forward that will improve the effectiveness of and bring more accountability to U.S. foreign assistance around the world and bring democracy even further into the light.
+- Challenging unfairly subsidized products, fighting counterfeit goods and intellectual property theft and holding countries accountable for an unfair currency regime will help American companies remain competitive.
+- A terrorist network that believes a nation so tested will fold under pressure of a few horrific acts may capture its attention, but will not achieve its submission.
+- The American flag is the most recognized symbol of freedom and democracy in the world.
+- The American people must not buy into the Democrat rhetoric.
+- Our brave soldiers and support personnel are engaged in a battle as important as any the United States has ever before waged, for the success of democracy in Iraq is a crucial test of the ideals this Nation was founded upon.
+- There is an abundance of misinformation, exaggeration, and blatant lies being spread by interest groups regarding the prospects for embryonic stem cell research.
+- So why in the world would anyone support the unethical, failed use of embryonic stem cells instead of the ethical, successful use of adult stem cells? Because they do not know the difference.
+- We remain in Iraq because we know that sometimes liberty needs some nursing before it can grow on its own.
+- Adult stem cells tend not to form tumors.
+- In the face of terrorism, a united front is one of the strongest weapons.
+- Democrats believe they can win at the ballot box by obstructing, and they would rather win the next election than move America forward.
+- In times of war, it is often best to look to our history to see how past generations of Americans dealt with the loss of their countrymen in just causes.
+- One poll shows that by 61 percent to 29 percent Americans under 40 say that Social Security needs to be fixed.
+- Democrat leaders are not only out of the American mainstream, but are also out of the Democratic mainstream.
+- The life expectancy is much longer today than it was when Social Security was created.
+- The number of kids affected by obesity has tripled since 1980, and this can be traced in large part to lack of exercise and a healthy diet.

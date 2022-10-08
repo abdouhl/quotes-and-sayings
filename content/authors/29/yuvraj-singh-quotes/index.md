@@ -1,0 +1,33 @@
++++
+author = "Yuvraj Singh"
+title = "Yuvraj Singh Quotes"
+quotes_len = "27"
+description = "the best 27 Yuvraj Singh Quotes"
++++
+- When one is young, aspiring to play for the country, doing well, any hindrance, like injury or being out of form, can be frustrating and a cause of annoyance or even anger. But once you have a close encounter with death, you realise the real value of life.
+- I have stopped having goals. If you have many goals, and you don't reach your goals, it is very upsetting, so I just think of keeping it simple, working hard and going and playing the game. But I know there are going to be very important series for Indian cricket. I will just try my best to be in my fittest form.
+- I have been in love, and it was a great feeling. It's when you are attracted to and feel affection for someone. You want to do things for that person. But only love isn't enough in a relationship - understanding and communication are very important aspects.
+- When I was going through my chemotherapy, I realized not many people are willing to talk about cancer, even after getting fully cured. Celebrities and educated people are also very protective and private about it. I still haven't understood why. I decided to fight my battle out in the public.
+- In sport, there is always room for improvement. Whenever I see my innings against the West Indies or Australia, I think, 'Maybe, I could have done this better or should have changed that.' See, cricket is a skill game, and one can always improve upon the impact one has on an innings.
+- When I was a kid, I used to try and hit every ball out of the ground. After playing one-day cricket and Test cricket, I never thought I'd get a chance to play like that again, ever. Twenty20 has given me the opportunity of playing like a kid again. I can just feel free and go out there and hit.
+- I am a great movie buff, and I devour films regularly.
+- People who don't know me, how will they know what I am really like? They will only see me on the field, only see me in an advertisement. People who know what kind of a guy I am will tell you I'm a very open person.
+- There were times when chemo would eat my body, but I told myself that I have the strength and courage to win and come out stronger.
+- I will only think of settling down after Salman Khan, the other most eligible bachelor, plans to settle down. We are eligible bachelors, but he's the rock star, so let him get married first; then I'll think about myself.
+- On the field, you have to be aggressive; you're thinking how to get the better of a situation. It's not that I don't laugh on the field. In fact, I think it's very important to laugh, especially when you are angry and aggressive, to just take the tension away, make the moment go away.
+- I have been accused of things that I have never done. I have been called a perpetrator of incidents while I was actually a peacemaker. I really don't know why. Yuvraj Singh isn't a party animal; he is just singled out. I don't know why.
+- The bad boy image is something given to me by the media. I have been in relationships earlier, even for as long as three years. I am not saying I am a saint. I am like any other guy, I guess. Unfortunately, every time I even meet a person, it is reported as a link-up.
+- From a spectator point of view, Test cricket is not important; people hardly watch Test cricket. But as a player, Tests are the real thing. You have to concentrate for five days. It's a lot of time, and not easy to do it day in and day out. If people have played 70-100 Tests, it's a lot of cricket, a lot of concentration and dedication.
+- I want someone who will love me for the person I am and not because of my status. It has to be someone who understands the pressure of playing for India. It will be very difficult to be with a person who has her own career because someone has to make sacrifices for the family and house.
+- I have worked really hard on my game, but I think my mother has been a real pillar of strength. She has prayed a lot, sacrificed a lot for me. You know, she hasn't seen me bat so far. When I am batting, she is praying... mothers are like that, aren't they?
+- The battle against cancer has made me strong. It's like winning a war! When I was diagnosed, I was told by doctors my kidney, liver and other organs could fail. It was tough. I didn't know if I could save my life. But I was positive, and because of that, the doctor told me that I would be a man who would never have cancer.
+- Cancer has taught me a lot of things. Maybe it is the best thing that has happened to me. I can't say right now, but maybe some years down the line, I would realise. When I was taking chemotherapy, there were a lot of elderly patients, and that would inspire me. I thought, 'If they can be cured, why can't I be?'
+- Relationships survive on trust, and if that is broken at any point, it's pretty much the end of the relationship. Besides, inability to communicate leads to problems.
+- I didn't believe when I was first told that I have cancer. I thought, 'How can a young person like me get cancer?' I thought it could never happen to me. It took me a while to realise that I was diagnosed with cancer.
+- Being the vice-captain, you see a lot of things on the field. You have to try and help the captain as much as you can and lead by example on the field. Small things like getting a run-out or taking a catch makes the other boys try and lift their standards. So yes, I do have an important role, even if I'm not captain.
+- No matter what people say, about what I did, about what I am like... They say you are not dedicated or hardworking. A lot of people say things about me, but they don't realise I have played 250 games. It's not like you just land up in the team, sit down and play 250 games. You can't survive like that in international cricket.
+- Obviously, a lot of things play on your mind when you're batting. This might happen and this might not. The best thing you can do when you're batting is not to think too much, and wait for the next ball.
+- Cricket is my life. Before the cancer, I was happy-go-lucky. I used to think about my career and worry about the future. But post it, my thinking has completely changed. I'm happy to eat and breathe normally. I'm happy to have my life back.
+- I cried like a baby. When no one could see me or hear me. Not because I feared what cancer would do, but because I didn't want the disease. I wanted my life to be normal, which it could no longer be.
+- Beating cancer is personal battle. It was one of the toughest opponents I have faced so far, and I think I did reasonably well. Touch wood.
+- I'm past my wooing days now. See, I am an honest person. If I like a girl, I will go and tell her.

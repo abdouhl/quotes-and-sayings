@@ -1,0 +1,40 @@
++++
+author = "Vanessa Williams"
+title = "Vanessa Williams Quotes"
+quotes_len = "34"
+description = "the best 34 Vanessa Williams Quotes"
++++
+- I love the French horn.
+- And when people give me their word, I listen to them.
+- The wiser you get, the more experience you have, and the more you see people for who they are as human beings, as opposed to figures you have to fight against.
+- I love working out in groups - I love the community of it and the energy, and I love great instructors who inspire you and make you sweat!
+- My parents were always supportive. They didn't say, 'Get a real job.' They believed in the arts, and they prepared me to be skilled. I'm lucky I can drop into these worlds - into a studio or onto a set or go on stage - and feel comfortable.
+- I've picked up a lot of fans from doing 'Ugly Betty': a lot of teenagers who didn't even know I had a singing career.
+- When Cuba Gooding Jr. and I were doing 'The Trip to Bountiful,' we would always go to BXL, a Belgian restaurant/bar. It was across the street from the theater, and they have amazing mussels.
+- If you want my Tim Hortons order, I do get the egg and sausage and cheese on a biscuit. One is usually enough. If I'm really feeling greedy, I'll get two. I'll do that with a large coffee.
+- I don't really shop a lot, just cause I'd rather not spend my money on clothes.
+- Good work is such an incredible payoff. And I know that I'll be working until the end, because good work excites me.
+- Whether it's your family, friends, community that you connect with, don't be afraid to reach out. That's my biggest advice that I can say for anyone going through any kind of obstacle or trials or tribulations. Don't be afraid to reach out and ask questions. Ask for help, because you never know where you'll find it.
+- New York is my home.
+- You're always going to have people that are naysayers, that don't believe in your talent, that don't believe that you have any kind of longevity.
+- Growing up, my skin wasn't so great. I did everything, even Accutane, because I was always having breakouts.
+- I danced modern dance my whole life, and it makes me feel young again.
+- Success is the sweetest revenge.
+- I love to ski and drive fast cars and the thrill of exciting things.
+- Broadway is really my life.
+- It's not like I refuse to try roles other than being a strong female boss, but I am 54, and I'm happy I'm still being sought after and that I have a career that allows me a lot of creativity.
+- I've got a yoga instructor and a trainer. I just started a heavy-bag class, which is like boxing and cardio, and I salsa dance with my girlfriends. I try to do something every day. Continually exercising is natural for us.
+- I think there's a time to work, and everyone has to kind of adjust. And then there's a time to relax, and be the mom or take the kids on vacation when you need to wind down. So it's a matter of planning, and being able to map out your year or your week or let's start with the day. It is just being multi-tasking and being available.
+- I'll get mad, but then I'll let it go. It's not worth stewing over for the rest of your life. You've got to move on and let it go.
+- I am lucky to have three daughters who are completely different. I look at my daughters and I have different relationships with all three and there are parts of each personality that are very special.
+- Both my parents were educators, so interviews and college applications and shaking hands and looking people in the eye and feeling confident and knowing what you can bring to any project or audition - I've known about these things my entire life.
+- You should be unique, you should be confident, and that's how people remember who you are. You have to be willing to share who you are and your story.
+- I've been really, really fortunate to get some fantastic opportunities on Broadway, and I cherish all of them.
+- My parents are both teachers, so we had the summers off.
+- There are a lot of things that you don't realize that your parents are going through when you're a kid.
+- As I grow older, I feel like my authentic self has been able to shine through more and more, and people can see that.
+- What makes characters so interesting when you're an actor or a dancer is to watch and observe how people walk and move and speak. Are they cat-like? Are they walrus-like? Why does that person bother me, and why do I think they are the way they are?
+- And at 19, you think you rule the world, and you can control things. And a lot of times, you don't.
+- Well, my mom taught public school music for almost 40 years. And she's about 5 feet - and very mighty. And she would control her kids a lot by giving them the eye, or the stare.
+- I believe it's important to use my influence for a good cause, helping to reach millions of consumers who suffer from eye irritation, which made working with Clear Eyes feel like a natural fit.
+- Kids are on their keyboards so much, between their smartphones and laptops, no one writes anything anymore. It's atrocious.

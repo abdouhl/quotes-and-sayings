@@ -1,0 +1,81 @@
++++
+author = "Zaytoven"
+title = "Zaytoven Quotes"
+quotes_len = "75"
+description = "the best 75 Zaytoven Quotes"
++++
+- It's been a blessing that I can provide for my family just by doing music. I never thought this would ever be my occupation.
+- I was listening to Young Jeezy and Shawty Red, and to me, the trap music they had was something special.
+- If you listen to my early music, I didn't know how to mix. I barely knew how to record for real, and I didn't care.
+- My formula is not thinking about what I'm doing; it's about still having fun and making music. I don't go into the studio with a thought pattern or certain goals in mind - sometimes I'll start with drums, other times I'll start with the piano - but it's all done spontaneously, so nothing is premeditated, and nothing takes a long time.
+- It always surprises me and always makes me proud when I see people that I know I worked with at the house in the basement on TV being superstars.
+- I tell people that it's one thing to have the gift and the talent and work hard but another thing to have the favor of God in making it all work, and I think all those are factors.
+- Just the instrumentation of the whole 'Beast Mode' made people open up and respect me in a whole other way. With Gucci, I don't use as many instruments. I don't play the piano as much because that's not really the style of music that me and Gucci have built.
+- Anything that me and Gucci do is never thought out or planned real deeply. We always just go off of what we feeling. It's sporadic.
+- I'm the type of guy where, if I see, like, 20 songs, I don't even wanna listen to one of 'em 'cause it's too much.
+- When I think about 'Beast Mode,' that's what I think about. I don't think about just a hard project; they just created some art together.
+- When I work with Future, it's almost like a work of art.
+- When Zaytoven and Future are working together, then Future's not working on no other tracks, and Zaytoven's not making no beats for nobody but Future.
+- Music is about feeling.
+- I've been doing this since 'So Icy' back in 2005.
+- Atlanta can do crunk music, it can do snap music, it can do swag music. Atlanta has it all.
+- I started with the organ and drums, and I later got into drum machines as a teenager.
+- What's so crazy is I always looked at Jay Z and guys on the caliber of Jay Z like they just the big dogs. I didn't think they listen to my music or even know who I am.
+- 'So Icy' is always going to be one of my favorites because this is a song that blew my mind. I was just making beats for the fun of it. I went to the club and heard the song being played, so I asked the DJ to stop playing the song, and the whole club started rapping word for word.
+- 'Birds of a Feather' is on Netflix, and it did big for me. For me, it was a trial and error thing. I never thought about being an actor. I just felt like, in the music industry now, anything you said can go. So now it's a part of what I do. I make movies now.
+- I use a lot of piano riffs in my production, and someone who I was working with said that I played so good that it sound like Beethoven.
+- I have a church background. I've been playing piano and keyboard and organ all my life in church.
+- I can do R&B, pop, gospel... whatever genre of music that's out.
+- Trap is being added to everything. It seems like every genre wants that bit of trap to what they're doing.
+- When I was cutting hair, I felt like that was my trap. I started selling haircuts. I started selling beats; that's me trapping. So trap music is like hustling music to me.
+- I feel like I'm an okay piano player. To the music world, to people that's in the hip-hop culture, they probably look at me like, 'Zaytoven the greatest piano player in the world.' I'm okay.
+- A lot of people want to blow up as a producer, but what helps you blow up as a producer is an artist that matches well with your music. When that artist gets popular and blowing up, and people start knowing them, that's when they start knowing you.
+- When I was in high school, the girls used to tell me I looked like Usher, so to be doing a song with Usher was mind-blowing.
+- I was a military brat. My dad was in the military, so I was born in Germany. I moved around a lot; I was in church a lot.
+- When you work with Drake, you don't really work with Drake. You send him the song, he rap on it, then y'all done worked together. So it ain't like me and him sitting in the studio.
+- I'm content with what I've got from the industry, even though sometimes it seems like I might not get the proper credit.
+- I like to introduce people to each other, especially in the hip-hop community.
+- When you take your music around to your people in the city or your label, and don't nobody like it, but you really like it, and you like, 'Dang, these folks don't hear what I hear.'
+- If I'm spending more than 15 minutes on a beat, I'm not feeling it.
+- We did 'Bricks' and 'Ridiculous' all in one day. Gucci came here, like, 8 in the morning - we were done 4 the morning the next day.
+- I'm always up for the challenge of doing more and doing different things. I love being inspired like a new producer all over again.
+- I feel like every time I make a beat, and the Migos rap on it, it's gonna be fire.
+- The reason I still go play the organ at church every Sunday and dedicate my talents to God first is because I feel like that's the reason why I'm who I am today.
+- In Atlanta, I went to barber school. That's how I met everyone I know in Atlanta, by cutting hair.
+- The music business, a lot of times, has a big finesse mentality to it.
+- I'm a church musician. I play gospel music; that's what I do. I never had a chance to produce gospel music, and I did a full album with Lecrae that's the number one Christian album. It's super-big for me.
+- There's no record that you done heard me produce that I spent more than ten minutes on.
+- Most artists value my opinion a lot, and I think that's due to 'Beast Mode.'
+- Now, I made the most money I ever made in my life with 'Papers' - I think my first check was like $101,000, my folks couldn't even believe. At this time, this is like 2010, I'm still in the barbershop cutting hair, still being the regular Zaytoven because I felt like after 'Papers,' it wasn't going to get any bigger than that.
+- People looked at me - people still look at me - as 'this is Gucci Mane's producer.' But the music that me and Future put together was so different than what me and Gucci do, it just made people look at the music like, 'Hold on - Zaytoven is the real deal.'
+- The most memorable part of filming 'Finesse,' I'd have to say, was the kissing scene. It was just so odd for me.
+- Al Nuke is almost like a real brother to me. Our chemistry is crazy because we're like night and day, but we blend so well.
+- Trap music, to me, is hustling music.
+- When people wanna come buy beats or wanna record a song, I'm trappin'.
+- I approached my career like a rapper. I would go to every open mic, every studio session, bringing my beats. I would almost do exactly what a rapper would do to get on.
+- When my dad retired, he moved to Georgia, but I stayed in California. I was in San Francisco: that's where I first went from being a musician to making beats and producing. I was 18, 19. It started going pretty good for me out there in California, so I stayed in SF while my parents moved to Georgia.
+- I listen to a lot of music... but there still hasn't been a project yet that touches me like 'Beast Mode' has.
+- Guys like Future and me, we help create and shape the sound of music - not just Atlanta music, but music all over. If you really pay attention to the music being made, a lot of that is very heavily influenced by the stuff that we created. I listen to so many songs that's like, 'Damn, this sounds like my music!'
+- If you know Gucci Mane, controversy is always surrounding Gucci.
+- I'm the type of guy, I make a lot of different beats, but sometimes I might stick to a sound for a little while.
+- To me, my studio is my trap house. That's where I trap out of; that's where I hustle. That's where I make my money.
+- I know it sounds funny coming from me, 'cause I produced it, but that's one of my favorite bodies of work. That's what 'Beast Mode' was when it came out and still is.
+- I can show these folks I can do more than just the 'trap.' But what I realized is the trap is what they really recognize me for - that's what they want to hear.
+- For a producer, I've been behind the scenes my whole career.
+- I play the piano, but I'm not classically trained.
+- You can always know, when it comes to a Gucci Mane or Migos project, there is no such thing of them putting out a project without me being a part of it. These are guys that I'm really close with, and we built a sound together, and we got a certain chemistry.
+- Future is a real workaholic, so he's the type of guy that's gonna do more than enough songs to make sure you got everything you need.
+- I like V-Nasty a lot, and I know anytime I like an artist and the majority of people really don't like her, I know it's something special. That's the same way I felt about Gucci.
+- I almost never pitch myself. Me being an independent producer, never having a manager and never being signed, I pretty much just did my own thing: go out and search for the new talent, and when the new talent blows up, it just kinda brings everyone else to me.
+- Gucci is a guy that promoted me to the fullest. It don't matter where we go.
+- When your dad is a preacher and your mom is a choir director and you're in church all the time, as a youngster, you've got to find something to do. That's where my musical background comes from.
+- I've been doing two things my whole life: I've been cuttin' hair, and I've been playing the organ at church. Those two things are what I looked at as my life: this is how I'm gonna make my money, this is how I'm gonna make my living... It helped me to be stable in what I do.
+- When I actually first moved to Atlanta, I was cutting hair. I was making beats and making music out in the Bay Area. But I came here to make - you know, I had to get my barber license, so I was cutting hair.
+- I think that the sound that the world knows as trap music is the sound that Gucci and I created.
+- You listen to something like 'Beast Mode,' and it's almost like looking at a pretty painting.
+- When I think of trap, I think of something that is unrehearsed. It's something that's edgy, not too well put together.
+- When I approached my own movies, I went in it real innocent. I didn't pay attention to nobody else's score. I was just going to do it with how I feel it should sound. To me, that's how you create new things.
+- Future's the guy, like, where, if I send him some beats while he on the road, and there's a pack of beats that he really like, if there's a new vibe or new wave, he's like, 'Man, keep feeding me more. Feed me more of this every day.'
+- I started producing in California, and they called it mob music. When I moved to Atlanta, the sound was different. People in Atlanta didn't like to rap over West Coast beats. So I had to make adjustments to what was going on in the South.
+- When I was a youngster, I might have been about 17 or 18 when I first started making beats.
+- When me and Gucci sit down, I make tracks real fast, and he can write songs real fast.

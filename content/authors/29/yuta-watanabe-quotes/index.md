@@ -1,0 +1,26 @@
++++
+author = "Yuta Watanabe"
+title = "Yuta Watanabe Quotes"
+quotes_len = "20"
+description = "the best 20 Yuta Watanabe Quotes"
++++
+- I just play hard on the defensive end. For me, being a good defender is someone who plays very hard on defense and just tries hard.
+- Because I did well at the prep school, I got to have more options as some different universities gave me offers.
+- 'The Memphis Grizzlies' are always a great defensive team and defense is one of my strengths, so I think that's one thing that I can bring to this team.
+- When I came to America, I had some surprises at first, but I could soon adjust.
+- Madison Square Garden is one of the greatest arenas in the world.
+- I'm just really excited about my future and I'm really looking forward to taking challenges... and I just can't wait to start.
+- I don't really feel any pressure. I can control only what I can control.
+- I just want to keep working hard. I just want to keep improving myself. And I just want to prove people that I can play in the real game.
+- In the NBA, you have a better diet and strength coaches to make you better physically. And the number of coaches, it makes me feel like there's more of them than us players.
+- My dream is to play someday in the NBA.
+- I like school. Actually, I don't really like it.
+- It's important to strengthen my body while also improving my shot. Shooting and defense are how I'll make my living, so those are the areas I really have to work on.
+- Basketball definitely helped, because even though I couldn't speak English, I was able to spend a lot of time with my teammates, which helped me learning English a lot.
+- In my junior year, I became one of the best defenders on my team, and as the years go by my confidence gets even higher, and that's because of my coach.
+- Baseball is the biggest sport in Japan, then soccer, and basketball is... People don't really care about basketball.
+- As for my shooting, I really think that what I've done since I was little really paid off. That's become one of my weapons even after I've come to the States.
+- I didn't know if I would be good enough to play for an American college team. But I wanted to try.
+- I like people to be loyal.
+- I'm a basketball player first and foremost. So I want to put basketball above everything else.
+- I'd play every position when I was in elementary school and junior high. I was playing as guard, too.

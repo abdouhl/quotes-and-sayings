@@ -1,0 +1,38 @@
++++
+author = "Zac Taylor"
+title = "Zac Taylor Quotes"
+quotes_len = "32"
+description = "the best 32 Zac Taylor Quotes"
++++
+- I learn so much from Sean McVay every single day that I'm around him.
+- When you're out there, you aren't paying attention to who you're throwing to. You're looking for the guy that's open.
+- I've been around some great coaches and learned a lot from every single stop I've had.
+- Peyton Manning's been my guy since the sixth grade. My cousin bought me a Tennessee Volunteers No. 16 jersey. He's been my guy since then.
+- I have a high opinion of Andy Dalton. Going back to 2010, I think I watched every single snap he played at TCU his senior year when I was at Texas A&M.
+- It's unfortunate to lose guys in their rookie year.
+- I thought it was the coolest thing in the world to be in an NFL office.
+- It's easy to give up. It's even easier to start pointing fingers.
+- Everyone in Norman knew our block. There were five kids in our neighborhood who started at QB in high school. We had Division-I athletes from a number of sports available to play at any moment.
+- It's all ball, all the time. You have no excuse to not watch anything you've ever wanted to study in your life, especially in the offseason.
+- My father-in-law, Mike Sherman, coached a long, long time, and he just said, 'Be true to yourself. Be who you are, and people will follow you.' And I found that way to work for me.
+- I place value on my family above everything else.
+- Troy Walters and I coached together.
+- Guys who aren't going to be brought down on first contact, they'll get you fired up. When you see guys spinning away and getting extra yards, it fires you up.
+- Also, I'm obviously a big Tom Brady fan. Everybody loves him. I just like guys like that who have worked hard to get where they're at and have had a lot of success.
+- I don't think I'm ever surprised at how high the quarterbacks go. There could be a lot of teams that often times don't have a lot of first-round grades on guys that are going in the first round, and that's just the nature of the business.
+- You dream about being in the shotgun and letting your receivers go to work, and making plays with no time left. That's definitely been a dream of mine my whole life.
+- And after my interview with the Bengals, I knew this was the job for me.
+- But I've been blessed to have some great opportunities and have a great family that comes along for the ride.
+- What I do notice is, man, I sleep hard. When my head hits the pillow at night, it feels like five o'clock rolls around real quick.
+- Well, I think I've had the opportunity to be around some great coaches and players. And I have been able to learn a little bit, something different from every single one that I've been around.
+- I'd like to think I have good recall of games I've been a part of and plays I've been a part of.
+- I am happy and fortunate to join the Cincinnati Bengals as head coach.
+- I think, you think critically all day, you've got a lot of decisions to make, so you've got to make sure that you take a couple of seconds every day to relax your brain a little bit.
+- I feel like I've learned a lot along the way and I'm ready to lead.
+- The people that we met when we lived in Cincinnati, the Midwestern values - I'm from Oklahoma, my wife's from Green Bay - we felt at home in the year we were here.
+- There's plenty of times in my life I've coached against my brother, coached against people I've coached with.
+- I've got 'Lost' and '24' on TiVo. And I'm an 'American Idol' fan.
+- I just go with the flow.
+- I take a lot of pride in connecting with people - period.
+- If I try to be Sean McVay, I'm going to fail, to be quite honest with you. We're different people. I've learned a lot from him, but I'm going to be Zac Taylor and do the best I can my way.
+- Like any year, any year with any team, you're always going to look to the draft to help strengthen your roster and free agency.

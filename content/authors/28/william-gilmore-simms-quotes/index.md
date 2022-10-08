@@ -1,0 +1,18 @@
++++
+author = "William Gilmore Simms"
+title = "William Gilmore Simms Quotes"
+quotes_len = "12"
+description = "the best 12 William Gilmore Simms Quotes"
++++
+- He who would acquire fame must not show himself afraid of censure. The dread of censure is the death of genius.
+- I believe that economists put decimal points in their forecasts to show they have a sense of humor.
+- The dread of criticism is the death of genius.
+- Tact is one of the first mental virtues, the absence of it is fatal to the best talent.
+- Tears are the natural penalties of pleasure. It is a law that we should pay for all that we enjoy.
+- Genius is the very eye of intellect and the wing of thought; it is always in advance of its time, and is the pioneer for the generation which it precedes.
+- Neither praise or blame is the object of true criticism. Justly to discriminate, firmly to establish, wisely to prescribe, and honestly to award. These are the true aims and duties of criticism.
+- The true law of the race is progress and development. Whenever civilization pauses in the march of conquest, it is overthrown by the barbarian.
+- Most men remember obligations, but are not often likely to be grateful; the proud are made sour by the remembrance and the vain silent.
+- The only true source of politeness is consideration.
+- Not in sorrow freely is never to open the bosom to the sweets of the sunshine.
+- No errors of opinion can possibly be dangerous in a country where opinion is left free to grapple with them.

@@ -1,0 +1,14 @@
++++
+author = "Walter Rudolf Hess"
+title = "Walter Rudolf Hess Quotes"
+quotes_len = "8"
+description = "the best 8 Walter Rudolf Hess Quotes"
++++
+- This implies that the laws governing organic cohesion, the organization leading from the part to the whole, represent a biological uncertainty, indeed an uncertainty of the first order.
+- The only positive finding which could be drawn from the first series, was the conclusion that the relationships obviously had a more complicated lay-out than had been thought, for the effects were so varied that no obedience to any law could be discovered.
+- The goal of physiological research is functional nature.
+- Exact information about the functional significance of the deep sections of the brain is only obtained by working through the brain histologically in serial section.
+- For man also, in health and sickness, is not just the sum of his organs, but is indeed a human organism.
+- It must be born in mind that one does not see directly - as is the case in the exploration of the surface of the brain - where the electrodes are attacking.
+- In fact, quantitative findings of any material and energy changes preserve their full context only through their being seen and understood as parts of a natural order.
+- At the beginning of all experimental work stands the choice of the appropriate technique of investigation.

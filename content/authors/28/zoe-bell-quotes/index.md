@@ -1,0 +1,93 @@
++++
+author = "Zoe Bell"
+title = "Zoe Bell Quotes"
+quotes_len = "87"
+description = "the best 87 Zoe Bell Quotes"
++++
+- I had done maybe three lines of dialogue, ever, before doing 'Death Proof.'
+- I've always had a fascination with gymnastics, since I was a kid. It was the one thing at the Olympics that I would be like, 'Mom can I stay up late to watch gymnastics?'
+- I never thought about being an actor.
+- If you're going to fight Tom Cruise, you really don't want to make that man bleed.
+- It's always scarier saying 'No.' As an actress, I can say 'Yes' to more. But sometimes, as a stunt-woman, I have to say 'No.'
+- I'm pretty comfortable on any set where I have something to do.
+- I have come a long way from a girl with pigtails and acne showing up and going, 'Hey guys, I'm here! Where do you want me to fall over?'
+- What I've had to learn is that I'm also fragile.
+- I have done a lot of prosthetics throughout my career so I am used to it.
+- I'm not invincible.
+- As a stunt woman, I took it upon myself to be a bit of a jock about it. So you wouldn't see me vulnerable, you wouldn't see me hurting or sad because I was there as a professional to do my job. Nobody likes to see a girl get hurt - that's the truth of it - so I had to put them at ease so they would let me do my job.
+- I keep myself safe both physically and emotionally in my working environment by 'being one of the boys.' In my head, subconsciously, that was my safe place.
+- I met this group of stunt people and it was like, I had found family instantly. We're all a variety of different personalities, but whatever that mutual joy or appreciation of the work is, I'd not felt it like that before. It was, 'Yeah, I'd like to do this forever.'
+- The producing thing has come quite naturally to me. I feel like for directing, I would like to be more technically-savvy. I want to have the language under my belt, and I also want it to be a project that is very personal to me, for my first one.
+- I know this sounds ridiculous, but I'm not much of a fighter.
+- I don't like hitting people in the face.
+- Gore, like blood and guts and stuff, I am fine. Suspense, I get super sensitive. I can't handle it.
+- Having been a stunt girl for so long, a big part of my job, when being a stunt double, was to not just make the other person look as cool as they could, but also to act as support.
+- Basically, I'd finished doing gymnastics when I was 15, 16, but I'd stayed training because I'd just sort of loved it, and I'd met a man by the name of Peter Bell - no relation - who it turns out was a stuntman in New Zealand.
+- I got a pair of roller skates for Christmas when I was 4 or 5 or something, so I had a pair as kid. But I also lived on a gravel road so I wasn't really skating up and down the street.
+- Actors always ask their directors what their motivation is in this scene or that scene, so I've always had this joke where I ask the director what my motivation is too. As a stunt person your motivation is usually to fall over a bench or something.
+- I used to be afraid of my temper, but it turns out I don't really have one.
+- I think I want to produce action movies.
+- It never occurred to me that being a stunt girl would get me recognized in any way, because the whole purpose of a stunt person is to not be known.
+- I'm a fast learner.
+- Life's too short to be super conservative but it's also too short to make it any shorter. I don't plan on dying early, but at the same time I don't plan on playing it so safe that I'll live to ninety.
+- I would say movies all have their own world or reality they're built in.
+- This may sound conceited, but the more predominant the role, the more comfortable I am on set.
+- I was injured at the end of 'Kill Bill.' I hit the ground, instead of hitting the mat, pretty hard and busted my ribs and had to have surgery. I was being blown out of a trailer in a harness and actually landed on my coordinator instead - who broke my fall a little! My arm smacked into the ground and obliterated one of the ligaments.
+- When I worked on 'Xena' I had to concentrate on fighting like Lucy Lawless. In 'Kill Bill' I not only had to stop fighting like Lucy, after three years of copying her moves, but start fighting like a Wu Shu martial artist. I'd never done Wu Shu before so mentally it was a massive challenge.
+- No one has ever seen me as feminine.
+- It's not until after you've been hit by a car and landed all right that the fear kicks in.
+- I've always appreciated great acting performances, but I've even learned to appreciate not so great ones 'cause it's hard.
+- I grew up on an island without TV.
+- When I was injured after 'Kill Bill' I had a year where I not just couldn't make any money but I couldn't swim, I couldn't surf, I could hardly run, which is insane. I couldn't do gymnastics, martial arts, I could barely crawl on all fours. That was devastating to me.
+- I'm not fighting to be treated like a dude. I don't want to be treated like a man. I want to be treated as a talented stunt-person, or I want to be treated as an intelligent person.
+- My strengths, I think, are that I deal really well with people. I like people. I'm fascinated by how they work so I'm good at handling situations between departments on set or pre-production or post.
+- Yes, generally speaking, I get to do my own stunts.
+- You've just got to know yourself, and know what you're worth, and know where you're going, and know that you can always, always learn more.
+- If you give anything less than 120% as an actor then you end up looking uncomfortable.
+- My becoming an actor was a massive shift for me, and a terrifying one.
+- I've always loved the collaborative side of filmmaking, and there's a lot of things I can do in the acting side of things in terms of the creating of action sequences, and coming up with ways of doing things with a stunt coordinator.
+- When I started to trust myself to be an actor, and to be considered that way and consider myself, that is when people started to see me in that way because that was the truth then, as opposed to me being a stunt girl going, 'Please see me as an actor, please see me as an actor!' when I didn't see myself that way.
+- I don't surround myself with a lower quality of human.
+- I'm basically klutzy.
+- It never occurred to me that I'm intimidating.
+- I don't know, I'm still a little bit like, when you blend CGI well with real life, it's impressive, but if you remove real life completely, I still get pulled out of the movie a bit.
+- For all the hundreds of scripts that are out there, there's not that many that are amazing.
+- One of the things I really like about TV is the family, the maintaining of the family camaraderie. Film has it, too, especially when you're on location. It's like summer camp. You'll get really close, really fast. But, then you'll have to say goodbye.
+- Work wise, as a stunt woman, I enjoy telly - or TV - because - and, as an actor - I kind of enjoy the urgency of it. I enjoy the problem-solving that's happening. Right now, we don't have time to rehearse for hours. And, if something goes wrong, we don't have time to shoot something else for four days until we sort it out.
+- As a stunt girl I've done most varieties of female fight action.
+- Usually, what happens with women that aren't comfortable with fighting is they're afraid of getting hurt, or hurting someone. All it usually takes to get them going is to make them feel safe, and make them feel like they look cool while doing it. And once they get a little more comfortable, they're gung ho!
+- There is an art to acting, and there are techniques that are acquired. You can be as emotional as you'd like, as a person, but figuring out ways that you can bring specific emotions at specific times and have them be true, and relating to someone as someone that they're not, is a lot.
+- I think I'm one of those actors who has come around the backside of something, you know? I came in the backdoor without even realizing that that's what I was doing.
+- With acting, it's my job to be emotionally vulnerable and accessible.
+- I would love to do a comedy, and I think physical comedy is something I probably have a knack on.
+- I really love being a part of the creative process. I love having an opinion that gets heard, and then it's all up for discussion.
+- I love the 'Lethal Weapon' movies.
+- It turns out I do okay just playing an angry self-righteous woman.
+- I definitely don't feel like I'm watching ballet during 'Raze.'
+- When I'm not focused, I'm quite possibly one of the more clumsy people on the planet. I'll walk into doorways and coffee tables.
+- I stepped away from stunts and into acting right around when stunt people started getting put into motion-capture stuff.
+- I'm not immune to a lack of confidence or the recognition that I haven't asked for what I deserve or stated what I want.
+- Favorites' questions are my least liked questions because I've never been any good at favorites.
+- I mean, being a stuntwoman never occurred to me until I gave up gymnastics and started doing martial arts and met people that were stunt people. I was like, 'What? Wait. You get to fight and flip and get paid?' I was like, 'Mum, dad, check this out - I could do this stuff and get paid instead of having you guys pay for me to do it.'
+- I am very, very painfully human.
+- For a stunt woman, emotions don't matter to the shot. It was easier for me to do my job if I shut all my emotions off.
+- I don't have children, but when I meet my friends' kids at six months old, and then I don't see them again for another six months, the changes are drastic. But if you've seen them every day, the changes are less shocking.
+- It's not easy, acting.
+- Well, I did two lines on a TV show called 'Cleopatra 2525' really badly with an American accent; it was terrible!
+- Don't be afraid girls. Power's awesome!
+- If you can fight in high heels, you can walk in high heels.
+- I'm a very coordinated individual.
+- When I'm a stunt woman on a movie, I'm strictly a 'Yes sir,' girl... But acting puts more in your hands, and producing gives you more control still.
+- I never was fanatical about films when I was younger.
+- I did drama at school and when I was doubling Xena, one time for my birthday mom and dad bought me an acting course 'cause I've always liked the performance side of anything.
+- I think I have a pretty decent business savvy, when I give myself room to.
+- As a performer, the more I scare the stunt coordinator, the better.
+- When I was on 'Xena,' I remember the sound guy and the director at some point being like, you have to make sounds when you fight, and I was like, what are you talking about? You're never going to use it. But they hounded me for a good couple of hours, and basically it was, you need to act, you can't just perform the moves.
+- As a stuntwoman, I never wanted anyone to ever feel afraid for me. I didn't want anyone to ever feel sorry for me.
+- I've worked with horses on and off most of my life, but literally 'on and off' - flipping on them and falling off them.
+- Raze' is a horror/action film and they asked me to get involved when it was just in the developmental stage - they also brought be on board as one of the producers and that is really what drew me to it.
+- If it wasn't for 'Kill Bill' I probably would have been back in New Zealand three months after I left, and if it wasn't for 'Death Proof' I don't think I would be pursuing an acting career right now.
+- When you're falling through space time has no meaning.
+- Neverending Story' was one movie I did see when I was a kid. On the little island I grew up on, they put up a sheet in the town hall.
+- I'm still nervous every time I act. I'm not when I'm doing stunts.
+- In our case, with 'Raze,' we had a really, really tight schedule. We shot something like 17 fights in three and a half weeks which is insane.

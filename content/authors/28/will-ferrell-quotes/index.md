@@ -1,0 +1,83 @@
++++
+author = "Will Ferrell"
+title = "Will Ferrell Quotes"
+quotes_len = "77"
+description = "the best 77 Will Ferrell Quotes"
++++
+- Members of the Senate and House, if they want to send troops into war, should be forced to send a family member. That would really make everyone stop and go, 'Ohhh-kaaay.'
+- My dad turned me onto Peter Sellers as a kid. I loved the fact that he was a unique combination of being extremely subtle and over-the-top all at the same time, and that's a hard thing to do. I admire that.
+- I've got no dark secrets, I wasn't beaten up, my parents were kind to me and there was a low crime rate where we lived. Maybe that's where the comedy comes from, as some sort of reaction to the safe, boring suburbs.
+- I'm a bit of a gourmet chef. I love cooking - mostly Thai food.
+- When you're doing an out-and-out comedy, the notion of preparing for a character - I hope I don't reveal too much of myself here - but, uh, no, I'm not doing anything.
+- When you look at someone like Sacha Baron Cohen, you have to really respect the boundaries he is pushing as Bruno or Borat.
+- There's nothing sexy about Orange County.
+- For people who have done comedy after a certain point in time, I think there's a base level of, 'O.K., I think I'm decently funny.' But unless you just have some massive ego, I really think you're still fighting against that.
+- In junior high P.E., I was way too shy to take a shower in front of the other kids. It was a horribly awkward time - body hair, odors... So I'd go from my sweaty shirt back into my regular clothes and have to continue the day.
+- I've always had, when I needed it, an extreme amount of focus that I could put into something. That has served me well.
+- It's tough for me to get rid of clothes. I grew up in a household with a limited budget and we really had to make our nice clothes last, and so now I'll get free pairs of shoes and this, that and the other and I'll be like, 'Oh great!'; even though it stresses me out that I don't have enough room to put them, I can't throw them away.
+- Anyone who does anything creative is always gonna want to change.
+- All you have in comedy, in general, is just going with your instincts. You can only hope that other people think that what you think is funny is funny. I don't have an answer but I just try to plough straight ahead.
+- I hate when someone drives my car and resets all the radio presets. I don't understand it. If I was ever driving someone's car, I would never touch the things that were set.
+- I grew up in an entertainment family, and so I saw how susceptible you are to the ups and downs of this business.
+- I remember going with my mom to a random garage sale as a kid and thinking what a cool treasure hunt that whole world was. Only to transition as an adult to think, 'What a gross place that really is.'
+- Oftentimes, even as a little kid, I would get up before anyone else. My brother would still be sleeping, my mom would still be sleeping, so I would literally play 'Monopoly' by myself. I would play board games; I would do things by myself.
+- I've always wanted to sail around the world in a handmade boat, and I built a boat.
+- When I first started doing sketch comedy, I promised myself that if I were ever to have any success in this business, I wouldn't hold back. Why get there and play it safe?
+- When a dramatic actor does a funny film, people are like, 'Wonderful! I didn't know he was funny!' But when it flips, people can get really thrown by it.
+- I would love to play Simon Cowell in a movie - heck, I would love it. It would be my dream role.
+- I know the nature of comedy, and you never know what will happen with the next movie or whether people will find it funny.
+- James Caan told me at the end of filming 'Elf' that he had been waiting through the whole film for me to be funny - and I never was.
+- Often times I'm confronted with a quote that I don't remember saying. So, on one hand it's very flattering, it is just so surreal.
+- I've never been a conceited person or cocky, never felt boastful, but I always had a sense of self-worth; I always had a real sense of myself.
+- There's always going to be someone as funny as you or funnier.
+- I left home to go to college, and then I moved back home. I moved back for three years from 21 to 24.
+- I'm a Progressive. Much in the same way our founding fathers - who, oddly enough, wouldn't get elected today - were Progressives.
+- Happens I am very political. I have deep political instincts.
+- I think a lot of the instincts you have doing comedy are really the same for doing drama, in that it's essentially about listening. The way I approach comedy, is you have to commit to everything as if it's a dramatic role, meaning you play it straight.
+- Molly Shannon and I used to always talk about that we really felt strongly that we were comedic actors, that we weren't comedians. You just played things real and the comedy came out of the context.
+- I might be more fluent in Swedish than I am in Spanish. My wife speaks it to our kids, and they're fluent so I hear it all the time, so I've got that under my belt.
+- I have only been funny about seventy four per cent of the time. Yes I think that is right. Seventy-four per cent of the time.
+- I still regret that I never played soccer in high school. I chose basketball over soccer.
+- I did plenty of jobs that I hated. I was a bank teller and terrible at it. I parked cars, a valet. I answered phones. I somehow avoided being a waiter. I knew I wouldn't be able to keep the order straight. I'm not much of a multi-tasker.
+- I love playing the macho guy who looks like an idiot.
+- 'Elf' has become this big holiday movie, and I remember running around the streets of New York in tights saying, 'This could be the last movie I ever make,' and I could never have predicted that it'd become such a popular film.
+- A lot of people have gotten into comedy because of certain influences in their lives or events that were painful, and I really have wracked my brain to figure it out. I pretty much have had a normal childhood. Maybe it was too normal.
+- Aren't we all striving to be overpaid for what we do?
+- My kind of wanting to be funny didn't come from need, necessarily. The closest I can analyze it is that it was an easy way to make friends, I found out. It was just a great kind of social tool.
+- I guess ultimately a lot of comedians just wanna be taken seriously.
+- I was a strange kid in that, while most kids hate school and want to turn 18 or 21, I loved high school.
+- If you are going to wrestle a bear, try to stay away from all fish oil products, you know. I mean it's tough for me, because I love to rub myself with salmon oil every day - it's a great conditioner for the hair, skin.
+- I don't know about living on an automatic pilot, but I've had times where I've decided to just test myself and my mettle, and for no good reason other than it's what life is. Even before I was acting, I had, like, one day in high school I decided to just show them my pajamas, just for no good reason.
+- I always find it actually funny that the analysis is that the characters I play in comedies are the manchild, the adolescent, characters that refuse to grow up. And yet, if you look back in the history of comedy all the way back to the Marx brothers, that's a big part of comedy.
+- I've never had a yard sale, ever, in my life. I don't know if I ever thought about stuff I would get rid of.
+- In the fourth grade, I learned how to fake walking into a door. You know, you hit it with your hand and snap your head back. The girls loved it.
+- You still have that competitive thing where you want to try to make hits. That won't go away, unless the mayor of show business says my time's up.
+- You tend to get reluctant to talk about anything until the day before filming.
+- I've always loved watching the news on TV. As a kid, I loved watching Walter Cronkite, for some reason.
+- I think with the success of, like, every summer there has been a couple R-rated comedies that have done so well; I think it is so nice to see that people are turning out to see these movies, and it doesn't seem to be as big a stigma with the studios anymore.
+- I've had moments in my life when I've thought if I wasn't acting, if I wasn't doing what I do and I had a career in the private sector and I didn't have a family, that I do have some tendencies where I could really kind of have a monastic existence and be okay with it.
+- When I was ten, I wrote an essay on what I would be when I grew up and said I would be a professional soccer player and a comedian in off season.
+- I speak as much Spanish as anyone who has grown up in Southern California or Texas or Arizona. I had my three years of high-school Spanish and a couple of semesters in college.
+- When I was a kid, 'Land of the Lost' was my favorite show, just because it was - in the landscape of Saturday morning cartoons - it was so unique. It was a live-action show and kids were in it, these creatures, these Sleestaks and dinosaurs. Every week was a different adventure. I couldn't wait. I loved it so much.
+- I left 'Saturday Night Live' without a film to go to, and I'd filmed 'Old School' while I was in my last season of the show, and that hadn't come out yet. I was a free agent, in a way, but I knew it was time to leave the show and test the water.
+- By the time I was ready for college, I didn't know what I wanted to do. I think I secretly wanted a show business career, but I was suppressing it.
+- There are a lot of really funny guys who are very natural in what they do: Jonah Hill, Michael Cera, Seth Rogen.
+- I will watch a movie that is quote unquote dark and not get the qualification of what is dark and what is not.
+- I'm a selective pack rat. There's some things I have no problem getting rid of and others I hold onto dearly.
+- Saturday Night Live is such a comedy boot camp in a way, because you get to work with so many different people who come in to host the show and you get thrown into so many situations and learn how to think on your feet, so filmmaking actually feels slow, in a good way.
+- I was never a class clown or anything like that, but I do remember being in the first grade and my teacher, Mr. Chad, told the class one day that we were going to do some exercises. He meant math exercises, but I stood up and started doing jumping jacks. To this day, I don't know what possessed me to do that, but all my friends cracked up.
+- The funny guy doesn't get the girl until later in life. High school, college, everyone still wants the brooding, dangerous guy you shouldn't have.
+- I always just forced myself to do crazy things in public. In college I would push an overhead projector across campus with my pants just low enough to show my butt. Then my friend would incite the crowd to be like, 'Look at that idiot!' That's how I got over being shy.
+- I'd love to become like Bill Murray, who was so funny on 'Saturday Night Live' and has gone on to do some of the landmark comedies people like. And then to add this whole other phase to his career with 'Lost in Translation' and 'Rushmore.' I always felt to be able to have something similar to that would be great.
+- One of my first memories of being a kid was, 'I want to have a real job when I grow up.' And to me that meant you wear a suit and a hat and carry a briefcase and go to your job.
+- It'd be great to be in a position where you can make choices regardless of money. My tastes are always gonna lead me to go for the amazing project where I'm being paid in Turkish cantaloupes.
+- I live by 'Earnin' and burnin'.' Meaning, I like to make money and spend it before I even have it. That's the way I live my life.
+- Enjoy the little fun things - like taking your kids to school - before they're all grown up.
+- I'm a Cancer; I'm music-passionate. I like long walks on the beach.
+- It's very easy for me to play silly, but to reveal something closer to you, that's so much harder.
+- I think anyone who has, you know, is in any sort of artistic pursuit, kind of goes up and down with the way they feel about their work. And I, for the most part, am pretty happy person. But, yeah. I go through definite periods of time where I'm not funny. I'm not good. I'm - I don't feel original.
+- I don't really have aspirations to be Tom Hanks.
+- I think 'SNL' was such a unique thing because it was material you created and you're very comfortable with it, even though the setting was pressure-packed.
+- When you hear that you're going to be working with a first-time director, sometimes that can be a concern to people.
+- Inappropriate behavior makes me laugh.
+- I'm the minority in my house sometimes. My wife is Swedish, and we go to Sweden and everyone is rattling off in Swedish. It's like, 'OK, I can just read a book.'

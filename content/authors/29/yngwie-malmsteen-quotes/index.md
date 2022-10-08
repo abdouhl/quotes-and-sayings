@@ -1,0 +1,73 @@
++++
+author = "Yngwie Malmsteen"
+title = "Yngwie Malmsteen Quotes"
+quotes_len = "67"
+description = "the best 67 Yngwie Malmsteen Quotes"
++++
+- I joined Alcatrazz a month after I recorded 'Steeler.' The big difference between Steeler and Alcatrazz is that in Alcatrazz, I wrote the songs. When I went to the Alcatrazz audition, they had no songs and no direction. They also had a questionable drummer.
+- When I was 20, I didn't give a damn about song construction. I just wanted to make as much noise and play as fast and as loud as possible.
+- Everything that I think that a society should offer someone, which is nothing other than the ability to be able to do what you wanna do, is offered by America.
+- Steeler was a good start for my career. They didn't play anything dangerous - everything was formulaic - but I played all this crazy stuff on top of it, and that turned out to be an interesting combination. But by the time 'Steeler' came out, I was already out of the band.
+- I am convinced that there are few, if any, American people that could even start believing or understanding what living in a socialist country does to a person.
+- Sweep picking is when the right hand sweeps down and up the strings in succession. But when you do sweep picking, one note rings into the next, and it sounds almost like you're playing a chord, and that's exactly what you don't want.
+- My band's motto is 'Yngwie or the highway.' Do you think Leonardo Da Vinci allowed someone who came later to add to his paintings? It's impossible. That's the whole issue. I'm not a typical rock n' roll guitarist nor a simple band member.
+- I emigrated to the U.S. on February 3, 1983, when I was 19 years old. I joined Steeler right away and recorded the album the following month. I'd been playing in bands in Sweden since the age of 11, but 'Steeler' was my first album.
+- I always wrote everything - I wrote all the lyrics, I wrote all the melodies, everything; it's just somebody else sung it. And to me, the singer is nothing else than a different... like a bass player or a keyboard player - they're not more important than any other musician.
+- The business has changed dramatically from what it was even just a few years ago. Music isn't even distributed the same way anymore. Even CDs are becoming a thing of the past. The Internet has made it easier to get my music out to anyone who wants it, but at the same time, I feel like we're losing the mystique.
+- Every other guitar player was just copying other guitarists. From the time I was 13 up until 18, I practiced at least eight hours a day, every day. My health suffered for it - I was losing sleep and not eating properly.
+- I had my own label, Rising Force Records, and made records, but had them distributed to the chains, to the retailers, but the retailers are gone - there's no physical sales anymore - so I'm not gonna make the CDs and have 'em put into trucks to go nowhere.
+- To get a feel for the right-hand picking technique, you have to let the pick 'fall' from string to string as if you were strumming a chord. It's important that you don't separate the pick strokes.
+- A lot of people don't realize that guitar playing is very much like singing or playing any of the glissando-type instruments - you have to do it in tune.
+- If I played something incorrectly, I whipped myself mercilessly. Whenever I made a mistake, I made sure that I would never allow myself to repeat it. Every guitarist wants to play well. But in reality, if good intentions were all it took, then everyone would be great.
+- You cannot be worrying about what other people think. You have to be sure that what you do is what you love to do, because if you love it, maybe another hundred thousand people might love it, too. Some other people might not like it, but it doesn't matter, because you have to express what you want to express. You only live once.
+- I've used Fender Strats with Marshalls since forever, though since I last played London, I've switched to my YJM Seymour Duncan pickups, and I also have a Fender YJM overdrive pedal, which is fairly new.
+- People who join my organization are usually very cool at first, but they become troublesome later.
+- If you look at somebody like Bach, he didn't need collaborators to write for keyboards, cello, violin or anything else. I feel the same way about my music. The times that I have worked with other people, I've been very unhappy with the results.
+- Using double coil pickups kills a lot of the guitar tone - you lose the acoustic mechanics. With my single-coils driven through the Marshalls and overdrive, it sounds massive.
+- I'd rather have people dislike my style than change it. If someone says, 'Hey, Yngwie, you play too damn much,' I don't care. They way I play is the way I like to play. If people like it, great. If they don't, it's still fine with me.
+- I think that Zappa intentionally made his music weird, but did it with intelligence.
+- Just the whole thing of getting up in the morning - I love the sunshine, I love the palm trees. I'm that kind of guy. I like to drive around with the top down and just enjoy life. I never did that before, so it's a beautiful thing.
+- I didn't have to apply my mind to the aspects of scales and playing, and instead, I focused on creativity. I wrote music, but I didn't 'practice' it. So yeah, you can always get better and improve your technique, but hopefully, that comes through being a musician and composing and being a creative individual.
+- I'd love to perform in India, but I don't book the gigs. It's one of the few places I haven't played. One of the Indian instruments that I love is the sitar. I played it on some of my songs, including 'Pyramid of Cheops' and 'Crucify.'
+- I remember when I was a kid, if you had your name on a piece of vinyl, man, you were, like, in the halls of Valhalla; all of sudden, you were hanging out with Odin and being at the table of the gods. You were the real deal; you weren't some guy struggling in a garage somewhere.
+- When the glam metal thing of the late '80s became too glammy, then instead of having two bottles of hairspray in your hair, it became better not to wash your hair at all. To me it's all trend stuff. I don't follow that stuff. I just do what I feel is the right thing. I don't know what the reason is for that. It's not fashion.
+- People - myself included - expect a certain standard from me. I always have to elaborate or improve on my playing. My success hasn't made me at all laid-back. That relentless drive is still there.
+- I don't work with anybody on the music, of course. But my God, some of the lyrics that other people have written were so shallow: 'Hey baby this, hey baby that.' I need substance to the words, you know? Give me depth!
+- At first, I didn't think playing guitar was the right thing for me to do. But after seeing Jimi Hendrix on television the day he died, I realized it was a really cool instrument to play and not wimpy at all, which was how I originally perceived it.
+- Steve Morse is a very good guitar player, but he's American, and he's using humbucker pickups. If you ask me, those two are not good.
+- I'm very comfortable singing myself, first of all. Secondly, there's a certain disconnect when you write the song and you have someone else sing it for you. And it's kind of like a fakeness about it.
+- I want to say something very clearly. I understand that I'm a self-confident person who might come off with the wrong attitude sometimes, but I don't mean to. I just believe in certain things, and I know exactly what I want. I've always sacrificed things in order to become the best musician I could be.
+- My will power has always been very strong. If I want something, I'll get it. I've had no trouble keeping my head on my shoulders, nor do I have any chips on there.
+- I still love to go in the studio and write and all that.
+- If you suck, you're gonna suck real bad, and if you play well, it's going to sound really good.
+- When I play guitar, it's automatic. I don't try to do something; I just do it. And it's already so ingrained in what I do, I don't think about it. I don't try to do something - I just do it. And the more I do it that way, the more I surprise myself. And if I surprise myself, that's the best thing.
+- Most Americans, I don't think, could fathom the society that I grew up in. It is a completely different philosophy from America's. You are basically told what you can be by the educational system.
+- 'Spellbound' has a lot of guitar playing on it, obviously, but I wanted to keep it with a more straightforward beat. It doesn't have so many stops and things like that. Whereas if you listen to 'Majestic 12,' that's like a little symphony.
+- The biggest mistake people make about me is that they see me as some sort of god-like figure with a big ego. If I see a button, a T-shirt, that says, 'Yngwie is God,' I just look at it as a complimentary way of people telling me they like me. Although it's very flattering, it doesn't change the way I look at myself.
+- Because I write the music, I write the lyrics, I write the vocal melody lines - I write everything. Just because I let somebody sing something doesn't mean they're more important than the bass player or the keyboard player or the drummer.
+- I wanted to learn how to play guitar so I could smash it up and burn it. I was only a little kid, so that was my incentive.
+- My book is basically a love letter to America.
+- A lot of people don't know this, but I started out as a blues-based player, and then, when I realized after playing 18 hours a day that there's more than five notes per scale, that's when my stuff became what it was. I started listening to violinists and flautists, and that's how my style evolved.
+- Every record store and record chain has folded; they don't exist. They do not exist. And the only two outlets that would still sell CDs were Best Buy and Wal-Mart. They now have stopped selling it. There's nowhere you can go into a store and buy a CD in America. That's how it is.
+- When I grew up, there was no TV, nothing. The guitar could be my whole life. The kids today have Internet and TV and games and all that stuff.
+- I listened to all those blues records. They were great - Clapton, John Mayall. Then eventually I heard Genesis with Peter Gabriel, and I didn't really understand the difference then, but something struck me about the inversions and the diminished chords... they weren't as bluesy, and I loved it. I found out, that was very baroque-influenced.
+- I learned a lot from other people, and was inspired by what they did, but I didn't copy anyone. I put many different blocks together to become what I am. I don't know if that would have happened if everything was handed to me on a plate.
+- I love all kinds of Indian music, and Indian food as well. If the chance arises for me to play in India, I'm there.
+- Every day has to be a day that counts. It can't be a wasted day. I'm very dedicated to always keep doing something that I would consider good.
+- There was an old acoustic in the house that my mother had given me for my fifth birthday. I took it off the wall and started jamming. I was seven years old at the time.
+- My fourth birthday, I was given a violin, and my fifth birthday, a guitar. I didn't start to play until I saw Hendrix on TV. They showed him setting his guitar on fire and burning it for the Monterey Pop Festival.
+- I am so extremely busy with what I am doing myself. When I am not playing music, I am usually doing other things. Playing around with my Ferraris and playing tennis and things like that. What I understand, there is a new group of kids that are very serious about playing, which is great; I think that is a good thing.
+- When Alcatrazz played in Japan in early '84, the record label offered me the opportunity to do a solo album while continuing to play in the band. I wanted the whole album to have vocals, but the record company didn't want that. Initially, the album was released solely in Japan.
+- When I was first getting into the guitar, I played it incessantly. I lived it, breathed it, ate it, and slept it. I was also extremely self-critical, so from early on, I made sure to develop good playing habits - I constantly strove to sound in tune and have a great tone, and to play cleanly and in time.
+- I've been playing for aeons now, but way, way back, I remember Eddie Van Halen came out ,and I loved his playing. He was amazing. But then everyone started copying his guitars with Floyds, and I didn't.
+- I'm very selfish. I make music that I love because I only live once, and I'm an artist. I don't try to revolt against anybody, and I don't try to please anybody. I feel very strongly that I if love it, someone else will love it - not everybody, though.
+- When I was a kid, I played drums, and when I first got a 4-track, I would put down drumbeats and then do the rest of the tracks on top.
+- It doesn't matter what you make - if you create a movie or build a car or whatever, it's the amount of blood, sweat, and tears and money and everything that goes into it that needs to be rewarded.
+- What I do know is rock and roll and metal never goes away, ever. It took the back seat in America in the '90s. In Japan and South America, it was still really big. I never followed trends, so I don't know the exact function of them.
+- I think the singer in Pearl Jam should eat some Pearl Jam! He cannot sing to save his life! And the guitar player needs to seek help.
+- Someone like Allan Holdsworth sometimes plays the wackiest things, but does it with panache, such taste.
+- What I've done from the very beginning is play everything with extreme accuracy. I never said to myself, 'Okay, if I put my fingers this way, it's gonna result in this.' I've never taken a lesson. My way of playing the guitar was a fresh approach to the instrument.
+- A lot of people probably get the idea that I'm this extremely calculated kind of guy, and in a lot of ways, I am. But when it comes to music or artistic expression, I'm very uncalculated and do things very spontaneous. If I didn't do that, I wouldn't want to do this anymore. I can't just play the same thing over and over; it would drive me crazy.
+- I grew up in a family that was very musical, learned the blues and everything like that. And I became a little bit frustrated with the simplicity of rock n' roll and blues. I started listening to a lot of classical music - mainly Bach, Vivaldi.
+- I've learned not to say, 'No, I'd never do that.'
+- The simple truth is that in order to become good, you have to be obsessed. You have to put in an awful lot of time and hard work and couple that with desire and unflagging perseverance.

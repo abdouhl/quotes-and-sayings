@@ -1,0 +1,31 @@
++++
+author = "Yahya Abdul-Mateen Ii"
+title = "Yahya Abdul-Mateen Ii Quotes"
+quotes_len = "25"
+description = "the best 25 Yahya Abdul-Mateen Ii Quotes"
++++
+- I wanted to be Michael Jackson as a kid.
+- I just want to do work that gets people excited and makes them feel things, no matter their economic or racial background.
+- I'm so thankful every day.
+- 'Baywatch' was terrifying. I could feel the financial stakes, you know?
+- If you look at the story of 'The Get Down,' it's the story of young people, unknowns thrown together by their resources, trying to create something.
+- Acting was always in the back of my head.
+- For the things that I've been involved in, most of it has really been - it's been a mixture of action and then drama.
+- When I was in college, it was on the recommendation of a friend of mine. He recommended that I take an acting class, and so I kind of did. I was very open to feedback and open to suggestions. I had a little bit of space in my schedule, and I guess, as the story goes, I went into an acting class, and I kind of got the bug for it.
+- I'm not very excitable as a person. What I say is, I'm always chillin', I'm always chillin'.
+- I'm a thinker.
+- I surprise myself by the things I get excited by.
+- I kind of assumed all of Australia was like the Gold Coast - so I was telling people Australians just work out and go to the beach. Like, Australia has it figured out! But then I went to Sydney, and it was nothing like the Gold Coast - but I still loved it.
+- When I think about it, I was working very hard the summer before I applied to graduate school. I was going to the library every day in the summer. I read a play a day for about three months. I was taking audition classes, and I was reciting lines to myself and acting as my own scene partner. But I was having fun.
+- I kind of just skyrocketed out of graduate school.
+- My father was Muslim, and my mom is Christian, and we moved from New Orleans to Oakland, so I always had this appreciation for different cultures.
+- My performance, I believe, is about my duty to the script, and my duty to the story that we're trying to tell, and I try to do that in a way that is true, in a way that's going to hold up the script, and that's going to be fun for the viewers to watch.
+- I'm the youngest of six kids, and I grew up with a lot of noise, a lot of music, and a lot of laughter.
+- I was studying architecture at Berkeley when my father passed away in 2007. We knew he had cancer, but we didn't expect it to escalate so rapidly. In my mind, it was like, 'He'll pull through.' When he didn't, I didn't understand. I was 21, and my best friend had died.
+- I did not sit down and watch 'Baywatch' growing up. But I do specifically remember it coming on, and I remember it going off. I watched something that came on right before and then going back to that channel to watch what was coming on afterwards.
+- I have a lot of fun playing quote unquote villains because I think the bad guys get to have more fun, right?
+- I'm from a place where young people traditionally do not have resources.
+- I have a love-hate relationship with working out. I do not enjoy the experience when I'm doing it, but I never regret it.
+- I think that everybody likes the bad guy.
+- I wanted to be an architect, and I ended up at my job in San Francisco, and if you would have asked me then, that was one of the greatest jobs that had happened to me in terms of my career.
+- I had taken an acting class at Berkeley - I was on the track team, and a friend of mine on the team said, 'You should take an acting class. It's just like recess.' So I viewed it as a simple credit.

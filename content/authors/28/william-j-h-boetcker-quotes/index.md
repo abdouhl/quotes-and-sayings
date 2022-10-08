@@ -1,0 +1,30 @@
++++
+author = "William J. H. Boetcker"
+title = "William J. H. Boetcker Quotes"
+quotes_len = "24"
+description = "the best 24 William J. H. Boetcker Quotes"
++++
+- Never mind what others do; do better than yourself, beat your own record from day to day, and you are a success.
+- You cannot keep out of trouble by spending more than you earn.
+- You cannot strengthen the weak by weakening the strong.
+- You cannot build character and courage by destroying men's initiative and independence.
+- You cannot bring about prosperity by discouraging thrift.
+- You cannot help little men by tearing down big men.
+- And you cannot help men permanently by doing for them what they can and should do for themselves.
+- The individual activity of one man with backbone will do more than a thousand men with a mere wishbone.
+- That you may retain your self-respect, it is better to displease the people by doing what you know is right, than to temporarily please them by doing what you know is wrong.
+- What a different world this would be if people would listen to those who know more and not merely try to get something from those who have more.
+- The more you learn what to do with yourself, and the more you do for others, the more you will learn to enjoy the abundant life.
+- You cannot further the brotherhood of man by inciting class hatred.
+- You cannot help the poor by destroying the rich.
+- Better to be a strong man with a weak point, than to be a weak man without a strong point. A diamond with a flaw is more valuable that a brick without a flaw.
+- We will never have real safety and security for wage earners unless we provide for safety and security for the wage payers and wage savers.
+- You cannot lift the wage earner by pulling down the wage payer.
+- You cannot raise a man up by calling him down.
+- You cannot build character and courage by taking away a man's initiative and independence.
+- The difficulties and struggles of today are but the price we must pay for the accomplishments and victories of tomorrow.
+- You cannot establish sound security on borrowed money.
+- True religion... is giving and finding one's happiness by bringing happiness into the lives of others.
+- If your business keeps you so busy that you have no time for anything else, there must be something wrong, either with you or with your business.
+- Your success depends mainly upon what you think of yourself and whether you believe in yourself.
+- If you want to know how rich you really are, find out what would be left of you tomorrow if you should lose every dollar you own tonight.

@@ -1,0 +1,78 @@
++++
+author = "Wilbur Smith"
+title = "Wilbur Smith Quotes"
+quotes_len = "72"
+description = "the best 72 Wilbur Smith Quotes"
++++
+- Authors can only soft sell the environment. Create a wonderful story around the environment involving the characters that leaves a lasting impression on the reader's mind.
+- They say if you drink Zambezi water with your mother's milk, you are always a slave of Africa, and I am.
+- For the past few years my fans have made it very clear that they would like to read my novels and revisit my family of characters faster than I can write them. For them, I am willing to make a change to my working methods so the stories in my head can reach the page more frequently.
+- I write my books in my head, and not in a specific study with a view. The view is from my inner eyes.
+- I think money is essential to happiness and right now I wouldn't want to be anyone other than Wilbur Smith - I've had a fantastic life, rewarded far more heavily than I deserve. Maybe I'd like to be J. K. Rowling, but I'll settle for second best.
+- My family wasn't terribly affluent and looked upon money very carefully as something that had to be saved, not spent. My father built the ducting that took air into the copper mines and made about 6 d a yard in the Thirties, which was good money back then.
+- People don't really know themselves until they're 30. Like most people nowadays, I went to university, got a degree and wandered for a bit. I trained to be a chartered accountant, which I didn't much enjoy, and it was only slowly that the idea of becoming a creative writer gelled.
+- I have never had too much trouble for creative ideas to spring up in my mind.
+- I don't want children. Why should I let some strange little monster into my life to destroy what to me is a perfect set-up?
+- I grew up in Rhodesia on my father's ranch and every year he used to take us on safari in some remote area of the wilderness.
+- I have done everything I have ever wanted to do. I have swum with tiger sharks, been charged by lions and elephants. I have been shot three times, chased by crocodiles and, God be praised, I've made enough money that I can continue to do all the things I want to for as long as I am able.
+- I read all of Rider Haggard's books. For me he had the romance of Africa with a little bit of mysticism. I'm delighted to be looked on as his heir and be categorised as an adventure novelist because that's exactly what I am.
+- Cape Town's beaches are superb and while the water on the Atlantic side is damn cold, it's very pleasant on the other side. Bring your golf clubs if you play - Cape Town has some fabulous golf courses.
+- I put my soul into every book I write.
+- I am a closet birdwatcher. I can identify Southern African species, but it irks me I can barely tell a jay from a blackbird in the U.K.
+- I live in Cape Town but my favourite holiday destination is Hermanus, a little seaside town about a 90-minute drive away, over the pass and down to the sea, on the sunshine coast. It's where I love to escape to with my wife for a weekend every now and again.
+- I used to own an island in the Seychelles and had a big boat there and one day I came across some Somali pirates who were passing by on their way to re-provision their boat. They didn't even acknowledge me - which is unheard of among sailors - and it was like looking into the eyes of a black mamba.
+- I never set out to write literature; I set out to tell stories. And some of my work may be very raunchy and very bloodthirsty - but life, for me, is a violent thing.
+- My mother-in-law speaks not a word of English. I speak not a word of Tajiki. So I smile at her ingratiatingly and she fixes me with a beady eye.
+- The mistake the apartheid government made was they gave the black people nothing, so they had nothing to lose. But now a lot of the former freedom-fighters are big-time capitalists. They've been given directorships in every major company. They're billionaires!
+- What I like about writing is the sense of godlike power it gives you.
+- You know that feeling when you finish a final exam and you think, 'I never want to do that again'? Well I have the same feeling when I finish a novel. Each time I say, 'I think I may retire now' and then after six months the ideas start to churn again. I could never stop.
+- Real men read my books.
+- Politicians all over the world cater to domestic vote banks. They will spend only on what their constituents want. So unless there is a grass root green movement in a nation the politicians will not be willing to spend money on curbing emissions. More awareness is needed amongst the people to effect the real change in how governments spend.
+- You don't turn out as many books as I did then by sitting around, being cozy with the family.
+- There are people out there with an eye on my hard-earned cash who think that I am a pushover. I am not!
+- I go on a hunting safari at least once a year to Botswana, which is fantastic because we have a huge area of wilderness entirely to ourselves. My island covers roughly 55 acres, which again I have to myself, with nearly half a kilometre of private beach with my own jetties and boats.
+- Literature throws us many great heroes. Real life invariably outdoes them.
+- As regards to personal safety, you do have to be careful not to put yourself at risk when travelling in South Africa. You don't want to go out exploring at night, for example.
+- I want to be seen as a good storyteller. I'm a manipulator as well.
+- I still get enormous pleasure and a sense of fulfillment out of writing a book that I'm proud of. I see myself as a bit like a jewel-maker who can sit back and admire his work.
+- I hate politics. I like to write about it, but to get involved in it, to try and make a lot of ignorant people do what you want them to do, waste of time. Go and write a book. It's more important and it'll last longer.
+- I've eaten lion, leopard, crocodile, python. I don't recommend lion. It tastes exactly like when a tomcat comes into your house and sprays. Snake and crocodile are great - a cross between lobster and chicken.
+- I wanted to be a great white hunter, a prospector for gold, or a slave trader. But then, when I was eight, my parents sent me to a boarding school in South Africa. It was the equivalent of a British public school with cold showers, beatings and rotten food. But what it also had was a library full of books.
+- The whole structure of African government, as far back as we know, was based on tyranny. One guy ran the show. Chiefs like Chaka and Mzilikazi committed terrible atrocities. That is the tradition from which modern African rulers spring. It won't change easily overnight.
+- When I vacate this sack of old bones I won't care what you do with it. Bury or burn it but don't make much fuss.
+- I read a lot of biographies and books with an African background.
+- The first story I ever sold was to 'Argosy' magazine, which no longer exists. That issue also contained work by several other more celebrated writers, like Ray Bradbury - so I felt I had at least one toe on the ladder.
+- Every time one of my books sells a million copies in paperback, Pan Macmillan gives me a gold statuette of Pan. I have about 20 of them.
+- I shot my first lion at the age of 14 when a pride threatened my father's livestock while he was away on holiday.
+- My absolute favorite pieces are 'Rhapsody in Blue' and 'Begin the Beguine.' I play these when I am working.
+- Herbert, my father, was born in Britain but went out to Africa in his teens to join his father and built up an 18,000-acre ranch in what was then Northern Rhodesia, providing work for the locals. He was my hero when I was a boy.
+- Usually halfway through a book I have a serious depression, so I go on safari on my ranch in South Africa, or fishing off my island in the Seychelles. When I come back and re-read it, I think: 'What was all that about, Smith? It's fine, just get on with it.'
+- Despite the fact that I spend a lot of time in London, Switzerland and New York, Africa is the place I know and love best, and my heart will always lie here.
+- Quite frankly, I think political correctness is the worst form of censorship. You're not allowed to speak your mind unless you're black, or unless you're a terrorist, or unless you're an Arab or a minority people. Then you can say what you like. But if you are like a lot of us you are not supposed to say certain things.
+- I've been associated with Macmillan for over 45 years. I'd like to thank them for their continued commitment to my backlist and I look forward to continuing to work with them as they publish my next novel, 'Vicious Circle' in 2013.
+- I'm not perfect and I know it. I've done all sorts of things that are frowned upon these days - big-game hunting, fishing. I still enjoy fishing but I don't kill warm-blooded animals any more - I make an exception with birds sometimes.
+- To me, my characters are more real than most people I meet.
+- There's nothing so aphrodisiacal for a woman as money and success.
+- Many people have compared me to the Victorian adventure writer, Rider Haggard. I accept that as a compliment. As a boy growing up in Central Africa I read all Haggard's African novels.
+- I'm a feminist. The women in my books in recent years have been powerful characters and I love to see a woman with a cute bottom walking past.
+- There is no quick way of making money. People come to you with tips for the races or offer the latest Ponzi scheme, but I can see them coming a mile off. I just go with the adage that if it sounds too good to be true it probably is.
+- I don't know how many lions and leopards I've shot. I've shot two elephants, which was enough - never again. It's a melancholy and moving thing to hunt an elephant. It's like shooting an old man.
+- All my characters have got a big slice of me in them. A big piece of me, because it's my dialogue and this is the way I think and talk.
+- At the age of 12 I won the school prize for Best English Essay. The prize was a copy of Somerset Maugham's 'Introduction To Modern English And American Literature.' To this day I keep it on the shelf between my collection of Forester's works and the little urn that contains my mother's ashes.
+- I love the sea as much as I love the veldt of Africa.
+- I know it's politically incorrect but I enjoy things like the kick boxing and cock fighting.
+- The first novel I wrote was a monster - clocking in at 180,000 words - but it died a death, a death it deserved. It was called 'The Gods First Make Mad.' It was a good title, but it was the only good thing about the book. I didn't let that put me off.
+- I'm not a good father and they're not children any more; the eldest is in his fifties. My relationship with their mothers broke down and, because of what the law was, they went with their mothers and were imbued with their mothers' morality in life and they were not my people any more.
+- I think one of the most poignant things is unrequited love and loneliness.
+- I believe that a healthy body breeds a healthy mind. I am 74 years old now and my wife, Niso, is 38 years younger than me. She absolutely insists that I take regular exercise with her.
+- My first novel was rejected by some of the most eminent publishers in the world. Starting again was a real wrench.
+- My mama loved books; I became fascinated by the wonderful stories that came out of these things she held in her hand - and started to make them up myself.
+- This first print run of the first edition of my first novel, 'When The Lion Feeds.' back in 1964, is so rare it can fetch several thousand pounds at auction. I always wanted to be an author, and I decided to write about what I knew.
+- They say I'm worth either €200 million, €100 million, €50 million or €10 million, but that's something between God, the HMRC and myself.
+- My father was my god. His approval was so valuable to me.
+- Write for yourself, not for a perceived audience. If you do, you'll mostly fall flat on your face, because it's impossible to judge what people want. And you have to read. That's how you learn what is good writing and what is bad. Then the main thing is application. It's hard work.
+- I have been blessed in many ways, and one of those is to have been born in Africa, for me a great treasure house of stories. I have been researching it since my infancy; reading about it, talking to men and women who have spent their lives in this land, living it as I have and loving it as I do. I write almost entirely from my own experience.
+- It's probably true that everyone has a book in them, although it may not be a very good one.
+- I work on my novels wherever I have a PC, and I have four or five places around the world where I do have a PC. These days you can just slip a little flash drive into your top pocket, fly for 12 hours, come to another place, plug it into a computer and you are away again.
+- The really disturbing thing about Somalia is that in a country where there are few economic opportunities, pirates are perceived as glamorous and are held in awe by young boys who aspire to their lifestyle.
+- I'm not a prophet; I can only use historical reality to come to a view of the future, and my view is that Africa will return to being African and not European. The advent of colonialism was foreign to the country itself, but it will return to what it was before the Europeans arrived.

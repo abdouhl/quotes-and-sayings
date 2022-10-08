@@ -1,0 +1,32 @@
++++
+author = "Walter Salles"
+title = "Walter Salles Quotes"
+quotes_len = "26"
+description = "the best 26 Walter Salles Quotes"
++++
+- So the search for a father in Central Station is also a search for a country.
+- We all knew the book well because it's the cult book in Latin America. For me, this was a sacred territory. I would not have ventured into it by myself.
+- It was a complex endeavor so without Robert Redford's constant support we wouldn't have gotten to the end.
+- That's why I have always admired documentaries, because they open windows that can make you understand much better where you come from, much better than fiction, I think.
+- Also, I knew that the impact of Motorcycle Diaries was going to be so resonant for all of us who went through the experience of making it that I didn't want to do anything that could reflect it.
+- The other aspect is that you become much more aware of the structural problems that pertain to that continent. You feel the need to act to try and solve them.
+- But I also think that the more you reason collectively about what the project should be at the beginning of the process, the more you can improvise later.
+- The necessity to conceptualise has to come very early on, and defining a vector of development for that film also at the beginning of the process will allow you much more freedom as you go along.
+- The films that I've done before were original stories most of the time, I did two adaptations before this, but they were mostly original stories where I had complete freedom to evolve in the direction I wanted.
+- There are still 500,000 persons afflicted with leprosy in Latin America, so it is still very much present.
+- The Peruvian faces are completely different from that faces in Argentina and in Brazil.
+- I come from Brazil, which is a Portuguese speaking part of the continent.
+- I went to Cuba maybe eight or nine times.
+- Also, there are now new laws in Brazil which create incentives for Argentine and Latin American films to be premiered and distributed in Brazil and vice versa.
+- I'm much more interested in living specific experiences in films.
+- I come from a country and also a continent whose identity is in the making. We're a very young culture, and I think that things are not yet crystallised.
+- So I feel a responsibility to help first-time film-makers in Brazil, but also to increase the dialogue between film cultures which are really wonderful and so much closer to us than what we do see on our screens.
+- On the contrary, I'm a strong believer in the necessity of imperfection coming into the film.
+- No, I worked a lot for European television, doing documentaries in Brazil.
+- And my generation in Brazil was influenced by Cinema Novo. So we're echoing what's been done way in the past.
+- I did documentaries for maybe 10 years before I turned to fiction films.
+- The Sundance Institute has been vital to the film communities of Latin America.
+- A filmmaker can never be distant from his roots.
+- My father was a diplomat for part of his life and I jumped from country to country and culture to culture.
+- So when I was very young, I longed for Brazil.
+- When I come to London, I always like to see what's playing at the NFT.

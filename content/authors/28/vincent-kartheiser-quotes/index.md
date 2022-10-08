@@ -1,0 +1,16 @@
++++
+author = "Vincent Kartheiser"
+title = "Vincent Kartheiser Quotes"
+quotes_len = "10"
+description = "the best 10 Vincent Kartheiser Quotes"
++++
+- I've never been monogamous. It might happen, but it never has yet. I don't understand women, I'm off that kick.
+- But now I feel off the grid. I feel that I am not part of the culture. And because I don't have a car I don't really go anywhere to buy things. In fact, I have been in a slow process of selling and giving away everything I own.
+- I was, aged nine, the go-to kid in Minneapolis for a commercial voiceover.
+- And when I was a kid being an actor was not cool. I'm thirty now and when I was a kid in the 80s that wasn't a cool thing to be.
+- I don't have a lot of money. I get some from Mad Men. But I don't think I'm rich.
+- Well, I think certain roles are chosen for us. The moment I read Pete Campbell I thought: I can do this, this is mine. And in Money, too. The truth is I turn down a lot of projects. If a character doesn't have some kind of internal struggle, it's no good for me.
+- I was a nut for Dostoevsky. You can tell a lot from what people read between those ages. My brother was a Steinbeck freak and now he lives in a little village in New Hampshire and he's a baker.
+- I've worked with actors before where I was like, this is not working, and then I've seen their work on the screen and I've been like, Wow, that was a really great performance. Because there are a lot of elements with film. It's not like stage. It's not a kind of performance art anymore; it's a highly tuned kind of collaboration - a symphony.
+- It's easier to do Shakespeare than Spelling, and I know that sounds crazy, because the challenge of Shakespeare is living up to Shakespeare, living up to that word, not failing, you know, where with Aaron Spelling it's like, just try to look good. Or maybe don't use Spelling there, that's bad. No - you can. He's dead.
+- Storytelling is the important thing.

@@ -1,0 +1,60 @@
++++
+author = "Verne Troyer"
+title = "Verne Troyer Quotes"
+quotes_len = "54"
+description = "the best 54 Verne Troyer Quotes"
++++
+- There's nobody else that can double me - except for a doll.
+- I'll be one of the Who's of Whoville.
+- We grew up Amish, but my parents left the religion when I was a child. The Amish have lots of rules, and my dad thought many people in the faith were hypocritical because they'd tell others not to do something and then do it themselves.
+- There's times when you're having dinner with a good friend and you're in the middle of a conversation and somebody comes up and cuts you off. Can you sign this? Can I take a picture with you? I'm adjusting to all the attention.
+- I was pretty bad when I was younger.
+- There aren't too many people like me.
+- L.A. is so fake - girls there are so superficial.
+- I was a typical boy growing up, even though I wasn't particularly outgoing or chatty. I loved running around and playing football. My siblings and I are only a year apart in age, so we played together. Sometimes it was good being so close, sometimes it wasn't - like when they'd steal my candy and toys.
+- In Men in Black, it was a very small character, no pun intended.
+- It's hard for me to even watch comedies I'm in.
+- I like a lot of different types of music.
+- I'm not a star.
+- If my parents didn't raise me in the way that they did, I wouldn't be in the position I am now. They raised me very independent and taught me you can do anything you want to. I have an average-sized brother and an average-sized sister, and I had to do everything they had to.
+- I just take it one day at a time. Austin Powers has given me a lot of opportunities as far as my career.
+- I still pinch myself that I ended up in Hollywood. And I am still surprised at the fans.
+- I got a call from somebody who used to be the president of Little Persons of America. She got called from some producers who wanted someone of a certain size in the John Hughes film 'Baby's Day Out.' So that was my big break, as the stunt double of a nine-month-old.
+- I was just the perfect person to play the Mini-Me character.
+- I grew up in Michigan, in a very small town, Centreville. In my graduating class, I had like 92 people.
+- Me being able to beat up Austin Powers? I mean, how great can that be?
+- In the film, I'm not very mobile, like in the space suit.
+- There were a lot of times I'd hide in my locker and jump out and surprise people. Whenever friends would come by, I'd open the locker and hit' em.
+- We were doing the dance routine and I dislocated my knee. I've been doing stunts for a long time and it's kind of weird that I'd dislocate my knee just dancing.
+- If I walk up to a bar, they wont see that I'm standing there.
+- Now I get to pick and choose exactly what I want to do.
+- I think it was a good challenge for me to get my reactions across without being able to speak.
+- In high school and college all my friends and my brother wrestled.
+- Me and Mike Myers had great chemistry between us.
+- I'm very critical of myself.
+- Working with Christopher Plummer, I mean, he's a legend. I was so, so nervous even meeting him, but he made me feel comfortable, and that helped me tremendously.
+- People have a good time with all the catch phrases.
+- I can play the leading man. I can play the action hero, maybe in just a different way. I look at it as, you know, if you set your mind to it, you can do it.
+- 'Pinocchio's Revenge' was pretty bad. I was basically a stunt double for a doll.
+- What I really enjoy the most is seeing what the crowd likes. I enjoy making people laugh.
+- Doing stunt work is risky, but it's something I enjoy.
+- I felt probably more uncomfortable than Beyonce. But I can't answer for her.
+- I was working at a candy-wrapping factory before I became an actor. I admit I snuck some hard candy, which is great because you can suck on it while you're working.
+- People categorise people as being disabled, and it's basically whatever you put your mind to, you can do, and everybody that has limitations, they can still do anything they want as long as they set their mind to it.
+- Somebody pitched me a superhero movie involving Abraham Lincoln. I was also pitched the idea of Dwarfula, which involved a mob of little people.
+- I went to see the film with a regular audience for the first time on Sunday, and was basically swamped.
+- I love London. I would move here. I like British people; everybody is so down to earth.
+- I've had people come up and actually pick me up out of the blue. That gets a little annoying.
+- If I did everything, I probably wouldn't be here talking to you. There aren't too many people who can actually double me, so I do most of my stunts though.
+- I stay away from the elf roles; I stay away from playing a leprechaun. All the roles I try to do are something that an average actor would do.
+- All my family is average-sized, apart from me. I didn't really think about my size until I got older, a few years before high school. It had never really fazed me that much.
+- I think when average-size people start taking roles that were meant for dwarfs, that's a little frustrating because there aren't that many roles out there for height-challenged actors.
+- I told my family, 'If I get out of line, just kick my butt.' The last thing that I want is to change.
+- I've done approximately 15 films, and most of the things I've done have either been stunt or costume work.
+- I'm a big sports fan. College football is my favorite.
+- My parents taught me to be optimistic and independent. They made me feel that I could do anything I set my mind to, which has really helped me. They didn't make allowances for me because of my height. I had to do everything my brother and sister had to do, including raising our animal menagerie that included cows and chickens.
+- I'm always going to be known for Mini Me, and it's fine.
+- I don't feel disabled, and I think everybody makes their own way in life.
+- The Amish like to live a very plain lifestyle, the way they think God intended. It sort of brings you back to, like, 'Little House on the Prairie' days or something.
+- I've never been tall. So it's not like I was six-foot, got paralyzed, and now I'm in a wheelchair. It doesn't really faze me all that much.
+- There's a lot of little people who think they can't do certain things, but like I say, if you put your mind to it, you can do things that average people do, just in a different way.

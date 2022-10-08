@@ -1,0 +1,31 @@
++++
+author = "Wendy Liebman"
+title = "Wendy Liebman Quotes"
+quotes_len = "25"
+description = "the best 25 Wendy Liebman Quotes"
++++
+- Just figuring it out for 30 years - 30 years... I think I'm ready now to expand - to grow.
+- People always come up to me and say that my smoking is bothering them... Well, it's killing me!
+- I used to write jokes with friends. We'd pick a topic and then think out loud, brainstorm.
+- I think there have always been funny women, from Carol Burnett to Joan Rivers. When the audience sees a woman, they innately know she's worked twice as hard to get there, she's had to prove that she can be the leader, first, and then be funny on top of it. She has to emit a confidence that she's in control.
+- My sister and I had a lemonade stand - with a two-drink minimum.
+- I don't think I was funny until college. I lived with some Harvard MD/PhD students - they were so smart, and what I contributed to the house was, I was the funny one.
+- I spend a lot of time on Facebook and Twitter writing all day long because I feel it's my job to entertain people.
+- When I want to make someone laugh in real life (as opposed to when I'm on stage where I tell one-liners), I tend to do prop comedy. For example, if I'm at the supermarket with my husband, I might put 16 bags of marshmallows in our cart when he's not looking, or if I'm trying to make a kid smile, I'll put my glasses on crooked.
+- I took an acting class. After the first day, the teacher quit, so they said take another. When I saw 'How to be a Stand-up Comedian,' it resonated. I realized I'd rather make 200 people laugh than make one person cry.
+- My parents used to bring me to Radio City when I was a little girl, so performing there 50 years later was absolutely surreal - especially with my parents in the audience!
+- Is there a doctor in the house? My parents want me to marry you.
+- My husband and I had recently been in a car accident, and I came out of that experience with more clarity about my career and the energy to continue to pursue it hard, no matter what the challenges.
+- I want to be more myself. Sometimes it takes awhile to find your voice.
+- The audience loves when the comedian talks to them. You're creating inside jokes, which creates a community.
+- I would love to do a sitcom. I see myself as an older woman, getting married, and her stepchildren, who are in their twenties, move back home.
+- At one point, I wrote 20 jokes a day, and I had a commitment to send them to the same three people. Now, I just write down what my husband says in his sleep. He's the funniest person, even unconscious.
+- I think it's never too late to start anything, except maybe being a ballerina.
+- I've been on so many blind dates, I should get a free dog.
+- Most of my childhood is a big blur, 'cause I needed better glasses.
+- I've been pitching a show of five female stand-up comedians through the generations, from Phyllis Diller to Amy Schumer, so when I got an e-mail asking me if I would participate in the Women in Comedy Festival, I was thrilled.
+- I love being a housewife... I love doing laundry. Except I have a little bit of separation anxiety, and you have to separate your laundry, so I have a little bit of a problem there.
+- My mother always said don't marry for money, divorce for money.
+- A couple of weeks ago, I did karaoke and got nervous in a way I hadn't gotten nervous in 25 years. I'm so used to getting on stage in front of strangers to tell jokes, but singing is a whole different animal.
+- My mom was a ventriloquist and she always was throwing her voice. For ten years I thought the dog was telling me to kill my father.
+- People ask me if they can send me material, and some people give or send it to me unsolicited, but I rarely buy jokes.

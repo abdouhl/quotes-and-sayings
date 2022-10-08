@@ -1,0 +1,38 @@
++++
+author = "Zebulon Pike"
+title = "Zebulon Pike Quotes"
+quotes_len = "32"
+description = "the best 32 Zebulon Pike Quotes"
++++
+- Owing to the difficulty of obtaining horses, Mr. Henry returns from this place. In descending the Mississippi I will request him to pay his respects to you.
+- The Spanish troops returned and we could yet discover the grass beaten down in the direction which they went.
+- With the dreary season in which we travelled part of the route; with our minds much more actively employed in forming resources for our preservation from famine.
+- A discontented young fellow, filled with self pride; he certainly should have considered it an honor to be sent on so respectable an embassy as he was.
+- A young man who is here speaks the Panis language, and in many other respects, is preferable.
+- I cannot consent to be led three or four hundred leagues out of my route, without its being by force of arms.
+- The Pawnee chief had left the village the day after the doctor arrived, with 50 or 60 horses and many people, and had taken his course to the north of our route.
+- Why cannot we correct the baneful passions, without weakening the good?
+- They were conspiring to desert us in the night and steal some of our horses... we engaged a spy.
+- At the lodge the chief gave me many particulars which were relative to the late visit of the Spaniards.
+- If success attends my steps, honor and glory await my name-if defeat, still shall it be said we died like brave men, and conferred honor, even in death, on the American Name.
+- Should I be the happy mortal destined to turn the scale of war, will you not rejoice, O my father?
+- In my proper character, I am an officer of the United States Army.
+- Give immediate instruction to all your posts in said territory, under your direction, at no time and on no pretence to hoist, or suffer be hoisted, the English flag.
+- You have already disarmed my men without my knowledge, are their arms to be returned or not?
+- Strict justice would demand total confiscation of your property, personal imprisonment and fines.
+- Smoke the pipe of peace, bury the tomahawk, and become one nation.
+- Few Indians only had breech cloths, most being wrapped in buffalo robes, otherwise quite naked.
+- The toute ensemble was such as to make polished society blush, when compared with these savages.
+- There had so lately been a large force of Spanish cavalry at the village, which had made a great impression on the minds of the young men, as to their power, consequence, which my appearance with 20 infantry was by no means calculated to remove.
+- I differ materially from Capt. Lewis, in my account of the numbers, manners, and morals of the Sioux.
+- On no further occasion present a flag or medal to an Indian.
+- May Heaven be propitious, and smile on the cause of my country.
+- The preparations for my new voyage prevented the possiblity of my paying that attention to the correction of my errors, that I should otherwise have done.
+- American agents... are the only persons authorized to hold councils of a political nature.
+- The village had a mill near it, situated on the little creek, which made very good flour. The population consisted of civilized Indians, but much mixed blood.
+- He was a man, he always performed his promises.
+- It was the wish of the Americans that their red brethren should remain peacefully round their own fires, and not embroil themselves in any disputes between the white people.
+- If we go to Chihuahua we must be considered as prisoners of war?
+- Your former Fathers the Spaniards have now no further Authority over you.
+- I was informed... that some... were dreaming and wished to return.
+- Among various demands and charges I gave them, was, that the said flag should be delivered to me, and one of the United States' flags be received and hoisted in its place.

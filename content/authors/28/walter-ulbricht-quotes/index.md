@@ -1,0 +1,24 @@
++++
+author = "Walter Ulbricht"
+title = "Walter Ulbricht Quotes"
+quotes_len = "18"
+description = "the best 18 Walter Ulbricht Quotes"
++++
+- The more you participate in our common endeavors, the more successful your work in the factory, mine, wharf or village, in an economic institute or in the arts, in commerce or administration, the sooner we will be where we all want to be.
+- The guiding principle is not to manufacture the goods everyone needs, rather to earn profits for a few capitalists.
+- Any sensible family has a budget that lays out how much will be spent for household and other purposes. Without such planning, things would quickly go awry.
+- The West German population would protest passionately if it knew what secret meetings between the federal chancellor, McCoy, and foreign and Nazi generals are planning.
+- The victory of the working people over the exploiters and slave holders is at the same time the victorious struggle for liberation by the German people.
+- This hunger for profits causes great misery for the people.
+- When has there ever been a government in German history that came to the people and revealed its detailed plans for the coming years? That could not happen before, since German governments planned war and conquest.
+- The nature of a democracy consists to an important degree in the right of the people to criticize problems and mistakes.
+- In the past, people worked together only when some great disaster threatened.
+- May we soon enjoy the fruits of our labor in a peaceful and united Germany.
+- Gifts fall from heaven only in fairy tales.
+- Let there be great enthusiasm for the plan throughout the entire republic that will overcome all obstacles. Let us join together to realize the Five Year Plan and bring our economy and our own living standards to previously unknown heights.
+- Something new has happened: For the first time in German history our fatherland is guided by a plan that considers only the needs of the people, and aims at building prosperity and reconstructing of our fatherland.
+- The success of each of us benefits us all, and the success of us all benefits each of us individually.
+- It is the most important contribution we can make to speeding up reunification.
+- Let us show our fellow countrymen and the entire world what the Germans can do when they work for peace.
+- The government of the German Democratic Republic rejects secret policies. It works for the people, and only the people, so it does not need to keep secrets like the warmongers.
+- The plan shows that the twenty million people in the German democratic Republic and in the democratic sector of Berlin think only of peace, and that they are working for freedom and peaceful prosperity.

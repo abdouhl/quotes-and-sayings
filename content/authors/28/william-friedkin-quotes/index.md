@@ -1,0 +1,14 @@
++++
+author = "William Friedkin"
+title = "William Friedkin Quotes"
+quotes_len = "8"
+description = "the best 8 William Friedkin Quotes"
++++
+- The informing idea of what you want to say and do, that's what will take you from film school to professional - the idea. That's what is original to you.
+- The first work of the director is to set a mood so that the actor's work can take place, so that the actor can create. And in order to do that, you have to communicate, communicate with the actors. And direction is about communication on all levels.
+- I really think that sex always looks kind of funny in a movie.
+- Technique is of less interest than character and story.
+- I don't know about the rest of you, but I feel pressed and tense almost every day of my life about something or other. And I think it's the one thing, as I look into people's eyes, that I think I share with almost everybody.
+- I tend to be attracted to characters who are up against a wall with very few alternatives. And the film then becomes an examination of how they cope with very few options. And that's, I guess, what interests me in terms of human behavior.
+- Violence is not funny.
+- Style is something that's extremely important, but it must grow naturally out of who and what you are and what the material calls for. It cannot be superimposed.

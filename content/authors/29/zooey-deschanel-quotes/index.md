@@ -1,0 +1,167 @@
++++
+author = "Zooey Deschanel"
+title = "Zooey Deschanel Quotes"
+quotes_len = "161"
+description = "the best 161 Zooey Deschanel Quotes"
++++
+- It's an addiction. I love clothes. I like to go down Melrose and look in all the windows and I go to different flea markets. I have lots of costumes. You never know when you're going to have to dress up like a milkmaid from the 1600s.
+- To be a gluten-free vegan is, like, the most difficult thing you can possibly be.
+- I think that the mistakes that anyone can make going on dates is probably not being themselves because you can only trick people for so long.
+- You can't expect to make no effort. You still have to make the effort and be kind and understanding.
+- There are a lot of actors who will sit here and talk to you about characters - 'He does this, and she's a really interesting character because she does this.' I'm not like that at all. I'm not an actory actor.
+- The red-carpet thing of premieres and parties is probably my least favourite part of my job.
+- I think making a movie or a record, the best things happen by accident - and those end up being the magic. Every time I've followed my gut it's been better than when I've tried to do what I was supposed to do.
+- I tend to like simple music. And clever, succinct lyrics. Songs that don't try to be more than they need to to be effective, to stir up something emotionally within you.
+- I think I'm a fun flatmate. I'm always cheerful. I go on tour with my band so it's 12 people on one bus and I feel like I'm the one who's happy in the morning. I'm not a chaotic person, but I might slack off on doing the dishes from time to time.
+- I listened to a lot of Joni Mitchell in high school. She was sort of an inspiration to me. I think she's a great lyricist, and she makes interesting choices.
+- I grew up believing my sister was from the planet Neptune and had been sent down to Earth to kill me. I believed this because my sister Emily convinced me of it when I was a toddler. I think she'd seen Invasion of the Body Snatchers and her imagination ran away with her. There's a part of me that still believes it.
+- I always wanted to be normal. I tried really hard, but it's like I try so hard and then people still say I'm offbeat. I've learnt to accept that and take advantage of it as an actor.
+- It's interesting, because as a musician, I don't feel like I need to be on the top of the pop charts.
+- I like having a schedule. I tend to be the type of person that thrives on something being regular.
+- I am always early to work but sometimes late to other things.
+- I'm the worst at picking what movies are going to do well. I have no idea. I'm really surprised if a movie I like does well.
+- I don't have control over what's on screen, and that's terrifying.
+- I think I'd say that my whole body of work is a reflection of who I am, but not any one specific thing.
+- 'Pastoralia' by George Saunders is one of my favorite novels.
+- I've always been really picky about roles and make a point of reminding myself that it's not about the money - because, obviously, there's a lot of money to be made in this business if you're willing to do anything.
+- If you're eight and you live in Los Angeles and everybody has toys and you go to a country that has a Marxist dictatorship and there are no toy stores and nobody speaks English and it's blazing hot every day and they only have fish, which you don't like, then you tend not to appreciate the cultural lessons you're learning.
+- I just sort of follow my bliss, so to speak, and then I see where that takes me.
+- I like to make colored xeroxes of things. I clip out pictures of Liza Minelli and her husband from magazines and I fax them to people anonymously.
+- I started out doing musicals.
+- I think it's better to have your personal life and your work life separate. That way they don't corrupt each other, so to speak.
+- I really like the collaboration of doing movies and television. But I like the sort of solitary work of doing music.
+- Sites like Funny or Die and College Humor are great, but I'd say it's appealing to 80% men and 20% women.
+- I like acting with no lines because all of a sudden you're able to express things without always worrying about the text. It's great to have a great text, but there's a lot of stuff you can't say in words, and I think there's something really nice about good physical moments.
+- Well, my piano's really beautiful. I actually have two pianos. I have a Yamaha upright from the '60s that's blond, wood, and black, and I also have one from the '20s from Chicago - not a well-known brand or anything.
+- I think there's a certain space people have decided I occupy - the funny-sidekick thing.
+- Everyone romanticizes somebody.
+- If I'm going to be 'too' anything, 'too cute' is fine. I love puppies. So what? Who hates puppies?
+- I can't even remember the first time I started singing.
+- I'm always trying to do stuff I haven't done before or challenge myself so I'm not resting on my laurels all of the time because if I just found my little niche and never left it, I'd be pretty boring, I think.
+- I've always straddled a weird line - there's a lot of mainstream stuff that I love. At the same, I still feel like an outsider. I'm the outsider who's on the inside.
+- Summer has always been my favorite season. I feel happier.
+- 'It Girl' is supposed to be something that only lasts a certain amount of time. They keep calling me an 'It Girl,' and at this point it makes me laugh, because I've done that so many times: 'You're it;' 'You're not it.' What is 'it?'
+- I'm always doing something musically - when I'm working or when I'm off.
+- I don't like business talkers, you know, people who are constantly like, 'Blah blah blah movies.' I find it incredibly boring.
+- I'm not going to say I'm a big girl. I'm a very small person, but I'm a healthy weight. That might be a little weird for Hollywood.
+- I feel like songwriting is an experiment in empathy.
+- I just like music that sounds like music. Not like machines and computers and things that you design to make things sound slick and perfect.
+- I like to play the ukulele, but I'm not, like, awesome at it. I mostly play the piano and the guitar.
+- Women I admired growing up - Debra Winger, Diane Keaton, Meryl Streep - were all beautiful and thin, but not too thin. There are a lot of actresses who are unhealthy-skinny - much, much too skinny. You can't Pilates to that.
+- I love singing Christmas carols. I know every harmony to every music-hall Christmas song.
+- It's very much a piece of myself when I write a song. I don't mean to say it's very personal, like the lyrics mean something personal to me. When I write a song, that's my taste in music - my taste in chord progressions and melodies.
+- There's a vegan and gluten-free bakery called BabyCakes that I love. They've got shops in New York and Los Angeles. Their stuff is amazing.
+- I have been a harmony enthusiast since I was a child, singing in choir and with friends growing up. I always put a ton of harmonies on my demos.
+- Not that there is anything wrong with confessional songwriting, there are plenty of people that do that I admire. I think it is great, it just isn't how I do things.
+- The first job I ever had was singing in a jazz club when I was like 15 with my friend, and we earned like 70 bucks. We were like, 'Oh my God!'
+- I hate camping, but I love summer camp.
+- Every show is unique; some shows have the master plan and have everything figured out and that's just the way they do things. It's like high school. Some people write their papers the second they get their assignments, and some people write it the day after it's due.
+- If you can make a character likable that's not very nice, that's the challenge of the job.
+- I love to cook. But I have some food allergies, so I have to contend with those.
+- Modern recording has made it so that people can spend forever taking shortcuts and making everything uniform, but that strips music of what makes it exciting.
+- If people just want to be famous, that's just not enough to get you up at 4 in the morning to go to work. You have to love what you're doing.
+- I like singing as much as I like acting, and all through high school I thought I might be a Broadway singer.
+- It's nice that there are movies and songs about romance - it's what motivates us as human beings. I'm all for being brainwashed by rom-coms.
+- I put myself out there; it's part of my job, and I get it: people will attack me. At first I was thrown off, but now I have a pretty thick skin about it.
+- We all know guys who've had their hearts broken in real life; we just don't usually see it in the movies.
+- I'm wary about this thing about being in the generation of social networking where people are like, 'I am my musical taste.' I am not just a collection of music. Or a collection of movies. I think that's a thing that people romanticize: 'Oh my God, she likes this band so she is a dream.'
+- One thing I love about Christmas music is that it has a tradition of warmth.
+- I went to Northwestern because I had gone to a really nontraditional high school. I was like, 'It'd be cool to have a traditional college experience.' Then I was like, 'Oh, but none of these people understand what's cool about me. My specialness is not appreciated in this place.'
+- I've personally never wanted to be 'the babe', and refuse to let vanity get in the way of my acting because I don't see my job as being a beautiful person.
+- I love indie movies. I think that independent cinema is where it's at and where a lot of trends begin. It's where new filmmakers are breaking through.
+- You go to something like the Golden Globes, and it's the most glamorous place you could ever be, but then you go home and you're still like, 'Urgh, this dress is too tight, I wanna take off these shoes and put on my pyjamas.' At the end of the night all the glamour goes away and you're just a human.
+- My sister was always very motherly, babysitting and stuff.
+- I never have time to have a dinner. I have to eat while I'm memorizing lines. The only way to maintain energy is to eat all day long. I must eat all day long.
+- The average person tells a few white lies.
+- I wanted to be a child actor so bad that every day I'd beg my parents if I could audition, but my mom said, 'Not until you can drive yourself to auditions.'
+- Nothing could be as hard as middle school.
+- If I were to work with my mom, I probably would not want her to play my mom. That would get too real.
+- Making movies, you're like an independent contractor - you come in, you have a specific job, and a lot of what you do is completely manipulated, which is good and bad.
+- I just feel like growing up in Los Angeles, you learn, 'Well you're never gonna be the prettiest girl in the room, so just don't even try.' I mean, I care about being pretty, but it's not my most valued thing.
+- People sometimes say, 'Oh, you were a movie star,' and I'm like, 'No, I was a supporting actress.' I wasn't an A-list actress, and I'm fine with that. I'm proud of what I did in film.
+- My nursery school did a production of 'The Three Little Pigs.' I played the third pig. When the wolf knocked on my door, I refused to get up and answer it because, to me, he was knocking the wrong way. I just lay there, snoring away on stage, fully immersed in my character. My dad turned to my mom and said: 'Dustin Hoffman.'
+- I love having a lot of content. I prefer to have constant stimulation.
+- I'd be more likely to go for somebody who is like me. Well, I like creative people, so whatever that means... Yeah, authentic and creative.
+- I did not have a date to the prom. I went to my junior prom alone, and my senior prom, I was doing my first movie. I went in a limousine with, like, a bunch of people to my junior prom. It was a group date.
+- The Internet's like one big bathroom wall with a lot of people who anonymously can say really mean things. It's fine, I believe in freedom of speech and I think people should think what they want, but I don't care to hear it.
+- I love downtown L.A .and I relish any opportunity to spend time there.
+- Always the aim for me is making people feel like they are not alone. That's just the greatest feeling.
+- The first album I bought with my own money was 'A Hard Day's Night.'
+- I like old movies, screwball comedies, vintage clothes, and basically I'm an old-fashioned gal.
+- I'm a romantic, but I'm not a romantic in the traditional sense. I like to romanticize what happens to me. Whatever happens to me - you could quantify it as good or bad - I romanticize it. I think along the lines of 'When that thing happened, it made me who I am.' That kind of thing. It's a different way of being romantic.
+- I wasn't really the most charming person, socially - it took me a long time to develop my people skills - but the one place I was always comfortable was onstage, acting or singing.
+- In my mind, I always think of myself as an underdog type.
+- There are so many cute vintage dresses made out of synthetics from the '60s and '70s - but they're so itchy and hot. It's not worth it!
+- When you have endless time, you take all day to go to the grocery store. But, if you have to be at work for 14 hours a day, you manage your time better. I know I do.
+- When you work on a movie, especially an independent movie, it's a lot of work to make it! It's not just our job as actors - so many people are working so hard, and even the littlest movie takes a lot of work.
+- Anyone who knows me knows that I am really into hair. I'm a real girly girl and love doing my hair and experimenting with different styles.
+- If I could give my teenaged self any advice, it would be 'Calm down!'
+- Humor is a part of spirituality.
+- I wish I got invited to more luaus. I really do!
+- From my perspective, probably women are won over by people who are sweet and respectful and courteous and kind and funny. I think those are the things that win women over.
+- I appreciate a songwriter like Morrissey with so much restraint.
+- For me, writing is 75 percent procrastinating and 25 percent actually sitting down and working.
+- I get embarrassed a lot of times getting attention, but I like being onstage. Do you know what I mean? If I'm in a crowd of people and they're all looking at me, I will feel embarrassed. It's a strange dichotomy.
+- I'm a person who gets better with practice. Getting older is awesome - because you get more practice.
+- Especially in comedies, I think a lot of time the female characters are there to provide a balance for guys.
+- Do your eye shadow first, then your foundation. That way, you can clean up any mess without starting all over again.
+- Oh my God, there are so many songs I wish I had written. 'Waters of March,' I wish I had written 'My Baby Just Cares for Me,' I wish I had written 'This Will Be Our Year,' I mean, there's millions of them. 'Wouldn't It Be Nice?'
+- My biggest complaint with tights is that they do not accommodate skinny-ankled people like myself.
+- I think that if you haven't been to the grocery store in a really long time, it's really easy to get very out of touch.
+- I think penguins are cute.
+- What led me to be an actor is that I have a strange something in me that can drastically change the way I appear to the world. Growing up, I couldn't understand why people would always have different ideas of me - but because of that I became aware of how you can manipulate your own ability to change. And then I learned to make a career of it.
+- There's something about guitars, they're just so big, you know what I mean? You're just like, 'Ugh!' It just seems so overwhelming. And the ukulele is, like, the opposite of overwhelming.
+- I sort of consider myself a comedic actress, not a comedienne. I think it's different. You know, I'm not a stand-up or anything, but playing into comedic situations is sort of where, I think, my strength lies.
+- I always choose roles that are, you know, hopefully different from the last role. I don't wanna do the same thing over and over again because that's, well, first of all that's no fun.
+- I've never pursued a role. I always hear stories about actors going after parts and I'm, like, 'How do they do that?' It seems so weird. It seems like a total myth or something.
+- I played a lot of sarcastic, wisecracking characters for a long time, and people would think that was me. And it's very much not me, and then people would think I was being sarcastic when I wasn't: 'Oh, you're making fun of me right now.' And I wasn't!
+- Secretly, I think everyone who makes fun of California really does want to be in California.
+- I get really insecure because even though I can speak in musician's terms, I don't know as much as real musicians.
+- I find sadness and strife to be so much more interesting with an upbeat melody.
+- I grew up believing my sister was from the planet Neptune and had been sent down to Earth to kill me.
+- For some reason, people look at me and laugh. I don't know why.
+- No, I've been singing forever. I started out doing musicals. I think that was part of the reason why they gave me the part, because I sang.
+- I don't know why femininity should be associated with weakness. Women should be free to express who they are without thinking, 'I need to act like a man, or I need to tone it down to be successful.' That's a very good way to keep women down.
+- I like playing sort-of-crazy people. There's something really, really fun about that.
+- I did go through this period where girls would be mean and I had a lot of guy friends. But I've found as an adult the importance of having female and male friends.
+- Growing up in Hollywood meant there were a lot of film stars' kids at my school - but no conspicuous wealth. It wasn't cool to show off that you had money.
+- Romantic comedies are usually about when love works.
+- Girls get competitive, as though there's only one spot in the world for everything _ but that's not true. We need to stick together and see there's more to life than pleasing men. It's important not to cut yourself off from female friendships. I think sometimes girls get scared of other girls, but you need each other.
+- If I'm trying to please every craze fan, then I can't. Of course, we all want to please the fans.
+- Classic Christmas cookies are really time-consuming. Instead, make a bar you can bake in a pan and just cut up, like a brownie or a blondie or a shortbread, which still has that Christmas vibe.
+- True love that lasts forever... yes, I do believe in it. My parents have been married for 40 years and my grandparents were married for 70 years. I come from a long line of true loves.
+- I think the best comedic actors don't play it for comedy, they play it for reality. Then you find it funny because it's real. Playing the genre is the worst thing you can do - it's embarrassing.
+- In a lot of movies, you'll see people on crazy dates, and you're like, 'No one would ever do that!'
+- When I exercise, I like to take lots of different classes because I want to really apply myself and feel like I'm learning a new skill. Not that I ever want to have to demonstrate any of those skills!
+- Nothing's better than a picnic.
+- I can't go on Gawker. I actually think the writing is really funny, but there is a chance that somebody is undercutting me.
+- I know a lot of people that have had fake Twitters... actors and musicians that I know. It's sort of a problem. There are all these people that sign up thinking that they're getting somebody's real thoughts when it's just some guy.
+- I'm a person who has a lot of energy. So, yes, I don't really stop to rest or de-stress. I just keep going. I figure that if you don't stop, then you'll never notice how tired you are.
+- I don't know how to explain how, probably to my detriment, unselfpromoting I am. I used to have a cabaret act and I didn't even like to tell me people about that. I really hate selling myself.
+- Being an actress can be a little like being a girl in the '50s: You're stuck waiting by the phone, hoping that the boy you like will call.
+- I think my knowledge of music theory is rooted in jazz theory, and a lot of the writers of standards - Rodgers and Hart, and Gershwin.
+- I have Pro Tools on my computer, and I make CDs all the time.
+- I've had experiences where I wasn't allowed to change words around at all because you have to say everything, exactly as written on the page. That's not fun for me. For me, part of being an actor is being able to contribute to a character's rhythms. If there's room to explore, you find a happy medium.
+- I feel there are tone singers, and there are more vocal gymnastics singers. And I think that's amazing when people can do that, but I think there's room for the tone singers. And there aren't a lot of them.
+- Everyone needs a theme song! It should make you feel like a million dollars.
+- I don't think there are that many awesome roles out there, whether we're talking about movies or TV.
+- I accidentally entered a youth pageant when I was 14. That's like a beauty pageant, but without the beauty. It was terrible.
+- I was doing about five movies a year for many years. I was just so tired. I walked around feeling like a Mack truck hit me.
+- It's cool cause my sister is older than me and we went to the same high school, so by the time I got to high school, I got the lowdown on all the teachers and everything.
+- I remember having this friend in school who said she didn't like the Beach Boys. And in that moment I knew we couldn't be friends anymore.
+- I think the best comedies came out during the Depression. Personally.
+- I will wear tights even if it's 100 degrees outside. Tights are my safety blanket.
+- I have had brown hair and bangs since I was 2. One year I dyed it blonde, which felt so weird.
+- I gravitate towards happy music. I love the Beach Boys.
+- The moment you sense someone is making something because they think people are gonna buy it or like it, it's just so phony! The public has a nose for phony like nobody else.
+- You don't have to wear expensive clothes to look good.
+- I think my own personal style always ends up seeping into characters that I play. I've always had a very distinct idea of fashion for myself, and what a character should wear.
+- It's a lot harder to do an ensemble because your energy is going in so many different places, and you have to cover everybody. You have to sort of split your attention.
+- A lot of people work out to be skinny. That's so boring, and it seems like a depressing goal for a modern woman.
+- If 'New Girl' had been a movie, I don't know whether I would have been given the opportunity to do it.
+- I'm into sincerity in music and sincerity in art. If it doesn't feel true, I don't want to do it. Things that are too dramatic scare me. I think that's why I don't always fit into the world of performing arts.
+- Certain aspects of my personality are always going to come out on-screen. I guess that's just me - if they say I'm quirky, I'm quirky. It's better than being boring.
+- I'm a very positive person. I get excited easily, and I like to jump around.
+- I still have in me the same awareness when I was 12 and chubby and a girl was spitting in my face. I'm the same person.
+- Know what suits you. Now I understand proportion and recognise the shapes that look good on my figure.
+- I like romantic comedy as a genre, but I think it can get stuck in its ways.

@@ -1,0 +1,29 @@
++++
+author = "Zack Steffen"
+title = "Zack Steffen Quotes"
+quotes_len = "23"
+description = "the best 23 Zack Steffen Quotes"
++++
+- There's a lot of nerves, a lot of excitement, a little bit of sadness leaving the chapter in Columbus.
+- I'm a nice guy. And I like to enjoy life, and be around people I love.
+- Everyone has different paths. I've been lucky to have a good support system - my family, friends and colleagues to keep me grounded and humble and to keep working hard. I never give up.
+- Any success that I have had as a goalkeeper in MLS with Crew SC is a testament to those around me who have pushed me - teammates, coaches, staff, family, friends and supporters.
+- Negative press is always going to come out.
+- I've had my stint at Columbus. My family has been right by my side throughout, and that's exactly what I wanted. I found my happiness.
+- Columbus is considered my second home, so I definitely miss Columbus for many different reasons. I definitely miss the good times I had there and I miss the guys for sure.
+- There are always going to be your supporters, and then there are going to be haters. I kind of laugh at them.
+- When you work hard anything can happen, and I'm just trying to go into 2019 starting where I left off in 2018.
+- David Rouse, a goalkeeping scout for Manchester City, came over for maybe a week in October. He was an awesome guy. He showed me what kind of club they were like. We talked about Manchester City. He watched me and watched a game.
+- There are days where I'm at the facility almost all day long. It's definitely demanding mentally and physically.
+- As a goalkeeper, you have so much time back there where you're alone, and you're talking to yourself in your head.
+- I think it will be good to be in Columbus and get pushed there and then go overseas. If there is a loan, it will be good to get comfortable and get games and get used to the pace of European soccer.
+- I am eager to continue to put in the work to improve and be the best teammate I can.
+- I trust in Man City and what plans they have for me. If everything works out and everything falls into place, anything can happen.
+- I would love to be in Manchester on the roster.
+- I'm confident in my abilities and what I can do if I continue to work hard and focus. I don't really care what other people think.
+- I watched the Premier League every weekend with my dad - the highlight shows, everything.
+- I can look forward to that. Getting back over to Europe and playing at a little bit higher level, then hopefully becoming a leader for the national team.
+- I want to win games, want to win championships. I want to go to the World Cup. I want to win a World Cup. I want to play in Champions League. I want to have fun throughout all of that, and I want my family to be a part of that through the entire path.
+- I went to Germany taking a chance on seeing what Europe was like, and taking on that new challenge. Obviously it wasn't for me at the time, but I always had that goal to come back to the U.S. and work hard and hopefully go back to Europe.
+- And when I hang up my boots and gloves at the end, I want to tell myself I gave everything to the sport.
+- It's an amazing life, don't get me wrong. But being a professional athlete, is... is not as glamorous as everybody sets it out to be.

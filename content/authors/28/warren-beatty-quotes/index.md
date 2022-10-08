@@ -1,0 +1,54 @@
++++
+author = "Warren Beatty"
+title = "Warren Beatty Quotes"
+quotes_len = "48"
+description = "the best 48 Warren Beatty Quotes"
++++
+- You know you're old when you're asked, 'Do you have hobbies?'
+- I don't want to run for governor, but I don't think anyone should put public service out of the question because that's not what a good citizen does.
+- And then the conditions of safety - or lack of safety - for teachers in public schools, and the disparity between public schools and private schools is shameful.
+- I sometimes feel I have met everyone he ever met, but I never met him. I am afraid to say I have always been - the word I would have to use is - amused by Howard Hughes.
+- My mother and my father were teachers. My grandmother and my grandfather were teachers. This is something I really know about. Even when I was a kid, it was a profession my father couldn't stay in, because he couldn't make enough money.
+- You've achieved success in your field when you don't know whether what you're doing is work or play.
+- By attracting attention to yourself, you distract people from the movie. Ideally, you like a movie to speak for itself. You don't describe a song before you sing it or tell about a painting before you show it. You don't reveal the recipe before you serve the dish. You taste it.
+- When you mutilate movies for mass media, you tamper with the hearts and minds of America.
+- Government is not show business.
+- If I had done some of the movies that I was offered as an actor - and very good movies, by the way, and some of them big moneymakers - I don't know that I ever would have taken what was the concentration or the time to do the movies that I produced. 'Reds' is a good example, but 'Shampoo' is also an example, and so was 'Heaven Can Wait.'
+- My notion of a wife at 40 is that a man should be able to change her, like a bank note, for two 20s.
+- I'd rather ride down the street on a camel than give what is sometimes called an 'in-depth' interview.
+- For me, the highest level of sexual excitement is in a monogamous relationship.
+- Organized labor, if they're doing a responsible job, is going to organize the pooling of small amounts of money to protect the interests of the people who are not rich.
+- Invented memory is a subject that fascinates me.
+- I was studying with Stella Adler, who was a great, great teacher who encouraged me to be an actor. I had thought I would just write or direct or whatever. I wasn't thinking very much of Hollywood. I was thinking only of the legitimate theatre. But then I changed.
+- I would say that I wasn't so much afraid of marriage as afraid of divorce.
+- There's no point in making a movie just to be making a movie.
+- The unconscious is much smarter than the conscious.
+- I don't know that any of us can control our own image. We are what other people see.
+- Character is plot, and casting is character.
+- It's hard to misquote someone who doesn't say anything.
+- Movies are fun, but they're not a cure for cancer.
+- I was friends with President Ronald Reagan and he once said to me, 'I don't know how anybody can serve in public office without being an actor.'
+- For years, Warner Bros. was trying to get me to make a movie about Howard Hughes.
+- I think I've had 16 books that purport to be a biography of me. I've never cooperated with someone.
+- I left Northwestern University after a year and was in New York playing piano in a little bar on 58th Street, and I didn't know whether to go back.
+- When I came to Hollywood, I would take the opportunity to get to know George Stevens or Willy Wyler or Billy Wilder or Freddie Zinnemann. David Lean I got to know, of course, in London. And David Selznick and Darryl Zanuck, not to mention Jack Warner, and Sam Goldwyn was actually very, very nice to me.
+- I don't want to be mushy about it, but having four kids is definitely the best thing that has ever happened to me, and each kid is, to me, more fascinating than any five movies.
+- I have been famous for a long time.
+- The definition of a Schwarzenegger Republican is a Bush Republican who says he's a Schwarzenegger Republican.
+- How can anybody hate nurses? Nobody hates nurses. The only time you hate a nurse is when they're giving you an enema.
+- Being here allows me to make the case that not all aging, narcissistic movie actors whose children could be mistaken for their grandchildren necessarily act with the same motivation.
+- I think I've been lucky enough not to have to do movie after movie after movie for financial reasons, so I've been able to live life and also make movies. I didn't have to grind them out. I could go long periods where I was living life rather than tripping over cables.
+- To say that people would cease to come to California if they would have to pay more taxes is to underestimate the advantages of being in California - mightily.
+- I'm slow at everything I do.
+- I actually knew Adlai Stevenson and Jack and Bobby Kennedy.
+- Lenin said that people vote with their feet. Well, that's what's happening. They either go, or they don't go. It's all politics. It's all demographics.
+- Marriage requires a special talent, like acting. Monogamy requires genius.
+- I believe if a private citizen is able to affect public opinion in a constructive way he doesn't have to be an elected public servant to perform a public service.
+- Art is truth.
+- There's almost nothing that hasn't been said about me. But there's an awful lot that I haven't said. I don't talk about private things.
+- That's all gone, now, the old, Hollywood.
+- I've never talked to anyone writing a book on me. I've had so much written about me that is made up, usually something that seems silly enough or weird enough to get remarked upon, and it's pretty much all fiction.
+- Building a house is a lot like moviemaking. The attention to detail, the sense that you're doing something that has longevity.
+- I have a day job. I can make movies when I want to.
+- And the success of the union movement, historically, has always been to benefit all working men and women - not just people who belong to the union.
+- Although Ronald Reagan was somebody I disagreed with on most ideological things, he was a friend of mine, and he was a very, very likable man. Ronald Reagan, for instance, was maybe more able to get the very rich to do the right thing sometimes.

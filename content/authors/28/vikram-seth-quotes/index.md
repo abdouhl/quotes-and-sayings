@@ -1,0 +1,67 @@
++++
+author = "Vikram Seth"
+title = "Vikram Seth Quotes"
+quotes_len = "61"
+description = "the best 61 Vikram Seth Quotes"
++++
+- I have a reputation for being hermitlike. I'm not. I'm just obsessed with my work.
+- I don't want to talk too much about the nitty-gritty of writing. It's rather like a pressure cooker with a certain amount of pressure in it - the more you let out, the less you cook.
+- I don't read as much as people may expect. In fact, sometimes I feel that I should probably read more, but then I do believe that one of the big problems of our times is that there's too much reading and not enough thinking.
+- I love speculating about solutions to problems in mathematics. I have no interest whatever in sudoku. But I do look at chess and bridge problems in newspapers. I find that relaxing.
+- My main motivation is not to get bored. I'm just hoping I get a vaguely maverick reputation.
+- The fact is that at different stages of your life, and under the influence of different inspirations, you write different things. The point is not necessarily to find your voice, which grinds out the same sort of thing again and again, but to find a vehicle for people who are far more important than the author: the characters.
+- So many Indian novels, quite unfairly, do not get the prominence they should because they have been written in a language other than English.
+- Poetry, I think, intensifies the reader's experience. If it's a humorous facet of the story, poetry makes it more exuberant. If it's a sad facet, poetry can make it more poignant.
+- I'm actually a very lazy person. Most of the time, I'm happy to sit around and stare. Or watch bad TV soaps. It's quite rare for me to get inspired by anything, but it could be something small. A view of the Serpentine. A snatch of music. Or a little shred of conversation overheard on a bus, such as, 'You also will marry someone of my choice.'
+- Too many trees are killed to print the words of people who may not have all that much to say, and authors and journalists are equally culpable in this regard.
+- In spite of all temptations of belonging to many nations, I've remained an Indian.
+- I tend to follow a scattershot approach to reading a lot of very diverse subjects interest me, and I'm quite happy to read stuff on any of them.
+- I want my books to sell, to be read. I'm not interested in being obscure.
+- You have to learn a few things, which you do along the way, but basically, poetry is a matter of the ear. Iambic pentameters or what constitutes a stanza comes naturally - your ears will know.
+- I rarely listen to music while writing. If I don't like it, it bothers me, and if I like it, it absorbs me so much I can't write.
+- I simply seem to drift. But I sort of allow the drift, because it has a kind of check - it forces me to work harder at what I'm interested in.
+- Of course, I have to consider that I've written a lot of prose, but I do in my heart think of myself as being originally, and still primarily, a poet.
+- I need my natural laziness to be counteracted by obsession in order to do anything.
+- I just love music - by no stretch of the imagination am I professionally competent.
+- You can talk good ideas out of existence.
+- You get your inspiration - suggestions - wherever you have to, even from your mother.
+- The point really is that a writer tends to write a book that he or she tends to write. It's as simple as that. Of course, it's important to make a living and all that, but the main impulse as far as I'm concerned - and I'm sure as other writers are concerned - is to tell a story that I feel impelled by.
+- I think if something is worth doing, it's worth doing well. And worth thinking about it as well.
+- There are plenty of good Indian writers in English, and none of us feel we are carrying the burden of being a poster boy.
+- I think goodness is about how person behaves to person, and also person to world, to nature.
+- I am certainly not allergic to causes - particularly on subjects such as religious intolerance.
+- After 'A Suitable Boy,' I didn't write anything, not even a short story. I thought to myself: 'I ought to start writing.' But I can never force myself to write.
+- As for what I listen to after writing, it could be anything - but I've noticed that if the current book contains music from one tradition, it is music from another tradition that most relaxes me.
+- Do not write if there is no tremendous urge to do so. At the heart, there must be an inspiration or muse or one of those old-fashioned things. Else, why bore yourself, destroy other people's interest and kill trees?
+- The trick to being a novelist is to act like an iceberg. Make it seem as if you're displaying only one-tenth of what you know, and the other nine-tenths isn't visible and never mind if that part is pure styrofoam!
+- I spent many years of my life as an economist and demographer. I was finally distracted by writing my novels and poetry. I'm enormously happy that was the case. I feel that with writing I have found my metier.
+- I often feel newspapers are just filling up space. Of course, I also know people who write really long books.
+- I am careful about fiction. A novel is not a tract or an essay. If I want to write about land reforms, or Hindu-Muslim relations, or position of women, I can do it as it affects my characters as in 'A Suitable Boy.' I could only write about issues specifically through essays. But I'll do that only if I have something worthwhile to say.
+- Dear though the reader might be, I'd be silly to cater to what the reader wanted.
+- The problem with too beautiful a view is that it's alright for the mulling stage. But for the writing stage, you want to be somewhere without a view, especially if it is very different from what you're writing.
+- When I realised that I had feelings for men as well as women, at first I was worried and frightened, and there was a certain amount of 'Who am I? Am I a criminal?' and so on. It took me a long time to come to terms with myself. Those were painful years - painful then and painful to look back on.
+- Good music is good music, but it has to be good.
+- If I'm compelled to do something, I don't shy away from it simply because I haven't tackled it before.
+- If somebody writes clearly, you can pretty much tell immediately if something is shallow or deep, whereas if they write with all this duckweed on the surface, you can't tell if the stream is one inch deep or a hundred fathoms.
+- It is exciting to write about the present once one gets beyond the trivia of the moment. As a time to live in, as a time to think about, the present is intriguing.
+- I certainly think it's very important that writers as citizens - not necessarily as writers, but just as ordinary citizens - should talk about things that matter to them.
+- Everyone sort of sees his own life and times as being ephemeral. One thinks that everything good or important that happened, happened in the past. But I think that seeing scenes that you are used to, but with the heightening effects of poetry, perhaps makes you value your life and times more than you might otherwise do.
+- You know, I can imagine not writing a novel and writing poetry only.
+- If you were to ask me to pick my favourite author, well, there are so many of them, I'd really just have to say the first names that came to mind, and I'm sure that I'll later think 'Oh, I should have mentioned that one.'
+- In a painting, you can't make out whether the artist painted the left eye before the right eye. In Chinese calligraphy, you can see the progression of the artist's stroke.
+- Those books of mine that are remunerative - I'm not talking about poetry here - take years to write, and I am never sure they'll be successful. So writing is a risk in more senses than one.
+- The thing about inspiration is that it takes your mind off everything else.
+- Of course, a law that is selectively used is in one aspect even worse than a law that is generally used because it puts a lot of power in individuals' hands and makes government a rule, not of laws, but of people.
+- I know from an editor's point of view or a publisher's point of view it's easier to slot me into a particular niche. But I know that I'd be bored unless I wrote a book that in some senses was a challenge.
+- I think it's possible to be multi-rooted, rather like a banyan tree, without being deracinated.
+- Fiction basically is a form of gossip where you want to enter other people's lives, the lives of people you don't know, and you want to know what's going to happen to them.
+- Revision has its own peculiar pleasures and its own peculiar frustrations. The ground rules are already established; the characters already exist. You don't have to bring the characters to life, but you do have to make them more convincing.
+- In general, questions are fine; you can always seize upon the parts of them that interest you and concentrate on answering those. And one has to remember when answering questions that asking questions isn't easy either, and for someone who's quite shy to stand up in an audience to speak takes some courage.
+- I don't think anyone should be banned. If you don't like a book, set it aside.
+- On the whole, I don't like reading long books. I'm not a fan of 'Ulysses.' And I haven't quite finished 'War and Peace.'
+- I don't pick and choose subjects or settings; they pick and choose me.
+- Realism hasn't fallen out of favor with most people, who are interested in people's lives rather than gymnastics of style or literary trends. It's a certain kind of academic who undervalues realism, largely because it is not amenable to endless exegesis.
+- Why do writers, say, give up a job in economics and decide to write poetry? Or, why do they give up a job in a bank and decide to paint, like Krishan Khanna? They want to convey something.
+- Basically, my mother couldn't hold a tune and when I was a baby, a rather tactless baby, I would ask her not to sing... you can't get to sleep if someone is singing off key nearby.
+- I don't think people give Indian society enough credit. We may not like to talk much about things but we do, basically, want to live and let live.
+- I'm not sure anyone can understand a whole life, even their own.

@@ -1,0 +1,31 @@
++++
+author = "W. H. Davies"
+title = "W. H. Davies Quotes"
+quotes_len = "25"
+description = "the best 25 W. H. Davies Quotes"
++++
+- It was the rainbow gave thee birth, and left thee all her lovely hues.
+- As long as I love Beauty I am young.
+- Teetotallers lack the sympathy and generosity of men that drink.
+- It is not altogether shyness that now makes me unsuccessful in company. Sometimes it is a state of mind that is three parts meditation, that will not free the thoughts until their attendant trains are prepared to follow them.
+- I like to give pennies to children, but unfortunately, a man cannot do these things if he lives in a small village or town where his face is known and seen every day. For children take advantage, as I know to my cost, and would gather round him like hens around a farmer when he scatters grain.
+- What is this life if, full of care, we have no time to stand and stare?
+- I had now been in the United States of America something like five years, working here and there as the inclination seized me, which, I must confess, was not often. I was certainly getting some enjoyment out of life, but now and then the waste of time appalled me, for I still have a conviction that I was born to a different life.
+- The more help a person has in his garden, the less it belongs to him.
+- We were determined to be in the fashion, and to visit the various delightful watering places on Long Island Sound. Of course, it would be necessary to combine business with pleasure and pursue our calling as beggars.
+- It was a proof of Welsh good nature: so long as I had a friend that knew and could introduce me, the whole Welsh people would do anything to entertain, and would even neglect their business to do so. But as a stranger in Wales, it is difficult to break through their suspicion and mistrust.
+- How the snow falls in the north! Flake on flake falling incessantly, until the small dingles are almost on a level with the uplands. It throws itself on the leaves of autumn, and holds them down in security from the strongest winds.
+- However careful a tramp may be to avoid places where there is abundant work, he cannot always succeed.
+- I don't suppose there is a more daring or more impudent rascal on earth than a good American beggar. It is always his boast that he has begged an ex-president, or the present one, and he claims to have received benefits from a number of well-known millionaires, actors, and prize-fighters.
+- Summer boarders often left clothes behind, and of what use were they to the landladies, for no rag-and-bone man ever called at their houses. The truth of the matter was that in less than a week I was well dressed from head to foot, all of these things being voluntary offerings, when in quest of eatables.
+- It has always been a wonder to me where my conversational power has gone: at the present time, I cannot impress the most ordinary men.
+- I dislike society because conversation exhausts my brain more than silent thought - again, I cannot hold my water long enough for a prolonged conversation.
+- But cats to me are strange, so strange I cannot sleep if one is near.
+- I had made up my mind to find a woman to share my life: one who would leave London altogether and go with me into the green country and be satisfied.
+- My impression of Americans from the beginning is of the best, and I have never since had cause to alter my mind. They are a kind, sympathetic race of people and naturally proud of their country.
+- Being in this fine mood, I spoke to a little boy, whom I saw playing alone in the road, asking him what he was going to be when he grew up. Of course I expected to hear him say a sailor, a soldier, a hunter, or something else that seems heroic to childhood, and I was very much surprised when he answered innocently, 'A man.'
+- Cockneys make good beggars. They are held in high esteem by the fraternity in America. Their resource, originality and invention, and a never-faltering tongue enable them to often attain their ends where others fail, and they succeed where the natives starve.
+- There is quite a large clan of Scotties among American beggars. He is a good beggar for the simple reason that he is a good talker. Almost every Scotch beggar I met in the States of America was inclined to be talkative, and yet they all managed to conceal their private affairs.
+- I like to see a good scientific bout by men who know the use of their hands but would rather walk twenty miles than see animals in strife.
+- Mother's father and brothers all took great interest in pugilism, and they knew the game well from much practice of their own. They were never so much delighted as when I visited them with a black eye or a bloody nose, at which time they would be at the trouble to give cunning points as to how to meet an opponent according to his weight and height.
+- My own wandering blood comes from my seafaring grandfather, who, after he had left the sea and settled on shore, still governed his house by a ship's rules.

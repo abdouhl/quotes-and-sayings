@@ -1,0 +1,63 @@
++++
+author = "Wong Kar-Wai"
+title = "Wong Kar-Wai Quotes"
+quotes_len = "57"
+description = "the best 57 Wong Kar-Wai Quotes"
++++
+- What makes international cinema so interesting is that each territory has its own sensibility. When you look at an Indian or French film, there's a certain flavor. And even though the language is different, if the film is successful, it has something very common and understandable.
+- I'm a big fan of martial arts films, novels and radio programs.
+- What's so great about inspiration is sometimes it finds you when you're not looking.
+- When it's time to let go, I don't look back, and I start another project as soon as possible. One thing I remind myself is that I don't want to Photoshop my past.
+- It is always good to work with a very regular group of people because we know how high we can fly and what are the parameters, and it becomes very enjoyable.
+- I think of action as a dance. It's a riddle; it should have emotion in it.
+- I don't do rehearsal. Some directors prefer to do rehearsal - readings before the actual shooting - but I don't like this process because I think there are certain things that are so spontaneous, and they cannot happen twice.
+- I didn't know anything about martial arts. I'm a big fan, but I never practiced martial arts.
+- The laboratory where we stored all our negatives went bankrupt overnight following the Asian economic crisis in 1997. So, on short notice, we had to retrieve all the materials in the middle of the night before the debtor-receiver took over the laboratory the next morning.
+- Sometimes, when you're on the streets, certain music inspires you, and then you have a vision. But, at the end of the day, it's a synthesis of visions, so you have to think, as a director, of a scene, or how to deliver a line, or how do this visually.
+- My films are never about what Hong Kong is like, or anything approaching a realistic portrait, but what I think about Hong Kong and what I want it to be.
+- I think, to be a director, sometimes you need to have certain hunches - you have to believe in some gut feeling.
+- I'm not coming from film school. I learned cinema in the cinema watching films, so you always have a curiosity. I say, 'Well, what if I make a film in this genre? What if I make this film like this?'
+- The original title for 'In the Mood for Love' was called 'A Story About Food.' The idea was to tell a love story through different courses.
+- In most kung fu films, they want to create a hero who's always fighting a bad guy. In the story of Ip Man, he's not fighting physical opponents. He's fighting the ups and downs of his life.
+- 1936 is a very important year: a golden time for martial arts, right before the Japanese invasion.
+- Each production has certain circumstances that will bring you to a certain way of making it. It is not intentional, it is not an artistic decision, the way we make films, it is the way we address to our problems.
+- To me, romantic means, um, you follow your heart more than your mind. Sometimes when you're shooting a film, you have to follow your heart.
+- For 'Chungking Express,' the way we shot the film was all handheld and with all this existing light, and that became very popular. Everybody thought it was cool.
+- I came to Hong Kong when I was five, but we didn't have any relatives in Hong Kong. My mom is a big movie fan, and she watched all kinds of movies, so when I was a kid, basically, we went to watch a movie every day.
+- I don't want to be a grumpy old man or too pessimistic, because if I have a chance, I would prefer to watch a film in the cinema with an audience on a big screen instead of watching it on a cell phone. It's a very different experience, but somehow I think this form will have its own future and life.
+- At film festivals, I put on my sunglasses and go to sleep because I don't want to see my films again.
+- The industry and support in China has really matured because there are so many productions there. At the same time, there's been a lot of changes in the market, which I think also has enabled productions like 'The Grandmaster' to happen and to be possible to shoot in China.
+- I never studied film formally at school, but as a kid, I spent most of my time in cinemas.
+- Chinese martial artists consider themselves to be gardeners, and it's an honor for them to take care of this garden, to better it and hand it over to the generations that follow. I think that's a very important message in a time when personal achievement seems to be the only criteria of success.
+- This is what the difference is between Hong Kong and Chinese cinema - Chinese cinema was made for their own communities. It was for propaganda. But Hong Kong made films to entertain, and they know how to communicate with international audiences.
+- I never had a problem with genre because a genre actually is like a uniform - you put yourself into a certain uniform. But if you dress up in a police officer's uniform, it doesn't mean that you are an officer; it can mean something else.
+- One's memories aren't what actually happened - they're very subjective. You can always make it much better, right?
+- The reason it takes me so long to make a film, the reason it gets so difficult, is that I'm trying to think of every film as the last one I will ever make so it can be the best it can possibly be. I don't want to have regrets or excuses or think, 'I can do better next time.'
+- When you look at martial arts films, the later ones became more and more exaggerated. It's like, wow, is martial arts only a show?
+- I started out my career as a screenwriter and quickly discovered that adhering to a script isn't always the best way to make a film. You have to take into consideration the nuances of the characters and what the actors bring to their roles.
+- I've always wanted to make a film about the Tong Wars, the rioting and the crime factions in San Francisco's Chinatown in the early part of the last century.
+- When I look at 'Fallen Angels,' I realize it is not a film that is truly about Hong Kong. It's more like my Hong Kong fantasy. I want Hong Kong to be quiet, with less people.
+- To make a film like 'The Grandmaster,' I know I'm not going to make just a standard kung-fu film; it's not going to be just tricks or like wire works. So I spent seven years on the road interviewing different schools and a lot of real grandmasters from Chinese martial arts.
+- My mother has a very big family in Shanghai, so I have, like, almost 40 cousins, so we stayed together all the time. So by the time I get to Hong Kong, I become the only child and the only one surrounded by adults, you know.
+- I have an image of Shanghai, which is quite different from other directors, I think. The story of Shanghai should happen in back alleys.
+- Sometimes, we have to turn our camera to a mirror to shoot something, and people think, 'Oh, that's very stylish.' Yes it is, but at the same time, we did it because we are shooting in a very small space, and that was our only option.
+- I think one day I can make a book about coffee shops in Hong Kong. I spent almost most of my time in coffee shops, in different coffee shops.
+- I'm not very aware of styles. We never talk about styles before we start shooting, or even during shooting, because I think the film will bring you there.
+- I am just the band leader, and I just keep everything in tune.
+- Somehow, we fall in love with the films and don't want to let go, but financially and physically, we cannot afford it.
+- Because we don't have a lot of light, because we have a very low budget, we have to adjust the speed of our camera to get the effect that we want. So sometimes this is the way we work, and the result of the filming becomes a kind of a style.
+- In our case, we have no script. So the only people we can work with are people who have been working with us in the past, and they know we are going to do something; it's kind of a trust.
+- I was born in Shanghai and moved to Hong Kong the year I was five.
+- To make films, it always begins with two words: what and how. First of all, you have to find a story, or what are you going to tell? And you have to find a way to tell it visually.
+- Ip Man was an extraordinary man who lived during extraordinary times. He was born to a rich family when the country was still a monarchy and lived through various civil wars, revolutions, the Japanese invasion, and the establishment of the Republic.
+- Americans always see China through the looking glass, and I think it's about time - with technology and of the growing economic relationship between these two countries - I think it's natural and better for all of us to have a better understanding of each other.
+- The Chinese government promised Hong Kong '50 years, and change.' And 50 years later, after 1997, will be 2046; I think, 'Well, that's a very interesting promise.' So I want to make a film about promise.
+- After the Revolution in '49, all the films were propaganda. They serviced the government and carried the message that the government wants to relay to the people. But I think, in the last 10 years, because the film market is opening and there's an expansion of all the cinemas in China, it's now a lot like Hollywood productions.
+- In my first film, we always tried to have a script and work in a normal way, but I was constantly changing things during shooting. Because I worked as a scriptwriter for 10 years, I understood that directors always wanted to change what was originally written, to improve on it.
+- Some actors like encouragement. Some actors prefer to have pressure. And sometimes, for some actors, its better to give your comment by silence, because they are so skillful, so gifted, that they understand without talking too much.
+- During shooting, you have the idea, like, of this certain dress on this actress, but it's not to fit, so you have to make all of these alterations and modifications. So in a way, I build the characters with the cast, and it's sort of custom-made, the whole process, and then you have to make all of these adjustments.
+- It used to be when you eat, you eat with people. But instant noodles are so instant that people eat by themselves. And it's a very convenient way of eating but also a very lonely way of eating.
+- In much the same way Ip Man embodied the struggles of the Chinese people, I wanted Gong Er to represent the changing role of women.
+- Heritage is something martial-arts films don't often talk about.
+- 'Ashes of Time' was my third film, and as a young director at that point, it's not very often that you have the chance to make a big martial arts film, so of course I jumped at this opportunity.
+- I sometimes compare making a film to cooking. Some dishes need to be stewed, while others need to be fried.

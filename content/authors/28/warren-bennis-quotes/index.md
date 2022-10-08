@@ -1,0 +1,45 @@
++++
+author = "Warren Bennis"
+title = "Warren Bennis Quotes"
+quotes_len = "39"
+description = "the best 39 Warren Bennis Quotes"
++++
+- I wanted the influence. In the end I wasn't very good at being a president. I looked out of the window and thought that the man cutting the lawn actually seemed to have more control over what he was doing.
+- Create a compelling vision, one that takes people to a new place, and then translate that vision into a reality.
+- Excellence is a better teacher than mediocrity. The lessons of the ordinary are everywhere. Truly profound and original insights are to be found only in studying the exemplary.
+- The original and brilliant idea of an MBA was the opportunity for students to study the theory and application of business and management principles.
+- Taking charge of your own learning is a part of taking charge of your life, which is the sine qua non in becoming an integrated person.
+- A great director or leader knows his people, creates a great team, and then makes a great movie that can influence millions more than the readers of his column.
+- Learning options will indeed mushroom for business students and leaders, but it will take prudence and shrewdness to find and utilize the best option.
+- As my blog editor knows all too well, I wasn't all that keen to enter the blogosphere world.
+- Learning in a face-to-face human community, as humans have evolved to do over hundreds of thousands of years, may always be the ideal - especially in an endeavor that is as relationship-driven as business.
+- The manager asks how and when; the leader asks what and why.
+- The most dangerous leadership myth is that leaders are born-that there is a genetic factor to leadership. This myth asserts that people simply either have certain charismatic qualities or not. That's nonsense; in fact, the opposite is true. Leaders are made rather than born.
+- Leaders keep their eyes on the horizon, not just on the bottom line.
+- Becoming a leader is synonymous with becoming yourself. It is precisely that simple, and it is also that difficult.
+- Leaders are people who do the right thing; managers are people who do things right.
+- Find the appropriate balance of competing claims by various groups of stakeholders. All claims deserve consideration but some claims are more important than others.
+- Leaders must encourage their organizations to dance to forms of music yet to be heard.
+- There is a profound difference between information and meaning.
+- There are two ways of being creative. One can sing and dance. Or one can create an environment in which singers and dancers flourish.
+- The manager has his eye on the bottom line; the leader has his eye on the horizon.
+- People who cannot invent and reinvent themselves must be content with borrowed postures, secondhand ideas, fitting in instead of standing out.
+- Great things are accomplished by talented people who believe they will accomplish them.
+- The manager has a short-range view; the leader has a long-range perspective.
+- The manager accepts the status quo; the leader challenges it.
+- I've become more and more aware of the promise and struggle to teach the global mind nowadays because I use every chance I get to ask faculty and administrators of management education programs why we don't offer at least one course - not even required, just an elective - on the world's religions.
+- The factory of the future will have only two employees, a man and a dog. The man will be there to feed the dog. The dog will be there to keep the man from touching the equipment.
+- Failing organizations are usually over-managed and under-led.
+- Success in management requires learning as fast as the world is changing.
+- How can we educators claim credit for understanding, let alone teaching, the 'global mind' without a single course on the impact of religion on every day life?
+- One of the best teaching experiences Ed Schein and I had when we were teaching at MIT in the 1960s was inventing a course on leadership through film.
+- Leaders know the importance of having someone in their lives who will unfailingly and fearlessly tell them the truth.
+- Trust is the lubrication that makes it possible for organizations to work.
+- Most regular, two-year MBA programs provide both experience and the capacity to link together the essential elements of management such as finance, marketing, organizational behavior, and operations.
+- Leaders should always expect the very best of those around them. They know that people can change and grow.
+- You need people who can walk their companies into the future rather than back them into the future.
+- The primary goal of management education was, as originally conceived, to impart knowledge that could be applied to a variety of real-world business situations.
+- Specialized management courses are useful but should come well after the complexity of management and business are understood.
+- Good leaders make people feel that they're at the very heart of things, not at the periphery.
+- Leadership has become a heavy industry. Concern and interest about leadership development is no longer an American phenomenon. It is truly global. Though I will probably be in less demand, I wanted to move on.
+- Leadership is the capacity to translate vision into reality.

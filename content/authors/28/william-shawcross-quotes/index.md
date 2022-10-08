@@ -1,0 +1,13 @@
++++
+author = "William Shawcross"
+title = "William Shawcross Quotes"
+quotes_len = "7"
+description = "the best 7 William Shawcross Quotes"
++++
+- It is so basic as to be mundane, but in disaster relief, all the good will in the world can go to hell in a hand basket if the logistics don't work. In Ethiopia at the best of times, the logistics are difficult. It is a huge country - about the same size as Texas, New Mexico and Oklahoma combined. It is also a transportation nightmare.
+- Writing or talking about famine and the world's response to it is not very easy.
+- If trustees feel it is in their charity's interest to pay high salaries to attract talented people, then they should have the courage of their conviction and explain their decisions publicly.
+- A few weeks before the jubilee began in 2002, Queen Elizabeth died, and the public outpouring of grief and affection, with hundreds of thousands of people queuing for hours to pass by her coffin, showed how widely and deeply loved she was.
+- Charities should not become the junior partner in the welfare state; whether or not they provide services funded by Government or, indeed, receive grants from Government, they must remain independent and focused on their mission.
+- Most Muslim charities are run by good people.
+- Weapons of mass destruction are the greatest threat to life on earth. Biological weapons are often called the poor man's atomic bomb. Saddam Hussein is the ruler who has for decades been making the most determined and diabolical illegal effort to acquire them.

@@ -1,0 +1,48 @@
++++
+author = "Zhang Ziyi"
+title = "Zhang Ziyi Quotes"
+quotes_len = "42"
+description = "the best 42 Zhang Ziyi Quotes"
++++
+- For myself I don't like the geisha look. It's like a mask.
+- Absolutely not, because in acting I've found a domain that suits me perfectly. And that is so utterly rare.
+- Actually I ran away from school when I was 13. No one could find me, and the police were called. I was just hiding in a little thicket of grass at my school, and went to sleep.
+- Working in Hollywood, it's clear the more money you have, the more technology you can get. So you can build a whole Japanese set. Only in Hollywood!
+- Today's China is not in the least shut out from the rest of the world. Trends come to us from all over the world. And the Internet is really developed in China. We get news from all over the world.
+- My parents sent me to a dance class, so it was a road chosen by them, not me. But I enjoyed it so much I knew I would become a performer.
+- I suspect people always thought I had a boyfriend, so nobody came after me.
+- Even though I've done Hollywood films, I still don't think of myself as a Hollywood actress.
+- I knew nothing about martial arts. And I don't really like it! But in the film, I not only had to pretend that I knew all about it, I had to be the best at it. That was very difficult.
+- Ordinarily if an actor gets chosen for the lead in a film, he or she has already built up a repertoire, and everyone knows what he or she is capable of.
+- It's not that I wanted to be an actor; it's that I didn't want to be a dancer! I was trained in traditional Chinese dance, and after working so hard it seemed unfair to just disappear into a group.
+- I want, through my roles, to express the parts in the hearts of Chinese women that they feel unable to let out.
+- There are films you see that only reach your eyes. Then there are films that you can watch... that reach down to your throat, or reach your heart. 'In the Mood for Love,' though, reached all the way to my belly.
+- I really want to do something in Europe. With a small movie, it can be an interesting challenge. But I have to get the right project. I don't think it's so important to go to Hollywood. All that trash that comes out of there! I don't want to do that.
+- We're still working out the details, but I'd be delighted to do the film. The problem at the moment is my busy schedule. Shooting on this film has been extended by a month, but I need to be in the U.S. by Dec. 20.
+- Whatever you see - any good results - are all from the pressure.
+- Men are different. When they are in love they may also have other girlfriends.
+- Zhang Yimou is always going to need young, pretty girls for his films. But I don't really concern myself with what Zhang Yimou's next starlet looks like.
+- The atmosphere at my school was very competitive. Young girls were competing with each other every day for status, for leadership, for the affection of the teachers. I hated it.
+- Obviously I'd love to work with any of these great directors because every time I've worked with them I've gained a tremendous amount as an actor. Each director has his own way of pushing you towards improving yourself.
+- I'm not really interested in politics, because I think it's just too removed from my own life. If there's a war, though, or a disaster, I want to know what's happening.
+- That whole environment was just incompatible with my beliefs and my personality. It was a dark time for me.
+- I wanted to escape so badly. But of course I knew I couldn't just give up and leave school. It was only when I heard my mom's voice that I came out of my hiding place.
+- I wanted to become a kindergarten teacher like my mother.
+- When I watch a movie for the first few times I'm usually thinking about where I was in a given scene, who was next to me, what we were doing etc. But after I've gotten through all of this, when I'm really watching the film itself, then I get moved.
+- They're not willing to admit that I've also shed blood and tears and often paid dearly for my success. This makes me feel extremely sad.
+- Most people spend their whole lives looking for the right job. There are others who never get an opportunity to do work that fulfils them.
+- There was one very special scene at the end of the film. My character, Zhao Di, has been sick. She wakes up and her mother tells her that the man she loves has come back from the city and had spent the day by her bedside.
+- When two people first meet, they can only have a very ordinary kind of friendship. But when you begin to understand each other, when you get close to them, you discover that you're suddenly eager to know him or her even better.
+- Wanting to be in a Western film won't get me very far. Unless the opportunity arose, it doesn't matter how much I want to be in one. But if an opportunity did arise, no actor would pass it up.
+- I've discovered that I value simplicity above all in dressing. I don't like anything I wear to be too complicated or fussy.
+- Yes. Otherwise I could have done a lot of Hollywood movies. After Crouching Tiger I got a lot of offers, but I turned them down because they were all victim roles - poor girls sold to America to be a wife or whatever. I know I have the ability to go deeper, to take on more original roles than that.
+- In China, we don't consider someone truly beautiful until we have known them for a long time, and we know what's underneath the skin.
+- There are actors who spend 20 years working and still don't achieve what I've achieved so quickly. So I think my only course of action is to work as hard as I can, not just for the sake of the film, but also to prove to these people that I do have talent.
+- There's nothing in Chinese culture that is an equivalent of the geisha. It's so different, so special to Japan.
+- My profession has helped me to grow up.
+- China's cinema has been rising for some time; it has more exposure, so my chances of becoming internationally known are better. But the first thing I have to do is learn English. If I can grasp the language, then perhaps I can think about the U.S.
+- I always think it's really hard if you are Asian or Chinese to be really in Hollywood. There are not so many really great characters for you.
+- From beginning to end I worried that Ang Lee wouldn't be satisfied with my work. So I worked as hard as I could to earn his trust, because you only get a chance like this once.
+- After I learn more English, I'll work hard and make more films.
+- Chinese women are much more modest than American women when it comes to clothes. We tend to show less flesh.
+- I was really interested in geishas' work, and wanted to meet real geishas.

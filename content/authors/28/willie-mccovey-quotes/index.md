@@ -1,0 +1,18 @@
++++
+author = "Willie Mccovey"
+title = "Willie Mccovey Quotes"
+quotes_len = "12"
+description = "the best 12 Willie Mccovey Quotes"
++++
+- Even during my career, when I read all those great things about me, it's almost like I was reading about someone else. It's almost like there was another person.
+- I could run like a gazelle, couldn't I?
+- Ballplayers, like everyone else, like to get told they did something right.
+- I've always had a connection here in the city from the first day I arrived. I stayed in the city. I made San Francisco my home. I was seen in the offseason at a lot of different functions, and people liked that.
+- I was doing what I love to do: play baseball. Not going to complain about that.
+- I enjoyed hitting in the Major Leagues more than in the Minor Leagues. I didn't want to tell anybody it was easier, because I didn't want to sound cocky. But Major League pitchers had better control, and most of them were around the plate.
+- In my first year, when I was driving in runs, winning games and making headlines, there was an old man who came to games at Seals Stadium, and one day he called me over, introduced himself and told me not to believe anything written about me or think too much of all the accolades.
+- I loved coming up with players in scoring position and I had to drive them in.
+- It doesn't seem like it's been 50 years. I don't even feel like I'm 50 years old yet, though I've had all these knee and back operations.
+- I had pain in both knees my whole career. Not many athletes play pain-free. Mine was just more than normal.
+- Winning is a serious matter.
+- I had talked for years about doing a restaurant with Rocky Dudum, who's been my friend since I first came to San Francisco. Then Rocky's son, Jeff, said he wanted to design it, so he traveled around the country to sports restaurants like Mickey Mantle's and Michael Jordan's, and he came up with a great concept.

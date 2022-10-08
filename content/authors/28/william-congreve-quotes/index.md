@@ -1,0 +1,36 @@
++++
+author = "William Congreve"
+title = "William Congreve Quotes"
+quotes_len = "30"
+description = "the best 30 William Congreve Quotes"
++++
+- If there's delight in love, 'Tis when I see that heart, which others bleed for, bleed for me.
+- Invention flags, his brain goes muddy, and black despair succeeds brown study.
+- I confess freely to you, I could never look long upon a monkey, without very mortifying reflections.
+- There is in true beauty, as in courage, something which narrow souls cannot dare to admire.
+- A little disdain is not amiss; a little scorn is alluring.
+- Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned.
+- In my conscience I believe the baggage loves me, for she never speaks well of me herself, nor suffers any body else to rail at me.
+- Say what you will, 'tis better to be left than never to have been loved.
+- He who closes his ears to the views of others shows little confidence in the integrity of his own views.
+- Courtship is to marriage, as a very witty prologue to a very dull play.
+- A wit should be no more sincere than a woman constant.
+- No, I'm no enemy to learning; it hurts not me.
+- She likes herself, yet others hates, For that which in herself she prizes; And while she laughs at them, forgets She is the thing that she despises.
+- To find a young fellow that is neither a wit in his own eye, nor a fool in the eye of the world, is a very hard task.
+- Wit must be foiled by wit: cut a diamond with a diamond.
+- If this be not love, it is madness, and then it is pardonable.
+- Beauty is the lover's gift.
+- I find we are growing serious, and then we are in great danger of being dull.
+- Uncertainty and expectation are the joys of life. Security is an insipid thing.
+- Never go to bed angry, stay up and fight.
+- 'Tis well enough for a servant to be bred at an University. But the education is a little too pedantic for a gentleman.
+- They are at the end of the gallery; retired to their tea and scandal, according to their ancient custom.
+- You are a woman: you must never speak what you think; your words must contradict your thoughts, but your actions may contradict your words.
+- Fear comes from uncertainty. When we are absolutely certain, whether of our worth or worthlessness, we are almost impervious to fear.
+- Grief walks upon the heels of pleasure; married in haste, we repent at leisure.
+- They come together like the Coroner's Inquest, to sit upon the murdered reputations of the week.
+- Music has charms to sooth a savage breast, to soften rocks, or bend a knotted oak.
+- Come, come, leave business to idlers, and wisdom to fools: they have need of 'em: wit be my faculty, and pleasure my occupation, and let father Time shake his glass.
+- I know that's a secret, for it's whispered everywhere.
+- A hungry wolf at all the herd will run, In hopes, through many, to make sure of one.

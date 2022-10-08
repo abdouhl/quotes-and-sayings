@@ -1,0 +1,9 @@
++++
+author = "William Floyd"
+title = "William Floyd Quotes"
+quotes_len = "3"
+description = "the best 3 William Floyd Quotes"
++++
+- The one thing you can't do when you're highly ranked is relax.
+- The Bible has done more harm than any other book in the world.
+- Have any of our friends got off the Island with their families, or what must they submit to? Despotism or destruction, I fear, is their fate.

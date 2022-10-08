@@ -1,0 +1,20 @@
++++
+author = "William Standish Knowles"
+title = "William Standish Knowles Quotes"
+quotes_len = "14"
+description = "the best 14 William Standish Knowles Quotes"
++++
+- Later in the fifties I got involved in kinetic studies using my long forgotten math background.
+- In those days industry would hire any chemist that could breathe.
+- At this point I was strongly advised that I was too young socially to go to college so I took a second senior year at Andover, another boarding school.
+- At the time my dog had a fungus on her chest that wouldn't heal and resisted treatment. I made an ointment with our product and it cleared up in two days. She lived to 17 years.
+- I was one who liked to work with my hands as well as my brain.
+- To my father, business was the highest calling, but to my mother, medicine was the top profession.
+- At Harvard I majored in chemistry with a strong inclination toward math.
+- In those days I was terrible at athletics and never made a team, but quite easily led my class in academics.
+- I'll never forget the fall colors on the Berkshires.
+- My family gave me the best in education.
+- I can't think of any relatives that ever went into science.
+- I was particularly good at math and science.
+- I was born in Taunton, Massachusetts on June 1, 1917, but I actually grew up in nearby New Bedford.
+- My family background was heavily slanted toward business and seafaring matters.

@@ -1,0 +1,19 @@
++++
+author = "William Sadler"
+title = "William Sadler Quotes"
+quotes_len = "13"
+description = "the best 13 William Sadler Quotes"
++++
+- I'm not so bothered by the audition process anymore; in fact, I use it. It's a time for the actor to actually get to the know the director and the producers a little bit, too.
+- I guess I would model myself after the Bill Condons, the Frank Darabonts and the David Nutters if I were to direct a feature, which I would love to do, by the way.
+- I think I spent my whole childhood diving out of haylofts with my BB gun and coming out shooting.
+- I love doing comedy, and I don't get a chance to much. I get to play lots of serious people and killers and people with a lot of... sheriffs.
+- I enjoyed 'Roswell' a lot, and I had a lot of fun playing Jim Valenti. I had never done a show that lasted as long as that - that one lasted three years.
+- It used to annoy and frustrate me to have to come in and audition. I would say to my agents, 'Haven't they seen this film and this film and this film? They know what I look like... They must.' Until I directed an episode of 'Roswell.' And all of a sudden, I realized why that was such an important thing.
+- People quote lines to me all the time. I'm always surprised - everybody has a favorite movie, and they're always different. I'm always shocked. People stop me on the street and throw lines at me from 'Tales from the Crypt: Demon Knight' and 'Deep Space Nine.' 'Shawshank' happens a lot because they play it so much on TV.
+- I think good acting is always character acting.
+- As a director, it became important to hear that specific role read by that specific actor, and you hear the chemistry, or you don't hear the chemistry. So I'm not so bothered by the audition process anymore; in fact, I use it. It's a time for the actor to actually get to the know the director and the producers a little bit, too.
+- If I have a better idea, I say, 'Can we try one like this?' I try not to step on writers' toes, but ninety-nine percent of the time, it ends up in the movie, and sometimes it's the line that everyone remembers and quotes from the movie.
+- I love doing comedy, and I don't get a chance to much. I get to play lots of serious people, and killers, and people with a lot of... sheriffs. Good people and bad people, but lots of drama, and to get a chance to be genuinely silly is a great treat for me.
+- Maybe I don't take myself quite as seriously as I used to, but the work has gotten better and more interesting, and I'm just having more fun. It's getting more and more fun with each role.
+- You often hear this about directors, how it's like having the best set of toys. This fabulous train set, the biggest box of toys that a kid could possibly have. The best directors look like a kid having more fun than you're supposed to have.

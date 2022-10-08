@@ -1,0 +1,105 @@
++++
+author = "Yogi Adityanath"
+title = "Yogi Adityanath Quotes"
+quotes_len = "99"
+description = "the best 99 Yogi Adityanath Quotes"
++++
+- The Election Commission stopped me from campaigning. I accepted it and reached people through my prayer - in silence. People gave their approval. Praying in silence is important, and this spiritual prayer has paid off.
+- Bajrang Bali worked to connect all Indian communities together, from north to south and east to west.
+- The youth should work on popularising central and state government schemes among people. The young generation should make social media their weapon.
+- The country will never vote in favour of those who do not acknowledge Lord Ram and Lord Krishna.
+- In a democracy, there should be representation from every field.
+- If a person is too 'satisfied', then he might become complacent, not work so hard to get ahead.
+- There's no need to be fearful of me. I am involved in the welfare of people and giving them good governance.
+- There is no doubt that the government under Modi, on every front, has given an exemplary performance, and the attraction of the common man towards Modi has definitely grown.
+- Officers are not fruit. I can't pick them off a tree.
+- The BJP has decided that politics is for values and ideals, and for this, an age limit has been decided. I think that for democracy and for political parties, this is a good indicator. It will be good if all the political parties adhere to this, thereby strengthening India's democracy.
+- I have always faced challenges in my life.
+- The Modi government started several welfare schemes for poor and realised the dream of corruption-free India.
+- It might be the wish of many people that Allahabad can be renamed as Prayagraj. I think that it will give a very good message.
+- I don't have a personal agenda. My priority is expeditious implementation of my party's manifesto, the Lok Kalyan Sankalp Patra.
+- Just like if you leave energy free and uncontrolled and unregulated, it may become useless and destructive. Similarly, 'shakti swaroopa stree'- woman as the epitome of power - does not really need freedom but a meaningful role with protection and channelisation.
+- We have adopted zero-tolerance policy against terrorism. We have not fed biryani to terrorists.
+- I believe Bengal is a part of India.
+- I have said it previously and saying it again... my government will work for betterment of all, irrespective of caste or religion.
+- My resolve is to work for the development of the state and the welfare of the people, so I will tackle all challenges. That's my vision.
+- People should beware of those who hail terrorists and play with the security of the country.
+- In my very first Cabinet meeting, I told my colleagues we must take on corruption, lawlessness, casteism, and the politics of appeasement.
+- The BJP has never considered its political opponents as enemies.
+- Nobody is allowed to break the law.
+- After Modi became the PM, development happened across the country.
+- We are not intoxicated by power. We are concerned about the betterment of the poor, marginalised, oppressed, farmers, women, those living in villages, and every section of society.
+- Manmohan Singh, during his tenure as Prime Minister, said that Muslims have first right over the resources of this country. Where will the Dalits, backward, women, tribal, and others go?
+- I am committed to the safety and development of every community and region in the state.
+- I will ensure that no criminal will ever get any political protection in my government. If anyone takes law in his hands, he would not be spared.
+- The BJP is a large family, and if someone comes to us with a commitment towards our values and principles, then it should not be opposed.
+- We must raise resources by curbing wasteful expenditure. That's why I resolved that the hooter culture, where VIPs are provided red-beacon cars at taxpayers' expense, must end.
+- Our education system must promote nationalism but should be modern and relevant to contemporary needs.
+- Once, Azamgarh was known in the field of education and literature, but the Samajwadi Party turned it into a stronghold of terrorism.
+- I was not in the race to become a chief minister. I had never thought about it.
+- I rely on people who can deliver.
+- In a democracy, everyone has a right to put forward one's views. But people resorting to violent demonstrations in the name of Dalits are bound to be exposed.
+- Under Prime Minister Modi's leadership, terror camps are being destroyed, which is breaking the back of terrorists and Pakistan.
+- I will face the challenges of U.P. We will make U.P. an ideal state. People of the state and the Government of India are fully cooperating with me. U.P. will be an example for India.
+- In the 55-60 years of their rule, the successive Congress government have only looted the country and plunged it into poverty, casteism, regionalism, terrorism, and naxalism.
+- Akhilesh Yadav played a clever game by joining hands with BSP so that he can save his skin and use Dalit votes to win a few seats.
+- If Bombay can become Mumbai, Bangalore can become Bengaluru, Madras can become Chennai, and Calcutta can become Kolkota, there is no reason why Allahabad should not become Prayagraj and Faizabad should not become Ayodhya. To re-establish our original identity, we have renamed these places. I am happy that people have welcomed this.
+- I am a Hindu, and I have pride in that.
+- Some people in India want to increase corruption and dishonesty in the name of caste.
+- Winning and losing have their significance in a democracy. But there should be no arrogance in victory, nor should there be any despondency in defeat.
+- The Taj Mahal can be a tourist attraction, an architectural marvel, but it can never be treated as a monument of faith. After all, there is a difference between tourism and faith.
+- We have demolished the biggest hindrance to the development of Uttar Pradesh - the menace of casteism and dynastic politics. The epicentre of development is now villages, poor, farmers, youth, women, traders, and, in fact, every section of the society.
+- In 2014, Modi's name was there in the minds of people due to the good work he had done in Gujarat as chief minister. He made Gujarat one of the most developed states in India.
+- The name of a district or a commissionerate should be what the country and the world identifies it with.
+- The BJP has a zero-tolerance policy towards terrorism and is determined to equip the Indian armed forces with modern and hi-tech equipment and take steps to restrict illegal immigration.
+- The tradition that I come from has a great influence on Karnataka. Not just politically - it's also my social and moral responsibility to draw citizens facing bad governance and lawlessness to a leadership that is capable of delivering good governance and development.
+- I cannot recite Hanuman chalisa at home and wear a skull cap outside just to attract votes. It is my responsibility that, without losing my identity, I must ensure a peaceful environment for people of all faiths so that they can follow their beliefs.
+- The day every poor person in this country has a toilet in his home and his fuel requirements are met, whoever is the PM then shall rule for at least 25 years.
+- Jinnah cannot be honoured in India. He's responsible for the partition of our country. No Jinnah eulogy is acceptable in India.
+- People know Modi did not do anything for himself. Whatever he has done is for people and the country.
+- We must link Azamgarh to art and culture and not with terrorism and crime.
+- I am well aware of the politics of Uttar Pradesh, as I have had multiple stints as a member of Parliament. I know how politics works here.
+- Mother Teresa was part of a conspiracy to convert Hindus to Christianity.
+- Assess and then decide whether women who are in active politics and public life, like men, whether in this process they may not lose their importance and role as mothers, daughter, and sisters.
+- Any person should have enough sense to know that a PM should have public support. Numbers should be with them.
+- I am not putting a check on anyone. I just have to say that India's Constitution has given certain rights and freedom to people, but there are some limits, too.
+- I think there is no difference between the language of Shah Rukh Khan and Hafiz Saeed.
+- For any party or alliance, it is imperative to get at least 272 Lok Sabha seats to claim the PM's post.
+- Vegetarian food is actually good for the body.
+- Dalits are our brothers, but some of us do not embrace them like brothers. But when they go away and become Christians, some of us take pride in associating with them. This should stop.
+- U.P. is a big state. I don't have enough leadership experience for such a big state. I requested the party for two experienced associates to help me and work with me.
+- Sadhvi Pragya is an answer to those who have maligned the image of Hindus by using the phrase 'Hindu terrorism.'
+- Modi implemented welfare schemes, and U.P. became its major beneficiary in barely two years.
+- The problem is that there are not enough opportunities for the youngsters in U.P. which forces them to migrate. Our aim is to provide employment to 90% youngsters.
+- Congress is hiding the details of their party president Rahul Gandhi's citizenship. Rahul Gandhi's real name is Rahul Vincy. They are cheating people by hiding the real names of Rahul Gandhi and Priyanka Gandhi Vadra.
+- Shah Rukh Khan should remember that if a huge mass in society would boycott his films, he will also have to wander on streets like a normal Muslim.
+- We want Congress to join the Samajwadi Party (SP) and Bahujan Samajwadi Party (BSP) alliance.
+- All the credit of development in India goes to PM Modi.
+- Democracy or politics done without values and ideals is dangerous for the country.
+- Secularism is intact because of Hindus.
+- The real Hindu vision is that nobody will be discriminated against or favoured. Everyone is equal.
+- A victory for the BJP means a victory for prosperity and development.
+- Due to Modi ji's leadership, people's participation in building a base for inclusive growth and a strong country became possible.
+- The entire country is rallying behind Prime Minister Narendra Modi, and there is no alternative to Modiji.
+- If terrorism tries to dent the security of this country and its sovereignty, we will give it a befitting reply.
+- People had lost trust in governance. Getting back that trust, instilling a sense of hope and belief that good governance and development would be back on track, is my biggest achievement.
+- Public sentiment should be respected.
+- I don't have a personal life. Whatever I have is for the country and society.
+- The flag of SP means the flag of goons. BSP's flag means the flag of corruption.
+- Religion is a comprehensive concept. According to our learned people, our scholars, to pave the path for public welfare in worldly life and to provide spiritual uplift is part of religion. I think a yogi can do both things quite easily. And I manage to balance both worldly and spiritual concerns.
+- Recall when the Congress-led government was in power; then-Prime Minister Manmohan Singh had talked about who had rights to the country's resources. He had, taking the name of a religion, planted the seed of appeasement politics in the country. The result of Congress' appeasement policy is terrorism.
+- I think there are lot of people who do politics in the name of Dr. Lohia, but his dream has been fulfilled by PM Modi.
+- The bureaucracy always goes with the way politicians go.
+- Most of the people who oppose idol worshipping belong to TMC.
+- The AAP government has turned Delhi into a city of potholes and has hurt the sentiments of people of the city.
+- Whenever the Ram temple is built, it will be by the BJP only.
+- If you want to see law and order, then come to Uttar Pradesh.
+- 'Hindu terrorism' is not even a word. By linking Hindu with terrorism, Congress has disrespected the country's culture, tradition, and legacy. It should apologise to the nation.
+- Modiji is a BJP worker, and crores of karyakartas are proud of the fact that an ordinary worker has become a beloved personality in India and abroad.
+- I am not a full-time politician but a 'sanyasi' who took the path of politics to serve the masses.
+- We want to channelize the youth so that the state benefits from them and help Uttar Pradesh become a developed state.
+- Rahul Gandhi does not know Indian culture, so when he went to offer prayers at Kashi Vishwanath temple, he sat in a position as if he was offering namaaz.
+- Law and order is a state responsibility. I can assure you peace will be maintained in Uttar Pradesh.
+- We want to make Uttar Pradesh the most developed state in the country.
+- My guide is the Modi government at the Centre. It's my inspiration. I will follow that.
+- A Hindu is interested in the welfare of all: not merely humans, but all living beings.

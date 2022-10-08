@@ -1,0 +1,19 @@
++++
+author = "William Christopher Handy"
+title = "William Christopher Handy Quotes"
+quotes_len = "13"
+description = "the best 13 William Christopher Handy Quotes"
++++
+- Life is something like a trumpet. If you don't put anything in, you won't get anything out.
+- My big ears indicated a talent for music. This thrilled me.
+- Life is like a trumpet - if you don't put anything into it, you don't get anything out of it.
+- The blues - the sound of a sinner on revival day.
+- With a guitar I would be able to express the things I felt in sounds.
+- You've got to appreciate the things that come from the art of the Negro and from the heart of the man farthest down.
+- Whenever I heard the song of a bird and the answering call of its mate, I could visualize the notes in scale, all built up within my consciousness as a natural symphony.
+- Setting my mind on a musical instrument was like falling in love. All the world seemed bright and changed.
+- Saving was slow and painful.
+- The name of my ailment was longing, and it was not cured till I finally went to the department store and counted out the money in small coins before the dismayed clerk. When I came to the house, I held up the instrument before the eyes of the astonished household.
+- I knew the whistle of each of the river boats on the Tennessee.
+- I think America concedes that true American music has sprung from the Negro.
+- Nature was my kindergarten.

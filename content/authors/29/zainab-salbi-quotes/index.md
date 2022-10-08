@@ -1,0 +1,28 @@
++++
+author = "Zainab Salbi"
+title = "Zainab Salbi Quotes"
+quotes_len = "22"
+description = "the best 22 Zainab Salbi Quotes"
++++
+- In every single culture I encountered, there were always women who defied cultural norms to do what they believed was right for them. This phenomenon has never been related to how rich, poor, successful or not successful the woman may be.
+- Every woman must own her story; otherwise we are all part of the silence.
+- The single thing all women need in the world is inspiration, and inspiration comes from storytelling.
+- There's a lot of projection that if you're in service then you shouldn't look good. I'm no different from anybody else. I like clothes, I like shoes, I like to go have nice dinners, I like to dance. Just because I've dedicated myself to serving women, why do you think I need to sacrifice myself?
+- Since I was 15 years old I have dedicated my life to serving women.
+- Do you know that people fall in love in war and go to school and go to factories and hospitals and get divorced and go dancing and go playing and live life?
+- While women may look different, as some wear suits and others wear saris, or some cover their hair while others wear their hair loose, women need to stand together because they all face the central point of discrimination, although the extremity of which may be different from Kigali to Kabul.
+- As women, we must speak out, speak up, say no to our inheritance of loss and yes to a future of women-led dialogue about women's rights and value.
+- Sometimes you just have to jump off the cliff without knowing where you will land.
+- I couldn't find anyone doing something about the astounding injustices women were experiencing, so I decided to do something myself. I cannot tell you how many people ridiculed my efforts.
+- Being a leader for me is about having the courage to speak the truth, and live the truth, despite attempts to silence our thoughts, feelings, and past experiences.
+- Leadership is about encouraging women to break their silence and tell their stories to the world.
+- No change can come if those who are impacted the most by discrimination are not willing to stand up for themselves.
+- Like life, peace begins with women. We are the first to forge lines of alliance and collaboration across conflict divides.
+- I have come to understand that in order to effectively advance women's rights, we need to galvanize a global women's movement.
+- In my 20s I was such a serious, boring-looking person. I would never do my nails. I never even danced. But I was taught by the women. They had gone through hell, but they would dance and sing. I came to realise I can't argue for a happy world if I am not happy myself.
+- I grew up with injustice and could do nothing about it. But once in America, I had freedom of choice.
+- I by no means intend to simplify the challenges women face in any culture. Women are marginalized in all cultures in my opinion, some in more extreme ways than others.
+- By accepting what the external structures have told us we need to do, we have given the power of our realities and ourselves to others. It is time to tell a new story for women, and that can only start with women.
+- I don't have a child, so Women for Women is like my child. But I always said I would step down after 20 years. I didn't want to be a 60-year-old woman holding on to something I created when I was 23.
+- There is never a typical week. I don't think I can live with a typical week.
+- I don't want to be someone in my sixties holding on to a group that I created when I was in my twenties.

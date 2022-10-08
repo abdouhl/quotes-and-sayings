@@ -1,0 +1,78 @@
++++
+author = "Yungblud"
+title = "Yungblud Quotes"
+quotes_len = "72"
+description = "the best 72 Yungblud Quotes"
++++
+- If people don't like who you are, they aren't meant to be in your life.
+- People turn up at my shows with black hearts on their knuckles, waving their hands in the air like flags.
+- 'My Name Is' by Eminem was a song that changed my life.
+- Every show I play, 10 or 10,000 people, I want it to be the same one.
+- I've always been enthralled with chaos and mayhem musically, and I loved speaking out and challenging stuff, and I thought, why is my music not representing this?
+- I don't want to be liked by everyone.
+- I just want to say what I think and encourage others to say what they think.
+- I think there are loads of different types of love.
+- I don't want to preach to anyone, because if someone preaches to me, I just turn off - I've been preached to my whole life.
+- Growing up, I was so inspired by front men like Mick Jagger, Freddie Mercury, and Kurt Cobain - real showmen that put on 'a performance' every time they walk out on stage - so it's important for me to feel like I deliver that.
+- The best thing for me is the amount of DMs and people hitting me up every day saying, 'Your music is providing me with answers.' That blows my mind, because that's what Alex Turner and Eminem were for me.
+- I get tons of messages every day telling me, 'Your music has provided me with answers.'
+- My mum and dad were always supportive of me. They always let me express myself.
+- Initially, I started writing music because I wanted to express my thoughts and get what was going on in my head out to the world.
+- I don't want to preach to anyone, because I'm not.
+- I'm a lover, not a fighter, but I'll fight if I have to.
+- I've got ADHD, and my whole life, people thought I was some kind of troublemaker because I had all this energy.
+- I'm a total nutcase; a lot of people don't get me.
+- The connection I have with my fans is so important, and I want to break the boundaries and break the barriers between an artist and a crowd. It is so important, and I learn so much through my fans, and they help me.
+- I admire hip-hop artists because they drop so much music.
+- My generation, we're so smart and opinionated, and we know the world we want to live in; we know the future we want. We're such a liberal, forward-thinking generation that's been held back by an older generation that doesn't understand it, doesn't want the world to progress quickly because of old ideologies.
+- Rock n' roll's not dead.
+- I grew up on rock and roll like My Chemical Romance, who were actually genuinely talking about and saying things.
+- I'm quite an emotional person... I ain't just this Northern brat all the time.
+- No one could put my personality in a box. I didn't necessarily fit in.
+- All my life I've felt quite misunderstood because of my personality.
+- The music I grew up listening to had a message.
+- When you find new genres of music, you take ownership of them.
+- I like to say I'm like a puppy in a room of cats.
+- I've been in love a couple times, but you never know if it's truly the one until you meet the right person.
+- I love what Drake does.
+- When I went out to America, and someone wanted to sign me and invest in me, that was a big moment because, all my life, people have been trying to tell me to be different to what I was.
+- Teachers, people, and, to be honest, some of my classmates didn't understand me. I was the person they didn't like because I would always speak my mind and had a lot of energy. I'd be bouncing around all the time, being very opinionated.
+- I'm a massive Donny Rovers fan.
+- I want it to have a message. I want it to empower people to say what they think.
+- The broken heart on my right finger represents me before I figured out who I was, and the full heart on my left is because I'm left-handed, I use that to write my music, and my music helped me obtain my direction in life.
+- I remember talking about a Mozart song during a music class at school, and I said, 'I wouldn't have done it like that.' I didn't like the way the chords moved. And my teacher told me to get out.
+- As a kid, I always so enthralled and excited by rebellion.
+- People are scared to have a strong opinion because, with social media, almost everyone lives the life of a celebrity.
+- My generation is so intelligent.
+- The hardest part of being an artist is discovering what it is you do differently.
+- I've always had a lot of energy and had a lot of opinions all my life - people misunderstood that about me being naughty, gobby, or different.
+- Now when I step onstage, I have this hour when I can just be completely myself, just a massive ball of energy. Sometimes I get so lost in the performance, people look a little frightened - but that's a good thing.
+- When I was 10, I had dyed red hair, and I used to paint my nails - I think my mum secretly loved it.
+- I've always felt really misunderstood because I got a lot of energy, and I never conformed to a certain path.
+- I would listen to artists like My Chemical Romance, Eminem, Busta Rhymes, Blink-182, Paramore... all these bands were so unafraid of being themselves. They talked about their problems and what was going on in their heads. It grabbed and latched on to me, and I felt like I could do that, too.
+- I don't want to be an old man in a pub singing about Margaret Thatcher.
+- When I felt upset and lost, music always had the answer.
+- I want to spread a message of positivity, not hatred.
+- To me, that's what music entails. It's freedom, it's having the undeniable confidence to express yourself in a way that you know is right.
+- I love jewellery and stuff, so when I first got signed, I spent it on a load of bling.
+- All my life I feel like I haven't been heard.
+- All my life, I've had a fear of being told what to say, so I'm not telling people what to think. I'm encouraging them to say what they think.
+- From a young age, I was always very transparent, and that's why the kids' mums didn't like me. I would tell you if I didn't like your beans on toast.
+- I always spoke my mind, and that was a result of the music I listened to growing up.
+- The essence of Yungblud is connection. That's all I want to do: connect with people.
+- My personality is energetic, fun, yet slightly psychotic.
+- The biggest misunderstanding about me is that I'm just a bratty, gobby idiot.
+- That's what my song 'Medication' is about - everyone trying to make you a zombie.
+- There's not many people that can handle my sheer madness.
+- We are so distracted and focused on what's next, we can fail to see what is actually in front of us.
+- Follow me on Instagram.
+- Rosa Parks is rock and roll.
+- I've wanted to play Lollapalooza all my life.
+- Music is a part of someone's soul. Music is a feeling for me. And if that soul is evil, then I don't want anything to do with it.
+- I'm a rock and roll kid, but to me, rock and roll isn't just four idiots banging their instruments really loud.
+- We don't realize how much we need something until it's taken away from us.
+- I think if you stand still, you get forgotten, and I'm not here to get forgotten.
+- Oasis were massive for me, because of the attitude and what they represented and how outspoken they were. It felt like they were exactly like me.
+- My goal is to reach as many people as possible and inspire them.
+- I write music about what's going on in my head, what I'm angry about, and what I think is wrong/right.
+- I wanna be an artist on the whole; I don't wanna be within a genre.

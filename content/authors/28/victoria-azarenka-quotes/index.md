@@ -1,0 +1,48 @@
++++
+author = "Victoria Azarenka"
+title = "Victoria Azarenka Quotes"
+quotes_len = "42"
+description = "the best 42 Victoria Azarenka Quotes"
++++
+- You know, I think I'm the worst player to talk to about statistics.
+- I don't get that much of a chance to cook at home, but when I do, I really enjoy it.
+- I don't drink alcohol. I only really drink water.
+- I don't like my ego stroked too much.
+- I like to go shopping, to the movies, all the girl stuff. Just a normal girl.
+- There are so many steps you have to go through to reach a high level, so you're kind of building your own, I would say, mountain. You have to go piece by piece by piece. When you're young and really ambitious, you want to jump right up. It kind of teaches you a lesson, I would say.
+- I always wanted to be an actress. I think that is something that I could be pretty good at.
+- I was missing out on a lot of things that my friends were doing, but in another way, they were missing things I was doing. It was kind of a trade-off I had to make.
+- I'm such a perfectionist. I want to do better and better.
+- I don't consider myself as a great painter; I just feel that art is about expressing your emotions and expressing your feelings, and music is the same way; you can see what other people are going through.
+- I have nothing to prove to anybody.
+- I'm always honest.
+- You cannot be in pretend for people to like you.
+- I love rock music, dance music, so it depends on my mood. But I mainly listen to dance music before going out on court.
+- I feel like when the task is more difficult for me it's more exciting.
+- I think I've always been very good at taking advantage of the opportunities that have been given to me, because I didn't have many. Once I got one, I grabbed it with two hands.
+- I just want to be able to show who I really am, what I can do, bring awareness, create something because I want to take tennis, women's tennis, into an even more exciting path because I believe we have a lot more things to offer.
+- I always take things step by step and match by match.
+- I want to be my son's superhero.
+- I have learned how to better handle things as they come.
+- I'm not a big fan of watching my matches.
+- I love the game and I am so lucky to be able to do what I love.
+- I don't really care how I sound.
+- Tennis court, the results, yes, it gives me a feeling of accomplishment and knowing that all the work I put in is working. It's a great feeling. But happiness is something way bigger than tennis.
+- I want to maximize my potential. And when I talk about that, don't get me wrong - I'm not talking about just making money.
+- Somebody asked me at one stage, 'Are you depressed?' And I said, 'Are you kidding me? I'm not depressed.' But you know what? I was. I was, but I just didn't realize it, because all these things happen, and you just don't know how to deal with emotions.
+- My grandmother is the person who inspires me the most.
+- I have to feel OK with taking some time for myself, not feeling guilty that I don't spend my every free second with my son, which is sometimes tough.
+- I want to have my son be proud of me. I want to give him a good example that if you have a goal, and you have a dream, you can achieve it if you work hard.
+- Some people just look at opportunities and say, 'Maybe something better might come along; let's wait and see.' But you don't wait. You just grab it and go after it.
+- I'll never be like a Barbie girl, that's for sure.
+- I just want to have fun.
+- I'm a sensitive person. I have a kind heart, you know, but I'm a fighter on the court and a competitor in life, so just to understand that and accept that can sometimes be really difficult.
+- It's true that being in an individual sport, you have to be a little bit selfish.
+- Compared to my physique before pregnancy, yes, I do feel different. I have worked really hard and changed a few things - not only my fitness regime but also my nutrition. When I think about it, being pregnant definitely helped my physique.
+- Sports is a huge entertainment now, and we need to provide that entertainment for the fans because that's what they're looking for.
+- Things are never perfect, so I never get too high about things, or get too down about things anymore.
+- I love New York. It's one of my favorite cities.
+- Deep down inside, I know I'm a very good person.
+- When I see these kids 6 years old with a private coach, and at 7, they have a fitness coach, I'm like, 'Aw, come on.' At 12, it's for sure they will lose all the interest in tennis because they do not interact with other kids.
+- I'm like a kid: I love dessert.
+- I had to battle the doubts and fears for a while, but I committed to making sure that my strongest emotion was self-belief. Once I did that, I knew I would be OK.

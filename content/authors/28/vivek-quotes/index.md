@@ -1,0 +1,78 @@
++++
+author = "Vivek"
+title = "Vivek Quotes"
+quotes_len = "72"
+description = "the best 72 Vivek Quotes"
++++
+- As everyone knows, comedy is the toughest emotion to handle. Everything about it is difficult - writing, directing and acting.
+- Students should respect trees just as they respect their mothers.
+- I would like to work with new-generation directors like Karthik Subbaraj, Nalan Kumarasamy and Seenu Ramasamy.
+- As a comedian, I've always tried to bring in trendy issues.
+- Apart from exercising, reading and watching movies also keep me occupied.
+- If I lean towards one particular party, people would not enjoy my comedy. Also, to enter politics, I should first leave cinema completely.
+- The fact is, I don't follow any strict diet. I eat almost everything, but moderation is the key.
+- I think Tamil films will soon go the Hollywood way. There will be separate full-length humour-driven scripts, just like how thrillers and musicals are becoming successful genres.
+- After the age of 40, human beings are prone to various infection, diseases and physical damage. Engaging in regular exercise is the only way to combat such issues.
+- It is a great honor to be working with Rajinikanth.
+- I was never considered 'a marketable hero', and never got promoted to that category. I am not complaining - I found another niche - comedy - which is equally enjoyable and brought me as much comfort as I need.
+- I enact as a female in 'Guru En Aalu' for the first time.
+- I regularly do yoga and believe it has been keeping me healthy physically and mentally since long time.
+- I am a great fan of veteran artistes N.S. Krishnan and M.R. Radha. They had great social awareness and were never afraid to raise their voices against vices in society.
+- Whenever I see someone wasting water, my heart skips a beat.
+- Under the guidance of the former President of India, APJ Abdul Kalam, I have been doing this green initiative. My aim is to plant 1 crore sapling in Tamil Nadu.
+- In 'Saami,' I take a poor dhobi's son for admission to a private school. The principal refuses for various reasons and finally he points to the boy's bare body. Immediately, I tear the furnishings off the office chair to convert them into clothes for the boy.
+- South Indian films have most number of comedians and to see them all on screen at times is unrealistic. I'm happy that the industry has room for so many of us.
+- Only by planting trees, we will be able to overcome global warming.
+- My character in 'Uthamaputhiran' will not speak much. But the audience would sure speak about my role after watching the film.
+- I never had a particular brand of comedy, nor did I follow a particular style.
+- I rate 'Naan Thaan Bala' as one of the best performances of my career. It was a rare feat, perhaps in Indian cinema, that a popular comedian played the lead role in a film that didn't have even a tinge of humour.
+- Imitation is the best form of flattery; people generally understand that my comedy is not intended to hurt anybody. Occasionally, an actor might take exception, but they should just understand that it is all done in good humour.
+- I am an atheist.
+- As a huge admirer of Vivekananda, I love reading 'Sayings of Vivekananda.'
+- It was a nice experience to shoot on the streets of New York. Tourists are highly respected there and people are highly disciplined and polite.
+- The Censor officials who saw 'Uthamaputhiran' appreciated me a lot. All the credit should go to Mithran Jawahar and Dhanush.
+- I don't know Kannada.
+- Education is the key to abolishing caste system.
+- There is a need to spread more awareness about environmental issues.
+- I have been getting proposals to play the lead from a long time but I rebuffed those offers. I wanted to work in a storyline that has scope for me.
+- There is no feeling of regret spending time on the campaign. I think working closely with Kalam made me realise how simple he is in life.
+- Comedy was never a scarcity in Kollywood. Comedians of great calibre have emerged from this land.
+- Our culture has always been about treating women as mothers. It is sad that women are treated as mere sex objects by many.
+- Humour can always be found in a place where there's fearlessness.
+- AR Rahman has always been a good friend of mine.
+- It is very difficult to popularise comic characters.
+- Dhanush is very comfortable to work with.
+- A comedian needs more than just a sense of humour. He needs to observe everything around him.
+- Children did not come into this world because of you. They came through you. Be grateful to them. They are the proof of your life. Do not thrust your dreams on them. Find out what their wishes are.
+- I have decided to dub on my own for my role in Vazhipokkan. It is an interesting storyline and hence I accepted the offer.
+- I have a mini-library at home and I have begun reading books I'd purchased during my travels.
+- Comedians have to entertain the audience within a stipulated time. It is not possible to explain what we intend to convey in a detailed manner. This can only be done in films where comedians are the protagonists.
+- Bring up your daughters with courage. When the future becomes one filled with questions, they might have to fight against it. Women must be able to defend themselves.
+- I like Robo Shankar - he evokes laughter, he has a unique body language and style. I loved all scenes of his in 'Maari.'
+- I am keen on doing negative roles.
+- Turning into a full-fledged comedian involves a lot of hardships.
+- My inspiration for film comedy comes from here. Spend a day on the Madurai streets and you will be amused at the way these people speak and behave. They have an inherent ability to be hilarious.
+- I need solid roles that provide scope for performance, even if it is just a few scenes.
+- I request big films to give way for small movies as there are umpteen number of such films waiting to see the light of the day.
+- I was shocked when I first read the script of 'Vellai Pookal.'
+- It is really sad that there's no recognition at the national level for comedy.
+- I am an avid reader of Sidney Sheldon thriller novels.
+- Timing is crucial for comedy.
+- In 'Uthamaputhiran,' 'Velaiyilla Pattathari' and 'Yennai Arindhaal,' I was a mute spectator to everything.
+- Writing a comedy track is an art. It isn't as easy as people think. It can make or break a film.
+- Humour has always been my cup of tea.
+- Direction has always been on the cards, and I love writing.
+- I have always been vocal about preserving water and living a nature-friendly life.
+- After my debut, I had to struggle for seven years to establish myself in the industry.
+- We are not insisting on planting trees just because of global warming. Hinduism, Christianity, and Islam insist on the necessity of trees. Especially in Hinduism, the peepal tree is worshiped as Lord Ganesha while neem is worshiped as a goddess.
+- It's 22 years since I made my entry into the film industry and I am delighted that my work has been recognised and appreciated.
+- I was near the Niagara Falls where I was shivering and delivering my lines. It was minus 17 degrees and I had gone there without proper thermal wear. Tourists looked at me with horror thinking I had gone nuts.
+- I was a little disappointed with the box-office performance of 'Dharala Prabhu,' because the theatres were shut down just three days after the movie was released. It had good scope to attract family audience and youngsters.
+- Even if each individual plants and protects a single tree, it will save the world and benefit several generations to come.
+- I was introduced in 1987, but it was only by 1996 that I became a hit with the audiences.
+- I got busy with planting saplings after I started the Green Globe initiative.
+- I did try my luck in a handful of commercial entertainers, which came and went so discreetly that they didn't affect my career.
+- Encouragement makes an actor perform better and boosts his confidence.
+- If your daughter loves tennis, don't send her to dance classes. Let them learn spirituality. Don't shut them up in air-conditioned rooms where they watch TV all day and snack on chips. Let them get out, play in the dirt, sweat it out and come back home.
+- I may become like an Indian thatha but I won't stop making jokes.
+- I am friendly to all political parties. So, I am able to do my social work freely without any hassles.

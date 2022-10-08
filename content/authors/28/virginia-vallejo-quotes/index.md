@@ -1,0 +1,14 @@
++++
+author = "Virginia Vallejo"
+title = "Virginia Vallejo Quotes"
+quotes_len = "8"
+description = "the best 8 Virginia Vallejo Quotes"
++++
+- I have to accept my life is different to most people.
+- Pablo really felt the suffering of people and so became a political animal. But he wanted to bring down extradition because this was the only thing he feared, and it became his obsession, his crusade, his cross.
+- With Pablo, I lose my reason, and with me, he loses his head; and then all that's left is a man pursued by justice and a woman pursued by the media who know and take care of and need each other, despite the pain caused by all the absences, all his crimes and her sins.
+- Colombians don't switch on their TVs to see me, but what I'm wearing.
+- Pablo gave me gifts any billionaire gives his girlfriend: a crocodile wallet, a trip. I imagine that Trump gave Melania wallets.
+- I change my phone number, and with my soul shrunken by terror, I make the decision never to see Pablo Escobar again in my life. Overnight, I have stopped loving him.
+- I had mixed feelings when the entire country was celebrating the death of Pablo Escobar and even Bill Clinton was congratulating the government.
+- I was not interested in luxuries because I had an elegant life as a child. My family, very aristocratic, one of the richest in Colombia, educated me like a princess, in the English style.

@@ -1,0 +1,70 @@
++++
+author = "Wallace Shawn"
+title = "Wallace Shawn Quotes"
+quotes_len = "64"
+description = "the best 64 Wallace Shawn Quotes"
++++
+- Acting is trying to be absolutely truthful; to get audiences to believe that you are a dean, when, actually, not only are you not the dean, but if you walked into the building they'd probably throw you out. That's very hard.
+- 'The Fever' is a one-person play. I decided I would perform it myself, and I decided I would not perform it in theaters, because the character in the play says certain things that I meant.
+- I led the life of an intellectual up until a certain age. I remember Freud's 'Interpretation of Dreams' was a big favorite when I was 11. It sounded so interesting. And it really was!
+- I choose parts because I don't want to be embarrassed when the movie comes out. What if my friends were to see the movie? What if my niece or nephew wandered into the theater and saw the movie? I don't want to be too ashamed of it.
+- The actor's role in the community is quite unlike anyone else's. Businessmen, for example, don't take their clothes off or cry in front of strangers in the course of their work. Actors do.
+- I spend most of my time thinking about things like laundry and buying stationery supplies.
+- Interestingly, the actress who, in her own persona, may be gentle, shy, and socially awkward, someone whose hand trembles when pouring a cup of tea for a visiting friend, can convincingly portray an elegant, cruel aristocrat tossing off malicious epigrams in an eighteenth-century chocolate house.
+- When I was first starting to write plays, I quite literally had never heard of the idea of studying playwriting. I wouldn't have studied it even if I had heard of it.
+- You know, I haven't written as much as most other writers. Certainly maybe those who keep a more regular schedule accomplish more.
+- I don't have a television, and I'm just not too up on television.
+- We're in an emergency situation. The United States has become an absolutely terrifying country, and I would hope that I could participate in some way in stopping the horror and the brutality.
+- I do things, and other people laugh at them. I rarely know what the joke is supposed to be or why they're laughing.
+- For some reason, people find me funny. It's quite hard to define why a thought is funny. It's even harder to define why a person would be funny. It's a word that I can't define at all. But whether I know quite what it is or not, I seem to be it.
+- I probably have a higher opinion of my writing than the average person, at least when I'm in a good mood, but I don't really think of my plays as only being relevant to a particular month or year.
+- I know that I am one and I've made a living as an actor and I enjoy being an actor, but when I'm not actually doing it, I forget that I do it.
+- In my early 20s, I studied history and politics, and I really thought that perhaps I would devote my life to that.
+- Patriotism is considered to be an emotion a person ought to feel. But why? Why is it nobler to love your own country than to love someone else's?
+- My personal life is lived as 'me,' but my professional life is lived as other people. In other words, when I go to the office, I lie down, dream, and become 'someone else.' That's my job.
+- I'm a very lucky man. It's a beautiful thing for a writer, to see people allowing your words to enter their own unconscious and their souls.
+- We are not what we seem. We are more than what we seem. The actor knows that. And because the actor knows that hidden inside himself there's a wizard and a king, he also knows that when he's playing himself in his daily life, he's playing a part, he's performing, just as he's performing when he plays a part on stage.
+- I don't happen to have a sense of humor personally, so I don't know what's funny about a character... This happens to be a feature of my life generally.
+- From being a writer of plays, it was not that surprising that somebody thought of giving me a job as an actor. After I played one part, others came along.
+- In an amusement park, you can go on a roller coaster that carries you up and down, or you can go on another kind of ride that whirls you around in a circle. Similarly, there are different sorts of entertaining experiences in the theater.
+- I think the whole system of education would change if I were in charge and had the ability to make changes. I don't think I would keep Princeton exactly being Princeton.
+- I have more free time than a lot of individuals, so, instead of talking, I sometimes write.
+- I'm being mocked because I don't live up to a socially determined view of what other people think a person should look like.
+- Children, I always think, are just putting on a performance of being naive and not understanding anything. I have worked with children in films, and they're treated as adults and they just drop the pretense of being children.
+- I see myself as a citizen of the planet. Even as a child, I always found it mindless to root for your own team. I was puzzled by the fact that people said their own team was better than other teams simply because it was theirs.
+- I have been vain since birth. I expected other people to like what I did, although my vanity has definitely diminished over the years.
+- I have been vain since birth.
+- But because we've all been readers, we know what the experience is like, and we hope that what certain writers have given to us, we will give to someone.
+- I'm not proud to be me, I'm not excited to be me, but I find that I am me, and like most other individuals, I send out little signals; I tell everyone else how everything looks from where I am.
+- Even with my wife, I find sharing soup is hard.
+- My father was a jazz listener, and I think, at least before I was 5, I was not so into that. Although there were records that emphasized percussion that I liked, like Baby Dodds.
+- I started writing plays in around 1967, and at a certain point, I thought, 'I'm writing plays, I should learn about acting and what it is.' So I went to the HB Studio in New York, and I was there for about nine months.
+- As writers, we can't predict who might come along who might find our offerings valuable.
+- I have an enormous appetite to see life as I know it presented in front of my eyes.
+- There's nothing regular about my life at all, really. I don't keep a regular schedule and every day is different. It's all rather chaotic.
+- Acting is an escape from the boring person that I am in real life.
+- I am recognized a lot for 'Clueless,' but I am recognized a great deal for 'The Princess Bride.' I don't know... maybe everybody who has seen that movie just goes out on the street.
+- In my mind, the plays I was writing were extreme examples of art for art's sake. I didn't necessarily think that other people would love them, though I thought they probably would.
+- I never planned to be an actor. It turned out I could make a living doing it.
+- Before I was 5, I did have a lot of time on my hands. I had no job and really no career, and I spent an awful lot of time listening to records. It was more the classical ones, really - Prokofiev, and I think there was some Mozart in there, and more impressionistic composers like Delius.
+- And my singing, I don't think I could sing Wagner or opera, but I could probably carry a tune. I was in a musical once, but it was never performed.
+- 'The Princess Bride' is by far the most popular film I've ever done. I don't think I'll ever top it.
+- You can go to a play that is enjoyable because it's funny, and then on the next night you can go to a play that's enjoyable because it's 'disturbing.'
+- After being in one movie, it didn't seem like that would be my life. I had done several jobs, briefly. I'd been a shipping clerk, I worked in a copy shop, I didn't think the acting was going to go on and on.
+- I was making my living from a joke about my appearance that I didn't understand, and in a way still don't, because when I look in a mirror it doesn't seem funny to me.
+- Contrary to the popular misconception, the actor is not necessarily a specialist in imitating or portraying what he knows about other people. On the contrary, the actor may simply be a person who's more willing than others to reveal some truths about himself.
+- When I was a child, I did always feel that people were hiding things, and that they weren't expressing their true feelings. When adults are too complicated, and cover their emotions with layers of well-intentioned subterfuge, the child isn't seeing reality clearly enough and gets upset.
+- I sincerely believe that if Bush and Cheney recognized the full humanity of other people's mothers around the world, they wouldn't commit the crimes they commit.
+- My plays have been strange from the beginning, and they never got unstrange.
+- When I was first exposed to the films of Ingmar Bergman, I found them frank and disturbing portraits of the world we live in, but that was not something that displeased me. They were beautiful. I thought people would respond to my plays the way I responded to Bergman's films.
+- I wrote my first play at the age of 10, 55 years ago, and I've always found it a fantastic relief to imagine I know what things would be like from the point of view of other individuals and to send out signals from where I actually am not. Playwrights never need to write from the place where they are.
+- It is hard enough to make a plan for how you are going to spend an evening with somebody else. So to make a plan for how you are going to behave in 25 years seems based on a view of life that is incomprehensible to me.
+- I don't see that many plays, and for me, musicals are rarely pleasing.
+- I never grew up thinking, 'One day I will play so and so' because I wasn't expecting to be an actor at all.
+- In real life, every person is the leading man or woman. We don't think of ourselves as supporting or character actors.
+- In terms of number of movies, I've been in an extraordinary amount. If you count only the minutes I'm onscreen, it's not so long.
+- For me, a play is a form of writing which isn't complete until it is interpreted by actors. But it's still a form of writing. And so most of my time is spent thinking about how to write a sentence.
+- The life of an actor can be very enviable.
+- I grew up. I began to think the United States had some problems that really required the help of artistic people to solve. And I gave myself permission to be a writer instead of a civil servant.
+- If I had even the tiniest scrap of advice to give to a young actor who was figuring out how to audition, I would say don't memorize the script... The reality about auditions is that 98 percent of the results has to do with what you are, not with what you did in the audition.
+- I'm afraid that the passage of time is mostly lost on me. If you were to open up my head you would see that I'm still brooding about statements, songs and issues from the third grade. The years between 1980 and today went by very, very quickly.

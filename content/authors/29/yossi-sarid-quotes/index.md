@@ -1,0 +1,18 @@
++++
+author = "Yossi Sarid"
+title = "Yossi Sarid Quotes"
+quotes_len = "12"
+description = "the best 12 Yossi Sarid Quotes"
++++
+- Young people who have no future will easily give up their future, which they can't see on the horizon.
+- If the Knesset is a temple, then Feiglin is the idol. A Knesset where Feiglin presides is an impure Knesset.
+- I do not believe in the eternity of the spirit. That contradicts my ideology.
+- It's not up to me to list, like a grocer, my achievements in the government and the Knesset.
+- I made a name for myself as someone who is determined to swim against the stream if it's dirty.
+- I hate all the terrorists in the world, whatever the purpose of their struggle. However, I support every active civil revolt against any occupation, and Israel, too, is among the despicable occupiers. Such revolt is both more just and more effective, and it does not extinguish one's spark of humanity.
+- I believe in something that maybe can be defined as the God in one's heart, in the heart of every human being, but not in a God who sits on high looking down on us and taking care of us and whom we bother with things trivial and weighty so that he will be good to us and arrange things for us here.
+- Not only are Feiglin's people radicals and fascists but also the bearers of severe personal disturbances, which hide behind a layer of patriotic make-up under the camouflage of the Jewish faith.
+- I was involved in legislating dozens of laws, perhaps hundreds. But my glory didn't lie in legislative work, if there is any glory in it. The Israeli law books are full of laws that aren't enforced anyway.
+- There are no good and bad peoples; there are only leaderships that behave responsibly or insanely.
+- Nazism promoted Germany from a low to a fantastic physical and ideological status.
+- The fight against terror cannot stop as long as terrorism itself is not stopped, but the path of war must change: it must lead directly to terrorists and not be waged on the backs of three million Palestinians.

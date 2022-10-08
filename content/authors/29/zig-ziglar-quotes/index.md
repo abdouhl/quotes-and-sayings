@@ -1,0 +1,175 @@
++++
+author = "Zig Ziglar"
+title = "Zig Ziglar Quotes"
+quotes_len = "169"
+description = "the best 169 Zig Ziglar Quotes"
++++
+- Honesty and integrity are absolutely essential for success in life - all areas of life. The really good news is that anyone can develop both honesty and integrity.
+- The problem with pity parties is very few people come, and those who do don't bring presents.
+- Money is not the most important thing, but when you need it, there are few substitutes. So while I like the things money can buy, I love what money won't buy. It bought me a house but it won't buy me a home. It would buy me a companion but it won't buy me a friend.
+- A productive employee who is kept busy working at his or her job is far more likely to be happy at that job and less likely to look for employment elsewhere.
+- Gratitude is the healthiest of all human emotions. The more you express gratitude for what you have, the more likely you will have even more to express gratitude for.
+- The successful business executive can handle challenges and solve problems at a remarkable clip.
+- You are who you are and what you are because of what has gone into your mind. You can change who you are and what you are by changing what goes into your mind.
+- All one needs to do is read - books, magazines, research the Internet - and pay attention to the influencers in their lives to discover the myriad people of strong moral character who have and still are making positive, meaningful contributions and differences in our world.
+- Many people who want to be great aren't willing to do the work to make it possible!
+- Money isn't the most important thing in life, but it's reasonably close to oxygen on the 'gotta have it' scale.
+- Wally Amos is the classic example of a man who gets up again and again.
+- I have always said that everyone is in sales. Maybe you don't hold the title of salesperson, but if the business you are in requires you to deal with people, you, my friend, are in sales.
+- I've always taught that a poor economy is the best opportunity for salespeople because the naysayers and grumblers have already given up, leaving more territory, more opportunities to be successful than in a good economy when virtually all salespeople are out there, giving it their best.
+- When you encourage others, you in the process are encouraged because you're making a commitment and difference in that person's life. Encouragement really does make a difference.
+- As youngsters, my mother taught her children that while we might not be the smartest people around, we could be courteous, polite and considerate of others.
+- Just saying you are better than good won't make it so. But, when you understand what it takes to live the better than good life, and you apply yourself, your life will truly be better than good.
+- Money won't make you happy... but everybody wants to find out for themselves.
+- I took up an offer for me to lose 30 pounds in 30 days. It worked. I lost 30 days!
+- Profitability comes from loyalty, productivity, and having a character base from which to work.
+- Earl Nightingale has inspired more people toward success and fortune than any other motivational speaker on the planet.
+- People don't buy for logical reasons. They buy for emotional reasons.
+- If people like you, they'll listen to you, but if they trust you, they'll do business with you.
+- Problem-solving becomes a very important part of our makeup as we grow into maturity or move up the corporate ladder.
+- People who have good relationships at home are more effective in the marketplace.
+- You were designed for accomplishment, engineered for success, and endowed with the seeds of greatness.
+- New information makes new and fresh ideas possible.
+- I was in that part of the class that made the top half possible.
+- If you want to earn more, learn more.
+- Until you are happy with who you are, you will never be happy because of what you have.
+- Expect the best. Prepare for the worst. Capitalize on what comes.
+- Every sale has five basic obstacles: no need, no money, no hurry, no desire, no trust.
+- Many marriages would be better if the husband and the wife clearly understood that they are on the same side.
+- When you make a promise, keep it.
+- With integrity, you have nothing to fear, since you have nothing to hide. With integrity, you will do the right thing, so you will have no guilt.
+- A lot of people quit looking for work as soon as they find a job.
+- Success is the maximum utilization of the ability that you have.
+- Andy Andrews is the best speaker I have ever seen.
+- I believe it's important that we use names of endearment that reflect a special feeling for the individual involved.
+- Most people consider me an optimist because I laughingly state that I would take my last two dollars and buy a money belt.
+- Now's the best time you'll ever have in life to get ahead!
+- Take time to be kind and to say 'thank you.'
+- Be careful not to compromise what you want most for what you want now.
+- People are basically the same the world over. Everybody wants the same things - to be happy, to be healthy, to be at least reasonably prosperous, and to be secure. They want friends, peace of mind, good family relationships, and hope that tomorrow is going to be even better than today.
+- Courage is on display every day, and only the courageous wring the most out of life.
+- When you catch a glimpse of your potential, that's when passion is born.
+- Research indicates that employees have three prime needs: Interesting work, recognition for doing a good job, and being let in on things that are going on in the company.
+- Athletic skills are acquired over a long period of time and after countless hours of practice.
+- We all prospect, and don't even know we're doing it. When you start the dating process, you are actually prospecting for the person you want to marry. When you're interviewing employees, you are prospecting for someone who will best fit your needs.
+- If my life has had a theme, I suppose it has been a typical American theme in that, for most of it, I have been looking for happiness and success.
+- I'm so optimistic, I'd go after Moby Dick in a rowboat and take the tartar sauce with me.
+- The relationships we have with people are extremely important to success on and off the job.
+- You've got to be before you can do and do before you can have.
+- Failure is a detour, not a dead-end street.
+- When I became proficient as a salesman I was invited to teach new hires.
+- You cannot perform in a manner inconsistent with the way you see yourself.
+- I'm convinced that what kids need today are parents - not buddies. They need someone who will exercise mature judgment.
+- Some people do really find fault like there's a reward for it.
+- A goal properly set is halfway reached.
+- Positive thinking will let you use the ability which you have, and that is awesome.
+- Selling is something we do for our clients - not to our clients.
+- To be candid, some people have given positive thinking a bad name. I can't stand to hear some gung-ho individual say that with positive thinking you can just do 'anything.' If you think about that one for a moment, you recognize the absurdity of it.
+- For 24 years of my adult life, by choice I weighed well over 200 pounds. I say 'by choice' because I have never 'accidentally' eaten anything, so when I choose to eat too much, I have chosen to weigh too much.
+- A plan is always successful if the plan is good.
+- It's not what you've got, it's what you use that makes a difference.
+- I seldom read anything that is not of a factual nature because I want to invest my time wisely in the things that will improve my life. Don't misunderstand; there is nothing wrong with reading purely for the joy of it. Novels have their place, but biographies of famous men and women contain information that can change lives.
+- Success is dependent upon the glands - sweat glands.
+- If you're going to have to swallow a frog, you don't want to have to look at that sucker too long!
+- There are no traffic jams on the extra mile.
+- If you learn from defeat, you haven't really lost.
+- Fortunately, problems are an everyday part of our life. Consider this: If there were no problems, most of us would be unemployed.
+- Do more than you are being paid to do, and you'll eventually be paid more for what you do.
+- If God would have wanted us to live in a permissive society He would have given us Ten Suggestions and not Ten Commandments.
+- In the game of life, before you get anything out, you must put something in!
+- Yes, it's absolutely true that anything worth doing is worth doing poorly - until you can learn to do it well.
+- It will be disastrous when a leader or manager shows up with one attitude one day and treats people with a different attitude the next day.
+- When there is no job related stress, you are more aware of your mate and children, if you are a parent.
+- True success has more components than one sentence or idea can contain.
+- Sometimes adversity is what you need to face in order to become successful.
+- Remember that failure is an event, not a person.
+- Statistics suggest that when customers complain, business owners and managers ought to get excited about it. The complaining customer represents a huge opportunity for more business.
+- When you are tough on yourself, life is going to be infinitely easier on you.
+- Time can be an ally or an enemy. What it becomes depends entirely upon you, your goals, and your determination to use every available minute.
+- The person who dumps garbage into your mind will do you considerably more harm than the person who dumps garbage on your floor, because each load of mind garbage negatively impacts your possibilities and lowers your expectations.
+- New research shows that you will be dead longer than you will be alive.
+- Try to look at your weakness and convert it into your strength. That's success.
+- Selling is essentially a transfer of feelings.
+- Reading has been the fuel of my motivation: it has changed the direction in which I have traveled, and it has enhanced my creative imagination more than any other activity I have ever pursued.
+- I'm a constant learner. You need to be a constant student because things change and you have to change and grow. And I emphasize the word 'grow.'
+- You cannot climb the ladder of success dressed in the costume of failure.
+- Kids instinctively know - although they will argue to the contrary - that they really are not mature enough to make good decisions on some important issues.
+- If your watch is slow by just four minutes, that's not much - unless you've been warned that if you're even one minute late ever again you will be fired. Then four minutes make a big difference.
+- It's absolutely true that unless you can instill discipline upon yourself, you will never be able to lead others.
+- I am convinced after more than 50 years in the field of motivation that anyone who wants to learn to look at life and/or their circumstances in a positive light can do so.
+- You can make positive deposits in your own economy every day by reading and listening to powerful, positive, life-changing content and by associating with encouraging and hope-building people.
+- Building a better you is the first step to building a better America.
+- Champions invariably have fervent philosophical beliefs. Philosophy, in its simplest terms, means 'the love of wisdom.'
+- There's never been a doctor who served many patients who, despite their best efforts, did not lose some of them to death. But they understood that was part of life itself.
+- You were born to win, but to be a winner, you must plan to win, prepare to win, and expect to win.
+- Outstanding people have one thing in common: An absolute sense of mission.
+- I'm constantly amazed that owners and managers of all businesses don't train their people to call the person who pays by credit card by name. It definitely makes the customer feel good and will be a factor in bringing them back to your place of business.
+- Being productive gives people a sense of satisfaction and fulfillment that loafing never can.
+- The right quote can inspire people to change their ways.
+- It might interest you to know that the 1828 Noah Webster Dictionary identifies the optimist in complimentary terms, but says nothing about the pessimist. The word 'pessimist' was not in our vocabulary at that time. It's a modern 'invention' which I believe we should 'dis-invent.'
+- If you want to reach a goal, you must 'see the reaching' in your own mind before you actually arrive at your goal.
+- People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily.
+- He climbs highest who helps another up.
+- The problem is not getting rid of fear, but using it properly.
+- The six people who had the biggest impact on my life were all women. Had I been sexist, my life would have been far less fulfilling.
+- If you aim at nothing, you'll hit it every time.
+- If you treat your wife like a thoroughbred, you'll never end up with a nag.
+- Whether it's eight o'clock in the morning or eight o'clock at night, I always try to greet others before they have a chance to speak to me.
+- My first professional job was to sell heavy-duty waterless cookware.
+- It's not the situation, but whether we react negative or respond positive to the situation that is important.
+- Fact: If standard of living is your number one objective, quality of life almost never improves. But if quality of life is your number one objective, standard of living invariably improves.
+- I once dieted so religiously I quit eating in church.
+- Your understanding of what you read and hear is, to a very large degree, determined by your vocabulary, so improve your vocabulary daily.
+- I've got to confess I'm a pragmatic optimist myself.
+- Authors by the hundreds can tell you stories by the thousands of those rejection slips before they found a publisher who was willing to 'gamble' on an unknown.
+- Every choice you make has an end result.
+- At 25, I was in the audience of my first professional speaker, Bob Bales. His presentation got my attention. I had never seen anyone having so much fun 'at work' and getting paid for it!
+- The foundation stones for a balanced success are honesty, character, integrity, faith, love and loyalty.
+- You cannot tailor-make the situations in life but you can tailor-make the attitudes to fit those situations.
+- Husbands and wives, have fun with each other. I'm convinced it makes all the difference in the world.
+- If you don't see yourself as a winner, then you cannot perform as a winner.
+- It was character that got us out of bed, commitment that moved us into action, and discipline that enabled us to follow through.
+- Positive thinking will let you do everything better than negative thinking will.
+- Only men of character are trusted.
+- Send out a cheerful, positive greeting, and most of the time you will get back a cheerful, positive greeting. It's also true that if you send out a negative greeting, you will, in most cases, get back a negative greeting.
+- Be there for your kids. Later, when you need them, they'll be there for you.
+- We need to understand the difference between discipline and punishment. Punishment is what you do to someone; discipline is what you do for someone.
+- When you give directives to a child, especially a teenager, you must consider the nature of your child.
+- It is true that integrity alone won't make you a leader, but without integrity you will never be one.
+- When you are truly interested in other people, you will learn what they are interested in and if they have a need for your product. If they like you, and most people like folks who take an interest in them, they'll help you find people who do need what you have to sell, even if they don't.
+- Goals enable you to do more for yourself and others, too.
+- There is a certain amount of dissatisfaction that goes with knowing your time, talent and abilities are not being properly used.
+- The first step in solving a problem is to recognize that it does exist.
+- Be grateful for what you have and stop complaining - it bores everybody else, does you no good, and doesn't solve any problems.
+- Timid salesmen have skinny kids.
+- Time well spent results in more money to spend, more money to save, and more time to vacation.
+- Isn't it amazing how much stuff we get done the day before vacation?
+- Little men with little minds and little imaginations go through life in little ruts, smugly resisting all changes which would jar their little worlds.
+- Confidence is going after Moby Dick in a rowboat and taking tartar sauce with you.
+- You never know when a moment and a few sincere words can have an impact on a life.
+- You can have everything in life you want, if you will just help other people get what they want.
+- The young athlete who aspires to greatness, generally speaking, learns a number of things from several different coaches. The first one taught him the fundamentals; the second one instilled discipline in him and taught him more of the techniques that must be mastered to excel.
+- Since belief determines behavior, doesn't it make sense that we should be teaching ethical, moral values in every home and in every school in America?
+- We hear tears loudly on this side of Heaven. What we don't take time to contemplate are the even louder cheers on the other side of death's valley.
+- The one thing coaches cannot tolerate... is the individual who grows arrogant because he excelled at a lower level and believes he has nothing else to learn.
+- I read the paper every day and the Bible every day; that way I know what both sides are up to.
+- U.S. President Theodore Roosevelt has been described as founder of the Bull Moose Party, the man who led his troops up San Juan Hill in the Spanish-American War, a big game hunter, family man, civic servant and a host of other things.
+- You do not pay the price of success, you enjoy the price of success.
+- If you can dream it, then you can achieve it. You will get all you want in life if you help enough other people get what they want.
+- Many people spend more time in planning the wedding than they do in planning the marriage.
+- Yesterday ended last night. Today is a brand-new day.
+- I read for the 'ah-ha's,' the information that makes a light bulb go off in my mind. I want to put information in my mind that is going to be the most beneficial to me, my family and my fellow man - financially, morally, spiritually, and emotionally.
+- Personal discipline, when it becomes a way of life in our personal, family, and career lives, will enable us to do some incredible things.
+- Every obnoxious act is a cry for help.
+- Success must never be measured by how much money you have.
+- Your attitude, not your aptitude, will determine your altitude.
+- The top salesperson in the organization probably missed more sales than 90% of the sales people on the team, but they also made more calls than the others made.
+- What you get by achieving your goals is not as important as what you become by achieving your goals.
+- Dreams grow if you grow.
+- Husbands and wives, first be faithful to each other. Second, keep the romance going all of your life by courting each other every day.
+- You don't have to be great to start, but you have to start to be great.
+- If you go looking for a friend, you're going to find they're very scarce. If you go out to be a friend, you'll find them everywhere.
+- Honesty and integrity are by far the most important assets of an entrepreneur.
+- I believe that being successful means having a balance of success stories across the many areas of your life. You can't truly be considered successful in your business life if your home life is in shambles.
+- You don't drown by falling into water. You only drown if you stay there.
+- My favorite writers are all Jews - David, Solomon, Matthew, Mark - well, you get the picture.

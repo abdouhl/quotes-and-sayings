@@ -1,0 +1,56 @@
++++
+author = "Yu Darvish"
+title = "Yu Darvish Quotes"
+quotes_len = "50"
+description = "the best 50 Yu Darvish Quotes"
++++
+- I talk to Kyle Hendricks a lot.
+- On a scale of 1 to 10, I can bring a 10 to any important game.
+- I feel that if I absolve myself and say it was the Astros' fault I was bad in Game 7, in the World Series, I can't develop as a person.
+- I'm a slow guy.
+- I want to throw a faster fastball. I want a sharper curve. I want to improve all my pitches.
+- I don't want to be in the clubhouse, if I have the coronavirus or something like that, coming into the clubhouse and spread to everybody, that's not good, right?
+- A couple of Astros players told me I was tipping pitches, but now it comes out they were stealing signs. Was I tipping, or were they stealing?
+- There were a small number of voices that said, 'Darvish only cares about strikeouts.' Although I may have had strikeouts in my mind, fans, team, teammates and team staff were always my top priority.
+- I want to become the type of pitcher any one in the world can say is the world's best pitcher.
+- I'm not good at math.
+- I don't need much motivation.
+- I had bad days, and that means somebody else had a great day.
+- When I look at my numbers, I don't give up a lot of hits.
+- Since coming to the major leagues, my passion toward baseball had started to decrease.
+- When people boo you, they're telling you, 'We don't like you.' It's not a good feeling to get that from the fans of an organization you respect so much.
+- Like I'm seeing Chris Sale; he's got a similar pitching style and strikes guys out a lot. Why are people only talking about my strikeouts and all that stuff?... Why not the other guys, who have similar numbers and pitch counts?
+- Kids used to say stuff all the time about how I was different.
+- I could throw the ball hard, but at this level if you're not accurate, it's easy for batters to light you up with home runs. That's when I started concentrating on making my movements more compact. It just seemed to me that smaller movements would produce the kind of pitching I desired.
+- When a player cheats, you can't have a gold medal, right?
+- Major league hitters have more power. But Japanese hitters are very good at making contact. I don't like either.
+- I'm a big guy, right? But I began to realize that by actually using my body like a big guy, I couldn't control my pitches the way I wanted to.
+- Personally, do I feel like an All-Star? I don't think so.
+- It's really hard to be consistent, and you have to know your body and know yourself.
+- I would like to come back in the World Series. And I want to pitch better.
+- Living in this world, we all just want to be happy. And I don't think it is right to be denied that opportunity over a single mistake.
+- In life, I think huge failures are extremely important.
+- America is very tolerant of mistakes.
+- My kids and wife love Chicago, especially the kids.
+- I'm never satisfied until I win all the games and have an ERA of 0.00.
+- I feel like, of course, Houston has Asian fans and Japanese fans, and Asian fans live all over the place.
+- If I were to return to Japan, Nippon Ham would be my top choice. No doubt about that.
+- I want to remind people with dogs that they are your responsibility.
+- Every morning when I woke up, I would pray, 'I have to throw today, please let there be no pain.' Those were very gloomy days. Meanwhile, the atmosphere around me had become, 'Is he faking an injury?' 'Is it a mental problem?' Those words made it extremely difficult for me to stop and rest, and it really took a toll on me emotionally.
+- I'm trying to throw more curves because I'm always throwing fastball, slider, fastball, slider.
+- I want to focus more on my pitches, not on the tempo. After that, I felt more comfortable.
+- I had told my wife that I was thinking of retiring at the end of the year. I was thinking I didn't want to do it anymore, but then I was traded to the Dodgers.
+- At some point, somebody will get the coronavirus, I think. If somebody will get it, I think MLB will do the same thing as NBA.
+- I am a baseball player and I enjoy getting batters out and that is what I want to continue doing.
+- I can throw strikes any time.
+- I want to speak better English.
+- Playing in Japan suits me the best, but what I need is in the Majors. I felt that in order to do my job, I needed to change my job location.
+- It is my biggest regret that I gave up 10 runs on my last outing as a Ranger.
+- Even if I was tipping my pitches, I could have thrown pitches good enough to not be hit.
+- I'm a breaking-ball pitcher.
+- My average against hitters is pretty good.
+- The Houston Astros are an organization I really respect and they have a lot of great players.
+- I almost feel like I grew up and was raised in America now, because I'm so comfortable here.
+- America has a culture of not saying sorry. I think there are a lot of people who will never admit they're wrong.
+- If you ask me if I got hit in Game 7 because they stole signs, I don't think so. The Astros have great players who don't have to do that. So I think that whether or not they stole signs, the results wouldn't have changed.
+- When I saw the generosity of spirit of the people who live in America and their willingness to give second chances, it had a very wonderful effect on me.

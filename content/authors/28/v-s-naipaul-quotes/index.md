@@ -1,0 +1,97 @@
++++
+author = "V. S. Naipaul"
+title = "V. S. Naipaul Quotes"
+quotes_len = "91"
+description = "the best 91 V. S. Naipaul Quotes"
++++
+- In England people are very proud of being very stupid.
+- One always writes comedy at the moment of deepest hysteria.
+- My grief is that the publishing world, the book writing world is an extraordinary shoddy, dirty, dingy world.
+- If you want to write serious books, you must be ready to break the forms, break the forms.
+- Great writing can be done in biography, history, art.
+- All the details of the life and the quirks and the friendships can be laid out for us, but the mystery of the writing will remain. No amount of documentation, however fascinating, can take us there.
+- The writer is all alone.
+- I have always moved by intuition alone. I have no system, literary or political. I have no guiding political idea.
+- I know my father and my mother, but beyond that I cannot go. My ancestry is blurred.
+- The biography of a writer - or even the autobiography - will always have this incompleteness.
+- An autobiography can distort; facts can be realigned. But fiction never lies: it reveals the writer totally.
+- If a man begins writing at thirty, by the time he is fifty or sixty, the bulk of his work has been done. By the time he is eighty, he's got nothing more, you know?
+- All the things that were read to me by my father were stories about things becoming all right.
+- One must always try to see the truth of a situation - it makes things universal.
+- That element of surprise is what I look for when I am writing. It is my way of judging what I am doing - which is never an easy thing to do.
+- I read a piece of writing and within a paragraph or two I know whether it is by a woman or not.
+- Writers should provoke disagreement.
+- Africa is not a fun place, you know. A fun place is somewhere that lifts the spirits, that cossets the senses. I don't think that can be said of the Africa I traveled in.
+- If writers just sit and talk about oppression, they are not going to do much writing.
+- But everything of value about me is in my books.
+- I'm the kind of writer that people think other people are reading.
+- I grew up in a small place and left it when I was quite young and entered the bigger world.
+- When I learnt to write I became my own master, I became very strong, and that strength is with me to this very day.
+- The longer I live the more convinced I become that one of the greatest honors we can confer on other people is to see them as they are, to recognize not only that they exist, but that they exist in specific ways and have specific realities.
+- A civilization which has taken over the world cannot be said to be dying.
+- Argentine political life is like the life of an ant community or an African forest tribe: full of events, full of crisis and deaths, but life is always cyclical, and the year ends as it begins.
+- My publisher, who was so good as a taster and editor, when she became a writer, lo and behold, it was all this feminine tosh.
+- I am the kind of writer that people think other people are reading.
+- To be a writer you have to be out in the world, you have to risk yourself in the world, you have to be immersed in the world, you have to go out looking for it. This becomes harder as you get older because there's less energy, the days are shorter for older people and it's not so easy to go out and immerse oneself in the world outside.
+- I went to India and met some people who had been involved in this guerrilla business, middle-class people who were rather vain and foolish. There was no revolutionary grandeur to it. Nothing.
+- If you write a novel alone you sit and you weave a little narrative. And it's O.K., but it's of no account.
+- This is unusual for me. I have given readings and not lectures. I have told people who ask for lectures that I have no lecture to give. And that is true.
+- I still think it's really quite wonderful when I read a sentence of mine and it has that quality of lastingness.
+- Some writers can only deal with childhood experience, because it's complete. For another kind of writer, life goes on, and he's able to keep processing that as well.
+- Many writers tend to write summing-up books at the end of their lives.
+- As a child I knew almost nothing, nothing beyond what I had picked up in my grandmother's house. All children, I suppose, come into the world like that, not knowing who they are.
+- It is important not to trust people too much.
+- Making a book is such a big enterprise.
+- I've never abandoned the novel.
+- To be converted you have to destroy your past, destroy your history. You have to stamp on it, you have to say 'my ancestral culture does not exist, it doesn't matter.'
+- If you decide to move to another country and to live within its laws you don't express your disregard for the essence of the culture. It's a form of aggression.
+- Whenever I have had to write fiction, I've always had to invent a character who roughly has my background.
+- Home is, I suppose just a child's idea. A house at night, and a lamp in the house. A place to feel safe.
+- One is made by all the things around one. There are many things that have made one. For a writer to go around looking for things that have made him is asking for trouble. It's like giving a character to yourself. Can't do it. Can't do it. These things are just there. Is that enough?
+- If ever you wish to meet intellectual frauds in quantity, go to Paris.
+- How can you be an atheist and have an ideology to go with it? To be an atheist is to be free of some areas of belief. I don't see how that can become an ideology.
+- In England I am not English, in India I am not Indian. I am chained to the 1,000 square miles that is Trinidad; but I will evade that fate yet.
+- A cat only has itself.
+- I have trusted to my intuition to find the subjects, and I have written intuitively. I have an idea when I start, I have a shape; but I will fully understand what I have written only after some years.
+- It was a good place for getting lost in, a city no one ever knew, a city explored from the neutral heart outward, until after many years, it defined itself into a jumble of clearings separated by stretches of the unknown, through which the narrowest of paths had been cut.
+- The reason is that they define how I have gone about my business. I have trusted to intuition. I did it at the beginning. I do it even now. I have no idea how things might turn out, where in my writing I might go next.
+- I don't feel I can speak with authority for many other people.
+- Writing has to support itself.
+- Africa has no future.
+- I had no student friends to talk to about literature. My tutor was a really nice man, very charming - but he had no literary judgment.
+- You need someone to see what you've done, to read it and to understand it and to appreciate what's gone into it.
+- I always knew who I was and where I had come from. I was not looking for a home in other people's lands.
+- The first 50 years of the cinema were absolutely great years. Original minds were at work establishing the ways to tell a story. And what is happening now is a copying, a pastiche-ing of what was done by great men.
+- My life is short. I can't listen to banality.
+- One isn't born one's self. One is born with a mass of expectations, a mass of other people's ideas - and you have to work through it all.
+- I'm thought to be a tough writer, but I'm really a softie.
+- I'm very content.
+- There are two ways of talking. One is the easy way, where you talk lightly, and the other one is the considered way. The considered way is what I have put my name to.
+- I really wasn't equipped to be a writer when I left Oxford. But then I set out to learn. I've always had the highest regard for the craft. I've always felt it was work.
+- There are certain things that are too painful for people to even write about sometimes, and there are certain things that are too hard to read about again.
+- What I felt was, if you spend your life just writing fiction, you are going to falsify your material. And the fictional form was going to force you to do things with the material, to dramatize it in a certain way. I thought nonfiction gave one a chance to explore the world, the other world, the world that one didn't know fully.
+- I came to London. It had become the center of my world and I had worked hard to come to it. And I was lost.
+- At school I had only admirers; I had no friends.
+- I've been a free man.
+- I will say I am the sum of my books.
+- The ancillary aspect of every British city now is the council estate.
+- The world outside existed in a kind of darkness; and we inquired about nothing.
+- I have a very small public.
+- In Trinidad, where as new arrivals we were a disadvantaged community, that excluding idea was a kind of protection; it enabled us - for the time being, and only for the time being - to live in our own way and according to our own rules, to live in our own fading India.
+- I could meet dreadful people and end up seeing the world through their eyes, seeing their frailties, their needs.
+- We made no inquiries about India or about the families people had left behind. When our ways of thinking had changed, and we wished to know, it was too late. I know nothing of the people on my father's side; I know only that some of them came from Nepal.
+- It's very attractive to people to be a victim. Instead of having to think out the whole situation, about history and your group and what you are doing... if you begin from the point of view of being a victim, you've got it half-made. I mean intellectually.
+- The world is what it is; men who are nothing, who allow themselves to become nothing, have no place in it.
+- What was past was past. I suppose that was the general attitude.
+- If a writer doesn't generate hostility, he is dead.
+- I profoundly feel that people are letting you down all the time.
+- Trinidad may seem complex, but to anyone who knows it, it is a simple, colonial, philistine society.
+- In a way my reputation has become that of the curmudgeon.
+- Nothing was made in Trinidad.
+- Africans need to be kicked, that's the only thing they understand.
+- I read many things. I read to fill in my knowledge of the world.
+- I became very interested in the Islamic question, and thought I would try to understand it from the roots, ask very simple questions and somehow make a narrative of that discovery.
+- Judgment is contained in the act of trying to understand.
+- Whatever extra there is in me at any given moment isn't fully formed. I am hardly aware of it; it awaits the next book. It will - with luck - come to me during the actual writing, and it will take me by surprise.
+- The world is always in movement.
+- Each book, intuitively sensed and, in the case of fiction, intuitively worked out, stands on what has gone before, and grows out of it. I feel that at any stage of my literary career it could have been said that the last book contained all the others.

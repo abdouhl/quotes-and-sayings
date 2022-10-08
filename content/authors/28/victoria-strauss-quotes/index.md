@@ -1,0 +1,17 @@
++++
+author = "Victoria Strauss"
+title = "Victoria Strauss Quotes"
+quotes_len = "11"
+description = "the best 11 Victoria Strauss Quotes"
++++
+- There is an enormous shadow industry of scammers and amateurs who prey on aspiring writers, who divert people from the real publishing industry into this shadow world of vanity publishing and fee-charging agents.
+- Print-on-demand and electronic self-publishing options have made it easy for anyone to set up a business as a publisher whether they know what they're doing or not.
+- Every famous writer was once an unknown writer. If publishers never published new writers, they wouldn't be publishing anyone at all after a while.
+- It can be hard to say if someone has a deliberate intent to defraud or if they are just really, really bad at their business. But even if people are unpublishable, it doesn't mean they should be ripped off.
+- Maybe self-publishing is going to be an extra step added to publishing. Maybe what's going to happen is you self-publish a book, someone notices it - an agent? - and it goes from there into the traditional sphere.
+- 'Pay it forward' has become a hackneyed concept, but I truly believe in it, and it gives me huge satisfaction to be able to help writers in a measurable way.
+- Is it ever worthwhile to buy a review? Not in my opinion. With independent paid review services, quality can be a problem; plus, there are plenty of non-professional book review venues out there that will review for free.
+- There's a difference between publicity and marketing. A lot of writers don't realize how much marketing goes on beyond the scenes, with sales reps and advanced reading copies, all that stuff that happens months before a book is published.
+- If you're going to self - publish, you need to know why you're doing it, what you want to accomplish, and how you plan to implement that.
+- Very wonderful books might be published, and very terrible books might be published.
+- When I was submitting my first novel, I had no idea that publishing scams existed. I never encountered any, but I could have - and knowing how easily I might have been taken advantage of makes me determined to protect others from falling into that trap.

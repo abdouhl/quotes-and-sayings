@@ -1,0 +1,43 @@
++++
+author = "Will Grier"
+title = "Will Grier Quotes"
+quotes_len = "37"
+description = "the best 37 Will Grier Quotes"
++++
+- It should be an easy, seamless transition for me to the NFL, and I'm looking forward to it.
+- I've been surrounded by good people at West Virginia that have really helped me.
+- I think there's a lot of talent in the Big 12. I think there's a lot of good football teams. It's tough to play in the Big 12.
+- Obviously, I want to spend every minute with my daughter that I can.
+- Having a kid is hard to explain, but when you talk to another parent, you have mutual understanding of what that does to you as a person.
+- Any organization that gives me a chance will get me. And I'll pour my heart into the organization and do whatever it takes to win football games.
+- I've been through some adversity where I didn't have football. Having it back gives you an appreciation for every snap you can take. I'm just blessed to have that opportunity.
+- I thought I was doing very well at Florida. Then I get suspended. Then my head coach tells me to transfer.
+- I'm not trying to prove anything. I'm just here with the Panthers, trying to help them win.
+- We keep the house really clean. Organized and neat is better for me.
+- My dad did a great job passing on what he learned from his career.
+- I'm going to work hard and be coachable. I think that's important. Fit into the system. Do whatever it takes to help the Panthers win.
+- Obviously, having a wife and a daughter is a huge responsibility.
+- I wake up every day with great appreciation for life and appreciation to play this game.
+- There are endless what-ifs that have really made me have an appreciation for my journey and everything I have experienced along the way.
+- My locker is a business place. I keep my locker really neat, which I think is different than most people.
+- Especially in today's age, when you're in the huddle with guys from all different backgrounds and all different ages, you have to be able to lead, get everybody on the same page, and do what it takes to win.
+- I'm very confident in my abilities. But also my knowledge of football.
+- After everything that's happened, I'm sitting here in my last year of college football. I'm just happy. I'm in a good spot.
+- I'm just a southern boy who likes to go mudding in my Jeep, quail hunting, and skeet shooting.
+- It's God's plan, and I'm really excited to be a part of this new opportunity with West Virginia.
+- I'm a planner, an organizer. I write things down because you can visually check them off and see progress. Writing things down is a lost art. I've got sticky notes all over my apartment.
+- I feel in complete control in every situation.
+- At the end of the day, the NFL teams should fall in love with me based on who I am as a person, what I can offer them, and what this game means to me.
+- I've dealt with a lot of adversity and came out a stronger person.
+- I'm around the stadium all the time watching film, just trying to learn as much as I can.
+- Being a coach's son, they're hard on you. When you say you want to be great, they do everything they can do to put you in that position.
+- I don't get nervous. I don't feel pressure.
+- It's hard for anyone or any situation to rattle me, as a quarterback and a person.
+- I, 100 percent, feel like an old man, but I love it. I watch the news; I'm up early.
+- Instead of letting things break you, look at failures as opportunities to get better. Become unbreakable.
+- I've been surrounded by good people at West Virginia. That helped me a lot.
+- I've read in various media stories that my dad and I had demanded guarantees of playing time or that we didn't want to play at Florida. Nothing could be further from the truth. It was the exact opposite. We went in there and specifically said we weren't looking for guarantees.
+- There have been so many stories out there about me, so many untruths. I've always believed you can only control what you can control. I can control my attitude, my effort, my commitment to West Virginia. I can't control lies.
+- I love the University of Florida and never wanted to leave.
+- I acted like a pro when it came to football... Then you also add the priority and responsibility of having a daughter and having a wife that you are not only the provider for, but obviously, I want to be a good husband and father.
+- It was important to be with a coaching staff that didn't just believe in my football ability.
