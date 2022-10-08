@@ -1,0 +1,106 @@
++++
+author = "Julian Edelman"
+title = "Julian Edelman Quotes"
+quotes_len = "100"
+description = "the best 100 Julian Edelman Quotes"
++++
+- I try to live by the 80/20 rule - 80% clean, 20% cheat. During the week and while I train, I eat as clean as possible. But I always like myself a good cheat day, which includes a juicy burger.
+- I started to get addicted to the Jerry Rice mentality. I can get up before anyone else does. I can outwork anyone.
+- It's always a great thing getting to play in the last game of the year.
+- My dad was just a little trailer trash white dude that worked his tail off, didn't have a dad. He started working at 14, didn't get to play sports. He dedicated his life to his kids to let us live our dreams.
+- It's not fun to watch your team go out, and guys that you've worked so hard with, and the countless hours you've put in on your own time to go and showcase all your hard work, and then have it taken from you and then see your boys playing without you.
+- In college, I guess you could say I was a running back that threw.
+- There's a lot of crazy stuff in this league, and you got to go out and you got to earn your role out every year.
+- I'm from the Bay Area.
+- I've always felt like if I had a bad practice, I could potentially get cut the next day.
+- When Dad stopped playing in a rock band and was done chasing that dream, he devoted himself to his family. I would love to do the same thing - just without driving a 1991 Suburban and wearing sweatpants, a fanny pack, and six-year-old Pumas.
+- When you become a pa, you have different priorities now, and you're not living for yourself; you're living for someone else now.
+- Peapod is a great company to work with.
+- Bill Belichick has been an awesome, awesome guy to learn from.
+- Ball security is job security here.
+- It's always exciting to get back out there with the teammates and start a new year and get on the field.
+- To be really honest, I do not mind whether it is offense or defense. I just like being in on plays and doing what needs to be done to help us win.
+- I put at the top of my paper every day, 'Never comfortable.' It's just how I feel always.
+- I think any time you can go out and put pads on and practice before the season, I think it's a good sign. It's a good sign.
+- The regular season is awesome. It's fun. But postseason, that intensity and adrenaline you get from it is a lot.
+- It's been a privilege to get to watch one of sports greatest athletes prepare and get to play with him; honestly... it's a dream. I remember being in eighth grade saying, 'I'm Tom Brady,' on the asphalt at recess, you know, playing football.
+- Here on the East Coast, I think Shake Shack is awesome.
+- When I'm tired, I like to go and do drills where you catch tennis balls off walls. Different colors use different hands, and you've got to react to those types of things at different angles. I do all these crazy reaction-time things or reaction skills with tennis balls every morning, or at least four times a week.
+- The more everyone tries to do their own job, that's when the team fires on all cylinders.
+- When I was growing up, I was a huge San Francisco 49ers fan. The New England Patriots have a similar mold and plan to win a lot of games - reminiscent to that Bill Walsh era.
+- Dating isn't easy.
+- It's hard to shop for a guy who has everything.
+- I can say playing for the New England Patriots has been the highlight of my life.
+- I got beat up my whole life.
+- We ignore noise, and we really just to try hunker down on preparation, our practice, and going out and trying to play our best games on Sundays.
+- I would say the greatest challenge, for me, had been my rookie year and learning my spot. It is an emotional battle, as you have good days and bad days. Being young and thrown into this big business is challenging.
+- The funnest thing to do is win.
+- Devin McCourty - he's got his own style: he always wears a nice fitted suit and mixes up his colors. He's got some game when it comes to the fashion world.
+- I don't say I'm necessarily a professional football player. I'm a competitor. That's what was instilled in me as a young boy.
+- When you're clicking, you're not making mental mistakes. You're going out there. You're lining up fast.
+- No one likes going out and sprinting 20 sprints, but you do it because it's going to help you.
+- I wear a lot of sweatshirts and joggers in the winter and gym shorts and tees in the summer. I really appreciate something that is easy to slip on and chill out in.
+- You can't worry about what other people say, honestly.
+- There's no one more valuable for me to learn from than Tom and his wife, Gisele Bundchen, in a lot of ways. Every time I'm around them, I learn. The way they are with their kids, the way they make time to spend with each other, they are just good people.
+- I always preach you have to have a short memory, whether it is good or bad.
+- The No. 1 rule you're taught as a receiver: You've just got to watch the ball. You hear about the guy who was lucky. But the guy who was lucky got an opportunity, and he was prepared for it. Sometimes the ball falls your way, and, you know, we'll take it.
+- So I've been fortunate to have a bunch of teammates - pretty much all the teammates I've had have been pretty good guys.
+- I played 51 percent of the snaps outside, though. But you can go ahead and call me a slot as well.
+- If you give me six tries, I can probably land a kick flip.
+- It's the NFL, so anytime you get to go out and get to play against another team, there's going to be some physicality.
+- I just kind of try to go out and focus on what I've got to do to get myself better.
+- I'm a practice player. The more I practice, the more confident I become.
+- I like looking at clothes, and I like going to shows and seeing new, fashion-forward stuff.
+- I definitely follow fashion and trends and will sporadically add them to my wardrobe in an organic way. But my style, at its core, is a minimal, clean, and timeless look.
+- I love being a Patriot, and we'll leave it at that.
+- Mr. Kraft and his family, they gave me an opportunity to come out and play in the NFL. And just to see the kind of role model Mr. Kraft is in the community, he's always around; he's here every day - darn near - he's very involved, and he's just a good man. Nothing but respect, and it starts at the top.
+- Boston is really just a cool place to play.
+- Go out and do your drills that you do to try to get better. You lift your weights, try to take things from the classroom to grass, try to get better every day.
+- You can never go wrong with a pair of jeans, a cool tailored shirt, and a nice jacket. You can dress it up with a more stylish jacket or a bracelet, watch, or necklace. It's simple, but it's cool. That's my opinion.
+- I like running that football.
+- There are different types of cornerbacks: you've got your longer guys that will try to get physical with you and use their length, and you've got your quick guys that will try to use their quickness, and then you've got your 'tweener' guys that will try to use both.
+- I think it's an honor to play for coach Belichick. You never go into a week thinking you are not prepared.
+- If it's a trip for pleasure, I always go with a comfortable outfit.
+- Any time you have one-on-one time with any quarterback, it's very valuable.
+- I'm a California kid.
+- The Patriots do a great job of establishing a common rhetoric of working hard and working for the men that stand next to you on the field.
+- It's one thing to be 100 percent and go out and play football feeling great. It's another thing when you're not feeling good. You're sick, or you got a nagging injury, and you gotta go out in the cold and go across the middle where a guy's coming full speed at you trying to kill you.
+- Sometimes durability's better than ability, especially in this crazy sport.
+- I like to leisurely cruise around town on a longboard.
+- It's always nice to be on the practice field because, ultimately, practice is the most important thing other than the game because that's where you gain your confidence; that's where you get your fundamentals.
+- Psychologically, for an athlete to miss a game because of injury, it's tough.
+- I am definitely a 'denim first' guy.
+- I don't even enjoy football, at least professional football, anymore because I'm breaking the game down constantly. You're sitting there watching the plays, and you're talking mental reps on what would I have done here against this coverage or this leverage, this, that. It is what it is.
+- You don't grow up saying you wanna play in the CFL.
+- Why can't we make NFL apparel cool for every day instead of only wearing it on game day?
+- It's cool to get to play with guys that you have friendships with.
+- When you've got a leader that wants to go out and practice at the ultimate, highest level, when something that you should do doesn't go right, there's going to be a little fire under that, and that's what you need from your leader.
+- When I am working out, I listen to inspirational speeches.
+- You've got these young kids out here that have to learn, but you learn from the guys above you. I learned from the Kevin Faulks.
+- As a rookie, I had changed positions. In college, I was a quarterback, and I had never played other positions.
+- Life's about dealing with adversity and solving problems.
+- It's nice not having to do that kind of stuff, getting surgeries and all that. It gives you an opportunity to get better. That's what the offseason's for.
+- Obviously, my goal No. 1 every year is to play in every game.
+- Everyone's got talent at the level we're at. But being a smart, tough football player - there's a huge premium for that.
+- I'm not completely Jewish, if you know what I mean. I know people want me to be. My father is Jewish. My mother isn't.
+- Just play every play.
+- I'll take an ugly win over a pretty loss any day.
+- Shake Shack is good, but it's no In-N-Out.
+- I have fun outside the game.
+- Tom Brady is Tom Brady. He was a sixth-round draft pick. A lot of people passed up on him. He's a Super Bowl Champion, Super Bowl MVP. He's been in a bunch of Super Bowls, and he could care less about all of that. He just cares about winning the next game.
+- Your job as a receiver is to get open and catch the ball and block in the run game.
+- The draft is an exciting time.
+- There's nothing like a nice May day in Foxborough.
+- There's a whole lot of things that I've got to do to get myself better.
+- People think it's just a 16-week season, but this is a 52-week kind of job. You're always thinking about how to improve and what to get for the next year.
+- Everyone goes down a road that they're not supposed to go down. You can do two things from it. You can keep going down that road and go to a dark place. Or you can turn and go up the hill and go to the top - try to go to the top.
+- I love my dad.
+- Tough times don't last. Tough people do. I preach that, and I guess you have to live to it.
+- Injuries are psychologically so hard for an athlete because you don't get to do what you love to do.
+- I think everything happens for a reason.
+- I guess you could say I'm kind of Jewish but not really.
+- As a punt returner in the NFL, I know all about teamwork, high-speeds, and collisions on Sundays.
+- We never quit.
+- As a young player here in New England, there's a lot of ups and downs.
+- Anytime you get to go out and see the fellas and play with them and talk with them and be in the huddle and look at guys and participate in drills - I mean, that's what you play the game for, ultimately.
+- Special teams is one-third of the game.

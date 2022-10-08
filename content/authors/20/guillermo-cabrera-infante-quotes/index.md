@@ -1,0 +1,54 @@
++++
+author = "Guillermo Cabrera Infante"
+title = "Guillermo Cabrera Infante Quotes"
+quotes_len = "48"
+description = "the best 48 Guillermo Cabrera Infante Quotes"
++++
+- I have one main reader, Miriam Gomez, my wife. She reads everything I write - I have not finished writing something and she is already reading it.
+- I describe my works as books, but my publishers in Spain, in the United States, and elsewhere insist on calling them novels.
+- That is what I define as a novel: something that has a beginning, a middle and an end, with characters and a plot that sustain interest from the first sentence to the last. But that is not what I do at all.
+- I left my country because I was forced to, and I do not think that I am going to lose my language because I live in England.
+- There were influences in my life that were more important than journalism, such as comic strips and radio.
+- But I do not have the reader in mind when I write. No true writer does that.
+- No, absolutely not, writing doesn't have to be like a jigsaw puzzle, it can be a very linear undertaking.
+- Puns are a form of humor with words.
+- I think that like all writers - and if any writer disagrees with this, then he is not a writer - I write primarily for myself.
+- So I do not consider myself a chronicler of my fatherland or even a chronicler of Havana.
+- I think all writing is done through memory.
+- My parents were founders of the Cuban Communist Party, and I grew up extremely poor.
+- I was an avid radio fan when I was a boy, as well as a great lover of comic strips.
+- For me, words are just words, nothing else.
+- Watching a movie from beginning to end is like reading, because even though what you see are images, they are telling you a story.
+- American literature had always considered writing a very serious matter.
+- For me, literature is a complex game, both mental and concrete, which is acted out in a physical manner on the page.
+- I read the Odyssey because it was the story of a man who returned home after being absent for more than twenty years and was recognized only by his dog.
+- Well, I write in exile because I cannot return to my country, so I have no choice but to see myself as an exiled writer.
+- A very wise author once said that a writer writes for himself, and then publishes for money. I write for myself and publish just for the reader.
+- I first came out against Castro in June 1968, fifteen months after my book had been published, and you cannot imagine how quickly a void was created around me.
+- If you look closely, there is no book more visual than Three Trapped Tigers, in that it is filled with blank pages, dark pages, it has stars made of words, the famous magical cube made of numbers, and there is even a page which is a mirror.
+- I do not believe in inspiration, but I must have a title in order to work, otherwise I am lost.
+- I was never a true journalist, I was a movie critic.
+- What I do believe is that there is always a relationship between writing and reading, a constant interplay between the writer on the one hand and the reader on the other.
+- The relationship between reader and characters is very difficult. It is even more peculiar than the relationship between the writer and his characters.
+- I am the only British writer who writes in Spanish.
+- I don't have any style.
+- I don't much believe in the idea of characters. I write with words, that is all. Whether those words are put in the mouth of this or that character does not matter to me.
+- I know that many writers have had to write under censorship and yet produced good novels; for instance, Cervantes wrote Don Quixote under Catholic censorship.
+- I do not consider myself a Hispanic writer.
+- My mother had been educated at a convent, and she had been converted to communism by my father during Stalin's most rampant period, at the beginning of the 1930s. So she had two gods, God in heaven and god on earth.
+- Many of my books have begun with the title, because naming a work already in progress makes no sense to me.
+- Titles are not only important, they are essential for me. I cannot write without a title.
+- I live in London and I am a British subject, although I do write in Spanish, of course.
+- I am against the notion of style in itself.
+- I have assiduously avoided calling my books novels.
+- It means that no matter what you write, be it a biography, an autobiography, a detective novel, or a conversation on the street, it all becomes fiction as soon as you write it down.
+- I think that I've tried many times to get Cuba in my writings, especially Havana, which was once a great and fascinating city.
+- I think writers rush in where everybody is very frightened to tread.
+- Writers rush in where publishers fear to tread and where translators fear to tread.
+- When I write, the first blank page, or any blank page, means nothing to me. What means something is a page that has been filled with words.
+- When I write, I enjoy myself so much that what is being written really needs no reader.
+- I believe that writers, unless they consider themselves terribly exquisite, are at heart people who live by night, a little bit outside society, moving between delinquency and conformity.
+- You are just in the middle of a struggle with words which are really very stubborn things, with a blank page, with the damn thing that you use to write with, a pen or a typewriter, and you forget all about the reader when you are doing that.
+- I wrote for a weekly magazine and then edited a literary magazine, but I did not really feel comfortable with the profession of journalism itself.
+- I was able to read a movie before I was able to read a book.
+- I am a writer of fragments.

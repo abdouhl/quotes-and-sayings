@@ -1,0 +1,86 @@
++++
+author = "Dee Dee Myers"
+title = "Dee Dee Myers Quotes"
+quotes_len = "80"
+description = "the best 80 Dee Dee Myers Quotes"
++++
+- Women communicate differently and process information differently, which leads them to resolve conflicts differently.
+- As women slowly gain power, their values and priorities are reshaping the agenda. A multitude of studies show that when women control the family funds, they generally spend more on health, nutrition, and education - and less on alcohol and cigarettes.
+- I am endlessly fascinated that playing football is considered a training ground for leadership, but raising children isn't. Hey, it made me a better leader: you have to take a lot of people's needs into account; you have to look down the road. Trying to negotiate getting a couple of kids to watch the same TV show requires serious diplomacy.
+- As women have played an increasingly important role in politics, there is no question that they've brought a different perspective, focusing attention on a broader set of issues and building alliances with other women.
+- I am encouraged to see women are being elected in Chile, Argentina, Liberia, Ireland. More is more.
+- Throughout his presidency, Clinton made a point of getting close - physically and emotionally - to the people whose problems his administration was working to solve.
+- Clinton's resilience became sort of the secret weapon of the campaign. He was never going to just give up and get out.
+- President Clinton intentionally created a structure that was a little loose. And one that kept him a little in the center. He didn't want one person filtering all the information that went to him. He had always operated with a lot of information coming in and a lot of stuff going out.
+- I was supposed to be authoritative, but at the same time had to be likeable, a quality that is a bonus, not a requirement, for men in the same position.
+- It never occurred to me that I wouldn't go to college and have a career - as well as a family - of my own. Both my parents, but especially my mother, encouraged me and led me to believe that it was possible.
+- 'Not again!' I thought to myself this morning, as news trickled out that John McCain was set to pick Alaska governor Sarah Palin as his running mate. Not again, because too often women are promoted for the wrong reasons, and then blamed when things don't go right.
+- Bill Clinton sitting on Air Force One getting his hair cut while people around the country cooled their heels and waited for him, became a metaphor for a populist president who had gotten drunk with the perks of his own power and was sort of, you know, not sensitive to what people wanted.
+- Washington is still very much a male-oriented culture. Being from Los Angeles, I think it is less so there - there is less attachment to tradition, perhaps, there is more flexibility, more acceptance of change generally. That is partly because of Hollywood.
+- This is a generation weaned on Watergate, and there is no presumption of innocence and no presumption of good intentions. Instead, there is a presumption that, without relentless scrutiny, the government will misbehave.
+- President Barack Obama would do well to take a page or two from Clinton's playbook.
+- It was what became something of a pattern in the first couple of years of the Clinton White House and maybe even longer, where information would drip, drip, drip, drip, drip out which would keep stories alive, alive, alive.
+- Obama seems like he tries to talk everyone into what he believes - and that's part of why we elected him, because he's a calm, reasonable guy - but behind that, there has to be some fight. You have to be able to take a few punches and throw a few punches.
+- It isn't fate but fecklessness that has shoved Sarah Palin to the sidelines of national politics. The real tragedy is that she's taken a lot of other serious Republican women with her.
+- Palin was a political Hail Mary, a long bomb in the closing minutes of a game that John McCain and Co. were certain to lose. They didn't care if she had the policy or political or emotional capacity to serve as vice president, let alone president. They were willing to drive the country off a cliff, if that's what it took to win.
+- During my years as a press secretary, I developed a powerful internal filter, which worked to strip all things 'off message' from my thoughts before they came out of my mouth. It didn't always work, of course, and I said more than a few things I regretted.
+- The first time I met Bill Clinton was actually 1988.
+- To compare Whitewater to Watergate is a travesty.
+- The dirty little secret is that the pool man, who's making $30,000 a year, is subsidizing the million-dollar mortgage for the family whose pool he cleans. No wonder people want to get rid of tax breaks for corporate jets.
+- On the day I started college in 1979, no woman had ever been on the United States Supreme Court or served as the Speaker of the House. None had been an astronaut or the solo anchor of a network evening news broadcast. Not one had been president of an Ivy League college or run a serious campaign for president.
+- People are inevitably disappointed, because no one's as good as Bill Clinton's first impression. Or, he's done things. He's disappointed people in a variety of ways. And so then, the fall is hard.
+- Barack Obama is the most famous living person in the history of the world.
+- When I joined Bill Clinton's start-up presidential campaign in 1991, I was confident that women would play an ever more important role, but I never gave a minute's thought to what would happen if we won. When we did - and I became the first woman to serve as White House press secretary - it changed my life. But it didn't change the world.
+- Many differences are rooted in biology and reinforced through culture, so it's important to acknowledge that. Because if you say men and women are the same and if male behaviour is the norm, and women are always expected to act like men, we will never be as good at being men as men are.
+- After I left the White House, I kept a foothold in the business of American politics; as a talk-show host, analyst, commentator, speechmaker, and occasional writer. I was no longer a practitioner, but I was still a partisan, a Democrat, a blue-stater through and through.
+- Because if you say men and women are the same and if male behaviour is the norm, and women are always expected to act like men, we will never be as good at being men as men are.
+- You can't leave out half the world's experience and expect to address all the problems. Women communicate differently and process information differently, which leads them to resolve conflicts differently.
+- Trying to negotiate getting a couple of kids to watch the same TV show requires serious diplomacy.
+- Having a sense of humor has served me more than it has hurt me - just in the sense that it has allowed me to keep my sanity.
+- 1992 became known as the 'Year of the Woman' because so many of us were elected to public office that November, including a record six to the United States Senate.
+- Exponential growth in access to the Internet, satellite television and radio, cell phones, and P.D.A.'s means that breaking news now reaches virtually every corner of the globe.
+- But research confirms that both Republican and Democratic women are more likely than their male counterparts to initiate and fight for bills that champion social justice, protect the environment, advocate for families, and promote nonviolent conflict resolution.
+- As long as the G.O.P., led by its increasingly visible women, continues to insist that the problem is not their policies but women's failure to understand their own lives and interests, the gender gap won't go away.
+- It's a lot easier to opine from the sidelines.
+- I'm a baseball freak.
+- We don't take credit for our accomplishments. I can't tell you how many times you'll say to a woman, 'Oh God, what you did was so great', and they say, 'Really? I didn't think it was that good.'
+- A lot of people over time have had this kind of pattern in their relationship with Bill Clinton. You first meet him and you're overwhelmed by his talent. He's so energetic and articulate and full of ideas and he calls himself a congenital optimist and that optimism is contagious.
+- Women have a lot of power in private life. There are many men who would say, 'Hey, women already rule my life.' But with women, more is more. The more there are, the more the world gets used to seeing them. We change the culture. We begin to expand options and lead and manage.
+- I worked for a lot of candidates, in tough campaigns that lost. Most of my candidates lost until Bill Clinton. There was always a point where you look in their eyes and they knew it was over. And there was never that point with Clinton. He never quit. He never gave up.
+- The Obamas have changed the culture of the White House.
+- The press never accepts at face value that the President is taking a certain action because he wants to create jobs or because he believes that it is in the best interests of the American people or that he is genuinely committed to making life better for people.
+- For generations, Americans who aren't rich have been generous and admiring of their wealthy compatriots - want a country where people who work hard can succeed, where the same rules apply to everyone. They expect to have their own shot at getting rich. But increasingly, they are seeing that the game is rigged.
+- That someone like Obama could be elected president of the United States - with its unrivaled power and prestige - has begun to restore the country's and the world's faith in America as the land of opportunity.
+- In the run-up to the 1992 Democratic convention, Clinton's campaign realized that voters thought the young governor had a privileged upbringing. They didn't buy his alleged concern for the middle class.
+- The thing about looking back over Clinton's presidency, and probably anybody's presidency, is that when you look back, the events all line up in a way that makes sense. At the time, you don't know where it's going.
+- When I became White House press secretary, there were other limitations that were thrust upon me. Bill Clinton was under pressure to appoint women to visible positions. I was 31, I'd never worked in Washington. Was I ready for this large and visible job? Still he wanted the credit. So he gave me the job but diminished the job.
+- No doubt, the White House thinks the American people know Obama's story. But since the Inauguration, we've seen only the president's present: his perfect family, his Ivy League elegance, his effortless mastery of complex issues. We never see him sweat. And we forget that he ever had to struggle.
+- Obama has made America cool again - and more than that, he's made his own brand arguably the most powerful the world has ever known.
+- Clinton had absolutely zero honeymoon, none whatsoever.
+- No reporter is flying around in borrowed twin-engine airplanes.
+- Obama seemed poised to realign American politics after his stunning 2008 victory. But the economy remains worse than even the administration's worst-case scenarios, and the long legislative battles over health care reform, financial services reform and the national debt and deficit have taken their toll. Obama no longer looks invincible.
+- Women's particular experiences continue to shape not just their points of view but their actions, in the United States and around the world.
+- Democrats single out glaring examples of tax preferences or spending priorities that favor the wealthy and Republicans cry 'class warfare!'
+- I think a lot of presidents learn to be president by being president.
+- There are people in the public sector with a range of experiences that have no equivalent in business, but are essential to governing, like keeping a kid in school or helping someone get and hold a job. The value of those skills can't easily be measured against a bottom line.
+- That's not to say that women's priorities are better than men's. Rather, when women are empowered, when they can speak from the experience of their own lives, they often address different, previously neglected issues. And families and whole communities benefit.
+- I look forward to a time, in the not so distant future, when we no longer look forward to 'firsts' as milestones women have yet to achieve, but we look back on them as historic events that continue to teach and inspire.
+- Campaigns often make standing on principle the highest of virtues - and listening to your opponents a sure sign of weakness. It's the virtual opposite of what it takes to succeed in office. Squaring the circle takes a powerful combination of skills. But presidents who can campaign and compromise are generally the most successful.
+- Part of Obama's persona is self-reliance. He's calm; he's cool; he's self-possessed. In many ways, he has tried to define himself in opposition to Clinton's sometimes needy, often undisciplined, emotionalism.
+- And Clinton was like that - he saw the whole playing field. He didn't just see the event that he was at or the circumstances of that week or that month. He saw the whole playing field all the time.
+- Obama has become too dependent on formal speeches and set town halls. His idea of mixing it up is taking off his jacket.
+- Almost all first ladies have had tremendous power on personnel issues, whether the public realized it or not, whether it was Barbara Bush or Nancy Reagan or whoever.
+- The fight is always the same within the Democratic Party, isn't it? The more things change, the more they stay the same.
+- There is an institutional cynicism that causes reporters to question everything the President says, and the motives of everything the President and his Administration try to accomplish.
+- In a way I think Bill Clinton is more likely to forgive and move on or at least try to woo people who don't love him. But he never really tried to woo the press as much as he might have.
+- While eschewing emotion - and its companion, vulnerability - Obama should be careful not to sacrifice empathy, the 'I feel your pain' connection that sustained Clinton. This connection is the shorthand people use to measure their leaders' intentions. If people believe you're on their side, they will trust your decisions.
+- Research confirms that both Republican and Democratic women are more likely than their male counterparts to initiate and fight for bills that champion social justice, protect the environment, advocate for families, and promote nonviolent conflict resolution.
+- The exposed nature of life in the public square affects leaders' attitudes toward risk - and failure.
+- Even tax breaks that are supposed to help the middle class too often skew toward the wealthy. Consider the mortgage interest deduction. While political leaders in both parties have long considered it untouchable, it actually helps those at the top of the income scale far more than those at the bottom.
+- My job is to be a spokesman - the spokesman, I suppose - for the President, for the White House, to do the daily briefings, to manage the press corps in terms of travel, day-to-day needs, access, interviews, all those issues.
+- I don't think women hold all the answers, but with their skills, their strengths, we can get to a better place.
+- If people believe you're on their side, they will trust your decisions.
+- Yes, Bill Clinton is a big flirt.
+- One thing I think is least realistic is that there were five people that made decisions in the fictional 'West Wing.' In real life, there are about five million people that weigh in.
+- Study after study confirms that even when you control for variables like profession, education, hours worked, age, marital status, and children, men still are compensated substantially more - even in professions, like nursing, dominated by women. No wonder there's a gender gap.
+- I think how pay gets determined is pretty broad - experience, how people look, what they bring to the job. But there's no question women are paid less. Women don't ask.

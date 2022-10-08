@@ -1,0 +1,103 @@
++++
+author = "Ginni Rometty"
+title = "Ginni Rometty Quotes"
+quotes_len = "97"
+description = "the best 97 Ginni Rometty Quotes"
++++
+- I've made lots of mistakes. Probably the worst one - I would say they tie. It's either when I didn't move fast enough on something, or I didn't take a big enough risk.
+- You've got to keep reinventing. You'll have new competitors. You'll have new customers all around you.
+- IBM's long-standing mantra is 'Think.' What has always made IBM a fascinating and compelling place for me, is the passion of the company, and its people, to apply technology and scientific thinking to major societal issues.
+- I've got a distribution system that goes to 170 countries. If I acquire properly, you know, you may be successful in one or two countries, or one place; I can scale, and that's part of the value that IBM brings.
+- There will be times you make decisions that actually detract from growth.
+- I believe that the idea of strategic beliefs may be more important than strategic planning when thinking about how you keep the long view.
+- The recommendation when I'm mentoring folks, I always tell them - and we talked about this last year - take a risk.
+- If it's digital, it will be cognitive. If you think that, you're going to change the way you run a business.
+- As I tell all our folks, the only reason we exist - make no mistake - is our clients.
+- Planes don't fly, trains don't run, banks don't operate without much of what IBM does.
+- If you step back and look at technology from every era, it has displaced jobs but also created a lot of jobs.
+- Just because you started your careers in a certain role, let's say hardware engineering, does not mean you'll end your careers in hardware.
+- The ability to please your shareholders comes because of what you do for clients.
+- The ultimate competitive advantage is being cognitive.
+- As I say to our own team: 'Never protect your past, never define yourself by a single product, and always continue to steward for the long-term. Keep moving towards the future.'
+- No matter what it is, you put too much, your heart and soul in it, you have to be passionate about it. You make too many sacrifices.
+- When you remove layers, simplicity and speed happen.
+- I learned to always take on things I'd never done before.
+- I never look at an acquisition really by size.
+- I often sit back and say, 'Be sure about what I believe.'
+- Above and beyond, not only are we an innovation company, we are in service of our clients.
+- Ask yourself when you learn the most. I guarantee it's when you felt at risk.
+- I ask everyone's opinion when they don't speak up. And then when they have an opinion, I'll ask others to talk about it.
+- You will have many more goals in the years ahead. But do not confuse a goal with a purpose.
+- Don't protect your past. Don't protect your products.
+- What I knew was I liked math and science, and I never wanted to memorize everything. I wanted to understand where it came from.
+- One day we're going to look back, and whatever this era will get called, it's going to put a premium on math and science.
+- Today when I think about diversity, I actually think about the word 'inclusion.' And I think this is a time of great inclusion. It's not men, it's not women alone. Whether it's geographic, it's approach, it's your style, it's your way of learning, the way you want to contribute, it's your age - it is really broad.
+- Be first and be lonely.
+- You need to have a great support around you, people that empathise, understand and yet support, because these CEO jobs are all-consuming.
+- Growth and comfort do not coexist.
+- We share no data with the government anywhere in the world.
+- I always say, you know, if I sit here and close my eyes and say, 'When did I learn the most in my life, in my career?' It'll always be when I close them and everything I think of is when I took a risk. It's when I think I learned the most.
+- You define yourself by either what your clients want or what you believe they'll need for the future. So: Define yourself by your client, not your competitor.
+- When you manage your company for long-term shareholders, and you manage the company for clients, two of the biggest stakeholders, you will make the right decisions.
+- I am big on - even with our whole team - it's always about, well, what were the lessons learned? Something didn't work out? What are the lessons learned? What are the lessons learned?
+- You make the right decision for the long run. You manage for the long run, and you continue to move to higher value. That's what I think my job is.
+- Never love something so much that you can't let go of it.
+- Work on something that matters. Have courage.
+- Digital, it is not the destination.
+- And the reason I came to IBM was I think - I always say at a really early age, I learned you've got to be passionate about what you do. No matter what it is, you put too much, your heart and soul in it, you have to be passionate about it. You make too many sacrifices.
+- I was always surrounded by people that wanted to mentor you.
+- The only way you survive is you continuously transform into something else. It's this idea of continuous transformation that makes you an innovation company.
+- You have to stick up for what you believe in. And that, to me, is the biggest thing you can do about driving inclusion.
+- You can engineer change.
+- If you ask me, 'So what is your business model?' Our business model's always about shifting to higher value opportunities.
+- This idea of 'New Collar' says for the jobs of the future here, there are many in technology that can be done without a four-year college degree and, therefore, 'New Collar' not 'Blue Collar,' 'White Collar.' It's 'New Collar.'
+- Artificial intelligence is one of 50 things that Watson does. There is also machine learning, text-to-speech, speech-to-text, and different analytical engines - they're like little Lego bricks. You can put intelligence in any product or any process you have.
+- I am very practical.
+- I'm the kid that tried to take Latin in school because I felt if I could understand the root of everything, then I could understand why it worked. That was what took me into engineering. And the reason I stayed is, engineering teaches you to solve problems. It teaches you to think.
+- Some people make their choice on size. I happen to not be a believer in that. I've often said, especially in an industry that's clamoring for growth, if I wanted size, I wouldn't have divested $8 billion of businesses.
+- I've been head of strategy at IBM and together with my colleagues built our five-year plan. My priorities are going to be to continue to execute on that.
+- Whatever business you're in - it doesn't matter - it's going to commoditize over time. It's going to devalue. You've got to keep moving it to a higher value.
+- Every part of your business will change based on what I consider predictive analytics of the future.
+- When I think of revenue growth, I think of the words 'mix' and 'shift.'
+- We should prepare our future workforce differently. It isn't just advanced STEM degrees. There are many jobs you can do without advanced degrees.
+- The social network will be the new production line.
+- Clients say, 'What's your strategy,' and I say, 'Ask me what I believe first.' That's a far more enduring answer.
+- One of the most important topics I think for us all to work on is job creation.
+- I've always looked for challenges, and I have found plenty.
+- If you're clear on what you believe, you have a great foundation to go make a market.
+- The amazing thing about IBM is that it's a company where I have had 10 different careers - local jobs, global jobs, technology jobs, industry jobs, financial services, insurance, start-ups, big scale. The network of talent around you is phenomenal.
+- I have a great job at a great company.
+- And so when I moved to IBM, I moved because I thought I could apply technology. I didn't actually have to do my engineer - I was an electrical engineer, but I could apply it. And that was when I changed. And when I got there, though, I have to say, at the time, I really never felt there was a constraint about being a woman. I really did not.
+- Everyone talks about how much data's in the world. Except, actually, 80% of it is pretty blind to computers. I mean, it can store it. But if it's a movie, a poem, a song, it doesn't know what it's actually saying or doing.
+- I strongly believe that through dedication and perseverance, one can overcome adversity to achieve success. It is a privilege to accept membership in the Horatio Alger Association, an organization which promotes this principle.
+- I think 'Actions speak louder than words' is one thing, I think, I always took from my mom. And to this day, I think about that in everything I do.
+- I think, given who the IBM target company is, I feel our purpose is to be essential to our clients.
+- This century, the 21st century, will be the Indian century - and I really believe that.
+- Some people call this artificial intelligence, but the reality is this technology will enhance us. So instead of artificial intelligence, I think we'll augment our intelligence.
+- With this emergence of big data and social mobility, you will, in fact, see the death of 'average,' Instead, you will see the era of you.
+- Every day I get to 'Think' and work on everything from digitizing electric grids so they can accommodate renewable energy and enable mass adoption of electric cars, helping major cities reduce congestion and pollution, to developing new micro-finance programs that help tiny businesses get started in markets such as Brazil, India, Africa.
+- I don't think anybody's just B2B or B2C anymore. You are B2I - business to individual.
+- You build your own strategy. You don't define it by what another competitor is doing.
+- Someone once told me growth and comfort do not coexist. And I think it's a really good thing to remember.
+- India will not be at the center - it will be the center of this fourth technology shift.
+- I'm the ninth CEO of IBM. Every one of my predecessors has steered through a technological shift, and every one left the company in a better position than the person before them and prepared this company with a very strong balance sheet to allow it to continue to invest for the next shift.
+- When you're on a scale like we are in 170 countries and hundreds of thousands of people, you have a single point of view.
+- It will not be a world of man versus machine. It will be a world of man plus machines.
+- Think about when a digital business marries up with what I'll call 'digital intelligence.' It is the dawn of a new era about being a 'cognitive' business. When every product, every service, how you run your company can actually have a piece that learns and thinks as part of it, you will be a cognitive business.
+- What has always made IBM a fascinating and compelling place for me is the passion of the company, and its people, to apply technology and scientific thinking to major societal issues.
+- If we would change the basis and align what is taught in school with what is needed with business... that's where I came up with this idea of 'new collar.' Not blue collar or white collar.
+- Watson augments human decision-making because it isn't governed by human boundaries. It draws together all this information and forms hypotheses, millions of them, and then tests them with all the data it can find. It learns over time what data is reliable, and that's part of its learning process.
+- India... what a big part you play in this story for IBM and for the world.
+- It's easy to have an act one and two. Go ahead and have an act three, four, and five. The saying is the easy part. The doing is the hard part.
+- I make time to exercise. It's not being indulgent. I think it's got a lot to do with your ability to manage properly and stay focused. There's no doubt about that.
+- So what it means is when you don't believe in the inevitable, it means you don't expect that that's how things have to turn out. You can change them.
+- Steward for the long term. It's not always easy, but you do it.
+- IBM existed a good 50 years before mainframes - we started with scales.
+- I think health care is absolutely ripe. It's an $8 trillion industry, lots of inefficiency in it.
+- If I have learned nothing else in all my years here, my biggest lesson is you have to constantly reinvent this company. That's how you get to be 103 years old.
+- I think, particularly in our tech industry, this is an industry that has violent innovation and then commoditization, and it's a cycle of innovation/commoditization.
+- When my father left us, my mother went back to school immediately. She went to school in the day while we were at school, and she worked at night. She worked very hard to never let someone define her as a victim or a failure.
+- We have started something called the Corporate Services Corps. Now, it was modeled after the Peace Corps from long ago, the 1960s. And the idea was in this modern day and age, how do you get IBM'ers around the world to be global citizens? You know, globally aware, contribute, understand how to work in that environment, but do it on scale.
+- To me, I learned along the way, you know, culture is behavior. That's all it is; culture is people's behaviors.
+- Don't let others define you. You define yourself.
+- My mom had not worked a day in her life, and then she woke up when I was 15 and found herself with four children, no job, no money. But she set out and made it all OK for us, and from that, I saw that there's no problem that can't be solved.

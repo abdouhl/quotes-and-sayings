@@ -1,0 +1,62 @@
++++
+author = "Shreyas Iyer"
+title = "Shreyas Iyer Quotes"
+quotes_len = "56"
+description = "the best 56 Shreyas Iyer Quotes"
++++
+- 'A' tours can be considered as a stepping stone to getting into the national team, so they are really important.
+- It's just that you got to play according to the situation and what the team demands. I know that I can play in both flows.
+- See, on the field, you have to act like you are a champion.
+- I like to be the best version of myself. I really love to dress well, even for a casual family get-together. In fact, before I go to bed, I imagine what I'll wear the next day!
+- You have to always work on your batting as you are never perfect. I am working on my batting every day and trying to perfect a few shots that will help me score all around the world.
+- You have to keep performing and keep showing people that you are capable of playing at the higher league. Once you get that sniff, you never look back.
+- I introspect on how I am perceived by other people. It's been this way since my childhood.
+- If you are really a good talent, then you need a certain amount of chances to prove yourself and get acclimatised to the conditions.
+- There should be no more questions asked about India's number 4 batting slot. If someone has played on that position for a year then he has secured that spot. Good feeling about securing the number 4 spot.
+- But the IPL is a long tournament and results keep going up and down invariably.
+- I am very happy. And also, I want to come out to bat in this kind of tough situation when everybody in the dressing room is nervous.
+- It is the ultimate test. It's every cricketer's dream to play Test cricket. I'm eagerly waiting for my opportunity to represent my country in whites also.
+- I just used to back my instincts and go with the flow. Lately, I've realised that once you play at the highest level you've got to take that maturity to another stage.
+- I know I have a lot of potential to score big runs. So, yeah, I am trying to take it game by game and see that I make it big.
+- Before the match starts I visualise that I will try to rotate the strike and take singles. But if I see that the players batting before me are struggling, and the wicket is not playing that good, I try to dominate from the first ball.
+- There was a lot of buzz about me before the World Cup selection because I was consistent and aware about the hard work and smart work that I had put in. It will definitely reap benefits and help me in future when I play for India.
+- After I failed in my first two games, I did not expect to be picked. But on the eve of our match against Uttar Pradesh in Kanpur, Pravin Amre sir came to my room and gave me the confidence that I was playing.
+- I think scoring runs in the Ranji Trophy is a bit easier than in T20s because the fielders are always inside the circle at the start of the innings and look to attack. So if you push in the gap you will get runs. At the start it is not quite difficult, once you settle down it becomes easier.
+- You always tend to learn whenever you fail. Even when you do good, you tend to learn a lot.
+- I thought magic tricks would be a really good way to start conversations. I looked them up on YouTube and slowly mastered them.
+- All pieces of the puzzle need to fall in the right place to be a champion team.
+- I don't like to follow someone, but I really like A B de Villiers as a batsman. I think he has got all the strokes and plays according to the situation.
+- Yes there was a lot of buzz about me before the World Cup selection because I was consistent and aware about the hardwork and smart work that I had put in. It will definitely reap benefits and help me in future when I play for India.
+- There have been comparisons but I don't want to be compared with anyone. I want to be myself, with my own style and identity.
+- I do not play for money. I want to play the game to the best of my ability. If I do that everything will follow.
+- Social media has become a big part of our lives and I try to manage it well but it's the criticism that motivates me and keeps me going.
+- I realise that I need to be selfish at times as well as smart in decision-making and just not throw away my wicket.
+- I remember when I was a kid, I would visualise wearing the India colours and walking on the field in front of an amazing atmosphere, and I feel it has helped me a lot throughout my career.
+- It's better to enjoy life - selection is a temporary thing.
+- Pull and sweep are two shots which can help me score runs outside India. These are two shots that can immediately put pressure back on bowlers.
+- The A tour has always given me an opportunity to prove myself in the higher league as this is the stepping stone.
+- I want to be part of a World Cup-winning squad. I want to see to it that I lift the trophy for my country.
+- I was not picked immediately at any level, be it Under-14, Under-16 or Under-19. So apart from my batting, I bowled legspin. In one of the selection tournaments for Mumbai Under-19, I happened to pick 34 wickets. So I was finally picked, but as a bowling allrounder.
+- After I joined the Indian cricket team, MS Dhoni advised me that I need to avoid reading the newspapers and should try to stay away from social media as much as possible.
+- The last three-fours years which I have been playing domestic cricket and international, I learnt a lot. I wouldn't say it has been great or fantastic, but it has been a roller-coaster journey.
+- I used to be a striker for my school, but my father felt cricket had more scope. I grew up admiring Sachin Tendulkar and Sourav Ganguly, so I chose cricket.
+- Openers being there, it was important to get a good start, once you get the momentum, you can build on later.
+- I play football. Chelsea is my favourite side.
+- Personally, I am not thinking about batting only at No. 4. I want to be someone who is very flexible batting at any number or if you go into any situation you should be able to grab that opportunity and make the best use of it.
+- Self-belief is the key to success and that has helped me. So I will put in all my efforts in the manner I know. If it works, it is great and if it doesn't it's still great as I know I have put in all my effort.
+- Lately, I have realised that when you play at the highest level, you have to play according to what the team demands.
+- But the atmosphere of being part of the Indian team is totally different from any other team. People start looking at you in a different way. But the senior players and support staff really helped me in ease into the team.
+- I was a flamboyant player when I started playing First Class cricket. I used to just back my instincts and go with the flow.
+- About five years ago, I was offered a contract by the Clifton Village Cricket Club in Nottingham, England. I was staying with one of my teammates there and everything was new for me.
+- I have led a few teams prior to the IPL, led in Mumbai T20 as well as DY Patil T20 tournament.
+- When you go out to play in different conditions against different bowlers, it is always challenging.
+- I'm on the playstation, or else I go out and play football. I enjoy movies and sitcoms. I love reading motivational books too.
+- Yes, you tend to lose patience but selection is not in your hands. All you can do is perform, perform and perform and that's what I enjoy doing.
+- I have to believe in my process and I know I follow a certain pattern to score runs. I have to believe that I will be getting runs if I have a certain mindset and I know I will.
+- I have stopped thinking too much. It all started against West Indies. I told myself that I want to enjoy my life. I don't want selection issues to rule my happiness.
+- I was lucky that I got to open for Delhi Daredevils. I got more deliveries to face.
+- You need to be flexible but I feel I can bat at any position depending on the condition.
+- At the start, when I started playing first-class cricket, I was a flamboyant player and I never used to take responsibility.
+- I know what my strengths are, and I have worked really hard on my weaknesses as well.
+- It was a dream to play the World Cup and I will play for sure in the future.
+- For any cricketer, the ultimate dream is to be a World Cup champion. My dream is to win the World Cup for India.

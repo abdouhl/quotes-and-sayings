@@ -1,0 +1,29 @@
++++
+author = "Paz De La Huerta"
+title = "Paz De La Huerta Quotes"
+quotes_len = "23"
+description = "the best 23 Paz De La Huerta Quotes"
++++
+- I try to stay away from forced intimacy.
+- It's amazing that no matter how much money you have, you can make some bad decisions, and in five months you're on the street, begging.
+- I love Frida Kahlo.
+- I unfortunately had a lot of medical procedures throughout my life, so I decided to paint all of my surgeries as a way to heal and as a way to grow.
+- I'm working on my relationship with my mother and father, but my upbringing has been very destructive.
+- I feel that when people hire me they know it's going to be a collaboration and that they hire me for what I give on all sorts of levels, from my movement to the emotion I bring to the project, the passion, all of it.
+- If I collect anything, it's lingerie.
+- I don't get hung up about anything really.
+- I go to an acting class every Sunday.
+- I love biker chicks!
+- I love going to the hair salon. I'm Spanish. I think it's more of a Latina thing to go to the hair salon.
+- I've learned to stay away from publicity addicts, people who want to be famous for no reason.
+- I always hated school.
+- I wouldn't say I'm a hostile person.
+- I don't ever wear makeup. I steam my face. I put hot water to open pores and cold water to close them.
+- I'm a real actress.
+- Women have said the most malicious, disgusting things about me. But I know that when somebody comments about you, good or bad, it is 99 percent of the time their projection of how they feel about themselves.
+- I love being in front of the camera.
+- It's always freezing on planes.
+- When you're an actress you've got to keep your body as your sanctuary and your muscles.
+- I just feel like everyone and their mother thinks they can be an artist. You can't. Sorry. I know I was born to be one.
+- I think I'm attracted to outlaws because they make me feel safe inside, like a little child.
+- Cobras are magical. They can stand up on just energy alone.

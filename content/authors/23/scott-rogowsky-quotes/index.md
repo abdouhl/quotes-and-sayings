@@ -1,0 +1,76 @@
++++
+author = "Scott Rogowsky"
+title = "Scott Rogowsky Quotes"
+quotes_len = "70"
+description = "the best 70 Scott Rogowsky Quotes"
++++
+- Adnan Virk and I work so well together, he's got the terrific background from hosting 'Baseball Tonight.'
+- I brought my personality to HQ. I injected my DNA into this thing. They gave me a blank slate to work with.
+- When you get started in comedy, you're at the bottom of the totem pole. Not only are you not getting paid at these open mics. You're actually paying to do them.
+- People on Twitter are saying I should replace Alex Trebek. Never honestly considered that, but... he's got a fantastic job.
+- HQ Trivia is the most Jewish app since JSwipe.
+- This is the evolution of television. It just keeps evolving from three networks, four cable networks, satellite. Now there's Internet channels and the phone.
+- I actually noticed how much I love my Sonicare because my friend got me a Quip, which I'll take with me when I'm traveling, but is not as great a toothbrush.
+- People like to complain.
+- I was 20 years old and I said, 'Okay, if I can't get on TV by 25 then I'll consider another career.' You have to give yourself these arbitrary deadlines just to keep yourself focused and on track.
+- I've never thought of myself as a good-looking guy, necessarily.
+- I'm a podcast guy!
+- I'm sort of an old soul, and 'You Bet Your Life' with Groucho Marx is the best game show of all time, in my opinion.
+- The Internet was supposed to bring people together, but it's created big divisions.
+- My dad had me in little baseball outfits and bats in the crib.
+- I don't wear mascara. No mascara.
+- If I'm in the shower sometimes I'll blurt out some lyrics to whatever song's in my head that day. It's a lot of Migos and Drake.
+- I've had my fair share of tweets, DMs, emails, Facebook Messages and friends trying to set me up with friends.
+- When people see me in public, they're usually like, 'Whoa, you're a real person.' It's as if they're seeing Pinocchio or a cartoon character come to life.
+- This is what I spend money on, dried fruit.
+- Most people, when they hire you, they want some experience on the resume.
+- I get a kick out of replying to people on Twitter sometimes if I make a joke.
+- People think I have elfish ears.
+- I never considered game show host as a career, but it's fun because I get to inject some of my comedy into it.
+- When I was working office jobs, I was going on Facebook all the time.
+- I'm waiting for the Times Square characters to start dressing as me.
+- When it comes to being Jewish, I can't help myself.
+- There are so few jobs for comedians on networks, that taxi TV and elevator TV and all this stuff are what I and every other comedian now are gunning for.
+- Nothing in my decade-plus entertainment career has meant more to me personally and professionally than my involvement with HQ.
+- I believe the best way to celebrate the holidays is to spread cheer and joy to others.
+- I wouldn't follow me on Instagram.
+- It's nice to hear from fans directly.
+- I would love to see the first people to get married from HQ. Maybe they'll meet in the chat and name their first child Scott.
+- I am an old comic trapped in young comic's body.
+- To see the viewer count grow for 'HQ,' it moved so quickly and that was the most thrilling ever.
+- I think what HQ Trivia's done is taken the old-school idea of a trivia show - a quiz show - which has been around since the dawn of television, even radio, and made it a participatory event versus a spectator sport.
+- I love following my friend Tony Zaret on Instagram. He's a super funny comedian who makes these parodies of memes, and Instagram skits.
+- I am the host with the challah French toast.
+- I love grocery shopping. It's one of my favorite things. I don't want to become an ordering-food-online person.
+- I wear my Judaism on my sleeve - and my face for that matter.
+- For my first few months at HQ Trivia, my life was - for the most part - the same as it had always been. Even at temple during the High Holy Days, I was having to explain to people exactly what I was doing, trying to convince them to download the app.
+- My favorite elements of 'Start Talkin'' were those man-on-the-street pieces. I love shooting those. I was born in Manhattan, have lived in or around New York my entire life, and I feel like I'm in my element when doing those pieces.
+- There are some really funny people doing creative stuff with social media, which is sadly where a lot of my attention goes.
+- I'd been doing standup since college.
+- I'm no Robert Christgau or Chuck Klosterman, but I would say that Landlady is like if Harry Nilsson was produced by Brian Eno. Or, if David Byrne fronted Wilco. Those are my two hoity-toity musical epigrams.
+- Since the beginning of HQ Trivia, when only 48 people logged in, the chat section was lighting up with comments such as 'This is so cool!' So, we hooked those early users with alluring graphics and sound, a fast-paced test of wits, interactivity with a live and entertaining host, and the lure of winning free money.
+- I like what Lauren Duca and Alexandra Petri come up with when they're tweeting about politics.
+- I feel like HQ has been a force for good and it's brought together this amazing community.
+- I'm a rock star at the WeWorks and tech centers of New York.
+- I've been doing comedy in New York since 2007.
+- I got my first baseball cards as a four-year-old, the 1989 Topps set. I got every Topps set after that.
+- Everything is subjective, right? A question that's easy for you is hard for somebody else, and vice versa.
+- I still consider myself a New Yorker before all other nouns.
+- As with any social platform, there will always be trolls, but HQ Trivia has guidelines in place to ensure the chat vibes remain chill and family-friendly.
+- My background is in comedy.
+- Its all been very flattering and fun. It's a thrill to be recognized. I don't know, if it gets to the point like Tom Cruise, who can't walk down the street.
+- You know, 'Jeopardy' has been on the air for 30 years, I don't see why HQ can't run for 30 years.
+- Dried fruit is a huge part of my diet. Mango, persimmon, banana.
+- I auditioned for 'HQ' and got it. I decided to stay in New York and ride this 'HQ' thing out. That was a good decision.
+- I feel like I have been putting out a consistent body of work, just waiting for that agent, that executive, that assistant to the bigwig to stumble across it.
+- HQ kind of hearkens back to that old method of watching live television, when you couldn't DVR it.
+- I've added up all the hours of zzz's I've missed in my lifetime, and it turns out I'm running on a rather substantial deficit.
+- It's impossible for me to sleep late. I generally wake up around 9, 9:30. I wish I could get a solid nine hours; it's always around six.
+- I grew up as a Food Emporium and Waldbaum's and A&P kid, and Trader Joe's came with their own line of products that all seem healthy, even though they probably aren't. That said, I do love the dried fruit because it's made without the sulfates and the sulfur dioxides and preservatives and is totally delicious.
+- If anyone has an MiLB franchise they're looking to gift for tax purposes, I'll take it! Not picky.
+- I transplanted my brain into 'HQ' and that's where the dark corners of my mind got exposed: Pop culture, '90s baseball, 'Simpsons,' 'Seinfeld,' 'Mr. Show,' Phish, Grateful Dead.
+- All my life, I've been obsessed with baseball.
+- I am a very bad sleeper. There are lots of times when I'm trying to fall asleep at someone's place, and if they don't have blackout curtains, I am waking up with any amount of sunlight.
+- Usually if you have an idea, you have to first pitch it to a production company, get them on board, then go around and pitch to networks.
+- I know a little bit about a lot of things. I don't go very deep in any one field, except maybe '90s baseball.
+- In 2008, I started a sports talk show called '12 Angry Mascots.'

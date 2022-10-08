@@ -1,0 +1,36 @@
++++
+author = "Greg Lake"
+title = "Greg Lake Quotes"
+quotes_len = "30"
+description = "the best 30 Greg Lake Quotes"
++++
+- When I was writing my autobiography, these songs came up from time to time which were important to me, and I realized that what they really represented was, they'd come from this age of shared music.
+- I would like to involve myself in some black music. I would like to do some blues and some gospel music. I want to try stuff from other genres and try to widen my musical base.
+- Certain things you learn through exposure. It's really the elements which make up any artist. You really learn by example. You learn by influence. And some people have a huge impact on you, and that's how you become the artist you are.
+- Music is an emotional experience, and that is what imprints itself on the soul. And I think for me, any great art is art which communicates human emotion.
+- I'll have periods when I write and periods when I don't. But you don't want it to become a discipline, really. If it becomes a discipline, it becomes a chore, and that's no good. To make art you need to be inspired.
+- Things like 'Lucky Man' were never written to even be a record, let alone a hit record.
+- The early ELP albums were pioneering in a way.
+- It's true when they say songwriting is 10% inspiration and 90% perspiration. In truth, what happens is... songs comes through you.
+- The greatest music is made for love, not for money.
+- There is no standing still because time is moving forward.
+- Most of my career has been about standing on a stage performing music to an audience, and once the show is over, they go home and I go on to the next show.
+- Songs are like children. They are all special to me - you can't just pick a favorite. Of course, 'Lucky Man' was a special tune with a wonderful story behind it. They have all done different things.
+- I just got a call one day from Ringo asking me if I wanted to go out on the tour. It was as simple as that. He was putting together this band and he heard of me in the context of doing this and he gave me a call. I jumped at the chance.
+- I love touring in the United States. It's dramatically different wherever you go. North to south, you're going from snow to palm trees.
+- You often hear people say 'Luck is self made.' I think it is, to a certain extent; if you work hard on something, you are more likely to be lucky than if you don't. That having been said, I do believe during in my career I have been at the right place at the right time with the right people.
+- I picked up the guitar at 12 yrs old - basically, my mother and father bought it for me for Christmas. I played one at my friend's house; when I say played it, I just played around with it at my friend's house. It just struck me as something I really wanted.
+- The less people that are on the stage, there's more drama. You start living the music with each individual. When you see a band with ten people on stage, just a huge ensemble, you don't know who's doing what.
+- As I said to Ringo, I was in a successful Rock N Roll band. He was in a band that changed the world. That's the difference.
+- I think good music comes from the heart. That's my belief.
+- Making a comeback is one of the most difficult things to do with dignity.
+- When you are in a band for a number of years you loose your identity in a way. You become a part of that band and then all of a sudden you are not part of that band. You are still the band without the other two members.
+- I don't think art is a goal orientated business. I don't do things for the challenges, I only do them because I love them, I'm not really a goal orientated, achiever type of person.
+- Unless you go forward then you are going back.
+- I feel with ELP that I wasn't making the most of my life and I wasn't making the most of my creativity. I was marking time. I don't want to do that. Life is to short.
+- When you play music with someone who has a heart rather than playing with someone who is just doing it for money or is cynical it makes all the difference.
+- 'Lucky Man' I wrote when I was twelve years old. I wrote it when I first was given a guitar by my mother. I only knew four chords, but I used them all to write that song. And it just stayed with me, stayed in my head. I didn't even write it on a piece of paper. I remembered it.
+- Progressive music probably wouldn't even really exist if not for the people of the United States having picked up on it and nurtured it in the way they did. It really is an American form of music in the sense that it was nurtured here. So it belongs here. It has become part of the fabric of American musical culture.
+- When we made that album with Gary Moore, I was still kind of searching for the right direction for myself. Although the music is quite good the direction was like a box of fireworks that caught light all at the same time.
+- Philosophically, what I have learned is to thy own self be true. That is the biggest lesson of all. Relax; music is fun. To many people take it to seriously because of the money involved.
+- What I learned then was there is a certain power in a three piece band. The more people you put on that stage, the more diluted it becomes.

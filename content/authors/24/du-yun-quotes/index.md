@@ -1,0 +1,22 @@
++++
+author = "Du Yun"
+title = "Du Yun Quotes"
+quotes_len = "16"
+description = "the best 16 Du Yun Quotes"
++++
+- In pop music, people take a stand. When you look at a Beyonce or a Kendrick Lamar, they are going to tell you what they think. And audiences totally get it. They totally love it, and they are totally hungry for it. But in our conservatory training, I think it's a little lacking.
+- We need to educate our audience. It's so important to have diversity. Let's not fear different voices.
+- When you are known as this cutting-edge composer all the time... it's no longer cutting-edge.
+- When we look at human trafficking, we always think that it's far away from us.
+- Some of my contemporaries don't want to talk about the female problem because they feel like whenever they get a teaching position or an award, we are just being pinpointed, fitting into the model.
+- I'm the benefactor of people who are doing so much hard work championing women composers.
+- I'm always going to use music, use culture as a tool to engage people to have this dialog, to enable others. That's very important.
+- The more tools I have, the more freedom I have.
+- I think the dark psychology of human beings is very interesting as an artist.
+- Art music is an evolving matter, and so are a lot of cities.
+- I'm a very textural composer. I care a lot about textures and gestures. Electronics add so much to that. It's like a flavor - it creates so much texture.
+- We all have our own narrative of what human trafficking is supposed to be, but if you do a little research, human trafficking happens, in many different forms and shapes, right in our backyard.
+- A lot of times, politics, global issues are very black and white. There is a place for that, but it's also fantastic to have art side by side, from different viewpoints, open for interpretations.
+- It's about how you're using the space. That's what makes live music.
+- I'm not a programmer; I'm more of a performer. I'm really bad at math.
+- I like a lot of different things equally, with no boundaries, and in a very serious way.

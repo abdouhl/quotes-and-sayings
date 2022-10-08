@@ -1,0 +1,15 @@
++++
+author = "Josiah Warren"
+title = "Josiah Warren Quotes"
+quotes_len = "9"
+description = "the best 9 Josiah Warren Quotes"
++++
+- It has a sound and rational circulating medium, a real and definite representative of wealth.
+- The circulating medium being issued only by those who labor, they would suddenly become invested with all the wealth and all the power; and those who did not labor, be they ever so rich now, would as suddenly become poor and powerless.
+- This circulating medium has a natural tendency to lessen by degrees the value and the use of money, and finally to render it powerless; and consequently to sweep away all the crushing masses of fraud, iniquity, cruelty, corruption and imposition that are built upon it.
+- It has now become a very common sentiment, that there is some deep and radical wrong somewhere, and that legislators have proved themselves incapable of discovering, or, of remedying it.
+- Those who have heard or read anything from me on the subject, know that one of the principal points insisted on is, the forming of societies or any other artificial combinations IS the first, greatest, and most fatal mistake ever committed by legislators and by reformers.
+- It goes to establish a just and permanent principle of trade which puts an end to all serious fluctuations in prices and consequently, to all the insecurity and ruin which these fluctuations produce; and to build up those who are already ruined.
+- Public influence is the real government of the world.
+- I decline all noisy, wordy, confused, and personal controversies.
+- The necessity of every one paying in his own labor for what he consumes, affords the only legitimate and effectual check to excessive luxury, which has so often ruined individuals, states and empires; and which has now brought almost universal bankruptcy upon us.

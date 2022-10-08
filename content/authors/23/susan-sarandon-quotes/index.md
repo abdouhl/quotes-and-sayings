@@ -1,0 +1,33 @@
++++
+author = "Susan Sarandon"
+title = "Susan Sarandon Quotes"
+quotes_len = "27"
+description = "the best 27 Susan Sarandon Quotes"
++++
+- Just because I haven't yet had any project surgery, I'm not going to knock it, because I think women have the right to do whatever they want to their bodies that make them feel good about themselves.
+- Everyone has a responsibility towards this larger family of man, but especially if you're privileged, that increases your responsibility.
+- I was told I had an overabundance of original sin.
+- Before our kids start coming home from Iraq in body bags and women and children start dying in Baghdad, I need to know, what did Iraq do to us?
+- I think sometimes what happens is that all of this feeling out of control manifests itself in trying to control your body; whether it's an eating disorder or talking about getting your nose fixed, as if that's going to be the solution to all the pressure.
+- To know that once you decide to look at life outside of the narrow limits of just your world and start to understand that you can make a difference in very simple ways - in volunteering and all the way up to bigger world problems.
+- The only thing I can talk about is just forgiving yourself, because I do not have everything together. And so I tell people: No, you should see my house, it's a mess.
+- It is a different world than when I was growing up, and you started to just kind of maintain at thirty-five and just hope you can hope it together. People are a lot more vital than I am and doing all kinds of things and leading really important movements.
+- We stand a chance of getting a president who has probably killed more people before he gets into office than any president in the history of the United States.
+- I'm tired of being labelled anti-American because I ask questions.
+- When I tell people I'm a comedian they say, 'Oh, are you funny?' I say, 'No, it's not that kind of comedy.'
+- I'm a native New Yorker. Everything to do with New York feels like my family.
+- Children reinvent your world for you.
+- I try to live my life every day in the present, and try not to turn a blind eye to injustice and need.
+- It will be great when it's not such a big deal when a woman gets a good job.
+- So I would hope they would develop some kind of habit that involves understanding that their life is so full they can afford to give in all kinds of ways to other people. I consider that to be baseline spirituality.
+- The only time I've really been away from my kids to do work was doing Shall We Dance because they both were in camp and it was the first time in twenty years that I haven't been with my kids.
+- If you walk down the street and see someone in a box, you have a choice. That person is either the other and you're fearful of them, or that person is an extension of your family. And that makes you at home in that world and not fearful. So really it's very self-serving.
+- You guys ask really long questions. In the U.S., they just want to know who you're sleeping with.
+- When you start to develop your powers of empathy and imagination, the whole world opens up to you.
+- Now, Tim has been really, really busy, and it's been my job now to kind of deal with everything. And trying to figure out how we balance that, logistically it's a nightmare. But these little jobs make it much easier.
+- I look forward to being older, when what you look like becomes less and less an issue and what you are is the point.
+- Making love is like hitting a baseball. You just gotta relax and concentrate.
+- In the U.S., they just want to know who you're sleeping with.
+- I feel my family's needs are a priority. I'm not comfortable with the idea of serving the many and ignoring my family.
+- It's still not easy to find roles that offer more complex images of women.
+- I think I'm an actor because I have very strong imagination and empathy. I never studied acting, but those two qualities are exactly the qualities that make for an activist.

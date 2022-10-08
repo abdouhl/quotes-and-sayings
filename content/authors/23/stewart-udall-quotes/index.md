@@ -1,0 +1,43 @@
++++
+author = "Stewart Udall"
+title = "Stewart Udall Quotes"
+quotes_len = "37"
+description = "the best 37 Stewart Udall Quotes"
++++
+- I like the story about Henry David Thoreau, who, when he was on his death bed, his family sent for a minister. The minister said, 'Henry, have you made your peace with God?' Thoreau said, 'I didn't know we'd quarreled.'
+- The Indians may have in their religion and culture a reverence for the land. But then they get into the pressures created by modern society. Unless they are reasonably well-educated, they can't deal with them.
+- Plans to protect air and water, wilderness and wildlife are in fact plans to protect man.
+- Over the long haul of life on this planet, it is the ecologists, and not the bookkeepers of business, who are the ultimate accountants.
+- We have, I fear, confused power with greatness.
+- Nuclear energy people perceive the greenhouse effect as a fresh wind blowing at their back.
+- Some environmentalists have had the feeling that Indians are not good stewards. I've always been critical of that.
+- Nixon was a good president on the environment. Gerald Ford was good.
+- The most common trait of all primitive peoples is a reverence for the life-giving earth, and the Native American shared this elemental ethic: The land was alive to his loving touch, and he, its son, was brother to all creatures.
+- Federal judges are just very reluctant to stick the government with responsibility.
+- I don't like the term 'dynasty.'
+- Auto executives have shunned the limits-of-growth issues and concentrated nearly all their energies on the next quarter's sales and next year's models.
+- If, in our haste to 'progress,' the economics of ecology are disregarded by citizens and policy makers alike, the result will be an ugly America. We cannot afford an America where expedience tramples upon esthetics and development decisions are made with an eye only on the present.
+- The auto industry must acknowledge that a rational transportation policy should seek a balance between individual convenience, the efficient use of limited resources, and urban-living values that protect spaciousness, natural beauty, and human-scale mobility.
+- I am not proposing that we bring our oil and auto industries to a screeching halt. There is still time to begin a series of gradual steps toward new transportation and energy policies, livable cities, and more humane, efficient transit systems.
+- I think the Colorado Plateau is the most scenic area in the world - let's begin with that. Not just the United States.
+- Lady Bird Johnson did more than plant flowers in public places. She served the country superbly by planting environmental values in the minds of the nation's leaders and citizens.
+- Mining is like a search-and-destroy mission.
+- Nature will take precedence over the needs of the modern man.
+- Washington's a cesspool of money.
+- The choice facing the American people is not between growth and stagnation, but between short-term growth and long-term disaster.
+- I'm trying to encourage my children's generation and the other ones coming to return to basic American principles.
+- Cherish sunsets, wild creatures and wild places. Have a love affair with the wonder and beauty of the earth.
+- There's not a single person in Arizona today who would say the Grand Canyon was a mistake.
+- In a region with a growing population, if you're doing nothing, you're losing ground.
+- One of the best things that came out of the Carter administration was the energy policy. The best things in it were renewable energy.
+- I don't remember a big fight between the Republicans and Democrats in the Nixon administration or President Gerald Ford and so on.
+- Utah today remains a battleground for land-use policies.
+- I plowed fields with horses and worked as a hired hand in high school for 50 cents a day.
+- Wilderness, like the national park system, was an American idea.
+- So many people of my generation who served in the government were prisoners of the Cold War culture, still are.
+- In the first weeks after Hiroshima, extravagant statements by President Truman and other official spokesmen for the U.S. government transformed the inception of the atomic age into the most mythologized event in American history.
+- A limit on the automobile population of the United States would be the best of news for our cities. The end of automania would save open spaces, encourage wiser land use, and contribute greatly to ending suburban sprawl.
+- It gives me satisfaction to help people.
+- Each generation has its own rendezvous with the land, for despite our fee titles and claims of ownership, we are all brief tenants on this planet. By choice, or by default, we will carve out a land legacy for our heirs.
+- The environmental effects of the automobile are well known: motor vehicles cause, for example, as much as 75 percent of the noise and 80 percent of the air pollution in our cities, and the industry must face mounting pressure from environmentalists.
+- The atomic weapons race and the secrecy surrounding it crushed American democracy. It induced us to conduct government according to lies. It distorted justice. It undermined American morality.

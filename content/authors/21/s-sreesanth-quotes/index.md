@@ -1,0 +1,106 @@
++++
+author = "S. Sreesanth"
+title = "S. Sreesanth Quotes"
+quotes_len = "100"
+description = "the best 100 S. Sreesanth Quotes"
++++
+- The moment I see my daughter's face, I am instantly happier, my stress just disappears, and I forget everything else.
+- The secret to success is to be yourself.
+- Fatherhood is the best thing that has happened to me.
+- I was born in a small village in Kerala. From there, I went on to play for the Kerala state team and international test cricket for India, and now I am working in TV shows and cinema... Any miracle can happen.
+- I am thankful to all those who gave me opportunities in the film industry.
+- The likes of Ishant Sharma and Bhuvneshwar Kumar have done well, and so has Jasprit Bumrah in shorter formats.
+- I play a lot of cricket. I just want to play, play, and play.
+- It was a dream to have a team for the state. While playing for the Punjab King's XI, I used to think of having a team for Kerala.
+- There was always a question of Sreesanth not being focused enough. All I can say is that I was always focused.
+- I want to improve as a cricketer, a human being, and give my best for the country.
+- My father always tells me to be forgiving, as it purges you of pent-up negativity. I harbour no bitterness and malice towards anyone.
+- I have always tried to improve myself in every practice session. When it comes to playing and preparation, I am as disciplined and dedicated as anyone else.
+- I agree the Kookaburra ball takes a longer time to reverse than the SG.
+- I have always given hundred percent on the field.
+- I have learnt a lot from my past experience.
+- I would love to play for Kerala because there is nothing like playing for a home team.
+- I am not worried about criticism. In fact, it helps one perform better.
+- I was not born a cricketer to start with, so I had to really work hard; I had to really train hard. It took lots of practice and lots of matches to get there.
+- When life gave me tough situations, acting helped me cope with those situations.
+- Sri Lankan wickets may not be conducive for fast bowling, but it doesn't mean that the quicks can't get wickets there.
+- I have always played the game in the right spirit and always wore my heart on my sleeve.
+- I take life easy, not questioning every time the going gets tough.
+- I really don't plan whether I would dance after taking a wicket or not.
+- I always gave my heart and soul for the game.
+- I am a rhythmic bowler.
+- You should look to give your best shot and not worry about the results because if you work hard, the results will take care of themselves.
+- I feel I can channelise my aggression to the right thing and be a good bowler, a world class bowler.
+- My father-in-law wanted me to join politics when the Madhya Pradesh election was going on.
+- I don't really think about the crowd when I am in the middle. I actually forget about the crowd, forget the money; that's exactly what I always do.
+- I concentrated on politics and movies because cricket was taken away from me. But the world knows Sreesanth as a cricketer, and I, too, like to be remembered as a cricketer who gave everything on the field.
+- I would love to be part of a Ranji Trophy-winning Kerala side.
+- I don't mind which wicket you play on - wet, dry, slow, or fast. I just want to play cricket.
+- My work ethics have been the same whether it's in international cricket, first class, or even club cricket.
+- I am sure I will make a great politician because I love to help people in a genuine way.
+- I play cricket with passion. I just want to win games for the country.
+- One emerges as a better person after going through the wringer.
+- I don't mind proving myself again and again.
+- A good captain is great only if he has a great team.
+- I pray every day.
+- Bowling in sub-continental conditions is not easy for a fast bowler. You have to be consistent and persistent to succeed, especially when you are bowling to the likes of Sangakkara, Mahela, Samaraweera, and Dilshan.
+- I love cricket and am the last person who would get involved in something like spot-fixing. Anyone who knows me will think twice before coming to me with such an offer. Because I don't even listen to the captain before I play a match. I wouldn't agree to do it even for Rs 100 crore.
+- I don't know how I became controversy's favourite child.
+- I used to watch a lot of motivational films and videos to remain positive.
+- I was a good dancer from my school days, and that's why I entered reality shows.
+- The dearest people around me are my family and friends.
+- I am trying to make the most of the opportunities I get.
+- I have a small and decent indoor cricket facility at home itself.
+- I want to work with Steven Spielberg... whether it is a small role or big in a Hollywood movie, it will be a lifetime experience for me. It will be a dream come true for me. And I always believe that anything can happen in life.
+- It's an honour playing for the country.
+- I have made mistakes and learnt from them.
+- Even the biggest of criminals don't go through what I or my family went through. A small incident was portrayed in the wrong way in front of the world. Maybe that's how the world works.
+- I'm grateful to my family, friends and fans, who have supported me and stood by me.
+- I look at my life journey as a miracle.
+- I am always open to the idea of helping young and aspiring cricketers.
+- I stopped hating people. I also tried to see the positives in negative situations that I found myself in.
+- I love Punjab and really enjoy playing for the Punjab team in IPL, but when you have your own state team, anyone would like to play for that.
+- I want my bowling to speak for me. In fact, not only my bowling, my batting, my fielding. Overall, I want my cricket to speak.
+- When you play for your country, you remember all your performances, starting from the Under-19 days.
+- When I don't play international cricket, I sharpen my skills at the NCA.
+- The way I look at things, every religion is the same.
+- I always believe there is no fun without challenges.
+- Competition is always good.
+- I think the toughest phase of life is over, and I don't wish it on anyone. My family has gone through a lot, and I don't want to dwell on the past.
+- I try not to worry about things that I cannot control.
+- I am sure I will make a great politician because I love to help people.
+- God has been kind to me.
+- I'm a strong believer in God. It could be because of my upbringing and my family environment.
+- I used to be short-tempered on the field when it came to winning or losing.
+- I was a coach for a celebrity cricket league. Whenever I trained or practised with them, I missed cricket.
+- I feel nobody can be against me when God is within me.
+- If you do a mistake, I think you should get punished.
+- I can't be a nice man on the field. I try to laugh, but whenever I start laughing or be jovial, I get smashed.
+- Anyone is free to judge me, but they weren't there in my tough times.
+- If Leander Paes can be playing in Grand Slams at 44 and Narain Karthikeyan race at 40 and be so successful at it, I see no reason why I can't play at 34. They are my motivation, as they have set targets and standards for people like us to achieve.
+- My day starts with the chanting of Gayatri Mantra and Om Namah Shivay. I chant them every time I bowl.
+- It is a great opportunity and a great challenge to be a part of Indian team for the World Cup.
+- I'm a pretty emotional person.
+- I have realised that it's important to be a sport, be nice, and know what to speak and when.
+- I want to be part of a family which wants to improve Indian democracy.
+- Who says men don't cry? I used to sob like a baby as I was forced to move around in a wheelchair for two months after twin surgeries on my toes.
+- I don't want to live on my past performances and say that I did well then.
+- I had six surgeries on my left toe and another six on the right toe.
+- I am a firm believer. I don't follow any particular religion. That's the way I was brought up.
+- All I say is that I totally believe in the judiciary and in the Indian justice system.
+- There is nothing more disgraceful for any sportsperson than to be accused of murky stuff like match-fixing or spot-fixing.
+- Whatever I do, I always want to give my best.
+- Sreesanth became the cricketer that India knows by playing in the maidans of Kochi.
+- During my days as a cricketer, I used to be so involved with the game, I never bothered to look after my family.
+- All I can say is that I played the game in true spirit.
+- As my mother is a Kerala Brahmin and my father a Kerala Nair, every day in the house is like a religious festival.
+- It is not uncommon to use a towel in afternoon matches, particularly in a place like Mohali in the month of April-May.
+- All my blessings are thanks to the Almighty.
+- Everyone goes through bad days, but that does not mean you should stop enjoying the good days.
+- I'm more disciplined now. The days of late-night parties are over.
+- For me, God is someone who takes care of me and creates good and bad phases in my life so that i can learn from them. This is why even when I am going through a lean phase, I don't get fazed, for I believe that's God's way of teaching me something new.
+- Whenever my family brought up the topic of my marriage, I'd joke that I would marry only a princess.
+- With age comes wisdom.
+- I don't really believe getting into a relationship just for the sake for it. I don't get satisfied by it.
+- I love watching Mohammed Shami and Umesh Yadav steam in. They both are sharp, possess good pace, and swing the ball - making them lethal.
+- I'm grown up enough to realise how to play cricket. I love the game.

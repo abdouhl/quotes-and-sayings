@@ -1,0 +1,21 @@
++++
+author = "David Seaman"
+title = "David Seaman Quotes"
+quotes_len = "15"
+description = "the best 15 David Seaman Quotes"
++++
+- I would love to have been a golfer or any individual sportsman.
+- I've always liked long hair. My dad's always had long hair, but he always tells me, 'I never had it in a ponytail.' And I say to him, 'You weren't an England goalie either, were ya.'
+- I think I chose wisely. When it came down to it, I knew I was a better goalkeeper than I was a bowler.
+- I'm always calling people 'mate.'
+- Sometimes you're playing two or three times a week.
+- I'll never go round slagging Arsenal off, because I've had 13 fantastic years there.
+- One of the strangest things that used to happen at half time was that you'd come in, and you would have to sit down and be quiet. Get your drink, your energy bars or whatever, and sit down.
+- A lot of new signings find it difficult to settle because they don't realise how fast and how physical it is and how fast the games come round.
+- In the dressing room before kick off, Arsene won't say a lot.
+- Golf and fishing. I usually do both at least once a week. The biggest fish I've ever caught was a 36 lb. carp.
+- Since Abramovich took over, look at how many trophies Chelsea have won.
+- What are the targets at Arsenal? Are they to be a successful business or a successful team?
+- There was one time when we were getting beat at Highbury, and our assistant manager Pat Rice came in shouting. Arsene, in front of all of us, just went 'Pat! Sit down and be quiet!'
+- Players playing with a lot of confidence can achieve great things.
+- People think I'm laid back, but there's a lot going on in my head.

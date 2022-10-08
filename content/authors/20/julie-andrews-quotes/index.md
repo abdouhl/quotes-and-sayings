@@ -1,0 +1,144 @@
++++
+author = "Julie Andrews"
+title = "Julie Andrews Quotes"
+quotes_len = "138"
+description = "the best 138 Julie Andrews Quotes"
++++
+- More than anything, the arts are the best teaching tool.
+- I'm not very good with rap and things like that.
+- I am a liberated woman. And I do believe if a woman does equal work she should be paid equal money. But personally I am feminine and I do like male authority to lean on.
+- And I think as long as a song has beautiful lyrics, I'm so happy.
+- I've got a good right hook.
+- I've always seen the cup as half-full.
+- The arts are usually the first thing to be cut in schools or regional programs.
+- Programs that bring the arts to young kids are always the first to be cut. It's mind-boggling to me.
+- I did all of my learning on 'My Fair Lady.'
+- On the whole, I think women wear too much and are to fussy. You can't see the person for all the clutter.
+- Who could have imagined that life would have taken such marvelous twists and turns or that I would often be so fortunate to be in the right place at the right time?
+- I seem to be very busy, and I seem always to be working.
+- I was named after my two grandmothers - Julia Elizabeth.
+- I'd love to have a really flourishing vegetable garden, and I'd love to have a better area for a rose garden or a cutting garden, but I don't. You have to develop a garden in the way that it's meant to be developed.
+- I turned down 'The Prime of Miss Jean Brody' with Maggie Smith. I think she got the Academy Award.
+- I'm the lucky one who got asked to do 'The Sound of Music' and all the other lovely things that I did.
+- The arts bridge cultures; they're good for the economy, and they're good for fostering empathy and decency.
+- Singing has been a cherished gift, and my inability to sing has been a devastating blow.
+- When I did 'The Sound of Music' and 'Mary Poppins' and 'The Americanization of Emily,' all three were in the can and had not yet been released. So I was driving around having a fine time learning about how to make movies and enjoying myself enormously, and then they were released, and it was quite an assault, in a way.
+- My voice needed oiling, and then it took off.
+- I think any director is intimidating.
+- I'm just honored that some of my little contributions I've written with my daughter are doing well.
+- I did 'My Fair Lady' for almost 3 1/2 years, eight performances a week. It was a marathon.
+- I'm beginning to think that I like the behind-the-scenes work as much as I do in front of the camera as I get a little bit older.
+- I miss singing with an orchestra because that's the most uplifting thing that I ever knew. It is just such a fabulous feeling.
+- One of our books has been made into a musical, 'The Great American Mousical,' which I directed at the Goodspeed Opera House in Connecticut. And another, 'Simeon's Gift,' has been adapted for a symphony orchestra and five performers. I'm also a very proud member of the board of the Los Angeles Philharmonic.
+- I don't think I have the image that say, Judy Garland has, or Bette Davis.
+- Like most girls, I fantasized about being some sort of a princess.
+- I don't want to be thought of as wholesome.
+- Did you ever notice the color of Mary Poppins' petticoats? They were kind of orange and apricot and red. I think she had a secret life going on there.
+- There's nothing like the joy of the arts, and promoting the arts early in children is going to give them such a start in life in a way.
+- You can't bring the arts too soon to kids.
+- When I've least expected it, an enormous opportunity or stroke of luck has crossed right under my nose. So I tell everybody, if you're passionate about what you do and you love it, do it. But do your homework. Because you'll never know when the opportunity is going to happen.
+- I know I probably have a lot of rage in me that I don't show. But I'm not about to wallow in it or reveal it.
+- My mother and stepfather were in Vaudeville. And my stepfather was an alcoholic. It was a lot of roller coaster times. But it's all I knew. I think they did the best they could under the circumstances, with me and all the family.
+- There are elements of me in the roles I've played in the past. But people forget that Mary Poppins was just a role, too.
+- I adored my birth father and constantly worried that I was being disloyal to him and his schoolteacher roots if I spent too much time performing and enjoying it.
+- I'd say almost that words come first, melody second.
+- Much as I adore the melodies, I choose a song for what it has to say.
+- Behaving like a princess is work. It's not just about looking beautiful or wearing a crown. It's more about how you are inside.
+- I've always admired gardens. My father was a great nature lover and would always take me for walks. We lived not too far away from huge rhododendron estates and azalea estates, and when they're in bloom in England, they're just riotous.
+- I am very proud to be British. I'm very conscious of carrying my country with me wherever I go. I feel I need to represent it well.
+- My parents were in Vaudeville, in musical. And I would tour with them and had a couple of wonderfully lucky breaks in England.
+- I did a lot of touring in my youth, and I learnt very quickly that giving is what it's all about. It's about the gift of making an audience feel great and forget their cares, if only for a few hours.
+- I am told that the first comprehensible word I uttered as a child was 'home.'
+- Because of the Thames I have always loved inland waterways - water in general, water sounds - there's music in water. Brooks babbling, fountains splashing. Weirs, waterfalls; tumbling, gushing.
+- I was working from a very early age.
+- Some of my own books are being developed - one as a Broadway musical.
+- 'Simeon's Gift' is really - it's about a musician who - in the Middle Ages, who goes out to find his muse.
+- In my life, it would probably be giving birth to my daughter. That probably is the most, the thing that moved me the most, was the most memorable, the most wonderful, the most miraculous. I think a lot of women would probably feel that way, too.
+- My sense of the family history is somewhat sketchy, because my mother kept a great deal to herself.
+- You take any job that comes along, and if you're really lucky, the movie takes off.
+- I thought it was all a flash in the pan. It wasn't until Broadway came along that I felt I had really made it.
+- All careers go up and down like friendships, like marriages, like anything else, and you can't bat a thousand all the time.
+- How dare one act like a diva when you have a lot of work to do and you need to find your disciplines and so on?
+- As a rule, my focus is on classical music, but I love jazz. I love everything, actually.
+- Growing up in England, of course you do absorb certain ways the royals wave their hands and carry themselves.
+- I'm resilient, and I'm professional.
+- I'm not very good with some of the more modern songs that have an awful lot of 'doo wah wahs,' if you know what I mean, because I can't do anything with them.
+- Broadway is a tough, tough arena for singing.
+- I love singing, and I came to absolutely adore it in the later part of my career.
+- All love shifts and changes. I don't know if you can be wholeheartedly in love all the time.
+- Sometimes I'm so sweet even I can't stand it.
+- Truthfully, I mostly can be as private as I want.
+- If you've been fortunate enough to do a film that appeals to the entire family, that's the audience that's probably going to come back to you in something else.
+- I come from a long line of below-stairs maids and gardeners. Good ol' peasant stock. My mother and her sister made a quantum leap out of that life. Then I made another quantum leap.
+- I didn't know other children from divorced families, and I was a bit of a lost soul for a while. Then suddenly, I was performing. And it gave me an identity.
+- Sometimes opportunities float right past your nose. Work hard, apply yourself, and be ready. When an opportunity comes you can grab it.
+- The loveliest roles, for me, have a growth arc - a beginning, a middle, and an end - and I'm always grateful when I can find one of those emotional journeys.
+- I was always told I was not pretty enough.
+- I was a child prodigy who had a freak voice of something like four octaves.
+- I don't think today's younger audience... would even know what 1920s musicals were like.
+- I had no education whatsoever, and my mother said, 'Oh, you'll get a much better education in life.' I did to some extent, though I always wish I could have tried it.
+- Marriage is the hardest work you're ever going to do.
+- I'm the lucky lady that was asked to be in those wonderful iconic pieces.
+- I was a very sad little girl.
+- I think every young girl at some point in her early life wonders what it's like to be a princess. They like the idea of dressing up and the fun of it.
+- I play with my grandchildren. I tend to my garden, which I love. Of course, I love to read, and family is really what it's all about.
+- Garry Marshall is a joy. I feel so utterly safe in his hands.
+- I've long wanted to introduce children to the wonder of the arts.
+- I grew up knowing only war, so for me, it was the way things were. It wasn't pleasant by any means.
+- You never start out being a star.
+- I had a teacher who stressed for me the importance of diction in terms of... I want to be very careful about how I say this... in terms of supporting one's voice when one is singing. In other words, if you hold on to your words, your voice will pull through for you when you're singing. So be true to your vowels.
+- You're always changing your thoughts about things.
+- I had a lot of learning on my feet.
+- I think that the best way to explain that is that my mother gave me all the color and character and flare and liveliness, and my father gave me all the sanity and nature and all the things that helped me be a more rounded human being.
+- I love to prune my roses. That's the one thing I really feel I do pretty well. Other things I usually, because I travel so much, leave to my gardeners who know what I love. But I do love to prune them, because you forget everything else. It's like if you're a painter, you can forget everything else while you're doing it.
+- By nature, I really am a fairly bouncy and sunny individual.
+- My mother was terribly important to me, and I know how much I yearned for her in my youth, but I don't think I truly trusted her.
+- There is one thing I should say, and it's important: Young Broadway singers and anybody who is an orator of any kind - lawyers who have to speak in court or pastors or anyone who has a lot of stress on their vocal cords: You should do the maintenance. You should do whatever it takes to feel fresh and good.
+- I have been called a nun with a switchblade where my privacy is concerned. I think there's a point where one says, that's for family, that's for me.
+- I think it's the essence of any film and any stage production - any work where you do work with other people - of course collaboration is hugely important. One does, for awhile, become family.
+- I would be a fool to deny my own abilities.
+- Actually, what I did, because I couldn't make sense of it, and I have to have lyrics that make sense, I decided the best way to sing 'I Have Confidence' was to go completely nuts with panic and fear.
+- I love my garden. I love my privacy. I'm very fierce about it. I try not to let too many people into my home. That's my private place.
+- Some people regard discipline as a chore. For me, it is a kind of order that sets me free to fly.
+- A lot of films seem to go to the lowest common denominator.
+- My mum gave me pretty good genes in that department. She had gorgeous skin. That good English complexion. She never seemed to have a blemish that I knew of.
+- Whenever I think of my birthplace, Walton-on-Thames, my reference first and foremost is the river. I love the smell of the river; love its history, its gentleness. I was aware of its presence from my earliest years. Its majesty centered me, calmed me, was a solace to a certain extent.
+- For me, whenever I choose a song to sing, it's about the lyric first.
+- When you are traveling in vaudeville, you experience so many different kinds of audiences, depending on what time of the week it is, how long the pubs have been open, and things like that.
+- Actually, I had a lot of good people with me - my mother's sister did a lot of taking care of me, and I suppose I got more attention than my stepbrothers because at least I got to travel with my parents.
+- You just don't know in life. Life knocks you about and pushes you over boundaries. But be ready. Do your homework; that's all I can say.
+- I have always wished I could learn to be a potter. I love collecting ceramics; it would be so fulfilling to create something lovely.
+- I think birth and motherhood are not things that you're trained to do. You might have a good example in your own mum, but nobody teaches you how to be a really great mum.
+- I am thrilled to be dame. It's one of those - the fact that you have been honored by your country is what it's all about, and it just feels good right there.
+- Let me put it this way: I can sing a hell of an 'Old Man River,' way down in the bass.
+- Almost every morning when I go to the studio to work, I discover a fresh rose in the bud vase on my dressing table... one living and vital thing in a dusty arena of powder and tissue and matches and greasepaint.
+- I hate the word wholesome.
+- I do get a lot of gifts. I get a lot of things to sign, too. People do collect the memorabilia. Between 'Poppins' and 'The Sound of Music,' there were beautiful plates that they made, and I've signed a lot of them.
+- Our first visit to the Creature Shop is one of the days I will never, ever forget. There was just so much to see and admire and be gobsmacked by.
+- I was raised never to carp about things and never to moan, because in vaudeville, which is my background, you just got on with it through all kinds of adversities.
+- A lot of my life happened in great, wonderful bursts of good fortune, and then I would race to be worthy of it.
+- I justified working so hard by knowing that I was helping to maintain the roof over our heads.
+- You'd think, of course, it's about the melody - that's a given. But really, I'm no good at singing a song unless it has a good lyric.
+- I think I'm just proudest to be the lady who was asked to play Mary Poppins. She's such a wonderful character, and there's so much tremendous talent out there. So I feel very lucky to be the one who got to play her.
+- I do wish somewhere there was a film of our stage production of 'My Fair Lady.'
+- I am an optimistic lady.
+- When one door closes, another window opens.
+- I'm never sure one is exactly ready. You jump in, with both feet, into a very big fish pond.
+- In my early years, I was much too ignorant and didn't realize how desperately important it all is, how really important the lyrics are. And for me as a singer, I am a lady who takes the lyrics first.
+- I'd say just go with the flow. And I take my hat off to any mother out there who works full-time and raises a family as well. It's hard work.
+- If you're not educated to enjoy the arts, if you're not taken to a concert, or you don't hear something beautiful, you don't know what you're missing.
+- The thrill of being in front of a camera remains exactly the same.
+- I was lucky enough to be the lady that was asked to be Maria in the Sound Of Music, and that film was fortunate enough to be huge hit. The same with Mary Poppins. I got terribly lucky in that respect.
+- Singing has never been particularly easy for me.
+- If the director says you can do better, particularly in a love scene, then it is rather embarrassing.
+- I do not knock 'Poppins' or 'The Sound of Music.' They gave me pleasure, and I know they've given a lot of people enormous pleasure.
+- Who would have thought that a story about a professor of phonetics would result in it being probably one of the great shows ever for musical theatre? It's a seemingly odd subject.
+- The arts need funding.
+- Touring itself - and I was very young, and a lot of it I did by myself - it's lonely, but it does give you some kind of spine, I think. It does give you some kind of grit.
+- Perseverance is failing 19 times and succeeding the 20th.
+- Every time I go out to perform, believe me. You never lose that fear of, 'I hope I do it right. I hope I don't fall flat on my face. I hope this will be good for them.'
+- I've made my pact with the Lord for the next lifetime. I would love to be a first-class musician. A super one.
+- I really feel very blessed, and I don't forget it, either; there's an awful lot of wonderful talent in this world, and I just seem to be in the right place at the right time.
+- I had toured around England endlessly throughout my teens, but when I came to the U.S. to perform on Broadway, that was a huge step.
+- I love that President and Mrs. Obama are embracing the arts. I am so delighted.
+- I like - I actually love classical music very much.

@@ -1,0 +1,106 @@
++++
+author = "Eddy Alvarez"
+title = "Eddy Alvarez Quotes"
+quotes_len = "100"
+description = "the best 100 Eddy Alvarez Quotes"
++++
+- I've been able to accomplish goals that I set for myself, where in countries like Cuba you just don't get those opportunities.
+- If I wouldn't have medaled at the Olympics, it still would have been a successful trip. The medal is the icing on the cake.
+- I've been on skates since age 5.
+- I'm a firm believer that positive thinking creates positive results.
+- Long track is more of a symphony... You're out there and you want to get in the zone.
+- I am a prime example of what the American dream is.
+- I was 2 years old and already swinging bats and throwing balls.
+- It felt like I blinked and the Olympics were over.
+- I heard it all. 'He's too old. He won't get by Double-A. He's too slow.'
+- I feel like if I look back at my career, that's all I've ever done is fail.
+- I love the fact I am a Cuban American man who represented the United States in the Olympics. I was proud to wear the red-white-and-blue.
+- Not a day goes by that I don't remember my experience at the Olympics.
+- I love people watching.
+- When someone meets me it's 'Oh, you're the flag-bearer guy!'
+- When you're so close to winning and you have to stand on the podium and listen to someone else's anthem, it leaves just a little bit of that bittersweet feeling.
+- Baseball, once I got to the Major Leagues, I told myself, 'Now it's begun.'
+- It can be a little nerve-wracking sometimes feeling like I have to do more than I really do.
+- As a child, I always had a dream to make it to the Olympics.
+- I owe so much to my parents, to my family.
+- I'm ready to turn some heads and have no regrets.
+- Baseball has been something that's always been in my blood. It was just something I was bound to do no matter what. I was going to play baseball.
+- I've literally had dreams of that moment since I was a kid, no joke, about stepping in for my first at-bat.
+- It was the first time I'd picked up a bat and ball in three years, and it turned out to be a breakout season for me. I was named to the All-Conference team and nominated for All-American.
+- I had expectations to go back to college and get my name out there more.
+- Being a first-generation Cuban American, my story represents the American Dream.
+- I thought playing baseball would give me a break from being in a squat position all day, but it didn't. I could not handle the pain anymore.
+- Baseball's just something that's always been a part of my family. My dad did it, my brother did it, I grew up doing it.
+- I have an analytical mind.
+- And it wasn't so much the medal, it was stepping out of the ramp during the Opening Ceremony. Man, I took a step back and realized I made it. That was huge.
+- There's a lot of sacrifices I've made in this life, in my athletic career.
+- Playing pro baseball has definitely been a goal of mine.
+- At some times, my first go-round in the Olympics got a little overwhelming.
+- In speed skating, we want to have the strongest, most powerful lower half of the body and don't want to have any weight on top.
+- I was always so excited for the team event in speedskating. And I think that had to do a lot with growing up playing baseball and the amount of friendships and bonds that I created.
+- At the end of the day, standing on the Olympic podium on the top is what we're all really searching for here.
+- My personal goal is to go off. I'm gonna do everything in my power to win games and I know all the other guys around me are in the same boat. Whatever it takes.
+- My grandparents and my parents came over from Cuba with nothing to their name just for a chance of freedom and opportunity.
+- As an Olympic athlete, I was at the top of my sport.
+- My college coach was like, 'You ever thought of switch hitting,' and I was like, 'You know, I thought about it but I never really tried it.'
+- I'm as optimistic as I possibly can be.
+- I was just cruising around the streets of South Beach and got scouted. Two ladies stopped my parents and said, 'This kid needs to try the sport of inline speed skating,' so I did and I remember falling in love with it and the thrill of racing.
+- You name it, I've been everywhere in the U.S.
+- The silver medal is incredible, because we worked so hard for so many years. Sacrificing, absolutely demolishing our bodies for hours a day, 11 months a year, years on end.
+- I didn't know if pro ball was in the plans for me. I didn't know it was going to happen right away.
+- I kept going. The decisions I've had to make, the setbacks, the feeling of having my back against the wall, I was determined that I had the grit.
+- In skating, I knew that 2014 was going to be it for me. I had my heart set on trying baseball again after.
+- To hold Old Glory, a symbol of freedom and liberty to many around the world, not just in the United States, this one means a lot.
+- When athletes disrespect the flag and say things about their country that's not prideful, it really hurts me because of the situation that I've had to see my family go through.
+- Just being able to experience that caliber of a level of a sport, the highest level of a sport, has helped me immensely to transition into my baseball career and to just take it day by day.
+- I definitely see my progression moving at a rapid pace.
+- When we get off the line in skating we kind of look like little ducks running.
+- Skating is much more of an individual sport, and then there is a team event once the team is picked.
+- I've always had this fire in me.
+- It's a tough pill to swallow, when you come so close to winning and you fall short.
+- If the cards just so happen to be drawn that I get called up to the big leagues and become ineligible to go to the Olympics, then so be it.
+- It may say 30 on paper, but I don't look the part, I don't act the part, and I do my best to play like that.
+- In baseball, I had this lower body but nothing in the upper body. I had to counteract years of training and work the upper body.
+- I came over to this country, so to be able to lead Team U.S.A. is an absolute honor.
+- It's an honor to bring back a silver to the United States.
+- I am completely prepared to let the tiger out of its cage in Sochi and see what happens.
+- In the Olympics, you only get one opportunity to bring it all together. If you don't, better luck in four years.
+- We all deal with our inner pessimist. We just try to find as much positivity as we can find.
+- I didn't really hit my stride until my Olympic year.
+- Even though I was 110 pounds wet in high school and had no attention from any major schools, I always had a little bit of fight in me. There was always a dog in there, too.
+- There were times when I thought of dropping skating completely and just focusing on baseball.
+- I'm just so honored I got the chance to represent our country. I was always willing to put in the work, the sacrifice, to do so.
+- I've never been in a situation where winning was the only goal, that no individual stat mattered.
+- Once I retired from skating, never in my wildest dreams did I think I would have the chance to come back to the Olympics.
+- My dad is such a Cuban man - he's as stubborn as me.
+- Just to be able to say that I'm from Miami, Florida, in the Winter Olympics was an honor, and I'm proud to be able to say that I'm playing on the U.S. national team for baseball from Miami as a Cuban-American.
+- I learned how to be an athlete. I learned the true art of resiliency and grit.
+- Everything wrong with running, I did it.
+- I went from Arizona to all over Florida just doing workouts in front of scouts. I promised myself that I was going to sign with whatever team called me first.
+- Right now it looks like skating is done for me. I'm ready to move on. But if baseball doesn't work out and I still have that itch for skating, I may be back.
+- Short track is like metal rock. You kind of always got to be on your toes.
+- Baseball is my true passion. Skating was more of a short-term goal.
+- I can remember stepping out of the car with my skates already tied, smelling the ocean breeze.
+- There was that feeling of standing on the podium and listening to someone else's national anthem that really sucked.
+- You've got to be up-to-date on what your opponent is doing.
+- I'm just going to keep going. That's been my motto since I was younger, through all adversity and all obstacles.
+- At the Olympics, once I got there it was more about the full experience and skating to the best of my ability.
+- Since I was a kid, I've always been able to copy the mannerisms and body language of everyone around me.
+- I always told myself that if baseball was not fun anymore, then I would move on from it.
+- What the public sees is my successes... Yes, I've won competitions and I've done unbelievable baseball, but a lot of those times, I failed more often than not.
+- I'm one of those people that develop late, so what if these are my peak years in baseball? I would never know unless I put myself out there, and if I fail, I fail.
+- I didn't have a parade of teams wanting to sign me, that's for sure.
+- I saw my baseball career skyrocketing, but there was always something in the back of my head that was missing. That was trying to make it to the Olympics.
+- I'm full of life.
+- Surgery was the most challenging scenario I ever had to face. Being bed-ridden for four weeks and not being able to walk for eight, I definitely had the lowest point in my life.
+- We're pieces of the puzzle. If I fit in a certain algorithm, then it'll be time for me to go. It's tough as a baseball player, it really is, not knowing much, but you just have to play.
+- If I wanted to be a professional baseball player at some point, I knew I would have to do the jump ASAP because unfortunately age is a huge factor.
+- As soon as I finished skating, watching video of me stealing baseball bags was funny.
+- I am grateful for my time with U.S. Speedskating and U.S.A. Baseball, as well as for all of my teammates, and I am humbled to lead Team U.S.A. into the Tokyo Olympic Games.
+- To be honest, I feel like just an average human being.
+- I don't think anyone should be put into a box, nor should you allow yourself to be put into that box.
+- I remember after the Games I was lifting weights with propane tanks on them, and getting to experience opening ceremonies again was something I dreamed of every day.
+- If you saw what I looked like in high school you probably would've laughed. I looked like I should have been in middle school.
+- Walking in the opening ceremony and just being part of the Olympics is so special and it's something to cherish forever.
+- The ultimate goal is to get back up here to the Miami Marlins.
+- I didn't know if I was gonna make the Olympic roster, but just to be part of that journey to get to the Olympics and inevitably win a medal - even if I wasn't a part of the roster, knowing that I had a part in it, I would have been so content.

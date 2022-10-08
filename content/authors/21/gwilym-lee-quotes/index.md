@@ -1,0 +1,25 @@
++++
+author = "Gwilym Lee"
+title = "Gwilym Lee Quotes"
+quotes_len = "19"
+description = "the best 19 Gwilym Lee Quotes"
++++
+- When I get a job, I buy one really nice thing to have something to show for it.
+- Yes, I love going to fittings and talking about the history of a costume. For 'Versailles,' a play set in 1919, the costume designer told me that pocket squares had just been introduced. The tango was becoming fashionable in London, and dancers used them to mop their brows. I love to learn fascinating stuff like that.
+- I want to keep doing interesting work with interesting people in whatever form that may take, but I want to play the big parts of classical theatre; I want to go on stage and play great Shakespearean roles and, at the same time, do amazing, challenging indie films and comedy, and I want to do it all. I am greedy.
+- My parents have always been incredibly supportive, driving me back and forth to Stratford and so on. They realised from an early age that I wouldn't go into medicine because I couldn't do biology and chemistry.
+- I was an annoying schoolboy, always getting into scraps.
+- It's funny because when you're a Welshman living in England, you always get the mickey taken out of you for being Welsh, and then when you go to Wales with an English accent because you were born in Bristol and grew up in Birmingham, they say you're English. You can never win.
+- You can never... any job you do, you can never think about the bigger picture.
+- When you play guest parts, you play your story in a very urgent kind of way.
+- I'm a policeman on television but an absolute wuss in real life.
+- At drama school, a casting director asked the class to walk round the room one at a time, and we had to imagine who they might be. The two before me were described as a doctor and a businessman, but when it came to me, they said homeless person. That was when I thought I'd better do something about my appearance!
+- All we're in control of is what we do day to day on set and how we prepare to do our job each day.
+- I don't have a car - I have a beautiful Pinarello bike.
+- I'm a hoarder.
+- When it comes to rugby, I'm a Welshman through and through. I'm a huge fan; I've played rugby since I was seven. Unfortunately, I had to quit when I went to drama school because it doesn't really go hand in had with being an actor.
+- There are four of us, and we were all born in different cities because my dad worked all around the place. We settled in Birmingham, so I spent most of my time growing up there. We were all given very Welsh names - Geraint, Owen, Rhiannon and Gwilym. My mum's called Cainwen, and my dad is somewhat disappointingly called Tom.
+- Savoury food is for main course, and fruit is for pudding.
+- I have a huge family of friends, and they are all best.
+- I'm very keen on outdoor things, lots of running and cycling.
+- Obviously Gwilym is a very Welsh name! My father is from Maesteg, and my mother's from Abergavenny.

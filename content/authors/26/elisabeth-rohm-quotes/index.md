@@ -1,0 +1,31 @@
++++
+author = "Elisabeth Rohm"
+title = "Elisabeth Rohm Quotes"
+quotes_len = "25"
+description = "the best 25 Elisabeth Rohm Quotes"
++++
+- It would probably break my heart to hear that people didn't like me. I don't look on the Internet.
+- I'm a straight shooter, a New York City girl. I see things as they are and call them as they are.
+- When you fall head over heels for someone, you're not falling in love with who they are as a person; you're falling in love with your idea of love.
+- I had a soap opera, and my next job was working with Kyle McLachlan on The Invisible Man.
+- I would love for TNT to run the whole season at one point. I don't think that'll ever happen, though.
+- I've grown as a person. The dynamics on this set are very demanding because we work a lot of hours, it's very sad material, so there's always someone upset because it's really heavy stuff.
+- The business is a very tricky obstacle course, and you should be very clear about work begetting work. If you're not working, you're not interesting.
+- Better to just be real. Show up and do your job and be a nice person.
+- You never stop learning. If you have a teacher, you never stop being a student.
+- I always wanted the fairy tale, but now I want someone who is a great partner.
+- That difficult place to put your finger on about the world - it needs to be illustrated.
+- I stuck out like a sore thumb when I came on, just by the fact that I looked so different. I think that adjustment for the audience was a hurdle for me.
+- You've got to clock the hours and pay your dues. Then eventually, people will come to you. You have to be patient and appreciative.
+- I'm a great fan of Carey Lowell's and I loved Jill Hennessey.
+- Dick Wolf was my first boss after coming out of Sarah Lawrence.
+- I was very excited about the idea that I could be an idealist, that I could be my age, the eager beaver who had hope in the justice system and the one who gets disappointed just like the audience.
+- It's really nice to pass the ball when you're in an ensemble cast.
+- I have a lot of courage. I'm a realist.
+- Life came in and put me in front of the camera before I could really make a decision, but I think I probably would have gravitated to film.
+- I needed to move, but I haven't had the time to find a place to go.
+- I've grown up so much here. It's been two years. I've become a woman here, I've become an actress here.
+- I don't think people were betting on me, but they were giving me a chance. I think I rode a wave there, by being different in appearance than the girls who preceded me.
+- I try to watch the show every week and improve upon myself. I've become a fan.
+- I got out of college in 1997, and TV embraced me very quickly.
+- What made me fall in love with acting, which is my life, was watching other people perform. It made me hunger to do that.

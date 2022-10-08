@@ -1,0 +1,106 @@
++++
+author = "David Baddiel"
+title = "David Baddiel Quotes"
+quotes_len = "100"
+description = "the best 100 David Baddiel Quotes"
++++
+- I remember watching an episode of 'Seinfeld' in which George can't understand why security guards can't sit down. He gets obsessed with it and eventually buys a chair for a security guard who sits down and goes to sleep. The shop gets robbed. That's a brilliant extrapolation of what is essentially observational comedy.
+- All the things I've done mean something to me.
+- I don't want to be one of those old people getting up at 5 A.M. to potter.
+- I don't believe in God but I do believe in Larry David.
+- Frank Skinner was a terrible flatmate in some respects. He never cooked and the cleaning lady refused to go into his room. But he was brilliant because he was very, very funny. You could just sit around at home and have a laugh without having to rely on any social arrangements.
+- I went to a Jewish primary school and all my parents' friends were Jewish.
+- My parents are very unusual characters, both of them - they're both only children, and they're great, but neither of them are the sort of standard idea of a parent, and not of Jewish parents.
+- An academic is what I would have been if I hadn't been successful as a comedian. I've never had a proper job.
+- Fame doesn't allow for complexity, especially complexity of character.
+- Everything I do is storytelling; storytelling is about curiosity.
+- There are no gatekeepers in children's literature. There are children who like what you write because it's funny.
+- I thought I was great at football. For a long time I thought I could have been a professional if I'd wanted to.
+- I can't bear the idea that I might be in any way deluded about myself.
+- If you go on stage, or on TV, then there is an impetus that comes about to be a persona. A completely different character. But when you're someone like me, you don't want to have a persona. I want to be exactly who I am on stage.
+- I am not a very good actor.
+- Unfortunately, we no longer live in a culture where what is spoken about and what truths are told and what lies are told are objective any more, so my personal feeling is that you have to try to take them on.
+- Everyone is complicated, but when you're famous, you have to be pigeon-holed. By doing different stuff, that's rubbed up in complicated ways against the culture.
+- When I first started on telly, I used to get quite a lot of fan mail from Indians saying it's great that an Indian is on!
+- My contention is even people who are living without social media are not just aware of it, they are affected by it.
+- I wasn't thinking about becoming a children's writer. I just have an idea and if it sounds like a kids' book I'll write a kids' book. If it's a film or a play, I'll write that.
+- If you can get tickets, a show on Broadway is worth the effort and expense.
+- In between being born in Nazi Germany, and marriage to my dad - of which I think marriage to my dad might have been worse - my mother had a very difficult and complicated life.
+- I think I have a problem. I'm incredibly open about myself.
+- Football fandom is this, it's magical thinking, it's hope over experience.
+- I think it is quite hard to be as angry and abusive face to face as it is online. But my fear is that as we get more and more normalised to abuse online, it will start spreading away from the screen.
+- It gives me cancer to have an idea but not do it. Whether I get into trouble for it is not as important as the need to chase the idea.
+- I've adapted my own work a couple of times, and I've also given my novels to other people to adapt, and I do find that quite difficult.
+- When I first started, stand-up comedians writing novels was thought of as a great encroachment on the art form and people got very angsty. But comedians are storytellers so it's really a hop, skip and a jump.
+- Dad was hyper-furious about money all the time and we didn't mix with high-flying or media families.
+- Mum died on a Saturday - apparently that's quite common. Dad already had dementia, and my brother and I had to let him know the news. Forty-five minutes later we had to tell him again. We spent the whole of that Sunday reminding him over and over.
+- I'm incredibly uncommitted to party politics. I vote Labour but only because Glenda Jackson was my MP and I loved her on 'Morecambe & Wise.'
+- Vegas felt glamorous on the outside but disappointing on the inside.
+- My dad has dementia, so I monitor my own memory in a way that other people may not. As an atheist, I don't believe in an afterlife so I feel I need to fit in as much as I can while I'm here.
+- I think 'Friends' is brilliant and it was massively underrated in this country for a very British reason, which is the assumption that because the cast is beautiful, it must be vacuous. Whereas in fact, it's brilliantly, brilliantly written.
+- Why is it kind of acceptable to say that the Germans are better at penalties, but not that blacks are better at boxing? Is it simply that you're allowed to stereotype a group perceived as oppressive, but not one perceived as oppressed - which is why it's fine for women columnists constantly to rail against men, but never the other way round?
+- I've met a lot of people who follow me on Twitter but I've never met anyone who has trolled me.
+- Virtually any practical task becomes chaos within seconds of me getting near it.
+- Comedy is a difficult thing for a critic, as, unlike all other art-forms, it has an inbuilt success-o-meter: laughter. Therefore, there's no real need for critics.
+- Our culture is being shaped by trolls and the Holocaust deniers are a very extreme example of the trolls. Ignoring them has not worked. It doesn't mean that confronting them will work completely but I think it's a debate we have to have.
+- I am an intellectual.
+- Now 'South Park' - they are interested in blasphemy. They're interested in creating offence for its own sake.
+- To disarm a troll, you don't try and destroy them straight away, you take onboard what they're saying and then destroy them.
+- I am a comedian. I do feel I have to put my experience on a public stage. As an artist, that's what I do. Even though that sounds poncey.
+- I like trolls. Some trolling I find very entertaining. The sheer abuse can be hilarious, and so random and absurd.
+- I can't really do characters. I don't do voices.
+- I have an issue with classical music.
+- We are all frightened now. No one says anything public without looking over their shoulder and wondering, Have I said something wrong? Am I going to get in trouble?
+- I spent a long time on a big studio sitcom, 'Baddiel's Syndrome,' for Sky, and got no audience.
+- People think making jokes about something is just going to cause trouble. But actually, not making jokes about something is a type - and this sounds very pretentious - of apartheid.
+- The food in central Asia is not so great: it tends to be horse.
+- It was definitely a challenging upbringing. My parents were by no means perfect.
+- I always think of Ireland as a place for complex ideas and prose. I like Irishness. I like Irish culture and Irish literature.
+- When I retweet a troll, I'm not thinking of the troll, I'm thinking of the audience: how can I make them laugh with me, at him?
+- I admire identity politics for raising the fact that there are terrible and constant microaggressions against all minorities.
+- I've always been an insomniac, and as I've got older that's got harder.
+- My father worked for Unilever, running a mass-spectrometry lab - mass spectrometry is a process for elucidating the chemical structures of molecules, which means that he presided over a legal form of corporate espionage, breaking down the component parts of competitors' products in order to copy them.
+- I had a 'the Cure' hairstyle, bigger even than Robert Smith's for many years. I used to do jokes about it which went well, but which meant I had to keep sporting it long after it was fashionable.
+- My theory as to why I first became a comedian is that my mother was always keenest on my younger brother, Dan. It doesn't bother me now, but it did then and the way I compensated for that was to publicise myself as myself - to tell people who I was in 100 per cent detail, going into every crevice of my life.
+- Everyone should try a taxi, as it is part of the New York experience.
+- I might be the most unpractical person in the world.
+- Neurosis, an obsession with stupidly named food, bookishness - these are all OK to class as attributes that come hand in hand with a name that ends in 'berg'; the only possible exception being the money thing, although clearly we are better at accountancy.
+- I hate predicting football scores that mean a lot to me, because even though I'm an absolute materialist and don't believe in anything superstitious, I get superstitious.
+- When you get older, you are told constantly that you should be there for your parents' deaths, otherwise you will regret it. But what we are not prepared for is a sudden, brutal death that you are there for, with medical people shouting and things bleeping and your parent gasping for breath.
+- Because I've been around for quite a long time and done a lot of different stuff, there's a shifting idea of who I am.
+- I spend a lot of time on social media and people ask me if the abuse I get is upsetting, but working in comedy has built up my skin - I'm used to hecklers.
+- We were much poorer than many families.
+- I don't think comedians are better travellers but they are communicators and storytellers.
+- The first proper car I had was an old Nissan Micra.
+- I've seen episodes of 'Friends' which are as funny as any sitcom I've ever seen.
+- Three Lions' is a song about loss: about the fact that England mainly lose.
+- I'm very committed to anti-racism and gender equality - political issues, but not party political.
+- I don't believe in God, so I'd say that laughter is one of the only true weapons for fighting against real darkness, grief and loss.
+- Baddiel is a slightly quizzical name - it comes from Latvia but people thought it sounded vaguely Hindustani or something. I thought it might be a good idea to write a body swap movie, like 'Trading Places' or 'Freaky Friday,' about somebody who believes they are one thing but suddenly become another.
+- I had probably never met a non-Jew until the age of 12.
+- I certainly don't think comedians are more depressive than any other walk of life. I have had clinical depression, as it happens. The stress of performing didn't help, but it wasn't about being a comedian in itself.
+- I cook roasts and pasta and curries and all sorts of things - generally things that aren't one composite thing, like a cake is.
+- Furious protesters don't come after you for jokes at the expense of people; they come after you for jokes at the expense of their gods.
+- I was always very against the idea that for comedy to be 'important' it has to be dark. It's very much a critic's way of thinking.
+- I feel uncomfortable if I'm not my self in any situation.
+- He's a very sweary sort of bad tempered curmudgeon of a man. That's the joy of my dad, that he's not a conventional nice grandpa, or indeed a conventional nice dad.
+- Without wishing to sound pretentious, my basic standard of happiness is to do with being who I am.
+- We're not designed to know hundreds of people - we're designed to know four people in our village. So the only way we can know hundreds of people is by reducing them to a stamp of their identity.
+- With the Kick It Out campaign, I was interested in asking: 'Why is antisemitism a lesser racism than other racisms?' I genuinely believe that to be the case - that negative stuff said against Jews isn't considered that important.
+- I am a nice boy.
+- I only work with the ideas I have. I only want to talk about stuff that happens to me.
+- Most people who know me well say I am almost autistically myself. I like to never change.
+- I am someone who is going to say what I want to say.
+- Fame is a silly thing that makes your life absurd.
+- If you're going to talk about the devil, at some point you've got to meet the devil.
+- All of my children's books are attempts to tap into what I believe to be children's, and to some extent human beings', fantasies.
+- My mum's death was appalling.
+- When I was growing up I don't think Muslims and Jews were considered to be opposites.
+- I tend to feed the trolls because it gives me material for my work. I'm sometimes taken aback by the racist and antisemitic abuse I get, but most of the time I'll get angry for a second, and then remind myself, 'This is material.' The trick is not to be too reactive.
+- My dad was a scientist. More than that: my dad grew up in a tiny terraced house in Swansea, the only child of a second-generation immigrant family - his father sold cloth, zips and buttons from door to door - and so science - biochemistry at Swansea University, followed by a PhD at Imperial College - was his way out, his way up.
+- The majority of Jews are secular... the Nazis never checked if anyone was going to the synagogue or eating kosher.
+- I've been aware of my own mortality since I was 12.
+- I'm not saying Jews should only play Jews... I personally think actors should be allowed to act.
+- My show 'Fame: Not the Musical' is about the fact that fame is seen in two ways in our culture: either as a glittering bauble we desperately covet, or as a narrative of tragedy and despair. My own experience of fame is a third, mundane way, which often involves being mistaken for someone else - Ian Broudie from the Lightning Seeds, or Steve Wright.
+- Basically, out of the sphere of what I do - being a comedian/writer, and out of the sphere of football, I am incredibly uncompetitive.
+- I see social media mainly just talked about as if it has just changed us technologically and in terms of data. I think it has changed absolutely everything. It has changed truth, it has changed culture. It has certainly changed the way that we relate to each other and in a very short amount of time.

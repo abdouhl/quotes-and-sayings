@@ -1,0 +1,15 @@
++++
+author = "Gertrude B. Elion"
+title = "Gertrude B. Elion Quotes"
+quotes_len = "9"
+description = "the best 9 Gertrude B. Elion Quotes"
++++
+- My father emigrated from Lithuania to the United States at the age of 12. He received his higher education in New York City and graduated in 1914 from the New York University School of Dentistry. My mother came at the age of 14 from a part of Russia which, after the war, became Poland; she was only 19 when she was married to my father.
+- I was born in New York City on a cold January night when the water pipes in our apartment froze and burst. Fortunately, my mother was in the hospital rather than at home at the time.
+- I was a child with an insatiable thirst for knowledge and remember enjoying all of my courses almost equally. When it came time at the end of my high school career to choose a major in which to specialize, I was in a quandary.
+- I think it's a very valuable thing for a doctor to learn how to do research, to learn how to approach research, something there isn't time to teach them in medical school. They don't really learn how to approach a problem, and yet diagnosis is a problem; and I think that year spent in research is extremely valuable to them.
+- I had no specific bent toward science until my grandfather died of cancer. I decided nobody should suffer that much.
+- Over the years, my work became both my vocation and avocation. Since I enjoyed it so much, I never felt a great need to go outside for relaxation. Nevertheless, I became an avid photographer and traveler. Possibly my love for travel stems from the early years when my family seldom went away on vacation.
+- Nobody... took me seriously. They wondered why in the world I wanted to be a chemist when no women were doing that. The world was not waiting for me.
+- I loved to learn everything, everything in sight, and I was never satisfied that I knew everything there was to know in each of my courses.
+- Although I never married, my brother fortunately did, and I have had the pleasure of watching his three sons and daughter grow up. Several of them now have children of their own. We have been a close-knit family, although often separated by distance, and have shared each other's happiness, sorrows, and aspirations.

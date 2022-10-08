@@ -1,0 +1,43 @@
++++
+author = "Don Johnson"
+title = "Don Johnson Quotes"
+quotes_len = "37"
+description = "the best 37 Don Johnson Quotes"
++++
+- This is what I do for a living. It's not who I am as a human being.
+- If I die tomorrow, I've accomplished everything I wanted to do in life.
+- I am stable when my private life is a success.
+- I could hear and feel music going on in me, and I couldn't get it out. You can always depend on a guitar.
+- You're in this constant state of flux and transition, as if you had jet lag all the time. The acting part of it is easy. It's all the other things that come with it that are a bit difficult.
+- People in the business will stay with you through drugs and alcohol and divorces and insanity and everything else, but you have a failure, pal, and they don't want to know nothing about you!
+- Once you become famous, there is nothing left to become but infamous.
+- I do what I can to make young people understand that drugs can destroy their lives. I'm the perfect example of what people can accomplish when they have regained a sane body and spirit.
+- London is one of the most enchanting places I've ever been on this planet.
+- My favorite actor is Wallace Beery.
+- I'm not qualified for anything else, so I would imagine I'd either be doing something larcenous or I would have already been caught.
+- I'd like to think I haven't done my best yet.
+- I pestered the hell out of everybody I ran into until I could play the guitar well enough to write and sing with it.
+- If the material is inspiring and motivates you, then it doesn't really matter what it is.
+- I've never been very successful in a monogamous relationship, but I'm looking forward to the day when I can assume that responsibility.
+- I joined the PBA way before I should have because I heard a rumor they were going to limit the number of people who could get in.
+- I am seriously opposed to censorship of any sort.
+- It's my job to really commit myself to the material and the project and be proud of what I've done, and I am in most cases.
+- I struggled for 15 years in this business before Miami Vice came along.
+- I was a little, skinny, runt kid, and I decided that bowling was what I was going to do in life.
+- I had no idea what I was going to do when they threw me out of school.
+- I try to parent equally, but I think little girls are a little more sensitive.
+- Hollywood is very much an industry town. Your life becomes caught up in all of the parties and this list and that list. That's not something that I respond well to.
+- It wasn't a mission to be a rock star. It wasn't a mission of mine to even be a movie star. I just intended to be a good actor.
+- I can do whatever I want - I'm rich, I'm famous, and I'm bigger than you.
+- The way our business is, the way it works out, we end up being residents of everywhere.
+- It's a joy to be recognized and to have people that are interested in what you do. That can pick up your whole day.
+- I made a decision that whether or not I was going to make under the national poverty level wasn't going to play a part in whether or not I was an actor. That's what I do.
+- Every bowling center should have a house pro.
+- Even though some of the films I've made haven't been particularly commercial, I don't find them failures.
+- The most aggressive artists often hide their romantic side.
+- Being with all those great bowlers was the greatest three days I ever had.
+- Let me just say, I've seen a pub or two.
+- I consider myself an artist. God granted me some gifts so that I could express myself artistically.
+- I'm just a simple guy swimming in a sea of sharks.
+- My sons are a hell of a lot easier to get through to than my daughter is. She seems to have my number. She can just run through the buttons.
+- I've had some ambivalent feelings about being an actor. I don't know that I've ever been totally and completely comfortable with it.

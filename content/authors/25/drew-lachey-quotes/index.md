@@ -1,0 +1,17 @@
++++
+author = "Drew Lachey"
+title = "Drew Lachey Quotes"
+quotes_len = "11"
+description = "the best 11 Drew Lachey Quotes"
++++
+- I don't know how many 78-year-olds are listening to 98 Degrees music.
+- Love your kid as much as you possibly can, and do what you need to do for your family because my situation and what I do for my kid may not work for you.
+- I have this blanket thing about giving parenting advice to parents, and that's: 'Don't take other people's advice on parenting.'
+- With families, your priorities shift. You're not going to be like, 'Let's go out on tour year-round.' I have kids in school. You have to lay things out.
+- Mary Hart says she meant to stay on 'Entertainment Tonight' for three years. She was on for 29.
+- I was a wallflower when I was younger, and at a young age, I was too embarrassed. So I didn't start dancing until around 20, and obviously when you're in a boy band, you kinda have to.
+- Once you step on that stage, to me, that's where I feel most comfortable - performing live. So that's something would do each and every day of my life if I could.
+- My dad wouldn't even start the car until he heard the click of every seat belt.
+- I'm trying to be the best father and take care of my kids.
+- Some secrets are meant to be taken to the grave, and that's what I plan on doing with all mine. They're not necessarily my secrets to tell. I'm the gatekeeper of other people's secrets.
+- I teach musical theater three days a week at the school that my wife and I graduated from.

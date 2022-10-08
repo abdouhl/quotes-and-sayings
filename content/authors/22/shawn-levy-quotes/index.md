@@ -1,0 +1,22 @@
++++
+author = "Shawn Levy"
+title = "Shawn Levy Quotes"
+quotes_len = "16"
+description = "the best 16 Shawn Levy Quotes"
++++
+- I don't know if it's that my own childhood felt brief, or I grew up too fast, or I was pushing myself too much at a young age, but I do feel like I am clinging to a certain childlike quality in myself, as a result of a childhood that was sometimes complicated.
+- I live my life pretty emotionally, for better and for worse. I'm pretty thin-skinned and transparent. I lead with my heart, and I wanted to make a movie that did the same.
+- Whatever it takes, the job of the director is to be the leader and to get your actors where they need to go. That's a philosophy that I have.
+- To connect with the characters, you need to connect with the world. If the world feels vaguely familiar, I believe the characters will feel relatable.
+- I just think that sports movies have such a built-in visceral, rooting interest, an epic win or lose redemptive quality. When they get it right, it can make for a really rousing movie experience.
+- It's no coincidence that 'Night at the Museum' completely blew the lid off my career. I finally got a handle on tone.
+- If it was going to be unique, if you're going to make a robot movie in 2011... it had to be different, and it had to be about more than its machines and more than its action.
+- I never set out to build some behemoth comedy career. My taste in movies is far more eclectic than that so my aspirations as a filmmaker are far more eclectic than that.
+- You don't service a big, fun premise comedy and then shoot yourself in the foot with too much irony. You need the audience to invest in the fun and the warmth and generally care about the characters.
+- Many comedic stars have tried to a do a 'Night at the Museum' type film, in which an everyday Joe reacts to insane circumstances. Many flat out failed.
+- Why hire these geniuses if they're forced to stick with the script? You want to empower your actors as collaborators.
+- When you do a drama, you are challenged to trust your inner voice much more. Because when you put a comedy in front of even a 25-person screening, you know whether it's working or not. The barometer is overt.
+- Certainly in my appetite for more challenges, it's very much alive. I love comedy and it comes to me in a natural way.
+- In all my movies, there's always a kind of heartfelt element, to be able to do a drama and to be able to spend more time in the emotional stuff with no pressure to get back to the funny that's very liberating for me.
+- Even when I was a kid, I had a good thing with kids. To this day, if I go to a birthday party with one of my kids, I swear to you, I am so much happier hanging out with my kids and their friends than talking to the grown-ups.
+- I learned first of all not to be intimidated by any visual effects that I don't understand. It can all be learned. You can then use them as tools to tell your story. I also learned that you have to be really vigilant, the more complex the movie, to not lose yourself and to not lose sight of the priority.

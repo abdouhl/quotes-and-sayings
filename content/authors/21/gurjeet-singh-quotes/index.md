@@ -1,0 +1,23 @@
++++
+author = "Gurjeet Singh"
+title = "Gurjeet Singh Quotes"
+quotes_len = "17"
+description = "the best 17 Gurjeet Singh Quotes"
++++
+- Data is cost. It takes money to create data, store it, clean it, and throw resources at it to learn anything from it.
+- My mission is to bring the power of big data insights and analytics to every company.
+- We don't use the term 'big data' - not on our website, not with customers. Saying it sets up expectations, the wrong expectations.
+- The number of queries in a large dataset is exponential, and it's growing exponentially. No matter how fast you make your system, you're never going to be able to get all that information.
+- People believe the best way to learn from the data is to have a hypothesis and then go check it, but the data is so complex that someone who is working with a data set will not know the most significant things to ask. That's a huge problem.
+- Technologies like Ayasdi's exist now to automatically discover information from data without having someone making guesses up front.
+- If you know people with Type 2 diabetes, there's a high likelihood they will have different medication regimes and different lifestyle options. When we label all these various types as the same thing, we treat them the same way, and they should not be treated the same way.
+- The biggest challenge in big data today is asking the right questions of data. There are so many questions to ask that you don't have the time to ask them all, so it doesn't even make sense to think about where to start your analysis.
+- The power of Ayasdi is its unique ability to automatically discover insights - regardless of complexity - without asking questions.
+- The answers to today's most important scientific, business, and social problems lie in data.
+- Ayasdi's customers can finally learn the answers to questions that they didn't know to ask in the first place.
+- To learn something from your data, the forming of a hypothesis lies with the human being, which turns into a query, which becomes a result. The problem is that there are too many queries to make, too many questions to ask.
+- Every company today is a data company whether they realize it or not.
+- I'm going to say something rather controversial. Big data, as people understand it today, is just a bigger version of small data. Fundamentally, what we're doing with data has not changed; there's just more of it.
+- The world is looking for big data scientists, and there just aren't enough to go around.
+- I lived in fear that other engineers would stop me in the street and ask me a math question, and I wouldn't know the answer.
+- For me, the most exciting aspect of my success is how the insights that Ayasdi's technology has found in data can truly impact people's lives.

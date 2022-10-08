@@ -1,0 +1,39 @@
++++
+author = "Peter Schiff"
+title = "Peter Schiff Quotes"
+quotes_len = "33"
+description = "the best 33 Peter Schiff Quotes"
++++
+- The left-wing agenda wants us to think that the reason there was a depression was because the government didn't do anything. That's not true.
+- The Fed is the biggest enemy of this economy. In fact, Ben Bernanke, as far as I'm concerned, he's public enemy No. 1. We're never going to have a recovery while this guy's in charge.
+- At some point, the dollar has to give. You can't just keep printing money, and monetizing debt, and buying bonds, without the dollar imploding.
+- The market needs to set prices, including interest rates and allocate resources. If it were up to me, we would abolish the Fed and return to the gold standard. Absent that, the Fed should be completely removed from the political sphere, its dual mandate replaced by a single mission to provide the nation with sound money.
+- My investment advice is rooted in my understanding of economics.
+- In a free market, businesses compete for customers by keeping prices down and for labor by keeping wages up.
+- When the dollar collapses, it's not doing it in a vacuum. If the dollar loses value, it's doing so relative to some other currency. So the purchasing power that we lose, somebody else gets.
+- We had a very upwardly mobile economy, and that peaked around the 1950s when the typical middle-class American family consisted of a father with a job and stay-at-home mom who took care of the kids.
+- Gold has worked for thousands of years, but now with the Internet, it works even better.
+- I don't want the technology of the 1950s, but I want the free market of the 1950s.
+- When Trump was a candidate, he talked about the stock market, because, oh, the stock market was going up when Obama was president.
+- One day we're going to look back at $1,700 with nostalgia. People are going to be shocked at how inexpensive gold was when it could be snapped up for such a bargain price.
+- The only thing I can do with my bitcoin is give it to somebody else.
+- You don't help the economy by spending money.
+- Gold has intrinsic value. The problem with the dollar is it has no intrinsic value. And if the Federal Reserve is going to spend trillions of them to buy up all these bad mortgages and all other kinds of bad debt, the dollar is going to lose all of its value. Gold will store its value, and you'll always be able to buy more food with your gold.
+- To get great again, we need to recreate what made us great in the first place, and so we're going to have to let interest rates go up.
+- The one place that bitcoins seem to be used as money is in crime.
+- My mother always taught me that two wrongs don't make a right. We shouldn't bail out Wall Street. We shouldn't bail out Detroit. It will cost the economy more than the cost of the bailout which is more than the politicians think. We'll run into the hundred of millions to prop these companies up.
+- That's what's really bothering me about Trump is the hypocrisy, because when Trump was a candidate, and he got elected - because, by and large, he told the truth about the phony nature of the recovery.
+- The middle class today would be poor by the standards of the 1950s. Today, with two people working, they would still live paycheck to paycheck.
+- The American middle class used to be envy of the world. It was a byproduct of economic freedom. We had a very dynamic free-market economy and limited government. People were out there pursuing their own self-interest and creating employment opportunities.
+- What got us out of the depression was capitalism, and we would have gotten out a lot quicker had the government not intervened.
+- The government can't create jobs; they'll destroy jobs trying to do it. The government doesn't have any money; all they have is a printing press. We need to free markets to create jobs; if the government wants to help, they should reduce their burden on the economy.
+- Every time the market has corrected, since 2008, it's always been the Fed that's made the bottom. The Fed has always saved the market either by cutting rates, launching QE, or threatening to launch another round of QE.
+- People should have an escape valve for their money, their assets. If you have substantial financial assets, the government is going to confiscate the purchasing power of those assets and spend it.
+- Wall Street is in trouble because Main Street is broke.
+- There is no such thing as agflation. Rising commodity prices, or increases in any prices, do not cause inflation. Inflation is what causes prices to rise. Of course, in market economies, prices for individual goods and services rise and fall based on changes in supply and demand, but it is only through inflation that prices rise in aggregate.
+- Trade deficits are OK under certain circumstance. 1. An emerging nation imports capital goods necessary to enhance its productivity. 2. A developed nation, with a current account surplus, uses some of its investment income to finance the purchases of additional consumer goods from abroad.
+- I would say to people of a libertarian conservative position on an issue, do not do a taped interview. You're going to come out looking really bad. No matter what you say, no matter how eloquently you answer a question, your answer is not going to be what you said.
+- Gold actually has properties - you can use gold for all sorts of things. People value gold for the metal. Nobody values bitcoin for the bitcoin; they value it because they believe that they can exchange it for something else.
+- Wal-Mart creates entry level jobs for people who don't have a lot of skills; those jobs don't pay a lot.
+- Remember 'The Brady Bunch' TV show? That 1970s family had a full-time live-in housekeeper called Alice. Mrs. Brady worked at the PTA and did community work. She didn't clean her own house. That was middle class. Now you have to be very rich to employ a housekeeper. Everything it meant to be middle class has changed dramatically.
+- Greed is normally balanced by fear.

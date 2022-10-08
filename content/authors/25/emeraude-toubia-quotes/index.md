@@ -1,0 +1,24 @@
++++
+author = "Emeraude Toubia"
+title = "Emeraude Toubia Quotes"
+quotes_len = "18"
+description = "the best 18 Emeraude Toubia Quotes"
++++
+- Everything that comes your way is to learn - I definitely feel that.
+- I love doing fight scenes. I've been a dancer since I was 3 years old, so I think that helped me with the movements.
+- In my closet, you'd find five black shirts that look the same, 10 pairs of the same white pants, and five pairs of almost the exact same shoe. Every time I go out, I buy shoes that are very similar to my other shoes - it's a problem.
+- I love to shop at BCBG, because it's classy and elegant but a little bit sexy. It fits who I am in one store.
+- Being Latina, I'm super close with my family. I love them, and I love spending time with them. I love being at my grandma's house and eating her food.
+- I was doing telenovelas in Miami and Mexico, and everyone's dream when you're an actor is to be in Hollywood.
+- When I was young, I wanted to be the face of a makeup campaign or a hair campaign, so that's something that I've always dreamed of that hopefully comes along. And then obviously starring with Ryan Gosling in a movie wouldn't be so bad, either.
+- I did a lot of dancing when I was young.
+- I like to surround myself with people that have dreams and that fight for them every day.
+- Fighting is kind of like choreography. It's not just get in there and punching someone: you have to have choreography. Someone is going to hit high; someone is going to hit at the bottom.
+- Dominic Sherwood would always tell me a joke right before it was my take or my close up. He'd say a funny joke, and I couldn't stop laughing, even after they said, 'Action.'
+- I'm very close to my parents and my grandma.
+- I don't go up to guys. I'm all about a guy sending me flowers, getting me chocolates and surprising me.
+- I'm actually not a big coffee fan, so I don't drink it that much. I'd rather have a green tea. But I do love to get a white mocha sometimes - it is just a strong order.
+- It's nice to be able to do more and to always challenge myself.
+- I try to be the best version of me that I can be, whether it's acting or on a personal level.
+- I think everything you do in life is a learning experience.
+- I remember in middle school and high school being so concerned with what everybody else thought. I was trying to be someone I wasn't. I wish I could've just let it slide and not cared about it.

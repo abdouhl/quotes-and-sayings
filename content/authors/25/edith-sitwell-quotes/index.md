@@ -1,0 +1,22 @@
++++
+author = "Edith Sitwell"
+title = "Edith Sitwell Quotes"
+quotes_len = "16"
+description = "the best 16 Edith Sitwell Quotes"
++++
+- I have often wished I had time to cultivate modesty... but I am too busy thinking about myself.
+- I wish the government would put a tax on pianos for the incompetent.
+- The poet speaks to all men of that other life of theirs that they have smothered and forgotten.
+- A great many people now reading and writing would be better employed keeping rabbits.
+- Still falls the rain - dark as the world of man, black as our loss - blind as the nineteen hundred and forty nails upon the Cross.
+- I am patient with stupidity but not with those who are proud of it.
+- Good taste is the worst vice ever invented.
+- The public will believe anything, so long as it is not founded on truth.
+- I am one of those unhappy persons who inspire bores to the greatest flights of art.
+- The aim of flattery is to soothe and encourage us by assuring us of the truth of an opinion we have already formed about ourselves.
+- I have taken this step because I want the discipline, the fire and the authority of the Church. I am hopelessly unworthy of it, but I hope to become worthy.
+- Poetry is the deification of reality.
+- The trouble with most Englishwomen is that they will dress as if they had been a mouse in a previous incarnation they do not want to attract attention.
+- I am an unpopular electric eel in a pool of catfish.
+- Hot water is my native element. I was in it as a baby, and I have never seemed to get out of it ever since.
+- My personal hobbies are reading, listening to music, and silence.

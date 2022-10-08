@@ -1,0 +1,66 @@
++++
+author = "John Kenneth Galbraith"
+title = "John Kenneth Galbraith Quotes"
+quotes_len = "60"
+description = "the best 60 John Kenneth Galbraith Quotes"
++++
+- People who are in a fortunate position always attribute virtue to what makes them so happy.
+- The modern conservative is engaged in one of man's oldest exercises in moral philosophy; that is, the search for a superior moral justification for selfishness.
+- Politics is not the art of the possible. It consists in choosing between the disastrous and the unpalatable.
+- In economics, the majority is always wrong.
+- We can safely abandon the doctrine of the eighties, namely that the rich were not working because they had too little money, the poor because they had much.
+- The great dialectic in our time is not, as anciently and by some still supposed, between capital and labor; it is between economic enterprise and the state.
+- The salary of the chief executive of a large corporation is not a market award for achievement. It is frequently in the nature of a warm personal gesture by the individual to himself.
+- The enemy of the conventional wisdom is not ideas but the march of events.
+- By all but the pathologically romantic, it is now recognized that this is not the age of the small man.
+- All successful revolutions are the kicking in of a rotten door.
+- If wrinkles must be written upon our brows, let them not be written upon the heart. The spirit should never grow old.
+- All of the great leaders have had one characteristic in common: it was the willingness to confront unequivocally the major anxiety of their people in their time. This, and not much else, is the essence of leadership.
+- We all agree that pessimism is a mark of superior intellect.
+- A person buying ordinary products in a supermarket is in touch with his deepest emotions.
+- Few can believe that suffering, especially by others, is in vain. Anything that is disagreeable must surely have beneficial economic effects.
+- Modesty is a vastly overrated virtue.
+- Liberalism is, I think, resurgent. One reason is that more and more people are so painfully aware of the alternative.
+- Meetings are indispensable when you don't want to do anything.
+- It is a far, far better thing to have a firm anchor in nonsense than to put out on the troubled seas of thought.
+- The commencement speech is not, I think, a wholly satisfactory manifestation of our culture.
+- Wealth, in even the most improbable cases, manages to convey the aspect of intelligence.
+- Wealth is not without its advantages and the case to the contrary, although it has often been made, has never proved widely persuasive.
+- More die in the United States of too much food than of too little.
+- War remains the decisive human failure.
+- Economics is extremely useful as a form of employment for economists.
+- In all life one should comfort the afflicted, but verily, also, one should afflict the comfortable, and especially when they are comfortably, contentedly, even happily wrong.
+- You will find that the State is the kind of organization which, though it does big things badly, does small things badly, too.
+- The Metropolis should have been aborted long before it became New York, London or Tokyo.
+- Total physical and mental inertia are highly agreeable, much more so than we allow ourselves to imagine. A beach not only permits such inertia but enforces it, thus neatly eliminating all problems of guilt. It is now the only place in our overly active world that does.
+- In the choice between changing ones mind and proving there's no need to do so, most people get busy on the proof.
+- The conspicuously wealthy turn up urging the character building values of the privation of the poor.
+- Much literary criticism comes from people for whom extreme specialization is a cover for either grave cerebral inadequacy or terminal laziness, the latter being a much cherished aspect of academic freedom.
+- Of all classes the rich are the most noticed and the least studied.
+- The only function of economic forecasting is to make astrology look respectable.
+- Power is not something that can be assumed or discarded at will like underwear.
+- Faced with the choice between changing one's mind and proving that there is no need to do so, almost everyone gets busy on the proof.
+- Meetings are a great trap. Soon you find yourself trying to get agreement and then the people who disagree come to think they have a right to be persuaded. However, they are indispensable when you don't want to do anything.
+- Money differs from an automobile or mistress in being equally important to those who have it and those who do not.
+- It has been the acknowledged right of every Marxist scholar to read into Marx the particular meaning that he himself prefers and to treat all others with indignation.
+- There is something wonderful in seeing a wrong-headed majority assailed by truth.
+- In the United States, though power corrupts, the expectation of power paralyzes.
+- A bad book is the worse that it cannot repent. It has not been the devil's policy to keep the masses of mankind in ignorance; but finding that they will read, he is doing all in his power to poison their books.
+- Nothing is so admirable in politics as a short memory.
+- In any great organization it is far, far safer to be wrong with the majority than to be right alone.
+- Few people at the beginning of the nineteenth century needed an adman to tell them what they wanted.
+- There are times in politics when you must be on the right side and lose.
+- There's a certain part of the contented majority who love anybody who is worth a billion dollars.
+- One of the greatest pieces of economic wisdom is to know what you do not know.
+- There is certainly no absolute standard of beauty. That precisely is what makes its pursuit so interesting.
+- Politics is the art of choosing between the disastrous and the unpalatable.
+- It would be foolish to suggest that government is a good custodian of aesthetic goals. But, there is no alternative to the state.
+- Under capitalism, man exploits man. Under communism, it's just the opposite.
+- The process by which banks create money is so simple that the mind is repelled.
+- There are few ironclad rules of diplomacy but to one there is no exception. When an official reports that talks were useful, it can safely be concluded that nothing was accomplished.
+- Humor is richly rewarding to the person who employs it. It has some value in gaining and holding attention, but it has no persuasive value at all.
+- Economics is a subject profoundly conducive to cliche, resonant with boredom. On few topics is an American audience so practiced in turning off its ears and minds. And none can say that the response is ill advised.
+- We have escapist fiction, so why not escapist biography?
+- If all else fails, immortality can always be assured by spectacular error.
+- The conventional view serves to protect us from the painful job of thinking.
+- In economics, hope and faith coexist with great scientific pretension and also a deep desire for respectability.

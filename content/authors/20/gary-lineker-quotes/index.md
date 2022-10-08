@@ -1,0 +1,130 @@
++++
+author = "Gary Lineker"
+title = "Gary Lineker Quotes"
+quotes_len = "124"
+description = "the best 124 Gary Lineker Quotes"
++++
+- In terms of the pricing of football tickets, there's no need - given the massive amount of money that's coming in now from television rights, there's no need for them to be greedy. Look after the supporters; make sure they can still afford to go and watch football.
+- This whole science thing of working out if players are a little bit tired just gives you an excuse to leave them out.
+- It's true: a lot of sportspeople really struggle to find something to do when they finish. It tips them into all sorts of strange things. With ex-footballers, it's really scary. I think 70% of them get divorced within five years. It's hard. You go from being really famous to not that famous. Your salary drops through the floor.
+- Football is losing its heart and sense of humour.
+- My eldest son George had acute myeloid leukaemia when he was a tiny baby, he is now 20 and doing very well. He is a mini-miracle in many ways.
+- I was quite good at football once, although other than that my speciality would be maths. I'm great at sudokus and find all the spin-off games pretty easy too.
+- This whole 'tired footballers' and three-games-a-week thing is an absolute myth.
+- Personal records are not what football is all about, but as goalscorers, we live and die by figures and numbers because, ultimately, that's how people will judge you.
+- The World Cup is every four years, so it's going to be a perennial problem.
+- In the time I spent with him, Jurgen Klopp was enigmatic, larger than life, and extremely quick-witted. He is quite unique as a football manager in many ways, and that is what makes him so entertaining.
+- I've had hundreds of requests from journalists all over the world asking me to speak about Leicester, which is astonishing. It's captured the imagination.
+- When I see old photos of me on the beach I don't look too bad... but it's hard trying to breathe in for such a long time when I spot the photographers!
+- We are in the entertainment business and we all know if you are top of the tree you get the big money. Those of us who have been in it are the fortunate ones but we understand that we probably don't deserve it as much as the nurses or teachers.
+- I'm in good shape.
+- The possibility that a provincial town could win the League completely bucks the trend.
+- People are possibly not spelling 'Leicester' correctly everywhere round the globe, but they are at least saying it correctly now.
+- The way children are taught football doesn't encourage skill; the focus is on other areas.
+- I know I am extraordinarily lucky to be doing what I am doing. I have worked hard along the way and I have been blessed too. I have had a great life.
+- I think the important thing we have to remember about football in this country is that it is very vibrant, and it's very good to watch, not only in the flesh but also on TV, because our stadiums are full.
+- Playing football and presenting TV are totally different things, but there are similarities: it's exciting, it can go well, it can go badly... the difference is when presenting goes badly, it doesn't really affect anyone's life, whereas when you have a bad day on the pitch, it affects people's moods for a whole week.
+- I've now been in over 100 adverts for Walkers, and we've had a lot of laughs along the way.
+- That's what being a footballer is, really: you train at this time, you finish at that time, then you do that, then you go home, then you're not allowed out, then you do this... there comes a point in your career - about thirty, thirty-one - when you get a bit sick of being screamed at.
+- We are living in difficult times. There are a lot of people out of work - am I going to stand there and whinge? No, because I am lucky to have such a wonderful job.
+- I try to avoid saying 'fantastic' too often and 'obviously' is a dangerous word for all broadcasters.
+- World Cups can be career-defining.
+- That's one of the magical things about the Olympics, Team GB will have someone challenging in a sport that we've never watched and all of a sudden it'll be the biggest thing ever.
+- In all sports, people get competitive; things happen that shouldn't happen.
+- I'm disappearing from twitter for a while. Need a break from the bile. Local prejudice just seems to bring out the worst in some people.
+- Football's the big cheese, if you like. It's easy to have a swipe. There's a lot of footballers, and when they fall foul, they become big news.
+- I've only got a Saturday job so my weekdays are generally pretty free.
+- Being called Gary. It's a crap name. I wish I'd been called by my middle name, Winston.
+- I can't understand why someone wouldn't have a degree of sympathy for people that had to flee their country, travel to try and find their home somewhere, and nobody wants them. How could you not be a little bit sympathetic?
+- I think people come and go, 'I'm going to find the real Gary. What is it... the real Gary? I've got to find it.' But the thing is, it's pretty much what you see is what you get. I'm just like this. There's no hidden viciousness.
+- We do not want to alienate supporters.
+- As footballers, you just grow up with people from different backgrounds and different colors of skin.
+- In terms of aesthetics, I probably look better than I did when I played.
+- I've been in the public eye so long, I can't remember how it was when it was different - from my mid-20s onwards, when my career started to blossom and I became an international, world cups and things.
+- I'm more of a 5 Live man. But I might listen to a bit of Coldplay or The Smiths.
+- I think I'm expected to behave in a certain manner.
+- I know I could never be in a pop band. I honestly have an appalling voice.
+- We have got too many kids around the house to have a romantic meal at home. But Danielle is a fantastic cook. She does a brilliant lasagne, great roasts and a great chilli dish. She knows the way to my heart.
+- Basically, Walkers are putting real produce into their flavours, so the cheese and onion flavour is actually cheese and onion rather than just flavourings.
+- I watched Leicester City lose in the 1969 FA Cup final with my dad and granddad when I was eight and cried all the way home. I have seen them get promoted and relegated. I played for them for eight years. I even got a group of like-minded fans and friends to stump up a few quid to salvage the club when they went into liquidation.
+- Ooh, it's too embarrassing to share my innermost romantic secrets - although I have written Danielle the odd poem. If anything they are more comedic than romantic. They used to be well-received but that was before she started studying Shakespeare at drama college. Now I feel so inept.
+- We're all concerned about sports rights being so expensive. Obviously, we are funded by the licence fee payers, so it's not always easy to compete with those who can get greater revenue.
+- If you are at the top in entertainment, you earn money that you can never justify to ordinary people doing proper jobs. You can't.
+- In terms of politics, I just look at people's policies, and sometimes I agree with something, sometimes I won't.
+- When Bob Wilson left the BBC for ITV, I got the 'Football Focus' job, and it went from there. It came completely out of the blue, but the fact I had a high profile certainly helped.
+- If somebody in the crowd spits at you, you've got to swallow it.
+- This is ludicrous. Seven- and eight-year-olds valiantly trying to cover the same acreage as those grown-up chaps in the Premier League is absurd. To add to the lunacy, a little goalkeeper, barely out of nappies, has to stand between posts that are eight strides apart - adult strides - and under a crossbar more than twice his height.
+- I don't think there was a definite day, but it would have been around my mid-20s. I was always interested in the media side of things. When we travelled with England away, or to World Cups, I used to sit with journos while they wrote their copy.
+- Kids are learning to play. That's why we're seeing an emergence. That's why we're seeing the Under-17s and Under-20s doing better in international football.
+- People are fed up with the way things are. There is a lot of bitterness out there, a lot of anger about a lack of jobs and concerns for the next generation.
+- I know people think that a lot of sports stars are a little bit up themselves, but they all have their heroes, too.
+- My wife Danielle and I love travelling, different cultures and good weather.
+- Not many players would turn down a chance to play for Real Madrid and Barcelona, as they're right at the top the tree in terms of football.
+- I've got about 5 million followers on Twitter, and if I tweet anything, there will be faux outrage.
+- You cannot get involved in debate on 'MOTD'. You can do it on Sky because they've got hours and hours. We've got a couple of minutes. It's a very disciplined show. Our primary purpose is to show the action, and the analysis is very secondary. We have lots of people who would prefer no analysis. We have lots of people who would prefer more analysis.
+- In this country, since footballs made from pigs' bladders were whacked into goals without nets, we've played on full-size pitches. Whatever our age.
+- The truth is I don't feel too bad for my age. I actually have a better shape now than I used to.
+- The competitive nature of most mums and dads is astounding. The fear they instil in our promising but sensitive Johnny is utterly depressing. We need a parental cultural revolution.
+- Must say though, I'm rather chuffed to have been called a 'luvvie'.
+- Our games are not always the best, but they are exciting, which is what people love to see.
+- Fundamentally, footballers don't look around a dressing room and think, 'He's a black player... he's Japanese.' They don't think like that. They think, 'He's a good player; he can help. He's not very good.' I'm not trying to defend anyone's actions, but there are going to be isolated incidents because it's an emotive, passionate sport.
+- Ferrari or Lamborghini. Never fancied one of those - too flash for me. I don't really like seeking too much attention.
+- The E.U. has its weaknesses, but it's been pretty good for us, and it's been pretty good for Europe, and it's kept peace.
+- You never know how long a player has left, especially with strikers. Once you turn 30, as a striker, you are usually on the way down, and playing from the age of 16, at such a high level, has to take its toll.
+- I've quite often written tweets that I think are across that line, but I just delete them.
+- Most clubs would actually like homegrown players because they're a lot cheaper.
+- Ultimately, if we can develop enough players, the balance of foreign players isn't great, but that's because we're not producing enough players.
+- Looking at the way the game is played, I'm envious of the conditions. We played on some ropey World Cup surfaces. I genuinely never look back and wish I earned the money they do today, but I do think of that element.
+- It's nice to have the power of Twitter to correct things that were incorrect.
+- Some players are quite homely, and they don't see themselves going abroad; others would relish the challenge. I can only speak personally, but I always wanted the challenge, and to go and live in a place like Barcelona was great.
+- I wouldn't want to go out six nights a week and watch somebody's reserves playing to check out a footballer to see if we're going to buy him.
+- When I retired in 1994, I was never tempted to drop down the divisions to carry on playing. In fact, I never kicked a ball again, not even in a charity match.
+- I don't feel that I'm particularly political. I'm interested in politics; I'll express my view if I feel strongly about something, but humanitarian issues, I think, are slightly different.
+- Are people like Tom Cruise in touch with their public? I doubt it. Footballers are more like the rock stars of yester-year: they are box office.
+- The train's always full of football fans going up to see matches. Oh, they make sure I hear their points of view all right. They all want to have their say about their team, and make their opinions known.
+- You've got no chance of reaching the top if you're just playing for money.
+- On TV, if you fluff your lines, nobody gives a toss. But if you fluff a penalty in the World Cup, well - we all know how much that matters.
+- I was only interested in scoring goals. I wasn't interested in anything else.
+- It's really hard for kids nowadays: you can get a decent education, but there are no jobs out there. You worry about how they are ever going to afford to live anywhere.
+- I'm not that moody. I don't have big ups and downs.
+- Twitter has been a godsend for travelling.
+- I've heard things said on football pitches that players clearly don't mean, whether it's racism or just an abusive comment in the heat of the moment.
+- The only way to get to the other end of the pitch is to belt it and then belt it again.
+- The treatment by some towards these young refugees is hideously racist and utterly heartless. What's happening to our country?
+- I've known Mark Hughes for half a lifetime. We joined Barcelona in the same summer of 1986, played together under Terry Venables and Luis Aragones, and have kept in touch ever since.
+- In any other corporation, if there was so many things that were found to be corrupt, then the man at the top would go - but that doesn't seem to be the case with FIFA.
+- Feel ashamed of my generation. We've let down our children and their children.
+- Most of my best games were when I felt crap - I could hardly move on the morning of the World Cup semi-final in 1990 - but there's a thing called adrenaline that gets you through.
+- I think if I'd ever had any skeletons in the closet, they'd have been out a long time ago.
+- A couple of defeats, and you are gone - that's the danger of World Cups.
+- It would be more weird if people didn't stare at me or shout at me.
+- There is Twitter outrage at everything. Be it a pair of trousers or a short skirt, somebody, somewhere, will not like it.
+- Football matters so much to people, and they get very defensive - or angry.
+- People have no idea how hard football is, absolutely no idea. It's all about pace. You can say, 'Yeah, you've got speed of thought' - but you've got to have a little bit of a zip.
+- When you're winning games, everyone thinks everything the manager says and does is fantastic. Then it goes the other way, and those earlier criticisms of players can backfire.
+- I try very hard to be bad, but people never take me seriously.
+- The two centre-backs, Rob Huth and Wes Morgan, are in many ways journeyman pros, but they have that wonderful attitude and never-say-die spirit that has culminated in them being top of the league.
+- People make mistakes. They say stupid things.
+- My fiancee's brother-in-law was recently paralysed in an accident and it really brought home the fact that thousands of young people live with spinal injuries. It's an issue I wish had more coverage.
+- We almost need a revolution in the culture of our thinking about football.
+- Presenting football is something that I love to do. I'm very fortunate being able to do one of the BBC's flagship shows.
+- It would be a great adventure for Leicester to be in the Champions League.
+- We are in the the entertainment business, and we all know if you are top of the tree, you get big money.
+- I remember Nayim at Tottenham dived all over the place, and we used to say to him, 'What are you doing?' You do talk about it.
+- Twitter is an amazing thing; it brings footballers closer to the fans because so many of them are on there. I was cynical about it to begin with, but I have been converted.
+- Football is a simple game. Twenty-two men chase a ball for 90 minutes and at the end, the Germans always win.
+- If I hadn't have been good enough at football, I'd have been a sports journalist - which is what I do now anyway. Or a cricketer. I might have been a cricketer.
+- I just think to be a manager you've got to live and breathe and have this incredible enthusiasm for football, the whole thing. And while I love the game, and it's been a large part of my life, it's not the only thing in my life.
+- In the old days, you had an audience of about 400, half of whom were committee members from somewhere or other sitting in their suits. It's become a real sports event with sports fans now.
+- The Leicester story is great for the game in England. It's great for the appreciation of the Premier League.
+- The best, most successful managers in the modern era are those who can keep a player happy even if he is not in the team. Given the size of the squads and the use of rotation nowadays, that's tougher than it's ever been.
+- In my day, I wasn't the best footballer, but I was the best goalscorer for two or three years.
+- The whole kiss-and-tell thing is a negative approach that often happens in a World Cup. We will see negative stories about the players and it can affect their confidence and the overall performance of the national team on the pitch, let alone the bid to actually stage the competition.
+- What you learn is that you can't please everyone all the time.
+- It's only a matter of time before the English clubs become a lot more competitive in Europe, if not dominant, because our league is, by far, the richest league in the world.
+- I hear it all the time in the street: 'It's the crisp bloke.'
+- I am not leaving twitter. If the mindless few defeat the thoughtful majority we are all doomed.
+- I sort of fall apart in terms of stamina after about 25 minutes!
+- Diving is a really, really difficult one because a player is the only one who genuinely knows whether they have dived. You can look at it at 40 different angles and not know. And you can just fall over, too.
+- I think medically, football is generally well looked after. There are always checks made. Anything which can be done to make footballers or sportsmen of any area safer has to be encouraged.
+- I generally have a brand of brief on every day.

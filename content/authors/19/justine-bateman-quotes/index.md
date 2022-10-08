@@ -1,0 +1,75 @@
++++
+author = "Justine Bateman"
+title = "Justine Bateman Quotes"
+quotes_len = "69"
+description = "the best 69 Justine Bateman Quotes"
++++
+- I put my name into the Google search bar. Justine Bateman... And the auto-complete comes up. The auto-complete says that the top option is, 'Justine Bateman looks old.'
+- If my kids were to make a talking doll of me as a mother, one of my recorded phrases would be 'I will throw that in the trash.' 'If you don't put that down right now, I will throw that in the trash.' It's very funny to hear myself say certain things - like noticing which phrases become the most popular to use.
+- You can't really fault people who are experiencing fame. They're just making their way through, and everybody around them is reflecting this fame right back at them. It's strange.
+- I think Kathie Lee Gifford had a line at Wal-mart, and Monica Lewinsky had a line of handbags.
+- There's a panic, a rush, to this 'achievement' of fame. There's also the ambivalence of fame: the love of it and the hatred of it. We sometimes hate the famous while, at the same time, straining to achieve fame oneself.
+- I'm going to be in another city when my kids are teenagers. I'll be like, 'Give me a call when you're done with all that.'
+- A liberated Internet will continue to be a reality in your life (and in the lives of your children) if rules like Net Neutrality are in place.
+- Don't feel bad if you never 'get famous.' Don't freak out if you have less than 300 Twitter followers.
+- I've never liked spending a lot of time on beauty stuff. I have two eye pencils that I use, and that's it.
+- Maybe for every 100 fans who thought about saying something nasty to singer Justin Bieber this month, maybe 200 did.
+- With computer science, I had to go through that uncomfortable process of my brain establishing a hash table, if you will - the coders will get that - for this new information, because I didn't have one. So I had to establish a brand-new file system from scratch.
+- I love having first-time experiences. When you're past the age of 20 or so, there are less and less first-time experiences.
+- There's an awful lot of choices in the world as far as what one can do for a living. It's best to be familiar with as many sectors of the working world as you can be so you'll be better at your creative job anyway.
+- Somewhere along the way, we made it unpopular to value oneself outside the structure of fame. We created these new categories, even - reality stars, YouTube stars, Instagram-famous, Twitter-famous - when we enlarged the fame game board to allow new valuations within the fame structure to accommodate as many people as possible.
+- Pursuing fame is the ultimate in people-pleasing and the ultimate betrayal of self.
+- I didn't understand that I couldn't just leave and become sort of a semi-regular. I had to be sat down by the line producer, Carol Himes, in my dressing room and told, 'I hear you're thinking about going to college.'
+- I like to go dancing, have a few beers. I like being alone, too. I have days where it's 'God, get me a shot of tequila.'
+- There's an attention paid to the fame - the sort of sheath that's on you, this sort of cloud that's covering over you - and that's what people want to touch. It's not even really you that they want to touch.
+- I already knew that I wanted to be involved in something that combined management and coding, so I wasn't coding all the time. And I don't want to be in a management position, where that's all I'm doing, and I'm not able to participate in the creation of the technology.
+- Net Neutrality is what makes the Internet so great - and so vital for innovation and creativity.
+- The rule was, the kids in this agency had to do 15 commercials or something before they sent them out on a theatrical audition, for a television show. And I had only done two commercials.
+- That first CS class I took, I felt like I was drowning. It's like being taught how to swim by being thrown off deck. The continual self-talk that I have had with myself while I've been here is, pull yourself together and get this done.
+- My Vikings class was super fun, and I have loved the computer science classes. Coding, for me, is like a boyfriend that makes you really upset, and then you can't get enough of him.
+- At 16, 19, 20, you're just kinda going along with whatever's happening. You're not as proactive as you become when you're older. And particularly, something like fame that's happening so quickly - the requests are coming so quickly for you to do interviews or photo shoots, or you're getting work opportunities or whatever, it's happening so fast.
+- I'm not saying I'm ungrateful for fame at all. I'm just saying it's a crazy emotional experience.
+- I think when I graduated from my high school in '84, they were just bringing computers in. I don't even know if they were for classes. They might have just been for the administration. It was nowhere on the radar for anybody that I know.
+- I absolutely love '30 Rock' and 'The Office,' but I don't know how many 13-year-olds are watching that stuff.
+- I think aging and maturing is really interesting, and it's a shame that Americans are so panicky and paranoid about it.
+- I needed a concept of God that worked for me, and I wound up giving my life to Jesus Christ. I thought I was always going to have to wear skirts over my knees, not be able to listen to music, and have no personality. Fortunately, it's so completely opposite.
+- You watch award shows, and not only are you not nominated, but you're not a presenter and haven't been invited to any of the parties.
+- Starting in my 20s, I couldn't wait to look like Anna Magnani or Isabelle Huppert, all these great European actresses - Charlotte Rampling - the cheekbones and the heavy lidded eyes and the dark circles under the eyes, you know. So around 42/44, I started getting a little character on my face, and I was so glad.
+- When I got 'Family Ties', I wasn't even thinking about being an actress. I thought I might become a window dresser.
+- When I was in my teens and 20s, I looked to older Italian and French women. They always seemed so incredibly attractive to me because of their confidence. And because their faces had evidence of age: lines, dark circles, and half-lidded eyes, it made that confidence so rebellious. And that was incredibly attractive to me.
+- I had no idea that our love of fame was going to display itself in a high political office on a world stage.
+- Mail is processed. It arrives at Paramount Studios! It's sorted, and a pile is brought to the production offices for each of the TV shows shot there. That mail is sorted so that each actor gets his letters. A pile is placed in his dressing room.
+- I wanted to find a way to intelligently argue that we should be valuing our own skills and talents instead of valuing the number of people we can get to look at us.
+- We can assume that for every 100 people who wanted to say something to their favorite performer, maybe only ten actually got out the stationery. And of those ten, maybe only four get the letter to the mailbox. So, out of all those fans, maybe only four percent are actually sending you anything. And maybe you have read it. Or not.
+- I was a regular, so that meant I was working every week on the series. Which was fine. 'Family Ties' was a fantastic series. It's all good.
+- I think as we get older, as we get more mature and more experienced, we do realize it's like, 'blah, blah, blah,' oh there's the information I need, and then 'blah, blah, blah,' right? So we do this triage, I feel like, of what people say to us.
+- I've never been interested in changing my face. I hear of those glycolic peels and the Botox and plastic surgeries, and I am just, like, 'Oh my God.' I just could never do that.
+- 'Family Ties,' to me, was strictly '80s. It was from the beginning of the '80s until the end of the '80s, and it was very specific to that time. Ronald Reagan was president.
+- If somebody did a new show that, within a family, had conflicting political views, that would be great.
+- When I was super famous, there was definitely a distinction between how one was treated if they were on TV and how one was treated if they were on film. I don't know that that distinction exists as much now.
+- What we do for a living is not normal, and therefore, the process is not normal sometimes, and to expect it to be normal is to not understand what happens on set.
+- You get into any club you want, you have backstage passes for any concert you can think of, anywhere. You have access to everything, in the same way a toddler does. Everybody's like, 'Oh come on in!'
+- When I graduate, I will either run a division of a company... or I'll get funding for my own company.
+- There's a confusing message that we're sending people now, that lots of money can made off of simply having a lot of followers and having no discernible skills or talents. I don't know if I'm in a minority or if it's just a guilty pleasure for people, but I think the preponderance of reality shows is of great detriment to human beings.
+- I see a lot of women around me who seem to stop developing as individuals after marriage and children. I don't know what kinds of pressure they're under, but I think it robs the world of 'the older version of Judy or Wendy,' or whomever. It robs the world of the next iteration of them, and I don't think that's right.
+- They couldn't wait to get me out. My dad found my place, my mom helped me pack, and my brother was making architectural plans for my bedroom. It was just what you do at 18.
+- Education was a big focus for me, before the show and during the show. I applied to four or five colleges and universities and got into three and was planning on going.
+- I realized I was an anorexic, a bulimic, and a compulsive overeater.
+- I'd be counting calories in my head while having conversations and doing crosswords.
+- Sometimes in theater, they'll talk about your character a lot before you enter, but that rarely happens in television.
+- I'm picky about skin care because I hate perfumes or anything that says 'It will take away all the lines on your face.' I don't want to do that. But I do use Kiehl's and this skin cream called Restorsea because it makes my skin look nice and feel soft.
+- All I can say, personally, is I have never learned more from an actor that I've worked with than Jeffrey Tambor. And I consider him one of my favorite, most valued people in my life.
+- It seems to me so much technology could be applied to entertainment. Augmented reality, and even just the iPad - touch-screen technology, it was, you know, it still is extremely underused by entertainment.
+- Augmented reality, and even just the iPad-touch-screen technology, it was, you know, it still is extremely underused by entertainment.
+- We were at the level of fame where you just can't go anywhere.
+- The character - character - of Mallory on 'Family Ties' was a year younger than me. A fictitious year younger than me. So, I am not 21. I am not getting into the club. Boom.
+- When you have to write a letter, you're automatically put into a state of composure and a kind of formality. You can't help it. So, no, I never once got a letter where someone just popped off at me.
+- There is often better opportunity attached to fame, at least career-wise. But it's a flash. You can't control it. You can't depend on it.
+- The only time I was ever approached to write a book was when I was most famous.
+- The technology we have available is not being used, and we don't have to tell stories in a line anymore. We can tell them in the shape of a tree. I can't stand to see it not happen, and I'm going to make it happen.
+- I have some very good friends who've written memoirs, but it's not for me. It's just not a format that I'm interested in.
+- I'm consumed with tech - medical, computational, impossible tech. So, I don't know exactly what I'll wind up doing, where I'll go with all this schooling, but I'm willing that it be better than my dogmatic vision of it all.
+- I think the most attractive people are the confident ones, regardless of their literal appearance, so I strive for that. Basically, I think you'll always be the size your body needs to be if you only eat if you are hungry. If you never eat for any other reason, you'll be just the right size for your body.
+- My personal feeling about reboots is - I'm very against it. I feel bad for the pop culture of this generation because I feel like they're getting a lot of retread... a lot of digested and vomited stuff from our teens and 20s and all of that.
+- I started putting together long-form projects, say, 22 minutes for a sitcom and 42 minutes or something like that for an hour-long show. I didn't feel like it was groundbreaking, nor would anyone think it was groundbreaking now, but at the time, people reacted like it was.
+- Reality programming and social media make the game board bigger; they increase the number of runners on the track, each lunging at the finish line to be the first chest to hit the tape.

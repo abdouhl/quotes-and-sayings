@@ -1,0 +1,21 @@
++++
+author = "Jim Courier"
+title = "Jim Courier Quotes"
+quotes_len = "15"
+description = "the best 15 Jim Courier Quotes"
++++
+- I will do everything in my power to make sure people are aware that our team is out there fighting the good fight for the tennis fans of the United States.
+- It's hard for anyone in the 24-hour news cycles that we all live in now to follow something that the first round is played in March and the final finishes in December. I understand the challenges there.
+- The airplane has had a big impact on my life.
+- I really try not to read the tennis articles, because a lot of times they're guessing at how a player is feeling, and I like to keep myself kind of open minded about how I'm feeling, rather than have someone else explain to me what's going on.
+- Unbelievable, yet, what else could it be?
+- I think all of us who kind of live within the sport recognize that Davis Cup certainly could be a little more visible if perhaps there were some adjustments made to it, and it was made a little bit more easy to understand for the fans, if there's a little bit more of a start and finish line.
+- I think there's no reason the Davis Cup couldn't be as powerful and popular and profitable as any of the four majors are today, given some changes.
+- I knew I was the second-best tennis player in the state of Florida and No. 8 in the United States of America when I was 12 years old and I couldn't tell you what I was in baseball, but I liked my chances in tennis of getting a scholarship to college.
+- If they had rankings in baseball, maybe I would have been able to do the math and figure out my chances of being a professional baseball player versus a tennis player. But that was the decision-maker for me, I just thought I was better in tennis.
+- The dumber you are on court, the better you're going to play.
+- The reason I didn't take the baseball route is because they don't have rankings for baseball players.
+- I think all of us are shaped by the choices we make.
+- Tennis doesn't encourage any kind of intellectual development.
+- It is very dangerous to have your self-worth riding on your results as an athlete.
+- I've been lucky enough to primarily work for myself over the years.

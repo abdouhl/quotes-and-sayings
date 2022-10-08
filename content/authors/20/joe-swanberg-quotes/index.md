@@ -1,0 +1,13 @@
++++
+author = "Joe Swanberg"
+title = "Joe Swanberg Quotes"
+quotes_len = "7"
+description = "the best 7 Joe Swanberg Quotes"
++++
+- I want to try and be as involved in the art of filmmaking as possible. I feel that the only way to really do that is to take on as many roles as possible, whether it be as an actor, an editor, a director, a cinematographer.
+- I learn a lot as a director from acting in other people's films and just in general.
+- I'm a pretty hands-off director. I let people try things, and if it gets over-jokey, then I'll try and rein it in a little bit.
+- On a really big budget movie you do chemistry reads, and you sort of hedge your bets a little bit more and make sure that these people get along. But on the low budget side of things, I have to trust my gut that when I cast these people, the various elements are going to play together.
+- I've done a lot of movies that don't have any music in them, and I've always sort of had a kind of wary attitude about music because it can be so manipulative, and also because with pop music, I feel like everybody kind of has their own relationship to songs.
+- It's very difficult to have any kind of romantic feelings for a movie where you know exactly what's going to happen in the first five minutes.
+- In the pre-production process, I am emailing with the actors or jumping on the phone, and we're sort of figuring out who the characters are and trying to build the relationship dynamic and things like that. Then, also, I am outlining.

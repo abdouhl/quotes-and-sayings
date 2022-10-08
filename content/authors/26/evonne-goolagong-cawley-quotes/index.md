@@ -1,0 +1,96 @@
++++
+author = "Evonne Goolagong Cawley"
+title = "Evonne Goolagong Cawley Quotes"
+quotes_len = "90"
+description = "the best 90 Evonne Goolagong Cawley Quotes"
++++
+- Every time I hit the ball I would pretend I was on that magical court at Wimbledon. And then every time I went to sleep at night I would dream about playing at Wimbledon one day.
+- Some players feel that winning is everything and that losing is a disaster. Not me. I want the spectators to take home a good memory.
+- My greatest high was to hit a ball well, to try to do it perfectly, to try different things, whether they came off or not.
+- Whenever a car would come down the road, my mum would tell us to hide 'or else the welfare man would take you away.'
+- I went to Willoughby Girls High, I finished my high school certificate and then I did shorthand and typing the next year. Then started travelling and never used it since.
+- The most exciting match I ever played was the 1974 US Open final against Billie Jean King.
+- I won Wimbledon when I was 19 and again after I had a child.
+- I used to say during my career that the biggest gift was having my children.
+- I certainly had a lot of fun during my career playing tennis, doing the thing I wanted to do and to do it well.
+- Usually I have to leave parties early - just when the action is beginning.
+- I went through a tough time after leaving 'tennis.
+- Nobody expected me to win Wimbledon. It was something to strive for.
+- I don't want to talk about apartheid... I'm going to South Africa to play tennis and to see the country. That's as far as it goes.
+- Mum and Dad have come to Sydney to see me off on the two trips to Wimbledon. Each time I thought I mustn't cry 'cos that'll start Mum off. Each time I really bawled, and then she started up.
+- It's nice to know you're improving and getting better.
+- Tennis, for me, every time I went out on the court, it just gave me such joy to play.
+- I know, everybody thinks that all Aussies love beer. I guess most of them do, but not me.
+- There is no higher honour in sport than being selected to represent your country and I have certainly taken great pride in always giving my best in my position as Fed Cup captain.
+- When I started I was pretty well the only Aboriginal player who was playing tournaments.
+- You're not just playing for yourself but for your country, and that's nerve-wracking. It makes you work harder.
+- I first started out by hitting a ball against a wall when I was four.
+- Concentration may be my weak point.
+- When Kelly was born, I thought seriously about retirement. But I wanted to see if it was possible to mix being a mother with tennis and the two combined very well.
+- I know that from my own experience, after I had my daughter Kelly, I felt great. I just wanted to get back on that court.
+- It's nice to be remembered.
+- After I was fortunate enough to achieve my dreams on the court, I have done my best to, in turn, help young people achieve theirs.
+- I was so hungry to learn my history, to really know who I was.
+- Losing isn't bitter because it's temporary.
+- I love the atmosphere of shopping in London. Sometimes I just go into a boutique, not to buy but to listen to the music.
+- When I was playing on the tour, I never really thought about the Hall of Fame because you're always thinking about your game and how you can do better.
+- Well, Margaret Court was the first one, first professional woman - or maybe man - to actually take it into the gyms. She worked out on her body, she was very strong, very fast on the court.
+- After I make some bad shots, it makes me bear down and concentrate more.
+- I had a bit of a reputation as a tomboy.
+- I'd much rather people knew me as a good tennis player than as an aboriginal who happens to play good tennis. Of course I'm proud of my race, but I don't want to be thinking about it all the time.
+- We couldn't afford anything. Suitcase, clothes, everything, Barellan people bought for me.
+- I hated school.
+- I was protected from a lot of publicity and politics of life.
+- I just have these lapses. Guess I'm stuck with it. But I play better when I get behind. I say to myself, 'Now I have to play well.'
+- Because I've had time off, I've learned to appreciate tennis more - to put something back into it.
+- People told me I made the game look easy and I didn't always look like I was trying my best, but I always was.
+- Neither winning nor losing means as much to me as knowing the crowd has enjoyed my match.
+- I can think of matches I played where I played one or two points perfectly, and that gave me a thrill.
+- I think how I'm playing, not who I'm playing.
+- I even opened a nightclub called Evonne's.
+- I think It would be quite fun to play Bobby Riggs.
+- Trees always remind me of Aboriginal people.
+- If you didn't have power, you had to have touch and serve and volley, which I found very exciting and that's why I love watching Federer play, because of those skills.
+- Billie Jean King is the personality of women's tennis.
+- I love to fish. I love the peacefulness of being around the water.
+- I was just feeling really down and didn't want to play tennis anymore and when I was feeling down like that, what helped me is that I went back to my culture. To walk the Earth.
+- When I walk out on to the court and everyone is staring, sometimes I wonder how my legs will carry me out there. That's forgotten as soon as I start playing.
+- I like music and dancing.
+- I guess I had that insecurity of missing out on the normal things that everybody else does. With all the traveling I was doing I felt I was leaving something behind.
+- I don't think of myself as being colored but of being Australian.
+- Once in a while I'll drink a rum-and-Coke but that's all, and only once in a while.
+- I started by hitting balls against walls with an apple crate board.
+- When we used the small-faced racquets and wood racquets, we had to use every part of the court.
+- I keep saying to myself, 'I'm in New York.' I've heard so much about it. It's big, isn't it?
+- I never think I'm going to lose.
+- I know how to get around London better than Sydney.
+- I had to stay in school before I started travelling overseas.
+- My goal is to share information and to educate. But am I an activist? No, no, no. I don't believe in pushing things on people.
+- Now that my daughter is 9 and my son is 5, I'm starting to enjoy tennis more. I've been asked to play in the over 35s, and I may do that.
+- It's wonderful being a mother playing anyway.
+- In team tennis, when you're downed, you play harder because there are other people depending upon you.
+- I don't like rushing, just like to sit down and rest before a match. Half the time I don't even look at the draw.
+- I always just thought of myself as a tennis player.
+- Every time there was a shiny car, my mum must have worried it was the welfare people coming for her kids. We had no idea.
+- I've always had an obsession with rackets.
+- I don't know whether I'm half, quarter or what. I just know I'm aboriginal.
+- I'll get married when I'm sick of tennis.
+- I like to be nervous, as I push myself harder.
+- Of course, I'm trying to be No. 1.
+- What happened to equal opportunity? Not just in tennis, but everything. It's something that Billie Jean King fought for and she played Bobby Riggs for that, and beat him.
+- I can't wear the same outfit twice without washing it. And tennis is a grueling occupation.
+- About three months after I had Kelly, I went and played in Canada. I felt great, I was ready to go and I was very energetic. But as soon as I started playing, I thought 'no, too soon.' I went back home and slept for two days.
+- I have won a few trophies in my time but I have never had a major event name their trophy after me.
+- I hope that I am helping to create an understanding and an awareness of what happened to the Aboriginal people.
+- Anyway, when I get sorta tense and start thinking about every shot, that's when my game falls apart.
+- I'm just tired of having to say 'cheese' all the time for the press.
+- A man could and would wipe me off the court. I really feel that the male is naturally superior to the female in all endeavors.
+- I play better if the matches are tight.
+- I remember I hadn't bought anything for my Mum for Christmas and I actually won an iron, so I was excited that I could take that home for her.
+- Racism is about education. Racism is ignorance.
+- I can't explain why I play belter when I am down. It's the challenge I suppose.
+- There are about 100 Aboriginal communities in Australia, and I'm trying to visit as many as possible to learn as much as I can.
+- The white explorers had been my heroes. The Aborigines, I thought they were real savages. That was what I'd been taught and that's what I believed.
+- When you say sorry it creates a better working relationship.
+- In 1971, big tournaments were very new to me. I just thought Wimbledon was one of the other tournaments.
+- When I went through some racism through my early days and I went back and told Mum... she said, 'Don't worry about that, they're just ignorant.'

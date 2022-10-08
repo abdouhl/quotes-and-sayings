@@ -1,0 +1,77 @@
++++
+author = "Publilius Syrus"
+title = "Publilius Syrus Quotes"
+quotes_len = "71"
+description = "the best 71 Publilius Syrus Quotes"
++++
+- An angry man is again angry with himself when he returns to reason.
+- The person who receives the most favors is the one who knows how to return them.
+- Reprove your friends in secret, praise them openly.
+- Anyone can hold the helm when the sea is calm.
+- Do not despise the bottom rungs in the ascent to greatness.
+- The judge is found guilty when a criminal is acquitted.
+- The remedy for wrongs is to forget them.
+- Prosperity makes friends, adversity tries them.
+- It is better to learn late than never.
+- You can accomplish by kindness what you cannot by force.
+- The happy man is not he who seems thus to others, but who seems thus to himself.
+- From the errors of others, a wise man corrects his own.
+- It is only the ignorant who despise education.
+- You cannot put the same shoe on every foot.
+- When you confer a benefit on those worthy of it, you confer a favor on all.
+- The miser is as much in want of what he has as of what he has not.
+- God looks at the clean hands, not the full ones.
+- To refuse graciously is to confer a favor.
+- It is kindness to immediately refuse what you intend to deny.
+- If you wish to reach the highest, begin at the lowest.
+- Admonish your friends privately, but praise them openly.
+- Pain forces even the innocent to lie.
+- We are born princes and the civilizing process makes us frogs.
+- Audacity augments courage; hesitation, fear.
+- He who spares the bad injures the good.
+- It is a good thing to learn caution from the misfortunes of others.
+- Art has a double face, of expression and illusion, just like science has a double face: the reality of error and the phantom of truth.
+- What is left when honor is lost?
+- The eyes are not responsible when the mind does the seeing.
+- We die as often as we lose a friend.
+- To do two things at once is to do neither.
+- There are some remedies worse than the disease.
+- Powerful indeed is the empire of habit.
+- Each day is the scholar of yesterday.
+- A gift in season is a double favor to the needy.
+- An angry father is most cruel towards himself.
+- Learn to see in another's calamity the ills which you should avoid.
+- The bare recollection of anger kindles anger.
+- While we stop to think, we often miss our opportunity.
+- A good reputation is more valuable than money.
+- He who has lost honor can lose nothing more.
+- Take care that no one hates you justly.
+- He who lives in solitude may make his own laws.
+- One is not exposed to danger who, even when in safety is always on their guard.
+- Where there is unity there is always victory.
+- How unhappy is he who cannot forgive himself.
+- Speech is the mirror of the soul.
+- I often regret that I have spoken; never that I have been silent.
+- The opportunity is often lost by deliberating.
+- He whom many fear, has himself many to fear.
+- Valor grows by daring, fear by holding back.
+- Never promise more than you can perform.
+- The weeping of an heir is laughter in disguise.
+- It is a bad plan that admits of no modification.
+- The timid man calls himself cautious, the sordid man thrifty.
+- Practice is the best of all instructors.
+- They do injury to the good who spares the bad.
+- Count not him among your friends who will retail your privacies to the world.
+- It is folly to punish your neighbor by fire when you live next door.
+- No one knows what he can do until he tries.
+- It is not every question that deserves an answer.
+- A beautiful face is a mute recommendation.
+- Treat your friend as if he might become an enemy.
+- Some remedies are worse than the disease.
+- A hasty judgment is a first step to recantation.
+- It is a fraud to borrow what we are unable to pay.
+- You are in a pitiable condition if you have to conceal what you wish to tell.
+- The wounds of love can only be healed by the one who made them.
+- Fortune is like glass - the brighter the glitter, the more easily broken.
+- Good health and good sense are two of life's greatest blessings.
+- Let a fool hold his tongue and he will pass for a sage.

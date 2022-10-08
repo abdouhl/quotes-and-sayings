@@ -1,0 +1,73 @@
++++
+author = "Gregory Porter"
+title = "Gregory Porter Quotes"
+quotes_len = "67"
+description = "the best 67 Gregory Porter Quotes"
++++
+- Waving to the Queen after singing Amazing Grace at Buckingham Palace, that was pretty cool.
+- I was quite shy as a child. My sisters were the gang leaders, my brothers were the enforcers and I was a tag-a-long.
+- One critic called me nothing but a blues singer, as though that was a slight. That is the highest compliment there is.
+- I'm very grateful for the success of 'Take Me to the Alley.' The chart position it's reached around the world is very exciting, and its success is an example of the acceptance of my music. I am very thankful.
+- My sisters started to cook at nine and, being one of the youngest, I wanted in on it, too, so I began at six on potato-peeling duty as french fries were my thing.
+- When there's an imbalance in terms of what people get to hear, then that's negative. Then blues, jazz, it will die.
+- Nat King Cole's lyrics were speaking to me, almost like fatherly advice, when I was listening to him alongside the console stereo player. So that music and that influence comes out of me.
+- I like to absorb the atmosphere and explore wherever I'm working or visiting, so I can't say there's any type of place I don't like. When you travel you have to be open to new experiences.
+- What a Wonderful World' is a love song to nobody and everybody. I'm thinking about songs like that in my writing with 'Take Me to the Alley.'
+- But sometimes that title 'jazz' can vex people who think they know exactly what jazz always is and will be.
+- How can you sing a line like, 'I've fallen out of love' when you're 18? You need to experience something of life before you can sing it.
+- Music that speaks of politics is less listened to than the music of partying, but it's still there.
+- Writing from a personal experience can bring about this emotion and power of emotion that can be instantly connected to the instrument, my voice.
+- You could spend your time with your nose buried in a guidebook, but Amsterdam really is best explored on foot, so you can stumble upon the city's hidden gems. The architecture and the beauty of some of the buildings is also wonderful.
+- The voice is probably supposed to have some cracks and pops and some mistakes in it.
+- Being a singer, it's feast or famine. You have to hit it when it's hot.
+- Whether you like punk, grunge, or early rock and roll, there's probably something in there you've been living with your whole life and you didn't even know it was jazz.
+- I consider myself a jazz singer. I think I stick to the roots of improvisation, singing in front of the beat, behind the beat, playing with notes and harmonies.
+- I've always thought that a Saturday morning at home should be education time. I mean fun education, for example learning to cook a dish or reading about something new. So I put on documentaries, get a bunch of magazines and newspapers and use the morning to make myself better.
+- I think myself, Jose James, and Robert Glasper are expanding the language - really reminding people that the umbrella of jazz is large and all-encompassing.
+- I'm very thankful to San Diego for the musical opportunities it gave me.
+- All the events that have made up the character and fabric of British culture and everything that has happened to make up the fabric of America culture - art and music - includes the faces and the colours of a lot of people.
+- I heard Smokey Robinson was singing one of my songs on the radio the other day. Being in the presence of Mavis Staples, Erykah Badu, Jill Scott - Stevie Wonder joined me on stage recently. That blows me away.
+- You know Bakersfield was full of workers from the south, from Texas and Arkansas, and they brought their gospel and blues with them. And that's the sound I grew with.
+- Gospel music was very prevalent in my house. My mother also loved Nat King Cole. That was some of the first music that I heard. Mahalia Jackson, Nat King Cole and the Mississippi Mass Choir.
+- I lose my bags all the time. Sometimes for two months. One of the worst times was when I had come from France and I had packed cheese, because I was really crazy about camembert, so I have this really nice suit that stinks of camembert, no matter how many times I dry clean it.
+- The umbrella of jazz is so big and so wide . If you don't like saxophone, try a vocalist, if you don't like vocalists, try guitar.
+- The nice thing about living in a semi-small town is that I can just go home and switch off. I go home now and I trim roses, rake leaves, wake up early in the morning and scare the raccoons off the lawn! It's kinda nice, that's the way I turn off, in Bakersfield, California.
+- Sometimes I'll be in circles, and I'll say I'm a jazz singer, and they have no idea what that means.
+- There were some things in my childhood I thought we'd put to sleep. The idea of one race's supremacy over another. I thought the issue of colour would be put to sleep by the time I had a son. And that's maybe why I had a kid so late.
+- The songs I write and the way I see the world have been affected a certain amount since I became a father.
+- This is one of the major purposes of soul and jazz music; to state what you feel.
+- My mother gave me the courage to pursue music as a career on her deathbed. She became very ill when I was 21. I didn't want her to worry about my future. I wanted her to know I'd finish my degree. But she pushed me to follow my dream, even if it wasn't the safe option.
+- My part of Brooklyn has always been a very warm neighbourhood, even before I had anything going on in the music industry. When I step out of my house to go for coffee on Saturday mornings, I might say hi to 20 people before I get to the cafe. I think they feel they own me, in a way.
+- What makes jazz different is that you can't predict it, it's all about freedom. Just when you think you know what you're going to hear there'll be a left turn, a jazz musician will change it up.
+- I think part of my job as a songwriter is to go back in my memory and pull up those pains for other people because somebody else is going to come along who didn't have a good issue with their father.
+- A professional music career goes in starts and stops. Around 2000 I was doing a Broadway show and that was some real good energy.
+- My overwhelming memory of my childhood is the constant busyness in the house. I am seventh out of eight kids - five boys and three girls - plus my mom, Ruth.
+- Because I am away so much, I try to establish home in people, rather than places. For example, wherever I get together with my brother the place we're in becomes home.
+- The greatest thing you'll ever learn is just to love and be loved in return.
+- 'Take Me to the Alley' is about trying to uplift the lives of people who have been afflicted, maybe the homeless or somebody with an illness, or maybe they're refugees.
+- On stage, it's very naked. There's a reason you shake your knees. You're very vulnerable, cos it's just you, your body is the instrument. But I always had confidence in my voice, if I had the right song, the right words to sing.
+- I think sometimes you can be around somebody and take in certain energy and read certain things and you don't know why your neck is stiff. But if you can recognise the negativity, once you identify it and you know what you are dealing with you can make a point to counteract it with a different energy.
+- I can sing the blues and I have sung the blues. I feel it internally when I'm singing.
+- The best career advice was to sing with an understanding and internalise the music - that was my mother's advice. Sing with intention, believe what it is you're saying, and think about it, before you sing it.
+- There's a lot of female singers and I don't want to dismiss them, but the male - and I have to be careful - the black male voice in jazz, whatever you say, is an important voice, because there's a tradition of the music that should be touched on, there's a sound that should be touched on.
+- I'm really just a singer that's trying to make some music that strikes to the heart.
+- I'm happiest in nature, in trees, rivers, streams, and I'm happiest around my kid - you know that's the funny thing, he is not always in the best of moods, but I am always happiest around him and in nature. Around my family is where I am happiest.
+- I was in rehab for nine months, and I needed some solace and distraction. I was in town one day and I sort of stumbled into a jazz jam session, and kept going back.
+- San Diego is where I really started to get my legs, musically.
+- I had a long-term relationship that failed. I had some health issues. When you dip down emotionally you can gather some things that help you when you do rise. If you go through it and you're OK, you can develop some scars that help you in the time after.
+- I was 5 years old when I first broke into my mother's records and played Nat King Cole, and sat alongside the stereo and listened to Nat's music.
+- It's been some surreal moments, you know from performing at Buckingham Palace to having dinner with Stevie Wonder, it's been an amazing ride.
+- I love wandering around the vintage shops.
+- The protest songs of the 1960s and 70s managed to blend political and societal views with music from the heart.
+- My grandmother and my mother and my grandfather, their style of praying was - all day long, they would pray by singing and humming.
+- You'd think we'd be exhausted by that rhetoric but you're still able to move people with fear and fright and lies that somebody's going to take your place, that in order for someone to rise, you have to fall.
+- I think every person who gets a football scholarship thinks the potential for great success in college - and maybe even a career in the NFL - is possible.
+- And I've made it a choice on my records that sometimes I leave the breath or the trailing note that sometimes falls into a flat or a sharp.
+- Even if you've being playing together for years, there'll always be something new. You're constantly back phrasing, front phrasing, singing faster, singing slower.
+- A Change Is Gonna Come' has always been a powerful song for me as it comes from a place of vulnerability.
+- If I can hear the music then no, I don't hit a wrong note. But if I can't hear the music because the audience is screaming or the sound system is bad, then I'm subject to stray.
+- My mother was a minister, so I grew up in a church. My grandfather was a minister; there are a bunch of ministers in my family.
+- As well as having a really strong message, sometimes an artist needs to couple their sentiment with something that's soulful and groovy to listen to.
+- I'm always lobbying for the irrepressible strength of love.
+- The funny thing about nationalism is that there are two sides to it. Some parts of it are beautiful, but there's an ugly side as well.
+- I can be a bit nerdy so I need a good, clearly marked map, as you can miss out on some of the coolest places in Amsterdam if you don't have a wander down the little side streets.

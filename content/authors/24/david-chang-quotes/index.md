@@ -1,0 +1,85 @@
++++
+author = "David Chang"
+title = "David Chang Quotes"
+quotes_len = "79"
+description = "the best 79 David Chang Quotes"
++++
+- Momofuku is not me. It's everyone. I'm just the facade. We have to exceed expectations and be our harshest critics.
+- Open your refrigerator, your freezer, your kitchen cupboards, and look at the labels on your food. You'll find 'natural flavor' or 'artificial flavor' in just about every list of ingredients. The similarities between these two broad categories are far more significant than the differences.
+- If people ask me, 'What do you think could improve in Toronto dining,' I'd say there's nothing to improve on.
+- People are getting famous now for serving food out of a truck, or for, well, pork buns. I don't know if I'm really pleased to be a part of that. I'm somewhat terrified of what the future holds, especially in America.
+- 'Tampopo's amazing. I think it's an absolutely fantastic movie, but I don't think it captures for me the meaning of food.
+- I'm not cooking every day anymore, and that's the biggest withdrawal. Cooking is honest work. Now I don't know how to measure myself.
+- When I was in Japan, everyone wanted to work for Pierre Gagnaire, and they wouldn't miss a beat.
+- Shouldn't a three-course meal be 90 minutes? Do you know how hard you have to edit your menu to pull that off? Twenty-seven minutes. That's the average meal at Jiro's in Tokyo.
+- I'm a big sports fan.
+- I'm grasping with how you do something on a large scale with multiple operations and not have quality decrease.
+- I was quite cocky, but having been hailed as this great young golfer, I couldn't even make the high school golf team once I got there. I had a big dose of humble pie then, and ever since, I've always known that there is always someone out there better than you, more talented. Always.
+- People are trying to figure out what American food is; it's certainly an amalgamation.
+- Growing up, my dad owned a restaurant in Washington, DC, and food was something I was passionate about. But when I finally got into it, I felt like it was so late in the game; that's why I worked seven days a week at Craft and Mercer Kitchen. I wanted to see how far I could take it.
+- When you meet the farmers and go to the farms, you see that they treat their animals like they're family. It makes a big difference.
+- My dad was in the restaurant business, but I didn't really think about following him. Had I done better at school, I don't know if I would have been a chef.
+- I feel like I'm losing my ability to understand reality; like when someone loses their hearing, they can still speak English, but their speech eventually becomes distorted because they can't hear themselves.
+- There's the common misconception that restaurants make a lot of money. It's not true. If you look at maybe the top chef in the world, or at least monetarily, it's like Wolfgang Puck, but he makes as much money as an average crappy investment banker.
+- For everyday diners in Manhattan, cracking the waiting list at Nobu is said to be harder than getting courtside tickets for the Knicks.
+- I think the basic thing that home cooks can learn how to do is just season properly... If the home cook realized how little salt they use compared to what's needed, it would make their food taste better.
+- If I have a really bad cook or a bad manager or bad sous-chef, I previously would have fired them or lost my temper. But now I realize that if I'm so right, then I should be able to communicate it so clearly that they get it.
+- The livelihood of the restaurant is dependent upon getting the word out.
+- I think being Shaquille O'Neal would be the most amazing thing. There's nothing I would have done differently in his life. Everything he's done I think is pretty spot on, even, like, the bad rap videos, the shoes, the movies, everything.
+- Everyone tries to compare cooks to rock stars. I see more comparisons to the fashion world.
+- Fine dining teaches you how to cook many different things, and it gives you the basic fundamentals, but these specialty restaurants, they're not teaching you the broad foundation you need to become a well-rounded cook.
+- Why can't it be awesome to work for a food company? Why can't we create an environment where people are trying to push each other to do great things, and we're not trying to steal from anybody - we're trying to be good to our farmers and run an honorable business, if there is such a thing anymore?
+- I look forward to the spring vegetables because the season is so short. Mushrooms, edible foraged herbs, wild leeks, early season asparagus.
+- One of the benefits to ordering food in New York is that you can get food 24/7.
+- I love chicken. I love chicken products: fried chicken, roasted chicken, chicken nuggets - whatever. And going to Japan, I would see that these chicken were smoked and then grilled and then have this amazing crispy skin.
+- Just because something's been good in the past doesn't mean it will continue to be good.
+- As a child, I didn't see my dad that much because he was always working at the restaurant. He became pretty jaded after working at the restaurant for so long.
+- Contemporary ramen is totally different than what most Americans think ramen should be. Ramen is not one thing; there are many, many different types.
+- The process and organization leading up to cooking the egg can tell you a lot about the cook.
+- People don't think that bread is part of Asian culture or Asian food culture, but it's quite prevalent in Northern China, and you see it throughout Japan and as you go to Taiwan.
+- Yes, natural is good and healthy, and whole foods are important. However, experimentation is important, too.
+- I find that there are a lot of similarities between French and Japanese food. I think they're two countries that have really systemized their cuisine and codified it.
+- Running a business anywhere isn't easy.
+- America is a country of abundance, but our food culture is sad - based on huge portions and fast food. Let's stop with the excuses and start creating something better.
+- When I first started to cook, I would cook these elaborate meals, but I rarely cook at home now.
+- Say a child raises this beautiful beet. It's going to give her a sense of ownership, and that changes everything. You stop taking things for granted; you become less wasteful.
+- The Momofuku Culinary Lab started as a space where we could focus on creating and innovating. I didn't want us to worry about working on projects in a restaurant; there are just too many distractions in service and running a kitchen to be able to focus on creating your dishes.
+- The one reason why I got into cooking was because I wasn't good at anything else - not that I was good at it, but it was considered honest work.
+- I'm always criticizing and only see the mistakes.
+- I like eggs. My favorite way of cooking eggs is old school French.
+- I'm not trying to bring New York to Toronto. I want to understand Toronto better.
+- Be careful what you wish for - getting to be a successful business and maintaining it is so hard. Anyone can be good one night; being good over several years is incredibly difficult.
+- I want to make simple food new.
+- I love the intensity of the fine-dining kitchen, but loathe the fine-dining experience.
+- I really don't care for the proper chef coat.
+- If you're going to be a vegetarian, limit yourself to food from a place you can go to in two hours and just eat that.
+- I lived across the street from Noodle Bar. I could barely stand it, because you're there all the time; you can't get away.
+- I doubt I'd ever do television to the extent that, say, Gordon Ramsay has.
+- I constantly think I'm a fraud - that this success is not warranted or justified.
+- I love to eat sushi, and, you know, those flavors and wasabi and really eating spoonfuls of it... I would just mix it and put it on everything, literally.
+- I think the best restaurants in America should be in California.
+- I learned so much more prepping vegetables than I ever did in cooking school.
+- I've never bribed my way into a restaurant. I've never slipped a C-note or greased a palm. In truth, I've never even considered it. I've assumed, of course, that people do such things.
+- Waiting tables has never paid my bills, a fact which I prefer to hide from my colleagues with deep sighs about the price of just about everything.
+- If people think you are this amazing, own it.
+- Food, to me, is always about cooking and eating with those you love and care for.
+- Any processed chicken from any place - I'll order it in a heartbeat. I'm very picky about my pork, though.
+- New York gives us a wide colour palette to cook from. We have cuisines from around the world, and that lets us pick and choose.
+- In New York, we're always confined with spaces. Our restaurants are difficult to navigate as cooks and to operate. We fight against the buildings we run in New York.
+- Don't even get me started. I'm not against all vegetarians. But if you're a vegetarian for ethical reasons, you may be causing more harm.
+- I appreciate people who are happy.
+- I was terrible at desk jobs.
+- There are many things to admire about Japan but this is the one thing I love the most and probably the only time I eat breakfast. Fish, eggs, soup, salad, veggies; all in the tiniest bites. It's a full meal, but it's so refreshing.
+- Fear is a driving force for most of the things that I do. I don't know if that's healthy.
+- Cooking and gardening involve so many disciplines: math, chemistry, reading, history.
+- I wanted to disprove the notion that you couldn't open a great restaurant in a casino.
+- Before I had my own restaurant, I was never top dog in the kitchen. I've always had a low opinion of myself as a cook.
+- I don't like eating in restaurants.
+- To me, there are two types of celebrity: there's good celebrity - people that are attracted to the food and working and trying to create something great - and then there's bad celebrity - those who are working on being a celebrity.
+- If you ask what people say what American cuisine is, they cannot really do it. I don't know what it is.
+- I work so hard that I forget to take care of myself.
+- I think that the Japanese - and I do love Japanese cuisine and adore Japanese food culture - I think that they're going to plow through the entire world's fishing. They're going to eat everything anyways.
+- To eat well, I always disagree with critics who say that all restaurants should be fine dining. You can get a Michelin star if you serve the best hamburger in the world.
+- I hate to say 'chain restaurant,' but we're sort of a corporation now. How do we defy that concept, where people assume each restaurant can't be good?
+- Life's too short to just breeze on by.
+- Chef Thomas Keller was an inspiration to me and many, many young cooks like me. He told us that the role of the new, modern chef is different.

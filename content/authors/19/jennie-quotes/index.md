@@ -1,0 +1,66 @@
++++
+author = "Jennie"
+title = "Jennie Quotes"
+quotes_len = "60"
+description = "the best 60 Jennie Quotes"
++++
+- We never thought our music would reach out to so many people around the world.
+- I personally don't like to draw a line between 'K-pop' and pop music, but I do think it is a good time for K-pop artists to be shown to the world, because the world is just ready for it.
+- We want to be proud of ourselves.
+- We want to become a group that many people cheer for and trust without bias, no matter what kind of songs we sing, or what stage we stand on.
+- Who would imagine, at Coachella, thousands of people singing in Korean?
+- A lot of people make memories as a high-school student, but I never had that.
+- If we were to put out a song in English, we would have to put in lots and lots of effort.
+- All the records are the results of our fans, BLINKs, and their unconditional support. Every day we try to acknowledge how grateful we are, but more than the pressure, we are ready to give them back as much as they gave us.
+- I want to be a a good influence to other people and in the music scene.
+- We like to be confident.
+- We really want to perfect the quality of the stuff we put out, so we can be represented to the world as a K-pop group.
+- We dance to difference genres such as krumping, ballet and hip-hop, together with invited foreign choreographers who are well-known internationally.
+- Because we are in the same company, we have the same influence undoubtedly. 2NE1 has been very successful in many ways and I don't know if we can make it as far, but we will try to do it on our own.
+- Lady Gaga reached out to us saying how much she loves our music, and we were just like, 'What?! She knows who we are?!' That's how mindblown we were.
+- I find a blatantly girly style with no charm boring.
+- We want to thank our fans for how far we've come and for how much we've received.
+- We want to be proud when we look back on our history when we grow old.
+- We always wanted to be out there, to be more true to ourselves and a little more free.
+- All I wanted was for people to see the potential in us.
+- When we make demos of our songs, we do our demos in English - the whole song's in English.
+- You could keep going back to BLACKPINK's music because it can never bore you.
+- It's amazing that K-pop is spreading around the world as a culture in itself.
+- It would be a lie if I say I never imagined what G-Dragon oppa would've been like if he was a girl. I want to keep the title of 'Female GD.'
+- Even on our days off, we're basically at the studio recording.
+- I want to thank all our fans all around the world for their unconditional love and support. It really means a lot to me.
+- When I heard I'd be the first in the group to release a solo track, I definitely felt nervous. But I'd like to think of it as a continuation of the music I've been doing as part of BLACKPINK.
+- The four of us started dreaming of sharing music to the world and creating something new for people to enjoy.
+- I am super shy. I was one of those people where I can't even order something on the phone. Like, I hated that.
+- While living in New Zealand, I usually made or found Korean food nearby, so when coming back to Korea it was just like coming back home.
+- My number one idol will always be Rihanna. She has everything I want to be.
+- Since we have members who have grown up abroad, we really want to introduce Blackpink to K-pop listeners worldwide.
+- We have a special and strong teamwork because we trained together as teenagers and have grown together since then. Now, we can just look one another in the eye and know immediately what they need or how they feel.
+- I lived in Korea when I was young, so it was great to be back, close to my family.
+- SOLO' is a fun, self-loving song. Through it, I wanted to show different sides of me.
+- I remember when I was little, I look through my mother's wardrobe, and search for whatever vintage Chanel I could find.
+- I don't want to let ourselves down, so we put extra time, extra effort into every single thing we put out. I think that's why it takes a bit of time for us, but we really want to perfect the quality of the stuff we put out, so we can be represented to the world as a K-pop group.
+- I would like to say every moment counts for you, so make the time that you spend for your dreams a very special moment, make sure that you do something that you'll be happy with when you go back and look at yourself.
+- I want to try a feminine style but mix it up with sexy or hip-hop elements.
+- We think the friendship between us is a very important aspect for our group, and we try to keep that in a very naturally, like without love, we don't have to try too hard, but it's always needs to be there. So, we remind each other all the time that, when you're going through a hard time, we have the hard time with you.
+- I do not stick to one style only and prefer mixing and matching brands with sort of casual-meets-cool sentiment.
+- On stage, my look should be the total opposite of my look offstage.
+- Music can be just one-sided if you hear it, but if you see it with a visual and an image, it opens up a whole new world. I feel like it's all connected.
+- My style varies on my mood or the weather of the day.
+- When we say 'Blackpink in your area,' we're literally saying we're in your area with good music, with good energy - we're here for you.
+- I like to just stay at home with my family, I eat something nice.
+- On stage, I like to portray my different sides as much as possible.
+- Because it's our first official album, we wanted to show our color, the color of Blackpink. We wanted to present an image that people would think of when they think of Blackpink, and what kind of music we put out... we channeled the girly side of ourselves and performed according to the girly lyrics.
+- We would love to perform in Japan in Japanese, in America in English.
+- I was the first one on the team, and I got to watch everybody come in.
+- It's a great honor even to be compared to such amazing artists as 2NE1.
+- We want to make a full album to really express ourselves.
+- Anybody who loves music in Korea would love to go to Coachella, as like a dream wish.
+- I have a dark and sexy side, and I sometimes have a feminine, elegant side.
+- I used to do a lot of dark and strong songs.
+- I think by having solo projects, it allows us to expand our music range. There's a type of music and concept we can do as a group and do as solo artists.
+- After I debuted, I was frequently asked why I get nervous so much.
+- When I pay attention to the little details, such as matching accessories to the entire outfit, I only get more confident on stage.
+- Fashion definitely empowers us as much as music does.
+- Even we can get things wrong sometimes.
+- Since I have given lots of strong and charismatic performances on the stage, many people think that I probably would be just like that in real life. But many of those who have met me say that I have an aura of genuinely girlish charm.

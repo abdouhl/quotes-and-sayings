@@ -1,0 +1,20 @@
++++
+author = "Edward Felten"
+title = "Edward Felten Quotes"
+quotes_len = "14"
+description = "the best 14 Edward Felten Quotes"
++++
+- We're in a situation where the solutions that we have are not good enough. The way to improve anything is to have a discussion about its flaws. To understand what the one or two or three things are about it that would help fix it. The DMCA makes it dangerous to have that conversation.
+- The question is not whether we want to keep this open, neutral Internet - we do, or should - but whether government rulemaking can give us the result we want.
+- And the user may have a higher comfort level deciding what information to provide rather than worrying about what inferences might be made from what they've gathered.
+- In making policy designed with copyright in mind, you end up making decisions about whether other important technologies, such as privacy-enhancing or file-search technologies, should be encouraged or discouraged. A collision is happening between creativity and protecting IP.
+- Vigorous enforcement of copyrights themselves is an important part of the picture. But I don't think that expanding the legal definition of copyright outside of actual copyright infringement is the right move.
+- Innovation happens because there are people out there doing and trying a lot of different things.
+- Growth comes out of a healthy competitive atmosphere, not trying to choose a particular path forward.
+- Even if there were no illegal copying, the advent of digital distribution will put a lot of stress on the movie and music industry. When the distribution costs comes down, that puts more price pressure on the rest of the cost.
+- The next generation of innovators, who need neutrality the most, are not at the bargaining table. They're hard at work in their labs or classrooms, dreaming of the next big thing, and hoping that the Internet is as open to them as it was to the founders of Google.
+- The secret of the Internet's success has been its openness to new services.
+- Network operators need reasonable leeway to manage their networks.
+- Given that you'll never be able to prevent copying, the question is, what can you do to minimize it? What can you do to make consumers happy enough with legitimate use of the system that they'll be willing to pay for it?
+- The problem - when you cast your net that wide - is you inevitably catch something you don't want to catch.
+- I think there are problems with compact disc copy protection that can't be resolved.

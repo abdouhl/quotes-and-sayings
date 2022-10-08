@@ -1,0 +1,128 @@
++++
+author = "David Duchovny"
+title = "David Duchovny Quotes"
+quotes_len = "122"
+description = "the best 122 David Duchovny Quotes"
++++
+- I always dreamt of being a basketball player. A dream that only I believed in.
+- 'Alien' is a great movie. So is 'Close Encounters.' But I'm not the guy who goes out to the science-fiction festival. '2001's good.
+- Actually, I have an interest in finishing my Ph.D., but I just know I never will.
+- My whole life, I've wanted things before I was ready. I was always pushing for the next job, the next success. I was so focused on achieving and the path that I was missing some great point about life.
+- I'm turning into a stricter dad.
+- I don't think I'd ever be cruel to an animal.
+- I wouldn't succeed at musical theater.
+- I'm always trying to perfect the romantic comedy, though.
+- I enjoy comedy and I hope that people enjoy watching me do it.
+- Humility is considered an un-masculine quality.
+- I'm constantly amazed by the ability a child has to show sympathy, to read emotions, to get to the heart of any situation. It's unfiltered and completely inspiring.
+- The worst thing a man can admit is 'I'm not 100 percent fulfilled by my family.' But it doesn't mean he doesn't love his family. I love my family, but I still want to work; I still want challenges. It took me a while to fall in love with the responsibility of family life, and it was a deep thing when I did.
+- One of the scary things is that, when you're a kid, you look at your dad as the man who has no fear. When you're an adult, you realize your father had fear, and that you have it, too.
+- I'd love to direct more.
+- I wanted to write plays. I was at Yale graduate school at the time for English literature, not for acting... I liked the idea of collaboration, and I thought if I'm gonna write plays, I should learn something about speaking the lines that I might try to write.
+- I mean, there's chemistry in life and there's acting chemistry. I'm not saying they're the same thing, but they're as mysterious.
+- What strikes me is that 'XIII' looks like a movie. The shot making is movie-like, which is kind of fun - the kind of playful action movie shot making is pretty, is pretty good. What's also great about this game is its style and interesting story-line.
+- Privacy is something I have come to respect. I think when I was younger I wanted to tell everybody everything, because I thought I was so damn interesting. Then I heard the snoring.
+- Without whining and without making myself a tragic figure, there is no replacement for the loss of your privacy. It's a huge sacrifice.
+- I envisioned that as my life: staying in academia to make a living and then taking summers off to write my novels.
+- I don't mind close-ups, I like them, but they're kind of forceful - you see a lot, you get a lot of information in a close-up. There's less mystery.
+- I never, ever, ever cook. And I would never eat anything I might cook.
+- The happiest moment of my life was probably when my daughter was born.
+- I won't look online. The whole fan thing makes me self-conscious, which is not to say I don't appreciate it or understand it. If Mickey Mantle were around, I'm sure I'd have a ton of questions to ask him that might make him uncomfortable. I get it. That doesn't mean it's not really awkward.
+- When I started getting notoriety it was cheesy to appear in a commercial.
+- I may be learning guitar, but I'll never be able to sing.
+- People think celebrities don't have to worry about human things like sickness and death and rent. It's like you've traveled to this Land of Celebrity, this other country.
+- I understand the self-loathing and the resentment, and the discipline that it takes to sit down in front of a typewriter or computer every single day, whether it's going well or not going well.
+- I was about 26 or 27 and it was imperative that I make a living right away and it's hard to make a living on stage, so I started in television and film.
+- I think people are always trying to demystify whatever acting is, so they want to know what your method is.
+- I do not think that Mulder trusts any one other than Scully. He s very solitary. She is the only one who takes him seriously. I don t know if they re in love. In a way, their relationship is deeper than that, because they cannot live without each other.
+- The key is to get to know people and trust them to be who they are. Instead, we trust people to be who we want them to be - and when they're not, we cry.
+- I had a fear that I'd be typecast, but I don't really have that fear anymore.
+- I think of myself as more of a comic person. I don't know about a comic actor.
+- I love the ocean, wide-open space and trees, but I'm not a gardener or anything like that. I think I may be, eventually. I was raised in the city, so I don't have that skill set, but my heart is more with the dirt than the concrete. It's an unrequited love with nature - a one-way love affair.
+- It's always a mystery when you're going into a role - 'Here's your wife of 40 years and... action!' How do you create ease or chemistry or whatever is supposed to exist?
+- I'm kind of stupid when it comes to gadgets.
+- Anxiety is part of creativity, the need to get something out, the need to be rid of something or to get in touch with something within.
+- I've run into certain geniuses of individualism - they are very few and far between - who live their lives completely on their own terms; they are very powerful and have a great amount of happiness. We all should aspire to that.
+- I like my computer. But I don't know how to use it as well as the 10-year-old daughter.
+- I lost my virginity when I was 14. And I haven't been able to find it.
+- In high school and college, I was an athlete.
+- I drive an electric car.
+- I love dogs. They live in the moment and don't care about anything except affection and food. They're loyal and happy. Humans are just too damn complicated.
+- I really enjoy taking an outdoor shower.
+- I just spend my money on the essentials. Just basically food and shelter.
+- I don't like the idea of being eaten by a shark. I like to swim in the ocean, and I think much more about sharks than anyone should. I really resent the fact that my oceangoing experiences are ruined by 'Jaws.'
+- I've made so many mistakes. But it is my feeling that you learn from failures, so I welcome them as often as I can.
+- Whenever somebody says they need an angle for their story I always fear that they've got an idea and they want me to fit into it or they want me to come up with an idea myself or I'm supposed to be more revealing than I've been, and to me it just sounds like something I don't want to do.
+- A lot of times passion projects or films are difficult to make because they don't have proven directors attached to them.
+- What makes me mad is arrogance, pretension, putting on airs.
+- I think the real heroic teachers are the ones who work with kids, like my mom and my sister do.
+- If you have Darwin, Christ and Nietzsche, they're all going to talk at once. You need somebody who listens.
+- Fame does lead to money, which I don't have a close relationship with. I'm the kind of guy who never sees the money - it all goes somewhere else. I don't understand it, I don't like to deal with it. I have a fear of not having it, because I grew up without it.
+- Just like every show has a tone, every show has different people on it playing different games. I don't say 'game' in a pejorative sense, I just mean, these are different stories that we tell ourselves when we go to work.
+- Well, I still write poetry, but I wouldn't call myself a poet.
+- In this age of media and Internet access, we are much more talkative than ever before.
+- My entire life has been an attempt to get back to the kind of feelings you have on a field. The sense of brotherhood, the esprit de corps, the focus - there being no past or future, just the ball. As trite as it sounds, I was happiest playing ball.
+- I'm not really a gamer.
+- I don't want to know what happens in any movie that I go to see.
+- It's hard to find scripts that know what they are from page one to page 115.
+- Sometimes the better the writing, the harder it is to play because you really want to service it. It's hard to be that quick and articulate in life. You've got to try to make it seem discovered, you know, not rehearsed.
+- I had to work in one of the most beautiful ski resorts in the world for almost three weeks. Pity me.
+- When I grew up, I was in Manhattan the whole time. But my kids have been all over the world.
+- At one time there were voiceover artists, now there are celebrity voiceover artists. It's unfortunate because these people need the money less than the voiceover artist.
+- You can't control your mind. Why would you want to?
+- There's nothing wrong with acknowledging the panoply of life's rich experience.
+- Games, by nature, have more plot options and non-linear qualities than TV and film.
+- It's always like you write a poem when you can't really say what you're trying to say.
+- Part of being an actor is letting things come about organically as opposed to forcing them.
+- You can go through life and actually speak your mind and do it in an articulate fashion and with a really intelligent point of view.
+- I never thought about the actors on television or film, like what kind of life they had.
+- You become tyrannized by this notion that women must not only be treated equally, but they must never fail.
+- I love the Lower East Side.
+- I think we all choose our style from the ether and whatever is out there.
+- Sex is great until you die, but it's never as great as it was when you were a kid, when it was a mystery.
+- There are certain things I learned when I first started learning about acting, to try and place the character physically and emotionally. And the way you place them emotionally is often with humor.
+- One of the nice things about acting is that it allows you to open up to the other people within you.
+- On the one hand, people think they own kids; they feel that they have the right to tell the kids what to do. On the other hand, people envy kids. We'd like to be kids our whole lives. Kids get to do what they do. They live on their instincts.
+- 98% of the people in the world are harmless and wish you well, but it only takes one person who doesn't. That's what you're constantly on guard against.
+- If my work was good enough, I would never have to do publicity.
+- My favorite parts of work as an actor and a director are those unplanned mistakes that do happen, because it's like catching lightning in a bottle. It's the best part of what we do.
+- In terms of likeability, that's something that I don't think about as an actor when I approach a role.
+- Generally, I don't like to walk out of a movie. It's like a relationship - you want to see it to the end; otherwise, you won't know if you left early or not.
+- 'Duch' means spirit and 'ovny' is kind of the adjectival ending, so the word itself means spiritual. It's my father's name, obviously. He took the 'H' out because he was tired of people saying Duchovny, but he never did it legally. When my parents divorced, my mother, to my father, put the 'H' back in.
+- I don't make decisions based on money.
+- You're raising a kid and you give it food and shelter and, most importantly, you give it the feeling that it's special. I think people react to celebrities like that - I mean, they treat celebrities like children.
+- Willie Mays was the best ever. When I was in college I once made a catch like the one Mays made over his head. Sometimes when I'm lying in bed at night I think about it. It still makes me warm.
+- If you're smart, you'll always be humble. You can learn all you want, but there'll always be somebody who's never read a book who'll know twice what you know.
+- I don't need my phone to play me music. I need it to be a phone and an e-mail thing.
+- I mean, you always want everybody to pat you on the back and tell you you're wonderful every time you do something; I think that's human nature.
+- I think Polanski's an amazing director.
+- Approaching a part or thinking about taking a part, I never think, 'Is that person like me?'
+- For hundreds of years, that was the major form of entertainment: The grown-ups sat around and watched the kids play. Now they sit around and watch the television. The actors are the kids.
+- I feel like I came to acting late in a way.
+- I enjoy trying to figure out the best way to compliment the picture and not overpower it.
+- One of the great things about doing series television is the guest actors that you can have come on and play around with.
+- I think patience is a skill and I wish I had it.
+- Chemistry is really about two people who like to act together, I think. It's like tennis in the most cliched way. It's like if you hit the ball, they hit the ball back, and they don't hit it into the stands, and they don't put the ball in their pocket and walk off - and they don't argue with the umpire, you know?
+- I've turned down jobs because I've said, 'Honestly, I can't find my way in. I can't do it. I love you, as a director. I think the script is good. You deserve better than I think I can do.'
+- Every day I try to do breathing exercises, meditation, and yoga. These things sound awfully cliche, but they help me slow down and try to point to a truth.
+- Maybe the best things about celebrity are the things like being able to get that seat on the plane that you wouldn't normally get, but that's kind of like cheating.
+- I love animals and I love working with them because they don't lie.
+- I don't know how anybody gets better at anything aside from doing it.
+- I feel like I came to acting late in a way. I was about 26 or 27, and it was imperative that I make a living right away, and it's hard to make a living on stage, so I started in television and film.
+- I don't believe in a conspiracy to hide the existence of extraterrestrial life.
+- I feel I have to work hard to nurture whatever talent I have as an actor. I feel like it's not natural to me. So I don't take it for granted... What I think is my natural ability - which is writing - I think I totally take that for granted.
+- In the U.S., oddly, we have images of men as arrogant and aggressive.
+- I'm half Jewish, half Scottish. It's hard for me to buy anything.
+- I don't think of myself as a TV actor. I think of myself as a film, television and Off-Off-Off-Off Broadway actor.
+- People always love and respect characters who speak the truth, even if the truth hurts.
+- 'The X-Files,' as I recall, we didn't know really what we were until the middle of the first year. You know, so if we'd been cancelled, you get cancelled before you mature into what it is you can actually be, which is too bad.
+- I'm trying to protect what I advertise. That's my stance on any kind of self-expression.
+- Women's fashion is a subtle form of bondage. It's men's way of binding them. We put them in these tight, high-heeled shoes, we make them wear these tight clothes and we say they look sexy. But they're actually tied up.
+- Sometimes the better the writing, the harder it is to play because you really want to service it.
+- It's not someone else's responsibility to honor my marriage. It's my responsibility.
+- I think there are ways in which shows can pop their heads up a little bit in the morass of everything you can watch.
+- I'm very proud of my Scottish blood.
+- I still feel like I haven't grown up.
+- I don't like watching people work if they're making art.
+- Most journalists expect me to answer all their questions about aliens and spaceships.
+- I'll instinctively know that I identify with a character.

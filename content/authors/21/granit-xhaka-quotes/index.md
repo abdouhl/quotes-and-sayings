@@ -1,0 +1,99 @@
++++
+author = "Granit Xhaka"
+title = "Granit Xhaka Quotes"
+quotes_len = "93"
+description = "the best 93 Granit Xhaka Quotes"
++++
+- I have never had any contact with Bayern Munich, let alone have agreed personal terms.
+- Every Monday, we're asked to undertake jump tests to check the conditions of our muscles. There's nothing you can hide. Once a week, they do urine tests, and your body fat percentage is tested regularly. The doctors cover all bases.
+- The fans are amazing. I'm really happy here at Arsenal, and I'm going to do my best for this club.
+- I like to play football. I'm an aggressive player and also a leader.
+- What happens here, the daily agenda of Arsenal, is very different from what I experienced in Monchengladbach.
+- I am in an outstanding city, an outstanding club. The only thing that Arsenal has been missing is a league title.
+- I am a very simple man. I love normality, and I love normal people. I love to eat normal food. It's how I grew up.
+- Individual quality doesn't decide games for us but the whole team.
+- My game is about being aggressive, and I'm not the same player if you take that away from me.
+- I never hesitate to go into a tackle, and I don't go onto the pitch to pull out of a challenge.
+- You always need a certain amount of time to fully adjust; it was no different when I moved to the Bundesliga.
+- I know that there are coaches in the Bundesliga that have said in team meetings, 'Provoke Xhaka; he will eventually go ballistic.' I think that is sad. That, in my view, has nothing to do with football.
+- A club like Arsenal, it's normal that expectations are high. This club must compete for titles, and that's what we want to do.
+- Everyone fights for everyone else. If someone has a bad day, then the others are there for him. And if a player makes a mistake, then the others can compensate for that. Those sorts of things are crucial at this level, and it's really important that we perform as a unit.
+- I'd no longer be the same player without my rigorousness, and certainly not the player Arsenal wanted.
+- Personally, I can handle criticism, especially when it is deserved, and it's because my dad never, ever said 'Well done' to me. He did it on purpose so that I kept my feet on the ground.
+- There a lot of occasions when Albanians cause trouble, but then we are also very nice people. People sometimes forget that there are good people from the Balkans as well.
+- I think every new player needs time when they come to a new club and a new country, and I certainly did.
+- You can't afford to rest on your laurels at all, or you'll instantly be on the bench.
+- I can't stand people who are backward. I am honest, straightforward. I don't like to pretend. And I will not change either.
+- The Premier League is not my goal but a childhood dream. It is a dream that could be fulfilled.
+- It's true that my father was imprisoned for three and a half years, and it was because he stood up for what he believed in. It's not a taboo subject in our household. We talk about it. After all, I want to know what happened.
+- No, Borussia is not falling apart. It does not matter whichever players will leave. That is what the past has showed. The club has developed and actually improved despite big-name players leaving.
+- I'm looking forward to the new adventure. Playing in the Premier League was always my dream, and I'm definitely going to relish this opportunity and give my absolute everything for this club.
+- I have a good relationship with the Albanian fans. But when you are called a traitor - that is such a harsh word. Most of the Albanian fans respect me. But 'traitor' is unacceptable considering the background of my family.
+- Lots of people talk about the character of our team, that it's not right and that we need to do more. But we always show that we can come back.
+- It's difficult to say no when Manchester City want you and you could play there. That much I have to admit.
+- I'll give my all on the pitch, as I have in recent years. That's what is important. We will give our all to win something.
+- You can see the players are world-class just by the way they pass the ball. Ozil, Sanchez, and Cazorla, for example, are huge personalities. Even though the club maybe spent more money on me, I can still learn a lot from them in any respect.
+- When I think about a mid-table club like Everton spending £150 million during the summer, I am lost for words.
+- I don't mind being criticised, because I am not that easy to knock down, and no-one can destroy me. But I am bothered by the stupid people who call me dirty, brainless, and an idiot. You don't say words like these to someone who you know nothing about.
+- I still want to improve in every way. I'm a young player. I want to work, and that's my aim: to improve in every single aspect of my play.
+- When you want too much, you don't usually achieve much.
+- In games, you notice there's more sprints than in Bundesliga. It takes a while to get used to.
+- In football, you just have to develop yourself.
+- The family is our greatest luxury.
+- I think, when a manager has been at a club for more than 20 years, he can only have a positive impact.
+- I will give everything to help Arsenal win trophies and make the fans happy.
+- Each month from our income - we have a separate account, obviously - we give 80 percent of it to our parents back home.
+- People who know me know that I don't talk about the play-offs. It's not an issue for me at all.
+- My dad played football, too, in the former Yugoslavia.
+- I wouldn't change myself for anybody. I am who I am; people accept me, or they don't. I have my strengths and my weaknesses, which I can try to improve upon, of course. I'm still not the finished product.
+- If you win, you're heroes. But if you don't, then you're losers. That might sound harsh, but that's the way it is.
+- We always have hope. Hope dies last.
+- Moving to England, again it's a new language to learn, and I've got to get use to the mentality, the culture, but I think I've integrated myself really well into this team, and I'm happy so far.
+- It's in my head that I am a leader, and captaining Monchengladbach was very good for me.
+- I think in football everything is possible.
+- I'm going to give my best and not worry about transfer fees or anything like that.
+- I am a regular for one of the biggest clubs in Europe, and I want to progress still further.
+- It's not like I played my first football match in England. For me, football is pretty much the same everywhere; the ball is round, but maybe tactically, things are different than at other clubs I've played for.
+- It's aggressive, and I like the way Arsenal play football. It's not like other countries, but it's very, very nice here.
+- To have six years of professional football under my belt already is really something.
+- It could be very costly if you don't have a clear mind during a tournament.
+- I'm a hard-working young man who believes in myself.
+- My goal is to become a key player in one of the ten best clubs in the world and become a leader there.
+- I am still young; I am still fresh, and I want more.
+- Arsenal prepare the players in the best way. They pay attention to every detail. We are able to recover optimally during our flights. The food and the service, everything's geared perfectly to each other.
+- I remember I was young, and the first game I watched was in the Premier League. It's a big dream for me, and now that I'm here, I am very, very happy.
+- In football, you get criticised if you are sent off. It's my style of play, and nobody can make me change that. Even if I get another red card, then that happens. You become cleverer, maybe look more, and since my red card, I think things have improved.
+- When I went to Gladbach from Basel in 2012, I put a lot of pressure on myself at first, and it was too heavy. I will not put any pressure on myself at Arsenal, even though the transfer fee was high.
+- When I was younger, even though I had a big brother, my parents would give me the house key every day.
+- Arsenal play attractive football, and I enjoy that. I think you could see against the MLS side that this team has a lot of quality, and we'll give our all to show that on the pitch.
+- He's not a coach who speaks to you every day. Wenger has spoken to me two or three times. He's told me he's very impressed by how I train and how I'm a disciplined character.
+- You have to be completely there in every game, and as soon as you drop your level even one per cent, you concede goals.
+- I heard my new team-mates saying, 'We have got to hope that we don't go down.' I thought to myself, 'What kind of a mentality is that?'
+- I don't think Gladbach are on the same level as Arsenal.
+- Ottmar is a big coach and a good gentleman. I don't know if I'm a young Schweinsteiger; I'm another player. I am Granit Xhaka.
+- One of the most revealing details about my parents is that they only got together three months before my dad's arrest.
+- I play with a lot of emotion because I'm a passionate guy, and I play with that passion. I love playing that way. Sometimes you're late onto the ball, sometimes you're not. Sometimes you make contact with the guy when you tackle him, sometimes not. It's a sport where individual duels are vital, so I don't see it as a problem.
+- Here at Basel is where I made my first professional steps. I came up and grew up through the FC Basel school.
+- London is really nice, and I'm really happy here, but, of course, I've moved here to play football and not just to be in the city.
+- I know I've made mistakes, and sometimes I've talked about things too openly or directly. That wasn't good, and I've learned from that.
+- I guess I'd say I'm quite an aggressive player. Fair but aggressive, someone who likes the tough stuff.
+- In Camden, it's just the atmosphere that gets me. It's simple. It's nice. It's real. And it's the people, too. I like to interact with them because they are normal and I am normal. People probably don't expect an Arsenal player to come to Camden Lock and, basically, be a normal guy.
+- I've had four beautiful years at Monchengladbach and owe the club a lot.
+- In the past, we showed that we could play football, but Vladimir Petkovic has worked with us on the psychological side of things in particular. I think that's where we've made the most progress. He's brought us closer together as a team.
+- In Germany, you can play aggressively, but the referee will always blow his whistle, but in England, that's not the case. That's better for me.
+- Arsenal were really interested in me for a long time, and I think that I fit into the football Arsenal play.
+- Maybe if I was born in Kosovo, I might not be where I am now, so I need to thank Switzerland, of course, because I went to school there, learnt to play football there, and started my career there.
+- I have learned one thing in my life: If I put too much pressure on myself, then everything goes wrong.
+- We are young; we are naive with money. Money can go fast. If anyone thinks he is something better just because he has more money in the account, then he can very quickly fall on your face.
+- My brother was always going to go in the direction of football. With me, it was more between school and football. Eventually, it worked out for both of us. We're pleased to have gone down that path. I'm proud that my parents always supported us, in good and in bad times. You need that.
+- I'm a person who thinks realistically but has dreams and fantasies as well.
+- The expectations are high, so we know: If we do not meet them, there is criticism. We have high expectations ourselves. We are not happy with fourth, third, or second, either.
+- Arsenal is Arsenal. It's not a small club; it's a very big club, and it's like a family. It's very good for me because I love my family, and to have another family here is very good.
+- The first few months in a new country are always really hard.
+- I compliment Kramer perfectly. We both put in a lot of legwork, win many balls, and we're comfortable with the ball at our feet. We also talk a lot both off and on the pitch.
+- Here in the Premier League, you have to give 100 per cent for the whole 90 minutes. It's not like after 70 minutes you can say, 'We're 2-0 up, so let's have some fun now' - that doesn't happen in the Premier League.
+- Actually, it's normal when you come to a new club and country: you need to get used to the language, the philosophy of the team, the squad, the coach.
+- I've picked up quite a few yellow cards in the last few years - a few reds, too. That was the case as a youth player as it is now. But I don't see it as a problem. That's how I play. If you take that away, then I wouldn't be where I am now. So I don't think the yellow cards or the red cards are too big of an issue.
+- Family is the most important thing to me. Especially my brother Taulant - we talk about everything together.
+- I never used to be taken seriously as a Swiss person.
+- I knew before I arrived that the pressure at a club that challenges for the title grows quickly. The season is long; we'll become stronger with every game.

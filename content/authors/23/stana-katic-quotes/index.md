@@ -1,0 +1,49 @@
++++
+author = "Stana Katic"
+title = "Stana Katic Quotes"
+quotes_len = "43"
+description = "the best 43 Stana Katic Quotes"
++++
+- I have a living wall of 30 plants - tarragon, rosemary, echinacea. I like to walk alongside it, plucking and chewing.
+- Maybe I'm naively romantic, but I do believe that spice and excitement doesn't stop once a couple gets together.
+- I like anything by 50 Cent and Snoop Dog. I love the way they mouth their way around words.
+- Men should never marry their muse. It ruins the illusion.
+- I will direct one day. I need some more life experience before I feel like I can do something like that comfortably. It'd be a feature, it'd be something maybe that I had in writing as well.
+- I carry Marc Jacobs Magic Marc'er eyeliner and Christian Dior red lipstick to amp up my look in a flash.
+- My parents are European immigrants. And I think as Europeans there are so many languages in close proximity that it's part of the culture to try to learn at least one other language. So my parents really encourage it in the house. Chinese would be really great to learn - like Mandarin or Cantonese. Portuguese would be incredible.
+- I love Cillian Murphy's character in 'Peaky Blinders' and Tom Hardy's in 'Taboo' - theses are characters that, as audience members, we follow along with and root for. But our own morality is tested throughout that journey, because these characters ride a thin line between morality and amorality.
+- I just enjoy working with really wonderful actors and amazing creative people and I hope to keep doing that, no matter where.
+- Pearl Jam were a part of my growing up.
+- The sound of the piano is always something that is a real kind of comfort food to me.
+- I read 'Scarlett' recently, and that was a killer comic book. The 'Black Widow' was pretty rockin'. There is a big list of killer chicks that are just rockin'.
+- There's nothing better than home-grown, chemical-free fruits and vegetables.
+- I speak three other languages - Serbian, French, and Italian - but typically read in English.
+- I was named for my grandmother. It's an evil-eye name, to protect you from bad things.
+- I can't do without face wipes and my Dr. Hauschka Quince day cream.
+- Michael Fassbender is phenomenal in '12 Years a Slave.'
+- I really want to learn how to rap. I know it sounds utterly ridiculous!
+- I was trained on piano - that was part of grade school and high school.
+- In talking with people that have experienced it, I learned that PTSD is something that a person in a position of authority sometimes thinks they're not supposed to have. They don't always have an avenue to personally address it or even discuss it.
+- Um, I think every role, whether in TV or film, has a part in building a career and relationships.
+- My dog gives me such joy and makes me laugh incessantly.
+- I'm always the person that is DJing spaces and moments. I'm crazy about music.
+- I have a lot of brothers. It's easy for me to do physical stuff. I had to survive. I really love it, and I'd love to do more of it. I want to do action films. I want to go and hang off of wires, and jump off of bridges, and hang on bungee cords. I've always really loved it.
+- I'm a good whistler. As I was growing up, we had a family whistle, so if we were spread out somewhere, like in a grocery store, and heard the call, everyone came.
+- There's no one type of film that I like watching. I loved 'Tropic Thunder' and the first 'Austin Powers,' and then 'The Godfather Parts I' and 'II,' 'There Will Be Blood,' Wes Anderson films.
+- My parents were European immigrants. They came to the States with $1,500, two suitcases, and me, and they managed to build a business, a family, and a future for their family. They didn't have any of the resources of people who have lived here for two or three generations.
+- I love accents; I would love to find more characters with a variety of vocal intonations. It creates a character. It's like you're singing a song. Some people find their character through walking or movement - for me, voice is one of the ways I find parts of the character.
+- I have to believe in the character to perform it.
+- I've been to Mongolia, Peru, Argentina, India.
+- Every time I go to a new place, more likely than not, I end up seeing an opera there. It's ended up being a part of travel.
+- When I was 16, I was in Boston and some friends said, 'You want to go to New York?,' I went with my roommate... These guys said, 'We're going to this club. Just don't go in the washroom.' It was CBGB. I had no idea what it was or the history of all the music. All I knew was this was my first 21-and-over club and I managed to get in!
+- I got introduced to yoga in drama school. It's now a mainstay in my life, ever since I got instructor certification at a teacher-training intensive. I even occasionally guide an intimate class of friends and family, but mostly the training was to serve and deepen my own practice.
+- I really love doing period pieces. I don't feel I've gotten a chance yet in my career to explore it as much as I'd like to. So I'll constantly look for opportunities to play in those worlds and hopefully be able to express those characters as well someday.
+- In my line of work, someone may say, 'Guess what? You've got to be on a plane in two hours.' So I keep a toothbrush and toothpaste on me.
+- People ask 'How do you get so eh-ish?' I don't know if it's just because so much of my family still lives in Canada and I finished studies up there.
+- I think 'Game of Thrones' was extraordinary. I want to do some period pieces. It would be lovely to tell great stories, that is my main ambition. And to be working with amazing creators.
+- People in life take on certain stories and say, 'I'm going to be defined by this story and I'm going to live up to every inch of this story.' Sometimes you realize the story isn't fulfilling you and in fact you're not living the life that you're given.
+- As an actor, of course it's exciting to go and explore characters. It's exciting to explore human psychology and relationships, and that's really the drive, at the end of the day, for me.
+- I try to get away. It's very unusual for me to be in one spot for so many months, which is one of the things I've had to get used to for a television show. I enjoy going on adventures and seeing the planet.
+- Alex Gross is an L.A. artist who has become a friend. His work is really compelling.
+- Working with the earth is peaceful for me.
+- Regardless of any experiences in the past, for me it really is important to be engrossed in as much of the creative process as I possibly can. I was surprised with how much the eight years I spent on 'Castle' actually serviced that. I ended up, in a way, having a free education on that show.

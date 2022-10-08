@@ -1,0 +1,23 @@
++++
+author = "Pablo Casals"
+title = "Pablo Casals Quotes"
+quotes_len = "17"
+description = "the best 17 Pablo Casals Quotes"
++++
+- Let us not forget that the greatest composers were also the greatest thieves. They stole from everyone and everywhere.
+- Each person has inside a basic decency and goodness. If he listens to it and acts on it, he is giving a great deal of what it is the world needs most. It is not complicated but it takes courage. It takes courage for a person to listen to his own goodness and act on it.
+- We ought to think that we are one of the leaves of a tree, and the tree is all humanity. We cannot live without the others, without the tree.
+- To retire is to die.
+- You must work - we must all work to make the world worthy of its children.
+- Music is the divine way to tell beautiful, poetic things to the heart.
+- The most perfect technique is that which is not noticed at all.
+- To retire is to begin to die.
+- Man has made many machines, complex and cunning, but which of them indeed rivals the workings of his heart?
+- The child must know that he is a miracle, that since the beginning of the world there hasn't been, and until the end of the world there will not be, another child like him.
+- The love of one's country is a splendid thing. But why should love stop at the border?
+- Music will save the world.
+- The heart of the melody can never be put down on paper.
+- The art of interpretation is not to play what is written.
+- I feel the capacity to care is the thing which gives life its deepest significance.
+- The first thing to do in life is to do with purpose what one purposes to do.
+- I am perhaps the oldest musician in the world. I am an old man but in many senses a very young man. And this is what I want you to be, young, young all your life, and to say things to the world that are true.

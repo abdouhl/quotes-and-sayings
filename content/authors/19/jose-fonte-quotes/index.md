@@ -1,0 +1,22 @@
++++
+author = "Jose Fonte"
+title = "Jose Fonte Quotes"
+quotes_len = "16"
+description = "the best 16 Jose Fonte Quotes"
++++
+- I am 33 years of age. I have 500 or 600 appearances. I know what I have done in football. I know how hard I have to work to be in this position.
+- Understand that once I step on the pitch with the Saints shirt and armband I give my blood, sweat and tears for the club and will always will no matter what you read or think. My professionalism means everything to me and no one can point me a finger about it.
+- You don't want to play in League One and League Two pitches - you want to play on a massive pitch in the Olympic Stadium with beautiful grass.
+- When I was in League One I certainly didn't imagine that I would be playing the Euros.
+- I want to win, and if I have to play bad every game and win I will do it.
+- The main thing is to be in the quarter-finals and it doesn't matter if you play beautiful football or if you're playing ugly football, you have to win.
+- If you got to Manchester City, if you don't work, you're out of the team.
+- I'm going to keep being the good professional that I am. I am going to keep working hard to try and help my teammates and the manager.
+- But what a club West Ham are, such a big club, the supporters are fantastic.
+- I'm not the same player I was in League One. I am proud of what I achieved because it was all through hard work, good managers and team-mates pushing me.
+- Alan Pardew brought me to Southampton and was a great influence and then we had consecutive promotions under Nigel Adkins.
+- It's frustrating to see a club as great as West Ham not really pushing for the top six, they have everything, they have the fans, the stadium, they have to be pushing for top 6 without a doubt.
+- I arrived in the Premier League late at 29 years old - you still have to live 50 years after football. You do your best for yourself and your family. You've got to fight for what you believe.
+- It's hard when you lose your best players. It's tough. I'm not going to lie. It makes you think, 'What if they didn't leave?'
+- The passionate fans they have and also the ambition of the manager and the chairman. It was an easy descion to choose West Ham. London is also closer to my wife's side of the family - so provided her more help to raise the kids. Everything made sense and I'm extremely happy.
+- When things don't go well, you try to find any kind of excuse.

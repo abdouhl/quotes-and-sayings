@@ -1,0 +1,83 @@
++++
+author = "Erma Bombeck"
+title = "Erma Bombeck Quotes"
+quotes_len = "77"
+description = "the best 77 Erma Bombeck Quotes"
++++
+- How come anything you buy will go on sale next week?
+- Like religion, politics, and family planning, cereal is not a topic to be brought up in public. It's too controversial.
+- When a child is locked in the bathroom with water running and he says he's doing nothing but the dog is barking, call 911.
+- Guilt: the gift that keeps on giving.
+- Most women put off entertaining until the kids are grown.
+- Children make your life important.
+- Onion rings in the car cushions do not improve with time.
+- It takes a lot of courage to show your dreams to someone else.
+- Who in their infinite wisdom decreed that Little League uniforms be white? Certainly not a mother.
+- My kids always perceived the bathroom as a place where you wait it out until all the groceries are unloaded from the car.
+- Marriage has no guarantees. If that's what you're looking for, go live with a car battery.
+- No one ever died from sleeping in an unmade bed. I have known mothers who remake the bed after their children do it because there is wrinkle in the spread or the blanket is on crooked. This is sick.
+- Once you get a spice in your home, you have it forever. Women never throw out spices. The Egyptians were buried with their spices. I know which one I'm taking with me when I go.
+- Never accept a drink from a urologist.
+- There is one thing I have never taught my body how to do and that is to figure out at 6 A.M. what it wants to eat at 6 P.M.
+- All of us have moments in our lives that test our courage. Taking children into a house with a white carpet is one of them.
+- My theory on housework is, if the item doesn't multiply, smell, catch fire, or block the refrigerator door, let it be. No one else cares. Why should you?
+- Someone once threw me a small, brown, hairy kiwi fruit, and I threw a wastebasket over it until it was dead.
+- Being a child at home alone in the summer is a high-risk occupation. If you call your mother at work thirteen times an hour, she can hurt you.
+- For years my wedding ring has done its job. It has led me not into temptation. It has reminded my husband numerous times at parties that it's time to go home. It has been a source of relief to a dinner companion. It has been a status symbol in the maternity ward.
+- Do you know what you call those who use towels and never wash them, eat meals and never do the dishes, sit in rooms they never clean, and are entertained till they drop? If you have just answered, 'A house guest,' you're wrong because I have just described my kids.
+- There is nothing more miserable in the world than to arrive in paradise and look like your passport photo.
+- Sometimes I can't figure designers out. It's as if they flunked human anatomy.
+- I will buy any creme, cosmetic, or elixir from a woman with a European accent.
+- People shop for a bathing suit with more care than they do a husband or wife. The rules are the same. Look for something you'll feel comfortable wearing. Allow for room to grow.
+- Never go to a doctor whose office plants have died.
+- I've exercised with women so thin that buzzards followed them to their cars.
+- I have a theory about the human mind. A brain is a lot like a computer. It will only take so many facts, and then it will go on overload and blow up.
+- Never have more children than you have car windows.
+- It goes without saying that you should never have more children than you have car windows.
+- Never go to your high school reunion pregnant or they will think that is all you have done since you graduated.
+- A grandmother pretends she doesn't know who you are on Halloween.
+- If a man watches three football games in a row, he should be declared legally dead.
+- Somewhere it is written that parents who are critical of other people's children and publicly admit they can do better are asking for it.
+- The only reason I would take up jogging is so that I could hear heavy breathing again.
+- If you can't make it better, you can laugh at it.
+- One thing they never tell you about child raising is that for the rest of your life, at the drop of a hat, you are expected to know your child's name and how old he or she is.
+- I was terrible at straight items. When I wrote obituaries, my mother said the only thing I ever got them to do was die in alphabetical order.
+- Thanks to my mother, not a single cardboard box has found its way back into society. We receive gifts in boxes from stores that went out of business twenty years ago.
+- There is a thin line that separates laughter and pain, comedy and tragedy, humor and hurt.
+- Some say our national pastime is baseball. Not me. It's gossip.
+- There's nothing sadder in this world than to awake Christmas morning and not be a child.
+- Why would anyone steal a shopping cart? It's like stealing a two-year-old.
+- When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left, and could say, 'I used everything you gave me'.
+- I come from a family where gravy is considered a beverage.
+- Dreams have only one owner at a time. That's why dreamers are lonely.
+- I have a hat. It is graceful and feminine and give me a certain dignity, as if I were attending a state funeral or something. Someday I may get up enough courage to wear it, instead of carrying it.
+- Before you try to keep up with the Joneses, be sure they're not trying to keep up with you.
+- Humorists can never start to take themselves seriously. It's literary suicide.
+- My second favorite household chore is ironing. My first being hitting my head on the top bunk bed until I faint.
+- There's something wrong with a mother who washes out a measuring cup with soap and water after she's only measured water in it.
+- Never order food in excess of your body weight.
+- It is not until you become a mother that your judgment slowly turns to compassion and understanding.
+- On vacations: We hit the sunny beaches where we occupy ourselves keeping the sun off our skin, the saltwater off our bodies, and the sand out of our belongings.
+- I haven't trusted polls since I read that 62% of women had affairs during their lunch hour. I've never met a woman in my life who would give up lunch for sex.
+- Don't confuse fame with success. Madonna is one; Helen Keller is the other.
+- When your mother asks, 'Do you want a piece of advice?' it is a mere formality. It doesn't matter if you answer yes or no. You're going to get it anyway.
+- Youngsters of the age of two and three are endowed with extraordinary strength. They can lift a dog twice their own weight and dump him into the bathtub.
+- House guests should be regarded as perishables: Leave them out too long and they go bad.
+- I take a very practical view of raising children. I put a sign in each of their rooms: 'Checkout Time is 18 years.'
+- A friend doesn't go on a diet because you are fat.
+- A friend will tell you she saw your old boyfriend - and he's a priest.
+- In general my children refuse to eat anything that hasn't danced in television.
+- In two decades I've lost a total of 789 pounds. I should be hanging from a charm bracelet.
+- When humor goes, there goes civilization.
+- I never leaf through a copy of National Geographic without realizing how lucky we are to live in a society where it is traditional to wear clothes.
+- Did you ever notice that the first piece of luggage on the carousel never belongs to anyone?
+- God created man, but I could do better.
+- I was too old for a paper route, too young for Social Security and too tired for an affair.
+- For some of us, watching a miniseries that lasts longer than most marriages is not easy.
+- Housework, if you do it right, will kill you.
+- A friend never defends a husband who gets his wife an electric skillet for her birthday.
+- What's with you men? Would hair stop growing on your chest if you asked directions somewhere?
+- Car designers are just going to have to come up with an automobile that outlasts the payments.
+- Thanksgiving dinners take eighteen hours to prepare. They are consumed in twelve minutes. Half-times take twelve minutes. This is not coincidence.
+- Never lend your car to anyone to whom you have given birth.
+- Getting out of the hospital is a lot like resigning from a book club. You're not out of it until the computer says you're out of it.

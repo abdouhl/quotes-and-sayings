@@ -1,0 +1,62 @@
++++
+author = "Sabaa Tahir"
+title = "Sabaa Tahir Quotes"
+quotes_len = "56"
+description = "the best 56 Sabaa Tahir Quotes"
++++
+- I don't go on social media with a mercenary intent to promote. That's just wrong. I go to learn, to listen, to have fun, to find people who love what I love and who introduce me to new things. That's where the joy is: in the interactions.
+- Multiple characters' opinions on societal roles, as well as their perceptions of themselves and others, help me lose myself in whatever strange and wonderful setting I'm reading about.
+- When you write your first book, you're writing in a vacuum; it doesn't matter how much time it takes. And then with the second book, you're on contract, and you have deadlines, and it's a little bit tougher. And also the expectations. You don't want to let your characters down.
+- As a kid living in an isolated desert town, the most diversity I saw in my media was Claudia Kishi, the Japanese American girl from 'The Baby-Sitters Club.'
+- My readers and I, we have the same taste, and it's awesome. They'll tell me about stuff that I haven't heard of.
+- Reading about people who were so truly voiceless and powerless - Liberian child soldiers, Sudanese refugees, and, especially, Kashmiri women whose husbands or sons were imprisoned by the army with no hope of release - made me think about how I would feel if someone took my brothers from me.
+- Like me as a teen - and like many teenagers now - my characters are at a peculiar crossroads in their lives. They desperately seek freedom. But at the same time, they are constantly thwarted.
+- I think that YA stories have a lot of heart, and I think that whatever age we are, we connect to them because we sort of see ourselves in them.
+- Evil comes in many forms, and whether you are male or female, that doesn't matter as much as what lurks in your mind.
+- When I went to college, it was so easy. And I worked two jobs while I was in school all the way through; I put myself through school. But working and studying was easy for me because I had worked so hard in high school, studying all the time. Taking only three classes and then working was an easy life in comparison.
+- Even as a little kid, I told lots of stories, and I wrote them down, and I loved reading fiction and fantasy.
+- When I was growing up, I didn't feel strong. I felt weak. I felt like a scared little kid. So I naturally turned to books to deal with that feeling, and I really turned to fantasy. That's really what influenced my decision to write a fantasy novel.
+- Like so many other young South Asians in America, I am the product of two cultures whose conflicting values pull at me with equal urgency. Never have I felt as torn between the two as I do about the question of marriage.
+- If I'm really excited about a scene, I used to wait to write it, and now I'll just write it. When you do that, all sorts of awesome things can happen from just giving in and writing that scene you're excited about.
+- The 'Harry Potter' books had a huge impact on me.
+- I grew up feeling voiceless and powerless as a kid. I turned to books - fantasy books in particular - to give me comfort. As I grew up, I realized I could find that sense of power and voice if I simply started writing.
+- You walk into BookCon, and everybody is so excited... it's just paradise.
+- What is a nightstand without Mindy Kaling? I dip into her 'Why Not Me?' when I've had a particularly rough day. Her hilarious observations and anecdotes never fail to cheer me up.
+- Anytime you own a small business, it's all you. There is nobody to fall back on.
+- As a teenager, I felt so hemmed in and trapped, both by the place I lived and the expectations others had about school, college, and a future career.
+- How far do you go in following orders? So many people use it as an excuse, right? 'I was following orders.' But what does that mean?
+- I grew up raiding my brother's comic book stash. I tried to lose myself in fiction.
+- When I was a kid, I worked as a clerk at my parent's motel. From when I was eight or nine, I rented rooms, helped with laundry, folding tons of towels. And then I also worked at my dad's gas station more as a young adult and as an adult.
+- My dad was very strict. He was absolutely the Tiger Dad. You know, 'You got a 98% on this test? Why didn't you get 100?' That was normal life for my brothers and I.
+- I grew up in a small town in the Mojave Desert where conservative Republicans were as common as cacti. Inexplicably, I grew up liberal and a feminist.
+- It was hard to feel hated as a child.
+- Ani DiFranco - I love her.
+- In fantasy and science fiction, world-building is an essential part of the story. But as a reader, I don't just want descriptions of food, clothing, and places. I want to understand the world to its core, through the eyes of those who live in it.
+- My parents worked harder than anyone I have ever met. They had so many businesses. There was the motel, but throughout my childhood, they also had a drive-through dairy, a gas station, a clothing store, a computer reselling business.
+- My brother had a big comic book chest, and he kept the key in the exact same place. So when he would leave for camp or be gone for a few days at a friend's house, I would totally sneak into that room and open the comic book chest and see 'X-Men' and 'Sandman' and all the Neil Gaiman stuff and all the Marvel stuff and some old 'Thor' comics.
+- Literature taught me that I wasn't alone, that I could become a writer if I worked at it, that my story mattered. Whether a young reader becomes a writer or not, they deserve to know that their story, whatever it may be, is important.
+- The way I felt growing up, which was like an outcast - I was weird, I was a nerd, I read fantasy books - I think a lot of fantasy book readers and a lot of readers and writers in general have that experience of isolation.
+- My mother and father were born and raised in Pakistan, where religion is entrenched in the culture and the culture is explicitly unyielding.
+- Young readers can sense when you're not addressing what's actually going on.
+- I actually like love triangles in books. That's one of the main reasons why I wrote one. I really love love triangles.
+- I was 5 when I got the speech about how I would have to work harder and longer than everyone else because I was brown.
+- I was an outsider. I looked different, and I felt really voiceless as a kid.
+- Honesty and truth in writing is so important, and I think that YA writing above all is honest, and I think that appeals to anyone of any age.
+- 'Daughter of Smoke and Bone' is one of my all-time top YA fantasy trilogies, so I was a little nervous about reading 'Strange the Dreamer.' Of course, I shouldn't have been worried because Laini Taylor immediately grabbed me by the proverbial lapels and refused to let me go.
+- I felt like an outcast and turned to books, fantasy in particular, to find a place for myself. Reading took me away from this world, which I needed.
+- I grew up in an isolated town, out in the middle of the Mojave Desert in the middle of a naval base. My family was one of the only South Asian families in this town. We felt it. We knew.
+- Whatever the case, oftentimes, for a story to feel complete to me, I need more than one point of view.
+- 'The Sword of Shannara' is about two brothers who find themselves on an epic quest to save humanity. It borrows from 'Lord of the Rings' but is still original in its own right. I read it in three days, then reread it, then went out and found every single book Terry Brooks ever wrote, and read all those.
+- You pour your soul into your book, but you never know how it will be received, and when people like your baby, it's a great feeling.
+- Great novels have great characterization no matter what. But multiple points of view let me examine characters from entirely different perspectives, allowing me to learn more about everyone in the process.
+- I love my characters like family and cannot wait to share more of their story with readers.
+- I find booksellers comforting - they're my people.
+- Some of my best book recommendations have come from booksellers.
+- When I asked myself what I'd want to see in a comic about a Pakistani superhero, the first word that came to mind was 'relatable.'
+- People could be really horrible, you know? They would threaten my parents.
+- I wanted to write something that reflected the violence and horror of the world, but I also wanted to reflect the way people fight to survive, even when society wants to crush them.
+- If I refused to get married, my parents would be brokenhearted and confused. Like any child close to her parents, I could not watch them suffer.
+- For a while, gently bumping into my nightstand meant a pile of 50 books clattering onto my head and the floor. After the 10th time this happened, I moved most of the books to a shelf in the spare room. Now, my nightstand is sort of like a bookish country club. And not all books get in.
+- At age 10, or even 15, it would have meant the world to me to see a Pakistani girl portrayed positively, let alone as a comic book superhero.
+- I like to write when things are calm - and when I'm not worried about my well-being, the well-being of those I love.
+- I've loved mountains since I was a girl, and when I discovered mountaineering fiction after college, I was hooked.

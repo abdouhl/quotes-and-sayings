@@ -1,0 +1,21 @@
++++
+author = "Don Ameche"
+title = "Don Ameche Quotes"
+quotes_len = "15"
+description = "the best 15 Don Ameche Quotes"
++++
+- The camera was kind to me. But I was never a screen personality like Gable or Flynn. The camera did something with their faces that was special.
+- There will be no 'Mommie Dearest' in the lives of my children, and no books like the one the Crosby boy wrote about Bing, or Bette Davis's daughter has written. My children love me very much, and they are loved.
+- God was awfully good to me during the good days. I cherish the old days, but I don't miss them.
+- I think this is the sweetest tribute I have ever seen in this town.
+- I was surprised I was nominated for an Oscar because 'Cocoon' was such an ensemble picture. But now I'm certain it wasn't only for 'Cocoon.' It was a lifetime award, so I accepted it in that vein, and it probably meant more from a recognition standpoint.
+- I never considered acting while growing up. I just knew I didn't want to go into the saloon business: I wanted to get away from Kenosha. And once I left, never, ever did it cross my mind to go back. I went to college and thought I'd study law.
+- I've seen my performances. I don't like them.
+- There are directors you never, ever want to get close to. Lubitsch was one. Outside of the work, I don't think I ever said five words to him. Mamet was pretty much the same thing. His mind is working all the time.
+- I'm not like Henry Fonda. He lives to act. I've just had a dedication to do the best I could. When I don't have challenges, the days get long. But I do enjoy being on stage. If I do good work, I get a kick out of that.
+- My father ran a saloon in Kenosha, Wis., which is just about as rough a living as I can think of. It was brutal; it scared the hell out of me. I was so petrified all the while I was a child, I didn't know what I was doing half the time.
+- In the old days, before there was such a thing as film schools, directors learned the camera by watching other directors, and learning from their own dailies, and listening to the cameraman, and seeing what would work. Some of those guys could cut their movies in their head.
+- By 1949, there was no more work for me out there, and I went to New York in 1950 and just did whatever I could. Mainly television. Some Broadway. A lot of dinner theater work, which is not a very satisfactory medium.
+- I never 'went Hollywood.' Perhaps some of my behavior was detrimental to my career, but I couldn't go the route of Hollywood parties.
+- I'm a very contented, peaceful man. I made mistakes, yes, but I accepted them, and, I hope, graciously.
+- I've deliberately studied many things that I know, going in, I won't be able to assimilate. I read Plato, St. Thomas, the mystics, to exercise my mind.

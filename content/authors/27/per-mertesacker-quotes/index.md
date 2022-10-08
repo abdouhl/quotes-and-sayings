@@ -1,0 +1,104 @@
++++
+author = "Per Mertesacker"
+title = "Per Mertesacker Quotes"
+quotes_len = "98"
+description = "the best 98 Per Mertesacker Quotes"
++++
+- Moving abroad brings you on both as a player and a person.
+- Arsene Wenger was always the kind of manager whose belief in his team's qualities was steady as a rock and who approached matters with never-ending patience.
+- Moving to London enables me to fulfil a dream and a further step in my career. The Premier League has always represented a great challenge for me.
+- Things can change very fast in football.
+- When you step up as a young talent, you need to challenge the old lads.
+- It is an important duty at Arsenal for the experienced players to show the younger ones that there is a chance to make it into the first team.
+- The best players in the world play in the Premier League and therefore it is the best league.
+- I've played for 15 years and played in five major tournaments. I know what it gives me in terms of the joy, in terms of the love for the game. But I'm done with it.
+- My home town called me a citizen of honour. So I'm a special citizen now.
+- I've never had that dream in my head: 'I want to play Bundesliga or Premier League.' I was a fan, but it was never the dream that one day I was going to make it, because a lot of people had told me already that I wouldn't.
+- Never tackle, never go down, we've heard it over and over again. You have to try to keep Messi away from the goal and block him with multiple players while being as close to him as possible. He is too quick, too fast, too intense with the ball.
+- I want players to think: 'OK, this has happened now, what is next for me?' That's a very big target because what are academies about nowadays? Is it really just to find one or two players? But what happened to the others? I'm very, very interested in that.
+- It's hard work to do important games for the club every three or four days, that is very physical.
+- Arsenal has always been special for me.
+- Even at the age of 33 I was one of the most flexible at Arsenal when it came to my back muscles.
+- If Messi has the ball, he is fantastic to watch and difficult to stop. You have to double up on him, triple up on him even, stay with him constantly to block his way to the goal.
+- The more people that write me off, the stronger I get.
+- Suarez is like a cheeky boy, he looks like a cheeky boy who can really switch on and off how he wants to be, so that is really something. When he is on the pitch, what is going on around him doesn't bother him.
+- I expect myself to perform at that level every single week.
+- No matter how much striking power you have got, you need to have a sense of defensive compactness from everyone.
+- Mentality is a big part of every game, when you take the initiative and when you drop.
+- The main thing for me was that I wanted to be able to decide when my international career would end after 10 years myself.
+- One thing is for sure, I will give everything every time I put on the Arsenal shirt.
+- The first time in my career I thought it makes no sense anymore, that I'll retire.
+- It is not only the skilful players who can make the difference in a game. It is as well players who just try to stick to their qualities and give absolutely everything.
+- It is an important part of the role of a centre-back to focus on building up the game and initiating moves.
+- Sometimes as a player you have a different view and you can't believe what we did as a defensive unit.
+- You never stop working, you never stop doing things because there's someone behind you - in a respectful way - who is giving absolutely everything in every single training session.
+- The more people that write me off, the stronger I get. That's my feeling.
+- Wenger has won three Premier League titles, which is proof enough of his standing as a manager.
+- In certain situations, players should protect themselves by not losing track of the most important things in their job.
+- Youngsters need self-esteem, simple targets in life which give energy. In the academy they can be so easily distracted by so many other things it's amazing.
+- When I was young and visited England with my auntie, as somebody who was football crazy, I simply had to come back with a shirt. I can't remember why, but I came back with an Arsenal shirt and my brother had a Manchester United one.
+- I was with Bremen in a good situation in the Bundesliga. I was the captain and was involved in everything to do with the club.
+- There are not a lot of German players out there who are successful in a foreign country.
+- You spend some time with kids, you always take something with you.
+- The amount of staff we have in academies is... I've never seen anything like it. It's good to take care of the players but sometimes I get confused by the number of people who have an impact on one kid - we're talking 100 people or more. It's quite a heavy load.
+- I had a totally different upbringing, totally different background, raised in Germany, small town, now I am in London taking care of 180 kids who think they are the one percent who can make it in professional football.
+- The heritage of Arsenal, to believe in our academy and to really promote our academy. That's important and that's why I am here as well. I wouldn't waste my time just to know that we are not having successes here at Arsenal.
+- I want to show on the training pitch that I am ready whenever the manager needs me.
+- Living in London is very different to living in a little town in Germany.
+- I can't even count to five when I say my proper friends in football.
+- When I played for Hannover I had several offers, also - as I have been told - from Hamburg, Bremen and Bayern. Back then I already was a German international and Bayern would have loved to have the complete German national team.
+- I had a great time at SV Werder Bremen and I'm grateful to the club.
+- Being in a career and going from highlight to highlight and playing a lot of matches you go through it and think it's normal when you play in front of 60,000 and you almost want to vomit in front of every game.
+- Obviously, everyone looks at whether we bring young footballers into the first team, that's one of the goals. But I wouldn't discard someone who is successful in life, that's big. The hall of fame in the academy should be a wide variety of stories.
+- My father said, 'You're not going to make it.' That took a lot of pressure from me. I took football like a hobby.
+- You know what you have achieved and what you have been through.
+- After you have won a game, you can maybe smile for a minute and then you have to think: 'How can I recover as quickly as possible.'
+- Everyone says I should really savour the last year, play as much as possible, really soak everything in. I'd most like to sit on the bench, or, even better, in the stands.
+- I think it is so beneficial to English and British football when youngsters see different cultures and environments.
+- I don't see myself coaching because the intensity of that is massive, and the intensity as a manager, for example Arsene Wenger, is even more.
+- I invested a lot in my fitness.
+- When people are acutely depressed, many of them seem to want to hide.
+- For a national player it is a good thing to get experience playing abroad.
+- Arsenal is one of the top teams in Europe and I have been looking out for Arsenal since I got my first jersey when I was ten or 12.
+- That's what I love, getting the tube, not getting any recognition, trying to be as normal as possible. Sometimes you get a big Arsenal fan and they tell you they have a season ticket or want to have a chat, which is fine. Some want a selfie, but sometimes I just want to say: 'Let's just shake hands. It means more than a picture.'
+- If there is a really good player at U16 level who disrespects the coach, if you then say: 'You can go somewhere else then. That is not how we do things here.' That would be powerful.
+- Sometimes you need a humbling experience to think about a few things.
+- I was fortunate to play under Thomas Schaaf at Bremen. And I played for Arsene Wenger. So I always felt, let's say, more responsible than others towards the manager and his succession.
+- There are still so many issues around young players, and we need to find the right way for them. What is really important? What does he need for his self-belief? For his development?
+- We have to present ourselves as a unit, no matter what happens. That is what Arsenal stands for.
+- We have all the money in the world but do not realise how important the body is. A player on average has a seven year professional career, 10-15 if everything goes right. You have to do everything possible to be at your maximum.
+- Doing something for others helped to not put that focus too much on football and to put things into perspective of how fortunate we are.
+- It is a lot of fun here in England and at Arsenal.
+- I wasn't that good at football aged 14 or 15. I didn't take it too seriously.
+- If you just protect and you have no chances on the break and you miss one chance to kill the game, then it's difficult in the Premier League to win any game.
+- Playing at the highest level really is something special for me.
+- Of course I have an advantage with my size on set pieces.
+- I was talented at a young age, but I still had to grow and develop further.
+- At Arsenal you are replaceable so quickly as a player, I don't want to stand in someone's way.
+- You always have to remain professional. I have always done so.
+- I never heard anything about 'potatoes' or 'kanaken' during my time in the national team. However I have been called 'potato,' too.
+- Every footballer has his ups and downs.
+- That's why I kept going with my school - I wasn't talented. That's what's the difficulty - you want to define key talents when they are 12, 13 or 14? When I was that age I was nowhere near. People had given up on me.
+- Even when you are experienced, sometimes mistakes happen.
+- In Germany I already know everything, I know every stadium.
+- Talent is what you make of your situation.
+- We cannot take responsibility for every goal we concede, we all need to do our part across the field to ensure we win as a team.
+- There are so many people around young kids nowadays it can make it very tough and difficult - people who think they are going to care for those kids but do the opposite.
+- You learn a lot from defeats. As well, you need to learn from victories.
+- First and foremost, Wenger saw us as human beings and he had a lot of faith in us, which is why he stood by us.
+- Football has taught me so much.
+- I was lucky to get a professional contract. I wasn't that sort of talent that is considered to be a professional player.
+- Mesut and I played together at Werder Bremen and Arsenal for so many years. There is no other player that I shared so much time with. We were important for each other.
+- Some days you realise that everything is a burden, both physically and mentally. That it's not about fun, but you have to deliver without a doubt. Even if you are injured.
+- The first Premier League season is always tough for anyone.
+- There's always that mental battle, who's going to have that confidence to be on the front foot.
+- I was extremely lucky with my career and I want to finish on a high.
+- Arsene Wenger is a coach who has a very special personality. He has an experience that not many coaches have, and all at one club, at Arsenal.
+- The interaction between the goalkeeper and the back four has to be top to compete in the Premier League.
+- As long as you are winning it is a good day.
+- I want to make an impact on young people's lives and be part of their future no matter what they do because I have seen that all the very talented players at 15, 16 still had very little chance to be successful in football.
+- I loved the Olympics.
+- Goals often come from a mistake much further up the field, yet the analysis and blame will always be on the defence.
+- For almost 15 years, professional football is about yourself: How can I improve? How can I make myself better? Before winning a game was the short-term reward that meant everything. Now, I can look at the bigger picture.
+- Sometimes I get the feeling that some parents really think their son can pay for their pension, especially being in London.
+- In the moments before a game starts my stomach turns around as if I had to vomit. Then I have to choke so violently until my eyes tear.

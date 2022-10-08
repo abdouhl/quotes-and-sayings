@@ -1,0 +1,20 @@
++++
+author = "Omar Al-Bashir"
+title = "Omar Al-Bashir Quotes"
+quotes_len = "14"
+description = "the best 14 Omar Al-Bashir Quotes"
++++
+- In any war, mistakes happen on the ground; this is not the policy of the government. We are a government that functions according to laws.
+- We have judicial system in Sudan. Anyone who committed a war crime, anti-human crime, or any other crime will be locked up.
+- The Sudanese people decide who rules them.
+- I started since 1996. From that time, whenever there is an opportunity, I would tell the people it is time for me to go and live as peaceful as possible a life as a normal citizen of the country.
+- I fought for years in South Sudan for the unity of Sudan. I was a commander in the fields, fighting for the unity of Sudan.
+- In Sudan, we have been targeted by western countries because we have rejected their hegemony on Sudan and turned their companies away that were only interested in oil.
+- Any government in the world, when facing an armed rebellion, has a constitutional, legal, and moral obligation to resist these militants.
+- Mahatma Gandhi went from Africa to India, and once India won its freedom, it helped African countries to get their independence.
+- I'm looking forward to the time they describe me as the former president. And, of course, there are pressures from my own party and other Sudanese parties also, and I succumb to those pressures, but I hope as soon as possible I can find an exit out of this.
+- As a government, it is our responsibility to maintain security for all citizens in Darfur.
+- As a politician, I worked very, very hard in order to maintain the unity of our country. That was my aim.
+- In 2020, there will be a new president, and I will be an ex-president.
+- India has always stood with Africa on the freedom struggle against colonial powers.
+- When Qadhafi was in Libya, he was the major supporter of rebel groups in Sudan. So when the revolution came to Libya, we supported it.

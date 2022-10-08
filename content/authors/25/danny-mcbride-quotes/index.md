@@ -1,0 +1,39 @@
++++
+author = "Danny Mcbride"
+title = "Danny Mcbride Quotes"
+quotes_len = "33"
+description = "the best 33 Danny Mcbride Quotes"
++++
+- I always get forwarded these weird pictures of people getting Kenny Powers tattoos. That's probably the craziest thing I've ever seen: Somebody will ink my face on their body for eternity.
+- When I met David Green at film school he always used to offer free haircuts - he was kind of an artisan. In a lot of our films, he's constantly trying to give me weird looks.
+- I don't tend to watch too many American comedies. I love British comedy.
+- But obviously you don't want to just be the guy who comes in and sort of spices up every movie. So yeah, definitely moving into more of a leading man role would be great, but on my own terms.
+- But for me, personally, I didn't have any ambitions to become an actor. I'm interested in getting behind the camera.
+- You know, a lot of those angry sort of Southern man characters that I've been doing are based on different people I might've had as, like, a soccer coach or as a teacher.
+- Confidence and a good sense of humor can usually win a chick over.
+- My first job was at an amusement park in Virginia. It was the worst. I loved the park but once I'd worked there all the magic was gone from it. It just turned into a place I hated and I've never been there since.
+- In my school, people liked the gym teachers because they were the football or soccer coaches. But look, if they're cool, they get respect.
+- I don't really care about awards.
+- So I just came out here to Los Angeles with a bunch of buddies I had gone to film school with. You know, for better or worse, we just tried to slug it out here.
+- I went to film school so I have a writing and directing background, and I think a lot of the material I'm interested in writing and getting out there is stories about anti-heroes and people you should just not ordinarily root for - trying to figure out a way of appealing to people they wouldn't normally appeal to.
+- And I'm always surprised when people have seen 'The Foot Fist Way', so when people bring that up, I'm always surprised that's reached other people besides my immediate friends.
+- On a human level, people want to see someone succeed who wants to change.
+- The dynamics are pretty much the same among me and my friends as they were when I was 18 years old.
+- It hasn't been anything that's been overwhelming or anything, but I do get recognized here and there.
+- It's a big battle to bring quality stuff into theaters across America, for sure.
+- I can't even remember not wanting to go to film school.
+- I'll still try to nail acting jobs, but with 'Eastbound,' creating it is what gives me the ultimate pleasure at the end of the day.
+- The one thing about being a parent is the ability to be selfless: To give up the things you want and need for the benefit of someone else.
+- And I'm a pretty avid photographer, I've been into photography for years now, so I try to spend some of my free time with that.
+- I've always had the hair of Lionel Ritchie since I was a boy, but the mullet sadly is a hairpiece. My wife won't let me rock that hairstyle.
+- As an actor, you don't want to be typecast, because Hollywood is so quick to put you in things that you've succeeded in before.
+- If you do a character that resonates enough, people are always going to see you as that character. It will just be up to me to make choices where I can flex other muscles.
+- I had a classic gym teacher in junior high who wore a weightlifter's belt all the time.
+- I usually choose movies that I would want to see. I appreciate drama and if the right script came across my desk, drama you will see.
+- I definitely like taking the dark horse approach and picking people you should not be getting behind, and you figure out a way to get behind them.
+- There is no future for me as a closing pitcher.
+- It's awesome to see something like 'Inception', which is just mind-blowing and amazing, and it actually resonates with the audiences. I feel like that's rare.
+- I made movies all the time when I was a kid.
+- In my gym class, we had something called The Pit, this little alcove where we had to sit if we forgot our gym clothes. It was usually just the crippled kid, the pregnant girl, and me. It was pretty awkward, just hanging with all these freaks who didn't want to show their legs.
+- Jody Hill, who I created 'Eastbound And Down' and 'Fist Foot Way' with, was my best man at my wedding.
+- The whole experience of 'Eastbound' has been completely unexpected and super-surprising every step of the way.

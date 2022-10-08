@@ -1,0 +1,105 @@
++++
+author = "Peter Schmeichel"
+title = "Peter Schmeichel Quotes"
+quotes_len = "99"
+description = "the best 99 Peter Schmeichel Quotes"
++++
+- Neuer is simply sensational.
+- Such great goalkeepers have played in England over the years - the likes of Gordon Banks, Peter Shilton, and Bert Trautmann.
+- Any beginning is difficult, but when you're opening the newspaper every day, and it's all about how bad you are, sometimes even you begin to believe that.
+- You have to believe you can win.
+- You will never see United manager Sir Alex Ferguson in the media taking problems he has or the squad has or the club has into the open. Never, ever. But you do see that at Manchester City.
+- Manchester United would like to have world class players.
+- I am very proud to join the Hall of Fame.
+- Even when I went to Aston Villa, it was very important that I was not in competition with Manchester United.
+- Every player makes mistakes; every goalkeeper makes mistakes. Every manager does, every broadcaster - every person in life makes mistakes. But for goalkeepers, often when they make a mistake, it leads to a goal.
+- I don't think spending money is a guarantee for anything.
+- When you look at the goals he has been criticised for, at some point they could have been prevented by a defender, or it was a misunderstanding. It is not down to Joe Hart on his own.
+- Guardiola has a way of playing; he has a system, and he sticks to that.
+- Joe Hart has bags and bags of talent.
+- I want to see Pogba being a Manchester United player and being as good as everything else he does in life. He's absolutely brilliant on social media, and he's projecting himself to be this incredibly modern player.
+- If he is having a bad game, a team-mate might feel Paul Scholes is not quite on his game, but a spectator wouldn't notice. Scholes, of all the players I have played with, has the highest bottom level.
+- You have to bear in mind where Louis van Gaal has worked before. His self-belief is bigger than Jose Mourinho's.
+- With a club like Manchester United that have history and traditions, I think the manager at the club should respect that.
+- When you're young, you want to do everything. You want to go out and find girls; you want to have a drink - there are a lot of things you want to do. But if you want to make it to the top, there are a lot of things you can't do.
+- People say that Andrea Pirlo is the main player and that everything goes through him, but that's an illusion. Pirlo is a brilliant player but doesn't dominate Italy's play as much as people say.
+- Penalty shoot-outs are the most high-pressure situation that a goalkeeper will face, and in a World Cup, it's even worse because the stakes are so high.
+- I am crazy about Leicester; I am crazy about the owners - they are fantastic and really good for the Premier League.
+- At Manchester United, you can have a bad day, and the supporters understand. Even in a crunch game, you can have a bad result, and they still back the team.
+- I have had a fantastic career with United, and I owe it to the club, players, and fans to do everything I can to finish on a successful note.
+- In three weeks, you can improve a lot. You can train a lot. You can come up with a proper plan.
+- For Zlatan to play the way we love him to play, he has to be Zlatan.
+- Kids want to play in goal.
+- For 99.9% of the players there, they are at United because they want to be at United, and it is their dream move. That gives United a little bit of an advantage over other clubs, where some players are maybe there because there was financial pressure for them to be sold.
+- I, as a fan, want to be winning but to entertain equally as much, too.
+- It all comes down to which way you hit the post. Do you hit it on the inside or the outside? Does it go in, or does it go out?
+- The AON Training Complex is not a training ground now: it's a village. It is difficult for anyone to keep tabs on everything.
+- At United, everyone is there because they want to be there.
+- There's no doubt: nobody can argue that Manchester United is not the biggest club in the world. It is.
+- It is very nice Kasper has now also won the Premier League, too. I am very proud; I think he has done a fantastic job. It has been amazing to bring this lad into the world and bring him up and hear his wishes and hopes for the future, his ambitions; he made it fairly clear early on that he wanted to become a footballer.
+- I would have come to play at United for absolutely nothing if I'd been given the chance - everyone I played with at the time would have done that, too.
+- The big clubs will always talk about the same names such as Ancelotti, Mourinho, and Wenger. Louis Van Gaal is always in there as well. He has his own style and is a very determined man. He knows exactly what he wants. He's got direction, the ability and experience at big clubs such as Barcelona and Bayern Munich.
+- I'm quite good at golf. I'm not amazing, but I play a lot.
+- Sir Alex is so consistent with his management. He manages each person differently, but you know exactly where you are with him. You know exactly what is required.
+- I have no regrets about leaving, and I don't miss being at United at all.
+- People talk about the hair dryer and all this with Sir Alex Ferguson. What was really great about him, whatever happened in a game, he would spend whatever minutes it took him to get this out of this system and say whatever needed to be said. Once he said, 'Get your bath,' that was it. We knew that it would never return.
+- If we should have any regrets as Manchester United, that is that we only gave David Moyes seven months. I think we should have given him more time, accepted that results weren't going to be the way we hoped they would be and that playing would be a little bit different. I believe he would have grown into that role.
+- We never played for 1-0 and then defend. We always went for the second goal and the third.
+- I think, in Denmark, we are quite good when it comes to the environment.
+- When David De Gea first came to the Premier League, he was a small boy.
+- If you have been brought up with attacking and trying to get to number two, number three, number four goal, not getting one goal and defend, if that's sort of the mentality that's engraved in you, it's really difficult to do the other thing.
+- On some occasions, it is every footballer's dream to play for the national team, but if you don't reach it, you always need to work harder to reach a higher level, a level you wouldn't reach if you didn't have this as a goal.
+- Sometimes you've just got to hold your hands up and say you've been beaten by a quality free-kick.
+- I am a massive fan of Wayne Rooney, and it is nice to see him play in any position because he gives a 100 per cent. Not many players can do that and say they do that.
+- Goalkeeping is very, very much about confidence and thinking you are the man.
+- Today, the biggest clubs in the world, they buy the players they need for whatever way they think they have to play.
+- There are hundreds of players who are trying to be a Beckham or Cantona but do not have the personality, and they fail.
+- I read about Zlatan Ibrahimovic in the newspapers. I would love for him to come to Manchester United; I've said this for a long time. He was born to play for Manchester United.
+- Neuer is the best goalkeeper in the world by far.
+- I was one of the first foreign players coming in to the Premier League.
+- The thing about being a striker is you need to be lightning-fast.
+- The star-jump technique - that is a big part of being a handball goalkeeper, and I brought that move into football. It is a very effective way of saving a chance.
+- The fear of letting people down - that's the drive. Sir Alex, I think, if he was brave enough to say it, he would say the same, but in his eyes, the motivating factor is that you want to be the best.
+- You've got to get a certain amount of sleep. You've got to eat the right thing. You've got to train in the right manner. You've got to behave in the right manner.
+- When I arrived at Manchester United, the club hadn't won the league for 26 years, and then in my first year, they won the championship.
+- It is painful to say that the best player you have is better off trying something new.
+- As a footballer, you have to be confident you can win all the time so it does not come as a surprise.
+- It's always going to be difficult for Asian countries to create big leagues because Europe is so settled.
+- I would never bring in a player to make a statement.
+- To have an 18-year-old coming to you demanding money before he's even played - that has got to be frustrating for a manager to deal with.
+- It's far, far better to be prepared: the more you know about the other team, the better.
+- I want exciting players.
+- If you're mentally ready, you're willing to go the extra mile.
+- Football is a team sport. I'm proud of what I achieved in my career, but I also know that I wouldn't have achieved any of it without the support of my team-mates. I played with great players, great managers, and in great teams.
+- At the end of the day, it's 11 men versus 11 on the pitch.
+- You can't do anything successfully in life without leadership.
+- Any football club, any person, any human being alive goes through adversity. The art of living life is to recover from that and respond to any challenges being thrown at you.
+- During a big tournament, it is the small details that make big differences.
+- Real Madrid will be the first team to claim two Champions League trophies in a row.
+- Knowing where a team will usually place a penalty can be the difference between winning or losing.
+- Joe Hart has come in for a bit of criticism, but it's only because he's the England goalkeeper, and he's not got any competition. It's always been like that; it's just the way the English media works. Joe Hart is a tough cookie, and he won't listen to any of that.
+- If you are not a good team, you will never get to the final day of the Premier League season or the final of the FA Cup.
+- There are millions of Manchester United fans everywhere in the world. A lot of them live by the club. They need to be inspired by the manager.
+- The better you can prepare your players and the more you can put their minds to it is really important.
+- It's not the mistake that's important; it's how you recover from it. If you recover instantly, in that second, it's gone from your mind. You play on and don't make the next mistake, and that's the sign of a top keeper. Joe Hart certainly is one of those guys.
+- It is important that Manchester United keeps its identity. Their heritage is to produce and develop players, something that started with Sir Matt and continued with Sir Alex Ferguson.
+- I really want to get involved in football again at some point. I know I'm getting older, but my life has just turned out a different way after I retired from football.
+- When you have a way of playing or a mentality of playing, it's difficult to do something else.
+- Goalkeeping is now at a point where it's a very popular position.
+- Football has changed. There are no more Zvonimir Bobans or individuals who win games by themselves.
+- If you're a senior player, and you really want to make an impact in the dressing room, it's difficult if you have players there who are not as committed as you are and they have a certain status.
+- I played handball up until I joined United, both as a goalkeeper and an outfield player.
+- I think Manchester United is a much bigger club than any manager in the world, and the manager who comes in should respect what Manchester United is.
+- To be a Manchester United player, it requires a certain level of performance, mentality, and you have got to be proud to be a Manchester United player.
+- People remember the treble in 1999 as if we only had to turn up to collect three trophies. But on that cup run, we were 1-0 down against Liverpool going into injury time, and we turned it around to win 2-1. And everyone remembers the Champions League final in Barcelona, where the same thing happened.
+- Neuer is the world's No.1 keeper and can be used as a role model for all young keepers. He has everything a goalkeeper needs to have.
+- Obviously, I would very much like to see Cristiano Ronaldo back at Old Trafford.
+- This is something you learn as soon as you walk through the doors at Old Trafford: that you're never better than your last performance. You always have to improve on your last performance.
+- Change is good. Quick change can be very dangerous.
+- You can't just walk into Old Trafford, and you're there. There's so much to get used to.
+- My mother really wanted me to go to school and to university, but I was adamant that I wanted to be a football player.
+- When I hit 35, there were things I couldn't do which I'd done previously, and they had been completely natural to me.
+- You don't sign a player for the sake of it.
+- In the future, you'll see many more nominations for big awards going to goalkeepers.
+- If Sir Alex says, 'Listen, I want you to play for my team,' it's very difficult not to say yes.
+- You will not get anywhere if you are not a great team. It's simple.

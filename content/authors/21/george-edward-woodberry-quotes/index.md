@@ -1,0 +1,45 @@
++++
+author = "George Edward Woodberry"
+title = "George Edward Woodberry Quotes"
+quotes_len = "39"
+description = "the best 39 George Edward Woodberry Quotes"
++++
+- Our understanding of Shakespeare already depends largely on the vitality of Renaissance elements in our education. Each man must live in his own generation, as the saying is; but the generations are bound together by the golden links of the great tradition of civilization.
+- To realize life in the abstract as noble or beautiful or humane, to set it forth so with radiance upon it, that is civilization in the arts. Shakespeare is the chief modern example of this supreme faculty of mankind.
+- Art has a double visage: it looks before and after. Romance is its forward-looking face. The germ of growth is in romanticism. Formalism, on the other hand, consolidates tradition; gleans what has been gained and makes it facile to the hand or the mind; economizes the energy of genius.
+- 'Old times' never come back and I suppose it's just as well. What comes back is a new morning every day in the year, and that's better.
+- One can re-create what was in the mind of a mathematician a thousand years ago, recapture the truth of the intellect wherever it may have once come to light; but the image of art, that infinite variable of perception and expression in the individual, - that is not easily re-created, at least, not with certainty and in its original fulness.
+- The poet craves emotion, and feeds the fire that consumes him, and only under this condition is he baptized with creative power.
+- If the aristocracy of the whole white race is so to melt in a world of the colored races of the Earth, I for one should only rejoice in such a divine triumph of the sacrificial idea in history; for it would mean the humanization of mankind.
+- My first recollection of hearing Wendell Phillips is from my college days, though of course he was always one of my heroes, and I may have heard him before, for we were an anti-slavery family.
+- Genius is that in which the soul of a race bums at its brightest, revealing and preserving its vision; works of art are great and significant in proportion to the clarity and fulness with which they incarnate this vision.
+- A nation's poets are its true owners; and by the stroke of the pen they convey the title-deeds of its real possessions to strangers and aliens.
+- From the beginning, about the rude altar of the god, to the days of Goethe, of Leopardi, and of Victor Hugo, the poet is the leader in the dance of life; and the phrase by which we name his singularity, the poetic temperament, denotes the primacy of that passion in his blood with which the frame of other men is less richly charged.
+- The language of literature is the language of all the world. It is necessary to divest ourselves at once of the notion of diversified vocal and grammatical speech which constitutes the various tongues of the Earth, and conceals the identity of image and logic in the minds of all men.
+- Shakespeare has been praised in English more than anything mortal except poetry itself. Fame exhausts thought in his eulogy.
+- The world is a multiplicity, a harvest-field, a battle-ground; and thence arises through human contact ways of numbering, or mathematics, ways of tillage, or agriculture, ways of fighting, or military tactics and strategy, and these are incorporated in individuals as habits of life.
+- I seldom deal in symbolisms; if there be hidden meanings in my verse, they are there without my knowledge.
+- Shakespeare is, essentially, the emanation of the Renaissance. The overflow of his fame on the Continent in later years was but the sequel of the flood of the Renaissance in Western Europe. He was the child of that great movement, and marks its height as it penetrated the North with civilization.
+- Much of a poet's experience takes place in imagination only; the life he tells is oftenest the life that he strongly desires to live, and the power, the purity and height of his utterance may not seldom be the greater because experience here uses the voices of desire.
+- Who of English speech, bred to the traditions of his race, does not recognize Hamlet in his 'inky cloak' at a glance? Not to know him would argue one's self untaught in the chief glories of his language.
+- Defeat is not the worst of failures. Not to have tried is the true failure.
+- The growth of art seems to be in cycles, and often its vigorous lifetime is restricted to a century or two. The periods of distinctive drama, Greek, English, Spanish, fall within such a limit; the schools of painting and sculpture likewise; and, in poetry, the Victorian age or the school of Pope will serve as examples.
+- Art is expression; what is expressed is often the vision of a subtle and powerful soul, and also his experience with his vision; and however vivid and skilful he may be in the means of expression, yet it is frequently found that the master-spell in his work is something felt to be indefinable and inexpressible.
+- The Greeks, those originators of the intellectual life, fixed for us the idea of the poet. He was a divine man; more sacred than the priest, who was at best an intermediary between men and the gods, but in the poet the god was present and spoke.
+- It is not meant that the artist, in arriving at truth, must follow the way of the scientist, or, in stating it, the way of the philosopher.
+- The great effort of civilization has been, and still is, the attempt to introduce a principle of control into that casual swarm of impressions which makes up men's thought and of which, especially with swayed by emotion, spontaneous action is the law.
+- Art does not, like science, set forth a permanent order of nature, the enduring skeleton of law. Two factors primarily determine its works: one is the idea in the mind of the artist, the other is his power of expression; and both these factors are extremely variable.
+- It does not appear to me to be open to question that there is in the soul of man a nature and an order obtaining in it as permanent and universal as in the material world.
+- Is there not an art, a music, and a stream of words that shalt be life, the acknowledged voice of life?
+- Aesthetic freedom is like free speech; it is, indeed, a form of free speech.
+- A marvellous power of expression over language often distinguishes genius; but Shakespeare in his phrases seems independent of the bonds of language as of the bonds of metre.
+- You may name a bronze statue 'Liberty,' or a painted figure in a city hall 'Commerce,' or a marble form in a temple 'Athene' or 'Venus;' but what is really there is only a representation of a single woman.
+- Mankind is the grandest and surest artist of all, and history as it clarifies is, in pure fact, an artistic process, a creation in its fullness of the beautiful soul.
+- Words are intermediary between thought and things. We express ourselves really not through words, which are only signs, but through what they signify - through things.
+- A writer is justly called 'universal' when he is understood within the limits of his civilization, though that be bounded by a country or an age.
+- Left to themselves, things tend to go from bad to worse. Murphy's First Corollary If you tell the boss you were late for work because you had a flat tire, the next morning you will have a flat tire.
+- I believe that ideal character in its perfection is potentially in every man who is born into the world.
+- Seasonal changes, as it were, take place in history, when there is practically an almost universal death, a falling of the foliage of the tree of life. Such were the intervals between the ancient and mediaeval time, the mediaeval and the modern.
+- We foresee no limit to scientific advancement in the future, and in scientific truth there is nothing dead; science is always a living and growing body of knowledge; but art on the contrary has many times run its course to an end, and exhausted its vital power.
+- The critic is genius at one remove; he is not unlike an actor on the stage, and incarnates in his mind, as the actor embodies in his person, another's work; only thus does he understand art, realize it, know it; and having arrived at this, his task is done.
+- Always, some great culture is dying to enrich the soil of new harvests, some civlization is crumbling to rubbish to be the hill of a more beautiful city, some race is spending itself that a lower and more barbarous world may inherit its stored treasure house.

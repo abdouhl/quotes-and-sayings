@@ -1,0 +1,109 @@
++++
+author = "Gertrude Stein"
+title = "Gertrude Stein Quotes"
+quotes_len = "103"
+description = "the best 103 Gertrude Stein Quotes"
++++
+- There is too much fathering going on just now and there is no doubt about it fathers are depressing.
+- I have declared that patience is never more than patient. I too have declared, that I who am not patient am patient.
+- If you are looking down while you are walking it is better to walk up hill the ground is nearer.
+- Men and girls, men and girls: Artificial swine and pearls.
+- Action and reaction are equal and opposite.
+- What is marriage, is marriage protection or religion, is marriage renunciation or abundance, is marriage a stepping-stone or an end. What is marriage.
+- It is funny the two things most men are proudest of is the thing that any man can do and doing does in the same way, that is being drunk and being the father of their son.
+- Let me listen to me and not to them.
+- Just as everybody has the vote including women, I think children should, because as a child is conscious of itself then it has to me an existence and has a stake in what happens.
+- One does not get better but different and older and that is always a pleasure.
+- Once more I can climb about and remind you that a woman in this epoch does the important literary thinking.
+- The nineteenth century was completely lacking in logic, it had cosmic terms and hopes, and aspirations, and discoveries, and ideals but it had no logic.
+- The earth is the earth as a peasant sees it, the world is the world as a duchess sees it, and anyway a duchess would be nothing if the earth was not there as the peasant sees it.
+- In France one must adapt oneself to the fragrance of a urinal.
+- What is music. A passion for colonies not a love of country.
+- I think the reason I am important is that I know everything.
+- It is extraordinary that whole populations have no projects for the future, none at all. It certainly is extraordinary, but it is certainly true.
+- Silent gratitude isn't much use to anyone.
+- This is the lesson that history teaches: repetition.
+- It takes a lot of time to be a genius, you have to sit around so much doing nothing, really doing nothing.
+- There is no such thing as being good to your wife.
+- Just before she died she asked, What is the answer? No answer came. She laughed and said, In that case, what is the question? Then she died.
+- There is no there there.
+- You'll be old and you never lived, and you kind of feel silly to lie down and die and to never have lived, to have been a job chaser and never have lived.
+- It is funny that men who are supposed to be scientific cannot get themselves to realise the basic principle of physics, that action and reaction are equal and opposite, that when you persecute people you always rouse them to be strong and stronger.
+- Argument is to me the air I breathe. Given any proposition, I cannot help believing the other side and defending it.
+- Nature is commonplace. Imitation is more interesting.
+- But the problem is that when I go around and speak on campuses, I still don't get young men standing up and saying, 'How can I combine career and family?'
+- A diary means yes indeed.
+- There ain't no answer. There ain't gonna be any answer. There never has been an answer. That's the answer.
+- I could undertake to be an efficient pupil if it were possible to find an efficient teacher.
+- Everybody knows if you are too careful you are so occupied in being careful that you are sure to stumble over something.
+- History takes time. History makes memory.
+- When they are alone they want to be with others, and when they are with others they want to be alone. After all, human beings are like that.
+- A vegetable garden in the beginning looks so promising and then after all little by little it grows nothing but vegetables, nothing, nothing but vegetables.
+- Oh, I wish I were a miser; being a miser must be so occupying.
+- To write is to write is to write is to write is to write is to write is to write is to write.
+- Human beings are interested in two things. They are interested in the reality and interested in telling about it.
+- A writer should write with his eyes and a painter paint with his ears.
+- There is a difference between twenty-nine and thirty. When you are twenty-nine it can be the beginning of everything. When you are thirty it can be the end of everything.
+- Generally speaking, everyone is more interesting doing nothing than doing anything.
+- Americans are very friendly and very suspicious, that is what Americans are and that is what always upsets the foreigner, who deals with them, they are so friendly how can they be so suspicious they are so suspicious how can they be so friendly but they just are.
+- Name any name and then remember everybody you ever knew who bore that name. Are they all alike. I think so.
+- Everybody thinks that this civilization has lasted a very long time but it really does take very few grandfathers' granddaughters to take us back to the dark ages.
+- Remarks are not literature.
+- America is my country and Paris is my hometown.
+- I've been rich and I've been poor. It's better to be rich.
+- Poetry consists in a rhyming dictionary and things seen.
+- In the United States there is more space where nobody is than where anybody is. That is what makes America what it is.
+- It is so friendly so simply friendly and though inevitable not a sadness and though occurring not a shock.
+- Is it worse to be scared than to be bored, that is the question.
+- It is extraordinary that when you are acquainted with a whole family you can forget about them.
+- Everybody gets so much information all day long that they lose their common sense.
+- An audience is always warming but it must never be necessary to your work.
+- Everyone gets so much information all day long that they lose their common sense.
+- A real failure does not need an excuse. It is an end in itself.
+- That is what war is and dancing it is forward and back, when one is out walking one wants not to go back the way they came but in dancing and in war it is forward and back.
+- There is no real reality to a really imagined life any more.
+- I have always noticed that in portraits of really great writers the mouth is always firmly closed.
+- It is always a mistake to be plain-spoken.
+- The minute you or anybody else knows what you are you are not it, you are what you or anybody else knows you are and as everything in living is made up of finding out what you are it is extraordinarily difficult really not to know what you are and yet to be that thing.
+- A house in the country is not the same as a country house.
+- The contemporary thing in art and literature is the thing which doesn't make enough difference to the people of that generation so that they can accept it or reject it.
+- The difference between saints, forget-me-nots, and mountains, have to, have to, have to at a time.
+- It is very easy to love alone.
+- I like a view but I like to sit with my back turned to it.
+- Do you know because I tell you so, or do you know, do you know.
+- Communists are people who fancied that they had an unhappy childhood.
+- Rose is a rose is a rose is a rose.
+- I don't envisage collectivism. There is no such animal, it is always individualism, sometimes the rest vote and sometimes they do not, and if they do they do and if they do not they do not.
+- The deepest thing in any one is the conviction of the bad luck that follows boasting.
+- The thing that differentiates man from animals is money.
+- Counting is the religion of this generation it is its hope and its salvation.
+- Sculpture is made with two instruments and some supports and pretty air.
+- The nineteenth century believed in science but the twentieth century does not.
+- I know what Germans are. They are a funny people. They are always choosing someone to lead them in a direction which they do not want to go.
+- Disillusionment in living is finding that no one can really ever be agreeing with you completely in anything.
+- Do not forget birthdays. This is in no way a propaganda for a larger population.
+- What is the answer? In that case, what is the question?
+- One of the pleasant things those of us who write or paint do is to have the daily miracle. It does come.
+- Literature - creative literature - unconcerned with sex, is inconceivable.
+- Picasso once remarked I do not care who it is that has or does influence me as long as it is not myself.
+- I rarely believe anything, because at the time of believing I am not really there to believe.
+- Considering how dangerous everything is, nothing is really very frightening.
+- We are always the same age inside.
+- I do want to get rich but I never want to do what there is to do to get rich.
+- In a war everybody always knows all about Switzerland, in peace times it is just Switzerland but in war time it is the only country that everybody has confidence in, everybody.
+- Before the flowers of friendship faded friendship faded.
+- Men cannot count, they do not know that two and two make four if women do not tell them so.
+- Hemingway's remarks are not literature.
+- Whoever said money can't buy happiness simply didn't know where to go shopping.
+- Romance is everything.
+- War is never fatal but always lost. Always lost.
+- It is the soothing thing about history that it does repeat itself.
+- Supposing everyone lived at one time what would they say. They would observe that stringing string beans is universal.
+- If you can do it then why do it?
+- It is natural not to care about a sister certainly not when she is four years older and grinds her teeth at night.
+- Very likely education does not make very much difference.
+- Every adolescent has that dream every century has that dream every revolutionary has that dream, to destroy the family.
+- It is awfully important to know what is and what is not your business.
+- Money is always there but the pockets change; it is not in the same pockets after a change, and that is all there is to say about money.
+- It is not what France gave you but what it did not take from you that was important.
+- A masterpiece... may be unwelcome but it is never dull.

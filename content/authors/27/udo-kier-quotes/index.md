@@ -1,0 +1,106 @@
++++
+author = "Udo Kier"
+title = "Udo Kier Quotes"
+quotes_len = "100"
+description = "the best 100 Udo Kier Quotes"
++++
+- I like digital films.
+- I think it's important for a filmmaker to know his actors, because you have to work so closely together and you have to like them or you'll have a horrible time.
+- Sometimes, you can also have a big impact in a film just by doing something unexpected.
+- Sometimes I get a script that says, 'Only you can play it.' But I like roles in films with little moments - a hand movement in 'Melancholia.' I don't like the big speeches - the 'Oscar speech.' I like to do unusual things on screen.
+- I like to have the newest thing. I like the Internet, they know more about me than I do, which is amazing.
+- Nobody of us has ever seen ourselves! We see a reflection in the mirror.
+- I'm very lucky to say that I worked with a lot of directors who cannot make a bad film. Like when Wim Wenders, they cannot make a bad film. They can make a film people don't like, or it's the wrong moment.
+- There's actors and actresses who I call 'Trailer Stars' because their importance is expressed by how big their trailers are. And then there are real actors, who are real good people.
+- Warhol took outcasts and made them into stars. There will never be another artist like him.
+- It's logical when you become known to the industry with 'Dracula' and 'Frankenstein' that they typecast you and want you in their horror movies. That's how I got 'Blade,' of course, because they were fans.
+- I love the smell of the Earth. I'm a good cook my friends say. I love cooking for my friends. So I'm totally the opposite of being evil. I think only if you're a good person can you be very evil onscreen.
+- I like to go from film to film, meeting new people and playing new roles. Because actors are like children: They want to play, and I like to play.
+- I'll tell you what a friendship is to me. Friendship to me is, if my friends need my little finger to live, I'm going to have it cut off. I'm going to the hospital, they cut off my finger, and maybe I have a gold finger instead, and I become famous. But I still give it to my friend.
+- Werner Herzog, I knew him for so many years, when Fassbinder was at his highest moment. But we had a rule: An actor from Fassbinder could never work with an actor of Werner Herzog or Wim Wenders. Because if we would have done that, we would have been spies. 'Ah, you worked with Werner - how was it? How did he direct you?' I was Fassbinder's actor.
+- If I hadn't been an actor, I'd be a gardener.
+- Working with someone like Fassbinder was a 24-hour job. You had to be part of the family, and play his games.
+- I'm very laid-back, and I meet people just by accident - never through agencies or anything like that. I met Paul Morrissey, who directed me in 'Dracula' and 'Frankenstein,' on a plane from Rome to Munich. He asked for my telephone number and wrote it in his passport.
+- It is fun to play evil parts... especially vampires.
+- I've made over 220 films. Of these 220 films, 100 films are not good, 50 are okay, and 50 are very good.
+- You know, I don't want to waste my time by being in a movie where nobody remembers my part. That's not interesting at all!
+- I've done more than 65 films. I don't count them anymore. The first 10 you count and then you stop.
+- When I have a part that isn't the leading part, I want to act in a way that people remember. Otherwise, what is the point?
+- The good thing about films is, you never know how good they will be. If there was a formula, there would only be good films!
+- I like to work with directors who write their own stories.
+- Rob Zombie's very intellectual-crazy, and I like people like that. No stupid craziness.
+- Frankenstein' was more programmed, but 'Dracula' we did as it came along because at the beginning we weren't sure how it was going to end - it wasn't written in the script.
+- I'm a very quiet person actually.
+- I like Palm Springs because of the sunshine. It's a little city surrounded by mountains.
+- I had such a horrible childhood. My father was already married with three children when I was born and my mother didn't know. So we grew up poor. We had no hot water until I was 17. I went to work in a factory, and worked and saved for months until I had the money to come to England.
+- The villain is the character that the people remember.
+- In 'House of Boys,' I wanted to be in drag. It was amazing to be in the middle of all these drag queens. They did my makeup. I hardly recognized myself! That was very funny.
+- My agent is a vampire, my lawyer is a vampire, they're all vampires, but they don't suck your blood, they take your money! Vampires are everywhere. It just depends what they're running after.
+- I have few friends. I can count them on one hand. I go by myself to the cleaners and the supermarket and I live alone with my dogs.
+- I always wanted to make music but I cannot play any instrument.
+- With these kinds of figures you can do whatever you want as an actor because there are no guidelines, there are no real vampires. Except in Los Angeles, where everybody's a vampire, you know?
+- If you make horror movies, you always have to think what's photogenic and what's not.
+- I don't mind playing Nazis, but I'll only play them in comedies. I wouldn't play a serious Nazi.
+- There are a few directors - quite a few - who I would like to work with, but I have never written a letter to a director in my life.
+- I don't consider myself funny.
+- If David Lynch wants me to audition I will do it. But a young filmmaker, no. I won't.
+- Evil has no limits. If you are a good person, everybody expects you to be good. If you are very good then you become Albert Schweitzer or Mother Theresa. Then you're very good because you are helping people. But evil has no limits.
+- I tried all my life to be a normal person.
+- I like Prague, it's strange. All the houses you see look like Disney sets, with their bright colours.
+- Audition is the worst thing. It's like cleaning furniture in a department store.
+- Anybody can act.
+- The first day of shooting came, and of course I was nervous. I would lie if I said I wasn't impressed. I mean, Lars von Trier hiring me to be the king in 'Medea'... Lars said, 'Stop! Stop!' And I was so nervous, I turned around and said, 'What is it?' He said, '... Just be a tired king.'
+- I'm not very career-driven, never was.
+- I'm coming from an artistic background, from Europe, making films with Lars Van Trier like 'Breaking the Waves,' 'Dancer in the Dark,' all his films, 'The Kingdom.' But I like both, I like the totally artificial, commercial films where the actor has five or six bodyguards, I like that.
+- When you get older time moves faster - much faster.
+- I like 'Brawl in Cell Block 99.' I think Vince Vaughn is incredible and I've never seen Don Johnson like that. It is very realistic. Some people say it is a horror film. It is not a horror film at all. It is very realistic.
+- I'm a totally desert person.
+- I like the vampire films because of the fantasy of it.
+- For me to do interviews is painful. People don't know that. To do an interview is going back in time. And to go back in time, maybe it wasn't all the time that good.
+- Gus van Sant I met at the Berlin film festival, and he came up to me. He had a little film in the festival called 'Mala Noche' that he had made for $20,000. He said: 'You are one of my favourite actors. I'm doing 'My Own Private Idaho' with River Phoenix and Keanu Reeves. You should be in it!' Then I started working with Gus.
+- I try to do movies that are special.
+- I like to work with directors where you feel they make the movies not for the audience, but make them for themselves. They don't care if it's a success financially. That's what I like.
+- Normally, I like my privacy in the high desert.
+- I collect furniture and modern art. And I never go to any parties. I rather prefer to go around in nature.
+- When I'm depressed and the weather is bad I look up my page on IMDb and I have my coffee and feel better. There are even films on there I don't know about!
+- My great joy these days is giving palm trees water. Simple as that.
+- I was brought up in Germany, born in 1944, and there was nothing to eat.
+- In America as a foreign actor it's very difficult to get into main roles.
+- I was fascinated by the story of FW Murnau, one of the most famous directors in Germany, where I come from.
+- I have a lot of palm trees, because they say to me holidays and ocean. I grew up very poor and I had an aunt who would go on holiday and send me postcards of palm trees and I would pin them to the wall, so I've gone from that fantasy to reality.
+- I'm an aesthetic person who loves beauty.
+- Until I was 16 or 17, we had no water. My mother had to cook water in a kettle, and once a week I was bathed, and that was it.
+- Artistically I like to do short-term things. Like I do a lot of commercials, I have the Miller commercial out where I play the Devil in Hell, where Hell is frozen.
+- I'm drawn to people who are free in their way of making films.
+- If you have a smaller role, but if you work with a great director, they make it unforgettable.
+- When you don't have a family, you create one.
+- In my real life I'm a very normal person.
+- Good movies are difficult to make, and good trash is even harder to make.
+- As an actor it gets boring to play always the villain.
+- I have a ranch and when I sit there and see a little lizard and birds, I really love what I see and I'm love with nature.
+- The interesting part about 'Iron Sky' was crowdfunding. It was financed in a very special new way. Timo Vuorensola is an amazing, concentrated person who was able to make this comedy. When I saw the film for the first time, I liked it very much.
+- People often say to me, especially people from the press: 'Oh, you are so evil.' But I'm a gardener. I rescue animals in Palm Springs where I live.
+- I collect chairs and lights, which obviously means I want to sit in the light - not surprising for an actor I suppose.
+- I bought a former library, not because I have a lot of books, but also I like architecture, and it was built in 1965, and I like gardening.
+- I have no time for real horses, so I have a plastic horse. Large size. Called Max Von Sydow. For photographs it looks real. If I do a photo shoot and it stands in the background, you think it's a horse. A horse is a horse.
+- Lars von Trier, Wim Wenders, Werner Herzog: They all write, which is much better because it's their baby, and they know what they want.
+- The best compliment for a director is that an audience hates their films.
+- I never wanted to be an actor. I just wanted to learn languages and travel and see the world.
+- In Hollywood, they make movies like they make washing machines. It's a business. In Europe, the films are considered art. No producer would ever tell a director where to cut a film or how to re-write the script. I love Hollywood, but all of the time I have to go back to Europe.
+- I made so many films I thought were great and they turned out horrible, and I made films I did not believe in at all, and 'Shadow Of The Vampire' was one of these films I did not believe in during the shooting. And then when I saw it I was surprised what they had made out of it. They edited for quite a long time.
+- There are many things, as an actor, where you find that a production just wants you for your name. I am not a big, big, big name, but maybe they can sell the movie if I am in it. This I don't like.
+- I've been in over a hundred films so I know what producers are like.
+- I like special directors, and I've collected a few.
+- I don't wear gloves when I work in the garden.
+- I was in 'Iron Sky,' the first one, and I liked it very much. I liked the technology being used. The technology has such power.
+- I mean, if you are director like Lars Von Trier who is able to get actors on a table like Lauren Bacall, Ben Gazzara, James Caan, Nicole Kidman, Chloe Sevigny, Stellan Skarsgard, Udo Kier, all in the self-service situation in the same room, the same trailer, no money, then you must have something that everybody accepts.
+- All of these great directors I've worked with, they've all come to me. I never go after it.
+- There are certain people who I worked with, Pamela Anderson, Arnold Schwarzenegger, they are figures. And they know this. They don't pretend to be good actors. They were made by the industry into figures.
+- I want to have fun. Big Hollywood films can be fun, but you know it's an industry, and if you don't function, they send you home.
+- I don't like to work with directors who have taken an adoption from another script writer, because it's too much: one of them writes it and then has to explain it to the other, or maybe the director sees it in a way the writer doesn't want it.
+- If everybody would love each other, there would be no war.
+- I made films, like 'Shadow of the Vampire,' and I did not like the work I did on it and then Willem Dafoe was nominated for the Oscar. I made films like 'The Adventures of Pinocchio' with Martin Landau. I thought I would get nominated and it flopped. You never know.
+- I remember when I worked with Fassbinder in Germany, actors wrote letters to him. But you see, a director wants to discover you himself. He doesn't want the actor to say, 'oh, I'd love to work with you' - the actor says that to other people, too.
+- I get nervous when I'm sitting in an airplane at 10,000 feet and then the sign comes on: 'Please fasten your seatbelt for turbulence.'
+- I'm scared of high buildings.
+- My dream would be to play the villain in a James Bond movie, or opposite Arnold Schwarzenegger. I like everything exaggerated.

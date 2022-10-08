@@ -1,0 +1,206 @@
++++
+author = "Gore Vidal"
+title = "Gore Vidal Quotes"
+quotes_len = "200"
+description = "the best 200 Gore Vidal Quotes"
++++
+- Never have children, only grandchildren.
+- Every country should have at least one King Farouk.
+- It is true, as Sartre once wrote, referring to French Army atrocities in Algeria, that the real tragedy in our time is that any of us can be, interchangeably, victim or torturer.
+- In character, as it were, the writer settles for an impression of what happened rather than creating the sense of the thing happening.
+- To invent a war means that you've become a wartime president, and you can suspend much if not all of the Bill of Rights.
+- Having no contemporaries left means you cannot say, 'Well, so-and-so will like this,' which you do when you're younger. You realize there is no so-and-so anymore. You are your own so-and-so. There is a bleak side to it.
+- I don't even read most reviews, unless there is a potential lawsuit on view.
+- Certainly 'The Judgment of Paris' was the novel in which I found my own voice.
+- My father had lifelong contempt for politicians.
+- A narcissist is someone better looking than you are.
+- To a man, ornithologists are tall, slender, and bearded so that they can stand motionless for hours, imitating kindly trees, as they watch for birds.
+- Walter Lippmann suggests that the United States behaves like a society which thinks it is complete with no more to accomplish; that, for better or worse, we are what we are, and the only danger to our comfort is external.
+- The United States is a madhouse.
+- All children alarm their parents, if only because you are forever expecting to encounter yourself.
+- After adolescence, if one's life is sufficiently interesting, the desire to tell oneself stories diminishes.
+- We are the United States of Amnesia, which is encouraged by a media that has no desire to tell us the truth about anything, serving their corporate masters who have other plans to dominate us.
+- In actual fact, I have always been a conservative cross, borne sadly by liberal friends.
+- That loyal retainer of the Chase Manhattan Bank, the American president.
+- We're not a democracy.
+- Most children tell themselves stories in which they figure as powerful figures, enjoying the pleasures not only of the adult world as they conceive it but of a world of wonders unlike dull reality.
+- The genius of our ruling class is that it has kept a majority of the people from ever questioning the inequity of a system where most people drudge along, paying heavy taxes for which they get nothing in return.
+- Every generation gets the Tiny Tim it deserves.
+- Litigation takes the place of sex at middle age.
+- Whenever a friend succeeds, a little something in me dies.
+- Americans are future-minded to the point of obsession. We are impatient at living in the present. Tomorrow is bound to be better... next year, next century, always what might be rather than what is. This trait in us makes for 'progress;' it also makes for a continuing dissatisfaction.
+- Some of my father's fellow West Pointers once asked him why I turned out so well, his secret in raising me. And he said, 'I never gave him any advice, and he never asked for any.' We agreed on nothing, but we never quarreled once.
+- Jack Kennedy very much enjoyed Fletcher Knebel's thriller 'Seven Days in May,' later a film. The story: a jingo based on the real-life Admiral Arthur Radford plans a military coup to take over the White House.
+- I'm always an optimist!
+- I was raised in the Washington household of my grandfather Senator Thomas P. Gore of Oklahoma, and have known politicians intimately all my life.
+- The United States was founded by the brightest people in the country - and we haven't seen them since.
+- I never said I was gay, because I don't think anyone is.
+- While campaigning, I got to know many high-school teachers, and let me say that the good ones are the unsung heroes of our society, and the bad ones are the gravediggers.
+- I began life as an absolute monarchist - on condition, of course, that I be that monarch.
+- Nearly everyone who goes into a campaign is not only eager for the place he hopes to fill but for what might come after.
+- Boys don't like girls around when they do boy things.
+- The four most beautiful words in our common language: I told you so.
+- The American high school graduate is two years behind his English, French or German counterpart; in Alabama, God knows how far behind.
+- The human race is plainly nothing in eternity, but to us, in time, it is everything and ought not to die.
+- Like most readers, I tend to skip the acknowledgements at the beginnings of books: the 'To-My-Wife-Without-Whose-Invaluable-Assistance' kind of thing.
+- It's odd to meet a rather elderly man who says, 'I've been reading you all my life.' It makes you feel a slight chill.
+- Temperamentally, I am suspicious of belonging to anything. When I ran for office, I debated seriously whether or not to run as an independent because I was not eager to be saddled with the Democratic Party, because any party label is committing.
+- Fortunately, our audiences are used to a kind of boredom in the theatre, and if the writer is skillful, he will flatter them into thinking: 'Why, that's us up there, and aren't we - for all our little foibles - pretty nice guys and gals?'
+- Does one ever read a politician's books?
+- A racial or religious or tribal identity is a kind of fact.
+- It is very difficult for a writer of my generation, if he is honest, to pretend indifference to the work of Somerset Maugham. He was always so entirely there.
+- I am told the Cheney-Bush team dislikes their junta being compared to the Nazis. If they ceased behaving like Nazis, no comparison would come to mind.
+- I'm not paranoid, no. I'm different in that I have enemies. Very real ones.
+- It is a paradox of the acquisitive society in which we now live that although private morals are regulated by law, the entrepreneur is allowed considerable freedom to use - and abuse - the public in order to make money.
+- It's always best to stay out of other people's divorces. And their civil wars.
+- Baseball is the favorite American sport because it's so slow. Any idiot can follow it. And just about any idiot can play it.
+- Since we have literally targeted our enemies, the Pentagon assumes that, sooner or later, rogues will take out our cities, presumably from spaceships.
+- I could be a lot happier. I could be the senator from Aerospace taking bribes, and be quite happy.
+- Our form of democracy is bribery, on the highest scale.
+- All in all, I would not have missed this century for the world.
+- I am only at home in the present.
+- For the record, I'm a Second World War veteran and served in the Pacific.
+- As a schoolboy, I read most of Carl Sandburg's six-volume biography of Abraham Lincoln.
+- Jews, blacks and homosexuals are despised by the Christian and Communist majorities of East and West. Also, as a result of the invention of Israel, Jews can now count on the hatred of the Islamic world.
+- It is essential to naturalist doctrine that literature, to be good, must, finally, be the author's experience worked out literally.
+- Corporations must pay tax.
+- Actually, I can't remember when I was not writing.
+- Ayn Rand is a rhetorician who writes novels I have never been able to read.
+- After the French Revolution, the world money power shifted from Paris to London. For three generations, the British maintained an old-fashioned colonial empire, as well as a modern empire based on London's primacy in the money markets.
+- Anybody who is stupid enough to want to be remembered deserves to be forgotten right now.
+- I think I have a normal threshold of anger, but it's true that I am, by nature, belligerent.
+- Of all recent presidents, Clinton was expected to behave the most sensibly in economic matters. He understood how the economy works. But because he had used various dodges to stay out of the Vietnam War, he came to office ill at ease with the military.
+- By 1939, the Depression was back. Unemployment was huge. Roosevelt didn't have any quick fix. Remember, the New Deal, Works Progress Administration, and Civilian Conservation Corps - all that happened years before. Roosevelt was riding a storm.
+- The Pentagon talks about our power to 'overkill' Russia ten times, twenty times, perhaps forty-eight times. For my tax money, it is sufficient to overkill them once.
+- Many writers who choose to be active in the world lose not virtue but time, and that stillness without which literature cannot be made.
+- Television is now so desperately hungry for material that they're scraping the top of the barrel.
+- I am a novelist turned temporary adventurer, and I chose to write television, movies and plays for much the same reason that Henry Morgan selected the Spanish Main for his peculiar - and not dissimilar - sphere of operations.
+- Like the TV networks, once our government has a hit, it will be repeated over and over again.
+- I cannot remember when I was not fascinated by Henry Adams.
+- I remember the Bond movies when I was a child. They were silent then.
+- American history has fallen more and more into the hands of academics.
+- Americans have no idea of the extent of their government's mischief... the number of military strikes we have made unprovoked, against other countries, since 1947 is more than 250.
+- As for civil liberties, any one who is not vigilant may one day find himself living, if not in a police state, at least in a police city.
+- Obama just came swiftly out of nowhere, which was a relief to those of us who care about the Republic, and at first he seemed a very good thing.
+- Why not just eliminate the federal income tax?
+- Americans, in general, are ignorant, bigoted, and deeply unhappy with their declining incomes.
+- There is no such thing as a homosexual or a heterosexual person. There are only homo- or heterosexual acts. Most people are a mixture of impulses if not practices.
+- You hear all this whining going on, 'Where are our great writers?' The thing I might feel doleful about is: Where are the readers?
+- Between fourteen and nineteen, I must have begun and abandoned six novels.
+- The corporate grip on opinion in the United States is one of the wonders of the Western world. No First World country has ever managed to eliminate so entirely from its media all objectivity - much less dissent.
+- There is something about a bureaucrat that does not like a poem.
+- I'm exactly as I appear. There is no warm, lovable person inside. Beneath my cold exterior, once you break the ice, you find cold water.
+- Now you have people in Washington who have no interest in the country at all. They're interested in their companies, their corporations grabbing Caspian oil.
+- In America, the race goes to the loud, the solemn, the hustler. If you think you're a great writer, you must say that you are.
+- Gossip is conversation about people.
+- The more money an American accumulates, the less interesting he becomes.
+- There is a terrible garrulousness in most American writing, legacy of the old Frontier.
+- Write something, even if it's just a suicide note.
+- In classical times, it was a capital offense to speculate upon the hour of a king's death or upon the identity of his successor.
+- What other culture could have produced someone like Hemingway and not seen the joke?
+- My family is Southern. I'm used to Bill Clintons.
+- A friend was surprised to hear me say that there was not one moment of my past that I would like to relive.
+- Today's public figures can no longer write their own speeches or books, and there is some evidence that they can't read them either.
+- We must declare ourselves, become known; allow the world to discover this subterranean life of ours which connects kings and farm boys, artists and clerks. Let them see that the important thing is not the object of love, but the emotion itself.
+- It is always a delicate matter, when a friend or acquaintance becomes president.
+- What the Kinseyites and I had in common so long ago was the knowledge that homosexual and heterosexual behavior are natural to all mammals, and that what differs from individual to individual is the balance between these two complementary but not necessarily conflicted drives.
+- Apparently, a democracy is a place where numerous elections are held at great cost without issues and with interchangeable candidates.
+- Until the rise of American advertising, it never occurred to anyone anywhere in the world that the teenager was a captive in a hostile world of adults.
+- Any American who is prepared to run for president should automatically, by definition, be disqualified from ever doing so.
+- Most of our writers tend to be recorders.
+- You cannot deprive somebody of life, liberty, pursuit of happiness, because that is a right - constitutional right.
+- I was like everyone else when Obama was elected - optimistic.
+- We are pleased to dismiss politics as entirely corrupt, if not financially, intellectually.
+- He who is last had best laugh.
+- I've yet to read a memoir by anyone I've known at all well that came anywhere near to the truth.
+- It is the spirit of the age to believe that any fact, no matter how suspect, is superior to any imaginative exercise, no matter how true.
+- I don't know how prisoners of war are ever heroes unless they escape.
+- Everything's wrong on Wikipedia.
+- By the end of World War II, we were the most powerful and least damaged of the great nations. We also had most of the money. America's hegemony lasted exactly five years.
+- I'm a fervent foe of water pollution, whether it is our own Hudson River or Philadelphia's tap water.
+- Sex is. There is nothing more to be done about it. Sex builds no roads, writes no novels and sex certainly gives no meaning to anything in life but itself.
+- To get people to do needed things is the perennial hard task of government, not to mention of religion and philosophy.
+- Washington turned a blind eye to Al-Qaeda.
+- World War II made prosperous the United States, which had been undergoing a depression for a dozen years, and made very rich those magnates and their managers who govern the republic - with many a wink - in the people's name.
+- What is in question is a kind of book reviewing which seems to be more and more popular: the loose putting down of opinions as though they were facts, and the treating of facts as though they were opinions.
+- There are so many things the people who take polls never get around to asking.
+- When I say 'president,' I still mean Roosevelt - wisely, I think.
+- History is nothing but gossip about the past, with the hope that it might be true.
+- In essence, Clinton's Anti-Terrorism Act would set up a national police force, over the long-dead bodies of the founders.
+- On 16 September 1985, when the Commerce Department announced that the United States had become a debtor nation, the American Empire died.
+- Half of the American people have never read a newspaper. Half never voted for President. One hopes it is the same half.
+- In writing and politicking, it's best not to think about it, just do it.
+- Writing fiction has become a priestly business in countries that have lost their faith.
+- Love is not my bag.
+- Primarily, I am a prose writer with axes to grind, and the theatre is a good place to do the grinding in. I prefer comedy to 'serious' drama because I believe one can get the ax sharper on the comedic stone.
+- The truth about Pearl Harbour is obscured to this day. But it has been much studied.
+- I'm not a conspiracy theorist - I'm a conspiracy analyst.
+- I think there is an instinct out there to rid us of our masters.
+- Didn't George Washington say, 'He who controls Afghanistan will carry New Jersey?'
+- I am not, at heart, a playwright.
+- Each youth betrays considerable anxiety about the wedding night ahead.
+- I sometimes think it is because they are so bad at expressing themselves verbally that writers take to pen and paper in the first place.
+- In the German concentration camps, Jews wore yellow stars while homosexuals wore pink lambdas.
+- That is sad until one recalls how many bad books the world may yet be spared because of the busyness of writers.
+- As for my support for Obama, remember that I was brought up in Washington. It was an all-black city when I was a kid. And I've always been very pro-African-American - or whatever phrase we now use.
+- Think of the earth as a living organism that is being attacked by billions of bacteria whose numbers double every forty years. Either the host dies, or the virus dies, or both die.
+- By the time a man gets to be presidential material, he's been bought ten times over.
+- Because there is no cosmic point to the life that each of us perceives on this distant bit of dust at the galaxy's edge... there is all the more reason for us to maintain in proper balance what we have here. Because there is nothing else. No thing. This is it. And quite enough, all in all.
+- From April 1775 to July 1776, the undeclared war between England and its American colonies smoldered, flared up, appeared to sputter out... It was hardly, ever, a mass rebellion.
+- I hate nobody.
+- The only thing that I react really violently to is being misquoted.
+- Some writers take to drink, others take to audiences.
+- The greatest pleasure when I started making money was not buying cars or yachts but finding myself able to have as many freshly typed drafts as possible.
+- Both Marx and Christ agree that in this life, a right action is consideration for the welfare of others.
+- As societies grow decadent, the language grows decadent, too. Words are used to disguise, not to illuminate, action: you liberate a city by destroying it. Words are to confuse, so that at election time people will solemnly vote against their own interests.
+- I can understand companionship.
+- Envy is the central fact of American life.
+- 'The Turner Diaries' is a racist daydream by a former physics teacher writing under the pseudonym Andrew Macdonald.
+- I know a lot of the Annapolis breed.
+- I never miss a chance to have sex or appear on television.
+- What the police in their ignorance have not figured out is that they have lost all credibility since World War II. They are sort of parasites on the fringe of society and do no particular good for anyone except possibly themselves.
+- Fifty percent of people won't vote, and fifty percent don't read newspapers. I hope it's the same fifty percent.
+- Europe began as the relatively empty, uncivilized Wild West of Asia; then the Western Hemisphere became the Wild West of Europe. Now the sun has set in our West and risen once more in the East.
+- Style is knowing who you are, what you want to say, and not giving a damn.
+- On September 5, 1774, forty-five of the weightiest colonial men formed the First Continental Congress at Philadelphia.
+- The unfed mind devours itself.
+- I was the most famous kid in the United States. That was 1936.
+- The United States is the only civilized country in the world to class its teachers at the bottom of the social scale.
+- Until very recently, the artist was a magician who did his magic in public view but kept himself and his effects a matter of mystery.
+- It is not enough to succeed. Others must fail.
+- The individual's desire to dominate his environment is not a desirable trait in a society which every day grows more and more confining.
+- TV news is not very instructive.
+- McCain is significant in the sense that he has no significance at all on any subject.
+- If you are a Representative and want to be a Senator, you must be careful not to do anything which might upset the various forces you need to harness to get elected.
+- At any given moment, public opinion is a chaos of superstition, misinformation and prejudice.
+- In the writing of novels, there is the problem of how to shape a narrative.
+- Remember, I'm West Point, where I was born. My father went there.
+- As the age of television progresses the Reagans will be the rule, not the exception. To be perfect for television is all a President has to be these days.
+- I can't name three first-rate literary critics in the United States. I'm told there are a few hidden away at universities, but they don't print them in 'The New York Times.'
+- Some have deplored Lincoln's indifference to Christianity. But it was not religion, it was religiosity that put him off.
+- I'm all for bringing back the birch, but only between consenting adults.
+- I didn't mean to spend my life writing American history, which should have been taught in the schools, but I saw no alternative but to taking it on myself. I could think of a lot of cheerier things I'd rather be doing than analyzing George Washington and Aaron Burr. But it came to pass, that was my job, so I did it.
+- The behaviour of President Bush on 11 September certainly gives rise to not unnatural suspicions.
+- My father once said something very shrewd about me to a woman journalist who had told him how courageous she thought I was for always speaking my mind. My father said, 'If you couldn't care less what anyone says about you, then it's not courage.'
+- One is sorry one could not have taken both branches of the road. But we were not allotted multiple selves.
+- Democracy is supposed to give you the feeling of choice, like Painkiller X and Painkiller Y. But they're both just aspirin.
+- No sooner does an American president take his oath of office than the speculation begins: Will he be reelected in four years' time? If not, who will succeed him? A member of his own party? The other party?
+- Friends, there is no Left in American politics.
+- Policemen are seldom tried for their crimes, or indeed, held responsible for what they do, which disturbs the peace and causes distress among the orderly.
+- I never wanted to be a writer. I mean, that's the last thing I wanted.
+- Andy Warhol is the only genius I've ever known with an I.Q. of 60.
+- What I like least about myself is my belligerence.
+- There is no human problem which could not be solved if people would simply do as I advise.
+- During the late '50s, I had worked on the script of Ben-Hur in an office next to that of the producer Sam Zimbalist.
+- What I am is something unbearable for the world of journalism and the world of cliches. I'm a realist.
+- An important governorship used to be the best springboard for would-be presidents.
+- The media can't get anything straight.
+- In August 1961, I visited President Kennedy at Hyannis Port. The Berlin Wall was going up, and he was about to begin a huge military buildup - reluctantly, or so he said, as he puffed on a cigar liberated by a friend from Castro's Cuba.
+- For every Scott Fitzgerald concerned with the precise word and the selection of relevant incident, there are a hundred American writers, many well-regarded, who appear to believe that one word is just as good as another and that everything which occurs to them is worth putting down.
+- Overcrowding in the cities is producing a collective madness in which irrational violence flourishes because man needs more space in which to be than the modern city allows.
+- There's a lot to be said for being nouveau riche, and the Reagans mean to say it all.
+- There is only one party in the United States: the Property party... and it has two right wings: Republican and Democrat.
+- To prevent the theft of 'Ben-Hur's sets, guards were prowling the back lot long after production had been shut down.
+- The first grown-up book that I read on my own was a nineteenth-century edition of 'Tales from Livy' that I'd found in my grandfather's library.
+- To preserve the human race, it is now necessary to reorganize society. To this end, an Authority must be created with the power to control human population, to redistribute food, to purify air, water, soil, to re-pattern the cities.
+- The theater needs continual reminders that there is nothing more debasing than the work of those who do well what is not worth doing at all.

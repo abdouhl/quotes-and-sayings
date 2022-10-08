@@ -1,0 +1,106 @@
++++
+author = "Shawn Crahan"
+title = "Shawn Crahan Quotes"
+quotes_len = "100"
+description = "the best 100 Shawn Crahan Quotes"
++++
+- My art in my head just needs to come out for me - for my legacy and who I am.
+- I have a lot of self-hatred and a lot of self-anger and a lot of things that I need to let go of.
+- It's very important every day that I get up and breathe, and I can say the word 'Slipknot,' and I still have friends that I do it with.
+- I was born to make movies.
+- We try to bring something different for every tour.
+- I've been fortunate to have been in Paris a dozen times, where I've gone to the Louvre. I'm very big on Impressionistic paintings.
+- El Paso is the final Wild, Wild West city.
+- I don't need the new fan; I need the fan that has anxiety - parents are getting divorced, social problems, gender problems - I need them to come to the ultimate show, and they're going to get that at Knotfest.
+- Slipknot started out of tragedy.
+- The masks were more of a representation of what you wanted to present as yourself.
+- I don't wanna work with people who only want to make money.
+- I don't have time for heartache or problems, especially drama.
+- Paul just had a way about him that was different. I was really attracted to his writing.
+- I've been working on the way my originality, my body, my face, my original form is perceived by me.
+- 'American Psycho' is violent. 'Apocalypse Now' is violent. 'Officer Downe' is a comic and not violent to me.
+- You're either in music socially and culturally to get through life, or you're not.
+- I love music, and I can't imagine life without music.
+- I'm pretty infamous for opening my garage and standing in the middle of it and sneering.
+- My oldest boy, when I do skip, he's gonna take over my slot. He was sitting on the stair in diapers wearing my mask with sticks while we were downstairs trying to learn how to be a band.
+- After I started Slipknot, I was very honored because I got in touch with the masses. But I was very down on myself because I dropped out of college, which meant I dropped out on myself.
+- Slipknot is about integrity and reality!
+- Paul Gray - he believed in my art, and I believed in his music. Together, we decided to change the world, and that's what we did.
+- The goal every day of my life is to make some sort of artistic difference on a more profound level than just moshing.
+- I get to be a kid forever.
+- When I leave backstage, some of the fans ask if I'm a roadie, and I just tell them, 'No, I'm the bus driver.' And, of course, they believe it.
+- I ask myself, does Slipknot want to play next to the Foo Fighters? The answer is no, because my kids don't want me to do that.
+- People are animals, man.
+- Everybody wants to escape, but our escape is the real deal. If we're scary, that's because we're taking you away from you being fed what you want to hear.
+- We, as a band, have never decided to go away. We've never even talked about it. It's not even a question.
+- I won't even let anyone in my house. I'm a private person.
+- I didn't finish college, and I was very sad about that because I don't think I gave myself a chance to learn, to prove to myself that I could learn.
+- I couldn't imagine being in Slipknot and not going to Peru or Argentina or Moscow or St. Petersburg.
+- One thing we've always wanted to do is just do things our way, and we've always talked about having our own festival.
+- The people who you think are the most solid are often the most hurt.
+- I've been obsessed with death since I was a little kid.
+- There was no way I was gonna be in a band and show my face.
+- My wife loves elephants and compares me to a big bull elephant.
+- Believe me, I go and go, 'cause I know how short life is, and I know how very blessed all of us are to be here and how very short it is.
+- I would never, ever change the formula of what we would do, but what I want to do is go down somewhere really conceptual. Really artistic. Really theme-oriented. But I don't want to push anything.
+- We will never recreate 'Iowa.'
+- It's not about me. It's about what I'm doing for kids. When I walk out onstage, there's 15,000 kids that, to me, represent potential.
+- What are Slipknot angry about? Everything, man!
+- The Backstreet Boys are easy; they're cream. And then here we are, this nine-piece metal militia.
+- Corey Taylor won't be mad at me saying, but I didn't think there'd be other bands. I thought we'd wear masks forever.
+- It's just upsetting how the world is - the need and the necessity to override the value of life.
+- You can have a wife - you can have a child or children - and be a rock n' roller.
+- We help kids and fans of all ages find their social scenes. Find their place. Find their demeanor.
+- What the world needs to know is that it's okay to need help.
+- I can only be the madman that I've been so long.
+- I'm not a fan of the sound quality of our first album, because there's a noise in my head.
+- There is nothing perfect, no one can be perfect, and perfectionism is something you shouldn't chase.
+- I want to go to colleges and give seminars. I want to sit down with kids in classrooms and have them challenge me.
+- People always ask me: Is it the music? Is it the masks? No, it's all of it. It's Slipknot. It's the optics, it's the masks, it's the music, it's the performance, it's the records.
+- I've been inside the Anne Frank house. You've only read about Anne Frank in grade school. I've been in it. I've seen the diary. Things that teachers couldn't teach you.
+- As the world grows and technology grows, it's getting harder to communicate and for kids to socialize.
+- I wouldn't disrespect myself or my art with any imitations.
+- I still live in Des Moines.
+- I'm not gonna be like, 'Farewell tour!' then come back. Never say those words to fans - you have to come back if you say that.
+- I liked playing drums in the band, but the truth is, I always knew they were going to call Joey to play drums.
+- If I haven't got someone to leave in five minutes for at least one of my films, then I'm not doing my job.
+- I don't like people because I don't trust them.
+- We love everyone. We appreciate the support. It has helped us; it has been noted. It has been needed, and it just proves that Slipknot is not a band: we are a culture.
+- I really believe Slipknot's rich with history and rich with things.
+- I think every song Slipknot has written is a greatest hit, but there are only four records.
+- I've been to Dachau.
+- I'm in the greatest band in the world, period. End of story. We're the best.
+- This world is ugly, and it's supposed to be, and it has to be in order for art to lead to grandness and beauty.
+- I don't look at my work as being violent. 'Officer Downe' is more campy than anything. It's a comic book, so it's funny to me.
+- In true Slipknot fashion, nothing we plan works out the way we want it.
+- I forced myself to have a big family because I never had a big family.
+- A lot of us in Slipknot, we get to go to wounded soldier hospitals where soldiers have lost their limbs. That's surreal. It's even more surreal to talk to them about your band. They're talking to you about war and losing their limbs, and at same time, they're talking about their favorite album, these kind of things.
+- We want to push it. We feel we are the envelope.
+- I jumped off my lift, smashed my knee pretty good - my meniscus and everything. So I had to have surgery.
+- Because of Iowa, I like being in a different state that doesn't even have grass and think that I smell fresh-cut grass. It brings me home.
+- The one thing that has always been there for me is music. Before I met my wife, there was music. If my wife were to pass or something, there would be music to help me through that.
+- To the general public, just remember the people around you. You might not know what they're thinking, so it's always nice to be checked in on and to check in on people.
+- I'm a pretty aggressive person, and I'm very saturated.
+- I can't speak for anybody else but myself 'cause I usually get in trouble when I speak for other people, so I've learned my lesson not to do that, but for me, I've been known to pace for quite a while when I walk onstage, and that's just because I'm becoming one with my shell.
+- I'm not drawn to people that much unless there's a really serious energy happening, but I'll take a lot of pictures of trees, or I'm always staring at the ground. I'll see an oil stain that looks like something out of 'Lord of the Rings' or something, and that's what kind of calls to me... I'm drawn to that aspect of photography.
+- It's very strange for me to do a comic book for my first movie. But I used to collect - and I love - comic books.
+- I may have won the only important lotto ever, which is life, but I am still going to die. We all are.
+- I work really hard to portray things that you're not going to see at Walmart.
+- I didn't want to be in high school. I didn't want to go to grade school. I wanted to learn rock n' roll and paint pictures and throw pots and write haiku and study film.
+- I've got dreams now of reinventing 'Hellraiser' and just getting my head on anything I can get my hands on that maybe I would love. 'Cause the possibilities are endless: I can make my own movies; I can make other people's movies. But if someone had a 'Hellraiser' script and had funding, and I loved it, let's go.
+- You can look for something that's equivalent to Slipknot, and you're going to fail miserably.
+- I don't usually let people see me cry.
+- No, there's other actor who could play The Clown in Slipknot.
+- I lost both my parents, and it wasn't as hard as losing Paul, because you've got your whole life with them - you know it's going to happen. With Paul being my best friend, I just didn't see it coming.
+- Either people are going to start getting us, or they're not. And if they're not, I want them to quit wasting my time. I just want people to really get into the band.
+- Why should anybody see our faces? What have our clothes got to do with anything? So we got the masks and the overalls, and we set about developing the most insane live shows that anyone has ever seen.
+- I decided that every year on my birthday, I'm going to release a new clown mask.
+- No albums are better or worse than each other, and they're all important to our legacy and our story.
+- Maybe I thought the movie business would be a little bit different than the rock n' roll business, but, in fact, they're the same animal, just packaged differently.
+- There's a lot of different things that make me want to take photos. A lot of it is, for a long time I've been obsessed with the thought of time travel with my camera.
+- I can't predict the future, nor will I. I'm not a fortune teller.
+- I'm certainly interested in taking a photo with anyone who took time out of their busy schedule in life to say hello.
+- Health is the most important thing you have on this planet if you're gonna have a successful life.
+- I'll die on the stage, man.
+- I want to bring art into everything.
+- I bought a bar because we got banned from playing everywhere else. We were too nuts, and everyone was scared of us. It was Des Moines, Iowa, remember.

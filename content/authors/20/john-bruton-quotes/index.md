@@ -1,0 +1,34 @@
++++
+author = "John Bruton"
+title = "John Bruton Quotes"
+quotes_len = "28"
+description = "the best 28 John Bruton Quotes"
++++
+- Indeed, American companies make three times as much profits from their investment in one E.U. country, Ireland, than they do from all their investments in China.
+- U.S. companies rely on the European market for more than half of their global foreign profits.
+- The European Union is the world's most successful invention for advancing peace.
+- Non-proliferation will only work if all states are willing to cooperate, and that will only happen if all feel they are being treated fairly.
+- Since creation of the E.U. a half century ago, Europe has enjoyed the longest period of peace in its history.
+- A terrorist nuclear detonation in a western city would destroy all economic confidence.
+- The E.U. is the world's fastest growing democratic body.
+- U.S. companies earn more from their investments in the EU than in the rest of the world combined.
+- We can demonstrate, by our own example, how E.U. freedoms, including the freedom of nationals of other E.U. countries to come and work here, has enabled us to expand our economy.
+- That's where my job comes in. Getting the E.U. and U.S. to agree.
+- Financial service providers act as the lubricating oil in the economy. They link consumers who want to invest their savings for a good return with companies who want to borrow on best terms for expansion.
+- European investment in Texas alone exceeds all U.S. investment in China and Japan put together.
+- But our system of regulation must keep up with this. If it fails to keep up, it will hold back economic expansion. We need financial market regulation that works at national and European level.
+- Of course the EU and member states must work to ensure that people moving from one country to another understand their obligations and their rights in areas like health, road safety and further education.
+- The E.U. is more than just a trade organization or a common market; it is a guarantee of democracy, freedom, justice, and human rights. Nations cannot stay in the E.U. if they do not respect these guarantees.
+- States can be deterred by the fear of retaliation; non-state organisations cannot by deterred at all.
+- The EU and the U.S. often work together to develop international standards. This is the case in fighting terrorism and transnational crime, advancing trade liberalization, and combating piracy and intellectual property violations.
+- The U.S. - E.U. economic relationship dwarfs America's economic ties with China.
+- Ireland has a role to play in making the E.U. united and strong.
+- The E.U. has moved to combat global terrorism by instituting common European arrest and evidence warrants and creating a joint situation center to pool and analyze intelligence.
+- The time horizon may be too long for sole reliance on market solutions - but perhaps the inventiveness of the financial services industry will prove me wrong that point!
+- The economy is not an abstraction. The economy consists of people, and it will only grow if people feel secure and are reasonably free.
+- If the EU and the US can cooperate successfully on regulating financial markets, everyone else will follow.
+- Proliferation of nuclear weapons to terrorist organisations is far more dangerous than proliferation of nuclear weapons to states, even states like North Korea.
+- The E.U. imports more agricultural goods from developing countries around the world than does the U.S., Canada and Japan, combined.
+- When the E.U. and the U.S. agree, other countries follow.
+- It is not viable for one country to demand a right to increase and upgrade its nuclear weapons capabilities while asking others to eliminate theirs.
+- One cannot have economic growth without security.

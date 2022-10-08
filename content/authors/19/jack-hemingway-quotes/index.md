@@ -1,0 +1,49 @@
++++
+author = "Jack Hemingway"
+title = "Jack Hemingway Quotes"
+quotes_len = "43"
+description = "the best 43 Jack Hemingway Quotes"
++++
+- I know he wanted me to love fishing and hunting, and I believe that he deliberately set about to make me want to do it on my own initiative.
+- Frankly I never seriously read my father's books until after he died. Up to then, there had been no point.
+- But watch out for certain kinds of morels with wine. They're like a hallucenogenic.
+- We were out drinking and fishing one day, and somebody said to me, 'People are starting to make money off your name. You and your brothers should do it.'
+- I'm not a Hemingway scholar, so I've come across some surprises.
+- I spent the first 50 years of my life being the son of a famous father and am now spending the last 50 as the father of famous children.
+- He was a physically imposing presence - 6 feet tall and very broad in the shoulders - and an imposing intellectual presence as well. Whenever he was in a group, he dominated it.
+- You might have to go through some smaller rainbows to get at the big fish, but they're in there.
+- When French troops entered Paris in August, 1944, Papa came in from Rambouillet and first liberated the Explorers' club. But his major objective was the Ritz. He came in and assured security, making sure nobody else could get to the wine cellar.
+- His tastes were probably formed by whatever wife he was married to at the time and what he could afford.
+- At the time of his death and the few years before, I was just starting to pull myself together and make a reasonably good living after years of dismal failure. I think he would be delighted to know that I've stuck to one thing and have done it well.
+- My father had two personas: first, literary, and second, the way he lived. I've been brought up with all of this, but many other people have liked and admired his lifestyle.
+- I am 75, but I'm younger than he was when he died because I didn't live life as hard as he did.
+- But one of the most important and lasting things my father taught me was a love of the outdoors and how to respect it. I have tried to pass that curiosity and respect on to my kids and to others.
+- Papa set a high premium on telling the truth, and I believed everything he said.
+- For years my nickname was 'Bum.'
+- My father was a fun-loving person, not the evil, sadistic, macho, woman-hating guy that comes through in some of the biographies.
+- Tennis parents and stage mothers should take note. The kid has got to want to do it, not just to please the parent, but for himself.
+- I wanted to write a book about Hemingway's Paris, but a professor beat me to it. I suddenly realized other people were making a living off all the things that have to do with my family background so I've got one good story to tell and I'm telling it.
+- He was my hero, though it was probably for the wrong reasons. Because he could hit people harder than anyone else, and things like that. It's only recently I've come to understand how selfish he could be, how hard on his children.
+- People ask me what I do, and I tell them, 'I'm a fisherman and a hunter.' They look at me like I'm lazy or crazy.
+- There is a new way of seeing him now. Because of that, there has been a lot of scholarship in Hemingway that is more thorough.
+- My father was my hero, both for the physical things he could do and for the values he taught me, about honesty and standing up for what you believe in. I never felt like I was living in his shadow.
+- Comfort and solidity was what made him happy.
+- The only thing that's really important is the stuff he wrote. That's what he cared about, and that's what's worth protecting. The myth and the man time eventually separates. But the work endures.
+- I'm not a furniture person. You sit on the stuff, sleep on it, make love on it.
+- He's never portrayed as being funny. He was a very funny, happy, lively person. Fun to be around and exciting. He was my hero.
+- When he was with you, he was totally yours. Of course Papa might tell you to wait in the car for five minutes while he talked to just this one person and he'd be right back. He might be gone an hour and a half. He was a very hard person to get out of places, actually.
+- Food has always been a thing in our family.
+- I was always somebody's son or somebody's father.
+- Stacy Keach was marvelous. He looked more like my father than anyone who had ever played him before.
+- If you look at the 1960s, Hemingway was viewed on the basis of the myth of his lifestyles rather than viewing his work. Machismo was badly viewed; feminism was becoming a more noble cause. I think the feminists took him apart and assumed he mistreated women.
+- My mother, along with Papa's other eventual wives - Pauline, Marty Gelhorn, Mary Welch - they all, at one time or another, no matter how angry they were at him at the moment, said, 'Look, Papa is special. He writes so beautifully. We have to let this go on.'
+- I didn't do a lot of fighting as a kid. But I hit doors a lot.
+- Papa loved to have me show off my scars.
+- It's hard to think of your parents as lovers. You know you got here somehow, but it's hard to visualize.
+- My mother was a fine woman. But it couldn't have worked. Dad was such a macho guy and she was eight years older and becoming matronly.
+- I was raised like a little soft French kid, if you want to know.
+- He drank standing up because he said, 'If you drink sitting down, you don't know if you will be... able to stand up.'
+- I was proud of Papa for his sports.
+- I started reading the Carlos Baker biography of Dad but couldn't finish it. I had the impression I was reading about a guy who, well, just wouldn't be very nice to be around. I wish Baker could have known Dad because exactly the opposite was true.
+- Hatchery trout are like New Yorkers who live crowded together. Eventually the hatchery trout shove the wild trout out. They aren't used to congregating together and eventually they go crazy and disappear.
+- When I was in prep school, an English teacher said to me, 'Hemingway, I expect more from you!' And I said, 'Why, sir?'

@@ -1,0 +1,70 @@
++++
+author = "Jerry West"
+title = "Jerry West Quotes"
+quotes_len = "64"
+description = "the best 64 Jerry West Quotes"
++++
+- You can't get much done in life if you only work on the days when you feel good.
+- Anything you can do to help someone, I just think it's so important because there's a lot of kids that look up athletes of all size and shapes in a lot of different fields, not necessarily in the basketball field. They get involved emotionally with those people because there's something about certain athletes that people rally around.
+- I've always been really nationalistic, and I had a brother killed in Korea. And I think the 'Star Spangled Banner,' even today - and I've heard it a heckuva lot of times, OK - has always been a significant feeling to me.
+- We talk about players of yesteryear, guys who could play or couldn't play, and I think it's ridiculous to try to even compare people... The things that you can do in basketball today that you couldn't even do then... you can carry the ball; you walk all over the place.
+- Self-esteem is something I still battle. People look at me and say, 'You've got fame. You've got admiration. You've done this; you've done that.' As far as I'm concerned, I haven't done anything. I've just fulfilled a dream of competing.
+- You need to possess more than a little nastiness to play basketball at the highest level.
+- The Lakers had been home to me, unlike the home I had grown up and felt apart from.
+- The season is a beast within itself. It's not the quickest race; it's a marathon. In the playoffs - if you're fortunate enough to make the playoffs - that's more like a dash. You have to concentrate on one opponent. When they're done, you have to concentrate on another one.
+- I hated to miss games... at the height of my career, I missed a lot of games due to... just a hamstring pull. And I hated sitting out. I just hated it. You play for your team, but you also play for the people who attend the games.
+- A lot of people would be happy that they got through a long career and had a chance to play as many times in the finals. To me, I wanted to win for the franchise and for the people. And when you can't do that, it's devastating, particularly for someone like me.
+- I have often wondered why I was never captain of the Lakers.
+- Fear of failure, it's the greatest motivational tool. It drives me and drives me and drives me.
+- When the Warriors are on, my wife keeps away from me. I'm a rabid fan, and my language sometimes is not too good.
+- Confidence is a lot of this game or any game. If you don't think you can, you won't.
+- Some guys lay their fannies out there every night - they play the game at such a high level, and they give so much that, frankly, they don't get credit for it. And I think it's tragic sometimes.
+- There's always two or three players I like, and why I like them, I can't tell you. There's just something about them I think would be great on a team.
+- There's been so many unbelievable players in Los Angeles, maybe the best of the best.
+- At one time, we were asked to play your own man; you're responsible for your own man. And, if you were good enough and kind of a ball hawk, you helped everyone else. Now it's really much more of a team concept defensively than it was when we played.
+- I remember, years ago, if I had had an opportunity to leave the Lakers, I would have left for one reason: because I did not like an owner that was not telling me the truth. And it would have made no difference what they would have offered me; I would have left.
+- I went a few times, but I felt there was no way that any therapist could understand my particular torment and also felt in some respects they were sicker than I was.
+- I've seen a lot in my life. I've seen a lot of winning. I've seen a lot of testing times. I think when you're tested, you really find out what you're made of, OK?
+- It's discouraging for me to come out there and watch the lack of fan support for a good team.
+- Obviously, stats are important tools, but I think there's something behind those things; somewhere along the way, you've got to try to look inside someone.
+- I'm not one who likes to be honored, to be honest with you. That's never been who I am.
+- You need lofty goals. Then cement it with a great work ethic.
+- I hate to say it's not a Laker but Michael Jordan. He's been the greatest player I've ever seen. And I'm probably a harsh judge of talent in the sense that I admire players that are really good defensive players and really good offensive players.
+- Even though I felt, at times, 'My goodness, you're among the upper echelon,' there is still a huge void there. A huge void. It is about self-esteem. That's a thing that has always been a real complex part of my life.
+- That's a strong sign of a good coach, to let an assistant participate. It shows his confidence in the coach's ability not to have to dominate everything.
+- You get so addicted to winning that you don't want that feeling to stop.
+- I often do things that surprise me, not to mention others.
+- In the playoffs, the best players are supposed to play better. I did. It made no difference.
+- A couple teams will grind the shot clock down. Most of the time coaches do that, it's usually a talent deficit. They can't compete against the better teams.
+- I've been so low sometimes and when everyone else would be so high because I didn't like myself.
+- I'm a Gemini. Know what that means? There are two very different sides to me.
+- I'm just ultracompetitive. I will be till they put me in the grave.
+- The league is changing, and we don't have many back-to-the-basket players. We now have a game that requires skill and versatility. A lot of that is about being able to think. It makes all the difference in the world to have a player in there with a high basketball IQ who can make the right decision.
+- Kevin Garnett was a great player, but he wasn't Kobe Bryant.
+- You have to win games by scoring points, of course, so that's important. But when you're having nights against a good defensive team, you have to win in a different manner. You have to win a defensive-type game.
+- The advent of so much dribbling has created a different kind of player, and it starts at a very early age. We have so many gifted ball handlers. Everything is pick-and-roll. Unless he's a catch-and-shoot guy, a player is going to put it on the floor and attack. Kevin Durant is a wonderful ball handler.
+- I've always been someone who has been very driven. I think my circumstances, how I grew up, hard work and work ethic are absolutely vital to any success that people might have, regardless of what they might be doing.
+- I'm at the point where you look back on your life and reflect. I've always been an unbelievable critic of me. If we lost a game, I blamed myself every night. I'm very proud of some of the things I did as an athlete, as an executive.
+- I don't know anything else but the Lakers. This has certainly been more than a job for me as a player. It has certainly meant more to me than just an occupation.
+- A shot is a lever; it's all it is. You don't open a car door differently each time. A car door is efficient - it opens and closes. So is a shot.
+- The support this city and our fans have shown the Grizzlies made my decision to stay in Memphis an easy one. Memphis deserves a championship team, and I am committed to that.
+- I've always been a very harsh judge of talent because if you don't play the game on both ends of the court, and if you don't play hard every night, I'm probably not going to be in love with you as a player. I'm going to respect you because you're good, but these players are unique.
+- I see people that have success, and I see how poised and polished they are and how they handle it. I wonder inside if they feel the same way that I feel.
+- Defensively, from a team standpoint, I didn't feel I played very well. Very rarely was I satisfied with how I played.
+- The 3-point line has changed the game so much. The day of the big man, unless you're extraordinary good, is not numbered, but certainly you gotta be a lot more versatile to play the game today. You gotta be able to really run up and down the court.
+- For some reason, I always wanted to work in an environment where things weren't so good. I'm no messiah, but I always wanted to try and make a difference where a team hadn't prospered.
+- I like to keep people guessing.
+- I'm still very much a West Virginia boy. I haven't forgotten my roots, because that's really who I am.
+- I'm surprised when the ball doesn't go into the hoop. I think I should make every shot.
+- Everyone always says you have to be on the best team, the team that wins. Oh, no, no, no. I disagree with that.
+- I know when I left the game, I could have played more. There is no question. I think I could have played at a very high level, too. But I could not play the way everyone wanted me to play. And I was not willing to compromise what I felt was a standard that I had established in this league and, particularly, for our fans at home.
+- I would never stay under circumstances where I felt I was a figurehead and might look good in your team media guide. I don't want to be that. I do want to contribute, and if I don't contribute, I'll walk away from it. If I don't feel welcomed, I'll walk away from it.
+- I'd go fishing and always pretend I would catch the biggest fish. I'd stay out there for hours after everybody else left until I caught something. When I shot baskets, I was always the coach and star player and always made the winning shot.
+- If you don't want to win, you don't want to be around me.
+- When it's time for me to walk away from something, I walk away from it. My mind, my body, my conscience tell me that enough is enough.
+- If I'm not nervous, if I don't have at least a little bit of the same self-doubt and anxious feelings I had when I started playing, then it will be time for me to go on. I must have that tension.
+- I think, at the end of the day, when you hear the same voice all the time, it goes in one ear and out the other when you're a player.
+- I enjoy winning, but more importantly, I enjoy the people I'm around.
+- Many people, men in particular, just can't not be active. I guess our minds demand that we seek other challenges.
+- Coaches who have been players in the league, they get so attuned to playing how they were successful and who their coaches were.
+- To be candid with you, free agency hurts all sports. It's great for athletes making an enormous amount of money. But to say it helps the sports, I don't believe that.

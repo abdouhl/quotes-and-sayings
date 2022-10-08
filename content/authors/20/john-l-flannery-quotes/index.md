@@ -1,0 +1,42 @@
++++
+author = "John L. Flannery"
+title = "John L. Flannery Quotes"
+quotes_len = "36"
+description = "the best 36 John L. Flannery Quotes"
++++
+- In the U.S., a lot of small manufacturers are pretty good. I don't see any reason why India won't make the same progress in manufacturing as it did in services.
+- Our collaboration in building innovative technologies will support the Make in India vision of the Indian government.
+- I have a strong command of what's going on in the company.
+- Energy is our largest business in India but still has huge room to grow in new areas like renewables and distributed energy - as well as traditional gas and steam turbines and services.
+- Understanding the customer, feeling what they are feeling, seeing what competitors are doing, you end up having a richer sense of the marketplace.
+- I see a big, promising future for India's manufacturing and supply chain part of our company.
+- As I looked across the company, there are three things that keep coming up that we need to work on: culture, our operating rigor, and capital allocation.
+- The thought process of India was more around its potential as a cost arbitrage. We always recognised the potential of India, but we were more coming from how can we fit into cost structure rather than selling things here.
+- We are really trying to move from being just a technology provider to being a partner with our customers.
+- Our global structuring activities and restructuring activities really don't impact India.
+- I think, to many people in the company, I am somewhat of an outsider.
+- The people inside the company are the people who define GE, not the people outside the company.
+- First and foremost, localization is a customer strategy, it's not a cost arbitrage or whatever.
+- In all our businesses, we are out to build local capability in four basic aspects - product line, manufacturing and supply chain, the service team, and the financing and investment capability.
+- Artificial intelligence, machine learning... cell therapy, immunotherapy. There's just a constant stream of investment ideas we could pursue better in that fashion.
+- I have a long history of looking at things from an investor's perspective by training and background.
+- The core businesses are transforming in very futuristic ways. You know, our aviation business, very interesting things are going on, and unmanned vehicles, drone technology, and things like that.
+- Mergers and acquisitions, we are always looking for that.
+- When a customer is really not happy, it's a very unpleasant experience.
+- I think I just have a different style.
+- We are growing both in the U.S. and in India, and all our business plans are made accordingly. So we are expanding both in U.S. and in India.
+- What investors want is growth, margin, and cash.
+- We've reinvented ourselves many, many, many times.
+- The teams and how we perform and how we deal with customers, how we invest in the things we do right now - that's what writes the story for GE.
+- GE is 130 years old because it keeps changing and evolving.
+- We have invested in many of our customers in the health care business by lending or leasing money for equipment purchases or investing in some customers to help them grow business.
+- There will be no cost drag from digital by 2020.
+- I am very bullish and I have been bullish on India for a very long time, and I see our own business growing very substantially.
+- We always wanted to be a big infra player in India - in sectors such as energy, healthcare, education, locomotives, etc.
+- It's quite clear we've got strong franchises at the core of this company.
+- I think any time you increase focus, increase speed, all those are going to help any business.
+- If you look across a 30-year career in the company, I've executed in a wide arrange of environments. In financial services all around the world, in industrial businesses, and in the acquisition and strategy work.
+- Going back to the past is not productive.
+- We are a company built for fair and open trade.
+- No one likes to look at their stock price go down and say, 'I feel good about that.' It goes without saying.
+- We are fortunate to attract an energy executive as strong as Banmali Agrawala.

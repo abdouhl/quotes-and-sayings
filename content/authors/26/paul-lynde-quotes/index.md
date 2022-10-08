@@ -1,0 +1,45 @@
++++
+author = "Paul Lynde"
+title = "Paul Lynde Quotes"
+quotes_len = "39"
+description = "the best 39 Paul Lynde Quotes"
++++
+- Someday I'm going to go onstage in a dress if I want to.
+- I don't understand why people don't remember my name.
+- Comedy is exaggerated realism. It can be stretched to the almost ludicrous, but it must always be believable.
+- I don't always prepare such rich meals. Sometimes I'll just serve a simple quiche, salad and dessert for dinner. During the week I try to eat lightly.
+- I have an ulcer. It has an IQ of 185.
+- I may find something that looks interesting and then go on to alter the recipe by adding spices, things of my own. I also look for time-saving recipes, dishes that can be prepared ahead and stored.
+- A room is like a stage. If you see it without lighting, it can be the coldest place in the world.
+- If I'm not working, I don't know what to do.
+- The dining room in my old house was truly magnificent, but by far the worst room for conversation. I'd get up from the table, a very long table, and somebody would always say, Paul, I never got to talk to you.
+- My kitchen is not a place to live in. I made it white so I can tell instantly if it's not clean-and I like it clean enough to be able to eat off the floors-or the tables, for that matter.
+- I have this beautiful antique silver wine decanter that I bought at an auction. I always pour wine from that.
+- If I ever completely lost my nervousness I would be frightened half to death.
+- Sandwiches are wonderful. You don't need a spoon or a plate!
+- A closet full of wire hangers can be the most dangerous place in the world.
+- I often go on a liquid fast a couple of days a week. I never take just water. Instead, I'll have maybe six glasses of vegetable and fruit juices a day.
+- My table seats eight, so that's my maximum. Having a small number of guests is the only way to generate good conversation. Besides, your whole house doesn't get wrecked that way.
+- I don't know who the hell Paul Lynde is, or why he's funny, and I prefer it to be a mystery to me.
+- I was obsessed with being rich and famous.
+- I wish I had the nerve not to tip.
+- My dad was a ham, too. He could sell those women anything. Of all his sons, I was the only one he could trust to sell as well as he could. I was proud of that.
+- Learning lines is on my mind until I do know them. I'll read the paper or paint the house to keep from starting to memorize. I've never found an easy way.
+- The doctor's name was Sylvia. I told her she'd have a problem with me because Sylvia was my mother's name.
+- When I said I didn't have a cent, I didn't. I used to get annoyed with people who said they were broke when they had five dollars.
+- My following is straight. I'm so glad.
+- The whole romantic part of my life was a wipeout. I didn't even own a belt.
+- It was the worst moment of my life. The producer came up and talked me back into going on stage.
+- Politicians... talk in generalities and lies, and I think they've caused all our grief. They're so awful, they're really funny. I hate thinking this because my dad loved politics.
+- An actor shouldn't undergo psychoanalysis, because there are a lot of things you're better off not knowing.
+- I laughed all the way through Love Story.
+- I can't even get three weeks off to have cosmetic surgery.
+- I sang in the choir for years, even though my family belonged to another church.
+- My sisters said, Why do you make those faces? You make yourself so ugly.
+- If I hadn't become a celebrity, I'd probably be an alcoholic.
+- Mothers don't want to pinch me or put me in their purse.
+- I think basically an actor is a salesman.
+- My father was adamant in his disapproval of my interest in show business.
+- Food was a constant topic of conversation in our household.
+- I feel now it's useless to keep hoping. The way things are today, we live in a world that needs laughter, and I've decided if I can make people laugh, I'm making a more important contribution.
+- I'm Liberace without a piano.

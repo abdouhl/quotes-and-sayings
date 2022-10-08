@@ -1,0 +1,106 @@
++++
+author = "Jermell Charlo"
+title = "Jermell Charlo Quotes"
+quotes_len = "100"
+description = "the best 100 Jermell Charlo Quotes"
++++
+- We trying to bring back the old-school boxing.
+- I train like a dog and I eat and fight like a lion and if Kell Brook thinks he's got what it takes, put his money up, tell his people to come over here, jump on a private jet... I'll even let him train in my gym, so we can make a fight in my hometown.
+- I beat Olympians.
+- Knowing my brother is also fighting gives me more energy.
+- I grew up in the amateurs.
+- Changing an opponent shouldn't be a problem. It sucks to spend a lot of time preparing for someone and then it changes up, but it's boxing. That happens in boxing and you have to accept that.
+- Any man who steps in the ring, I give them respect because we're trying to feed our family and this is how we do it.
+- I have been hitting people and hurting them since I was 16 years old.
+- I've always been afraid to fight in New York. I don't know why. I always had this weird feeling.
+- It's so important for me to bring a world title back to Houston.
+- I have to continue to be different and stand my ground in this division until I'm done at 154 pounds.
+- After I lost in 2018, I told everyone that it just gave me jet fuel, and that when I come back, I'm coming back full throttle.
+- Hurd puts on entertaining fights, I put on entertaining fights. Let's bang it out, let's rumble.
+- We know the window of boxing don't last long. We want to try to get everything we can in this window and beat everyone we can.
+- Tony Harrison is not on my level.
+- We have a personal chef who helps us stay on track, and we really like to keep things the same all year round. We don't want to change anything up too much if it's working. We eat clean and organic as much as we can, and try not to eat too much of anything.
+- Respect me at all means. No halfway disrespect.
+- We live and die by Lions Only because not too many people can go through the struggle of life the way my brother and I have and still be on top and make it as far as we are making it right now.
+- You can find us fishing in Miami offshore somewhere, riding jet skis, and doing fun stuff like that. My brother likes to ski and get out in the snow. We really are nature boys, and when it comes to getting out there and being in nature, there's not too much we don't like.
+- I don't even play video games because I don't like losing.
+- Fighting on HBO and Showtime, people had to pay money to watch them and a lot of people who love boxing, they didn't have those channels.
+- Just leave me alone at 154. I'm the man.
+- I know my brother can steer his own ship. He's the captain of his own ship, and how he moves and how he do things. He's a king in his world, I'm a king in my world. We're two lions with a big mane. We've been in this world of boxing for a long time.
+- This is what boxing always needs - two young, undefeated fighters willing to risk their '0.'
+- Just being at the top makes me excited. I want to stay at the top.
+- I want that fight with Jarrett Hurd and I want to be the one that knocks Jarrett Hurd out and takes his belts.
+- I ain't no loser.
+- My plan is to show everyone that Tony Harrison is not on my level.
+- I never had a walk in the park in my career.
+- Always having that one-minute tag and always knowing that my brother was one minute older than me, it always made life much more competitive.
+- Every fight is a fight for my life. And I step in the ring and make sure that I fight with that on the back of my mind.
+- I know that I have explosive power in both hands.
+- I love Los Angeles. I live here and I love training here.
+- I've been able to define who I am and my brother is able to do his thing.
+- I don't want nobody getting on my brother. So that's how I take it. If I got to be the one that goes first, oh, well, let it be.
+- Being a household name throughout boxing, that matters to me.
+- Fight night is when you see all our excitement and all our hard work pouring out.
+- Dreams do come true.
+- Every fight in my life is important because the man standing across from me is there to beat me.
+- It's always been something like that growing up, knowing I wanted to be the best. And my brother considers himself the best, I consider myself the best.
+- Everybody's dream is to win fights, get rich and win titles.
+- A world title is important. I want to fight for a world title.
+- The fans are able to see us, seeing what life is like for the Charlos.
+- When I fought Jorge Cota, that's a prelim of what's to be expected from me in the future.
+- Me and my brother talk the talk, and we walk the walk.
+- I'm very humbled to know that everything happens for a reason.
+- No matter what, people have to respect my accomplishments.
+- We do a lot of twisting and turning in our training. Those types of moves really help get the body moving and make sure we're staying agile, which is so important in the ring.
+- We all crazy. I respect any man that gets in the ring.
+- I definitely proved that I'm more than just a puncher, but I'm also a puncher.
+- I want to be a superstar in the junior middleweight division.
+- I've been in the game since I was 17.
+- It's Lions Only forever.
+- I'm in there for more than just a fight. I'm in there fighting for my legacy.
+- I don't want to be in the same weight division where it's almost looking like who's the better fighter? Who's the better twin?
+- I've been in there with, to me, some top-tier guys, and so has Trout. You can't take that away from him at all. He's fought all of the top guys, everybody.
+- I was the one that, when we were younger, I would pop off first. If somebody got into it with me and my brother, I'm jumping off first.
+- I know I've had an attitude that can explode, but I'm trying my best to not step out of bounds.
+- Charles Hatley is a good fighter. He comes with pressure and he likes fighting. He's got a good style and he can bob and weave and be slick.
+- Big shout-out to Ronnie Shields, he's a great coach.
+- I'm going to show everyone why Jermell Charlo is a threat to the whole 154-pound division.
+- The sport is rough. It does wear and tear on the body.
+- I listen to a pop genre of music to keep the rhythm flowing and sometimes I'll take it back to the old school to keep my mind calm because once you start to listen to so much craziness, it gets hectic.
+- I always pray for my opponent to have safe care and make it to the fight healthy.
+- I have the old-school mentality.
+- This sport is serious.
+- My second pro fight, I fought on the Joe Calzaghe and Bernard Hopkins undercard.
+- Listen, I'm a gentleman at the end of the day.
+- You can't halfway disrespect me ever in my life and think we are going to be OK later.
+- I'm down for making history.
+- I tried my best to get my brother to get signed by Golden Boy and all his higher-ups, but I don't know, I don't know what they was looking for or what they was looking into. They didn't do it.
+- I'm one of a kind even though I am a twin.
+- I know Julian Williams is a skilled fighter who's hungry.
+- Me and my brother are a force to be reckoned with.
+- We are so different from each other. My brother is heavy-handed and my speed is more than his.
+- Trout is no journeyman. He's a former world champion, someone who has a name and he comes to fight.
+- 2020 is going to be real. It's going to get loud.
+- I am a dog in the sport.
+- Sometimes you knock someone out, sometimes you just beat 'em.
+- I take care of my positions when they come.
+- We're tired of hearing the media say to put the Charlo's in there with better competition. I've heard that every fight. As long as I'm winning fights and I'm entertaining the fans, that's what I'm going to do.
+- I've fought a lot of prospects.
+- I believe in myself and I believe in my power.
+- When I fought in the amateurs and fought New York guys, they had a different swag, a different style, and maybe they didn't take a liking to Texas fighters to begin with.
+- Fighting here in Houston in front of my hometown crowd with all of my family and friends to support me is huge.
+- I am one of the hardest-hitting light-middleweights they've had for centuries.
+- The 'Charlo Show' is going to keep going.
+- I'm proud of what my brother has done. His success motivates me. He's a world champion.
+- We do a lot of different workouts, like hot yoga, to stay flexible, loose, and healthy.
+- We're just here to fight, we're just here to give God the glory, get a victory and keep it moving.
+- I'm growing and learning that the knockout just comes.
+- Joachim Alcine does certain things in the ring that I've seen and taken note of. There are some things I believe I can take advantage of.
+- I'm 6 feet tall, I'm strong, I'm thick.
+- My father cut the umbilical cord for my son, because I wasn't actually there.
+- I'm loving training.
+- Of course, we would love to fight Floyd.
+- I know that I can't take anyone lightly.
+- I always want to handle things in the right manner.
+- I just want to be remembered as one of the toughest champions with his own attitude.
+- Trout moved, that's why he survived 12 rounds. If Hurd sat in front of me and took those shots, he'd be done.

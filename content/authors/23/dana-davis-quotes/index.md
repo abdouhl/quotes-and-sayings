@@ -1,0 +1,13 @@
++++
+author = "Dana Davis"
+title = "Dana Davis Quotes"
+quotes_len = "7"
+description = "the best 7 Dana Davis Quotes"
++++
+- My idea of working out is going upstairs in my apartment.
+- What's funny is my mom took me to the theater for the first time when I was six years old, and I was just amazed by it. I just said, 'Hey Mom, can I do this too?' And so she signed me up for little theater classes, and I remember my first audition for a play when I was seven years old was for 'The Thankful Elf.'
+- You can't help but be in awe of the athletic abilities of the WWE Superstars.
+- It's funny because before I joined the cast of 'Heroes,' I was an insomniac. I have suffered from insomnia for, like, so long. Now that I'm on the show, seriously - I sleep like a baby. I'm so tired all the time.
+- I think that 'Heroes' really is about family. I mean, sure, it's this surreal story, and it's about people with powers, but the story behind that story is a story of family.
+- I'm the kind of person that if I see someone else crying, I cry too. I take on that emotion.
+- Honestly, when I was a little girl, I would watch wrestling with my brother, like, all the time. The Ultimate Warrior was my favorite. I used the have the biggest crush on him!

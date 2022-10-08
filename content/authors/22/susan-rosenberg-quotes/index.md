@@ -1,0 +1,34 @@
++++
+author = "Susan Rosenberg"
+title = "Susan Rosenberg Quotes"
+quotes_len = "28"
+description = "the best 28 Susan Rosenberg Quotes"
++++
+- Being a lesbian is part of the very fabric of my being.
+- We are innocent. We are not criminals or terrorists. We are revolutionary guerillas and have been captured in the course of building a resistance to this government.
+- I believed that one had to stop the machinery of war.
+- I ran... I didn't trust the government. I was really afraid. I believe now that that was the fatal mistake of my life.
+- I supported the right of oppressed people to armed struggle. That didn't mean I did it.
+- It is not a crime to build revolutionary resistance against the single greatest enemy of the people of the world: U.S. imperialism.
+- We're caught, but we're not defeated. Long live the armed struggle!
+- I had a second chance. I know how incredible that is.
+- We are not terrorists. We're not criminals, we're not motivated by money, we're not motivated by greed. Nor are we simply nice kids gone wrong. We're deeply committed to a different kind of society and a different world. I think that is something very hard to understand for a lot of people.
+- First as a peace activist in the late '60s, then as a political activist in the '70s, and then in joining the armed clandestine resistance movement that was developing in the '80s, I am guilty of revolutionary and anti-imperialist resistance.
+- I really believe our society has this propensity to punish.
+- It was an extreme time, in a certain sense... I was totally and profoundly influenced by the revolutionary movements of the '60s and '70s.
+- I have been a revolutionary for much of my life.
+- The use of violence by individuals... is not a position that I support or would ever want to be in again.
+- I spent 11 years in isolation units, solitary confinement... in the hardest places for women.
+- Political prisoners are important to support because we are in prison for explicitly social/political/progressive goals. Our lack of freedom does affect how free you are; If we can be violated, so can you.
+- I've done everything I know in my heart on every level to take responsibility for what I think I have to. I'm not going to take responsibility for something the government thinks that I should because they think I should.
+- At the time it seemed like there was a loosening of culture, there was a counterculture, there was a radicalization. I think we totally misread what was really going on in the world, that somehow a small group of people could mobilize a larger group of people.
+- The war against the Black Liberation movement by the FBI/U.S. government was most influential for me in seeing the necessity for armed self-defense.
+- The U.S. government does not recognize the existence of political prisoners in our country. The identity of political prisoners is concealed and, consequently, their right to justice is denied.
+- We are revolutionary anti-imperialist resistance fighters.
+- The criminal activities I was involved in, I think that they were wrong and that they were dangerous.
+- I took responsibility for the illegal actions, the potential for violence in my past actions, which I regret.
+- I continue to feel it was solidarity in the prison that made living in prison a different kind of community, and I began a life of service.
+- I have a political view that is certainly progressive and radical in a certain sense.
+- These chains are not going to stop me.
+- Seeing the B-52s dropped from planes, watching the burning of civilians with Agent Orange, reading about the incarceration of Vietnamese militants in cages only big enough for tigers made me furious.
+- The high security is living death.

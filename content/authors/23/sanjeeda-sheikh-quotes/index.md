@@ -1,0 +1,106 @@
++++
+author = "Sanjeeda Sheikh"
+title = "Sanjeeda Sheikh Quotes"
+quotes_len = "100"
+description = "the best 100 Sanjeeda Sheikh Quotes"
++++
+- Being an actor, you have to be versatile, and open to all kinds of roles, be it positive or one with grey shades.
+- Love is out of this world feeling; nothing is as pure as love.
+- Aamir was not that good a boyfriend; he is a better husband.
+- Every actor, has a dream role, I would like to admit Kamini Mathur is my dream role and I am so happy to portray this character.
+- I felt people wouldn't be enticed by the web, but I was wrong. I too don't watch TV anymore, and only watch digital shows.
+- Doing a daily show with Aamir will not make me miss Aamir. So no daily soaps with my husband.
+- The most important thing for me is appreciation from the viewers and the love which I get from them. This helps me to work passionately on my projects.
+- I hate fake people.
+- I think the audience expect me to be on saas-bahu dramas - such shows attract me also.
+- Aamir is a very mature and understanding person. Our relationship has not harmed my career in any way; on the contrary, it has helped me a lot.
+- I think if you understand your role, comedy won't create any tragedy.
+- Saas-bahu will always work on television, one can never go wrong there.
+- Aamir and I are still boyfriend-girlfriend. The other day we were discussing how we don't feel like husband-wife; however, the only thing that has changed after my wedding is that I get to meet my guy every day.
+- I personally am happy doing a finite series as I can't play a single character for three years. Hats off to the actors who stay in a character for three four years and enjoy every moment of their character.
+- If you are with a man who is himself then that's the best thing you can get.
+- I am known as the gossip queen on sets!
+- Dance is a universal language which allows you to express yourself without words and I think that is why everyone is so enamoured by dance.
+- I am a complete foodie and I love experimenting with my food.
+- I am not a diplomatic person.
+- Working with Amitabh Bachchan and Sarika has been one of the best experiences of my life.
+- Actors should be judged on how they look on screen, and not on the basis of the age of their characters.
+- Acting is acting, be it any medium.
+- I don't believe in starving myself to be slim, I believe in the concept of being fit. I eat right and work out regularly.
+- I was part of 'Piya Ka Ghar'... for two years. It started out as a comedy but didn't work and so it was revamped.
+- The digital platform has its own viewership, but we have a lot of people who still watch saas-bahu shows. That is not going to change.
+- I am very happy that my fans have accepted 'Ek Hasina Thi' and my character Durga Thakur so warmly.
+- Kolkata is a very beautiful city and I have heard that it gets completely transformed during Durga Puja.
+- I personally love working for finite series as it's important to convey that stories need not be stretched; they can get over in a year and still be loved by audiences.
+- I've never followed a diet in my life, as denying your body of certain nutrients does more harm than good.
+- I love to perform at various award functions and one day I would like to open a dance academy.
+- I am basically from Ahmadabad in Gujarat.
+- Me and Aamir are like friends. We understand each other so well and it's easier I think as we have same profession.
+- I have seen a couple of episode of 'Tantra' and I found it quite engaging because of the mystery involved in it.
+- I wasn't expecting a proposal from Aamir that night, especially when he had waited long hours for my shoot to get over and I too was drained after giving back-to-back scenes that involved portraying a lot of mental traumas and crying. As I came out of my shot, he stood in front of me, went down on his knees and proposed marriage.
+- 'Badalte Rishton ki Daastan' has enough masala to keep the audiences hooked from day one. It is a proper family drama.
+- I am bubbly and talkative in real life.
+- I would rather be an A-lister on TV than do B- or C-grade movies.
+- It is good to have your partner in the same profession because the understanding is great.
+- I think taking a gap after a long-running show is a must.
+- I want to be choosy, because one has to invest a lot of time in TV shows.
+- When I am getting to do good work on TV, why not concentrate on that? Why think about what films I can do?
+- Whenever I travel, I always make it a point to try out local delicacies rather than have fivestar food.
+- I love the content that COLORS showcases, it is very unusual and pathbreaking and hence I try to be part of these shows in my own way.
+- I never had any problem with my producers or directors.
+- Understanding between a couple is the most important thing, rest everything follows.
+- I love dancing as it is a great stress buster.
+- I would love to share screen with Aamir as we share a great comfort level. And ideally it should be a love story as it would be easy for us to romance on screen.
+- When a producer approaches you, you think about the character, and whether you will fit into it.
+- It's better to be a star on TV and do selective work, rather than act in some stupid film.
+- Television made me who I am.
+- I love dancing, it's something that comes naturally to me.
+- I've seen new actresses do one show and disappear or struggle for years to get their next break. I've been fortunate enough to have four shows back-to-back as lead.
+- I am a professional and maintain good rapport with all my producers, directors and co-artists.
+- There are such beautiful locations outside India, and the experience of shooting in Istanbul was awesome.
+- If a film offer comes my way, I am ready to consider it.
+- My body has finely balanced itself with my gruelling work schedules and if I occasionally get a break, I start missing my shoots.
+- We too have arguments, but we don't really have any fights. Aamir and I don't carry our fights home.
+- I love tandoori chicken, stir fried veggies and any form of spaghetti, but it has to be with cheesy chicken.
+- Whenever I work on a new project, I work as if this is my first show and I have to put all my effort.
+- I had done a brilliant project with Shoojit Sircar, 'Shoebite,' but it never released.
+- I like eating Mughlai, Chinese and Italian cuisines, but Chinese cuisine is one which I can have any day, any time!
+- When they say 'action' I transform into a reserved person and as soon as they say 'cut' I am Sanjeeda.
+- There are songs which even if you listen to repeatedly, you don't end up liking them, but there are some songs which have an instant connection with the listener. 'Ruka Hoon' is that song which instantly clicked with me.
+- I am absolutely at ease working in a comedy.
+- Gehraiyaan' got me excited. I haven't done horror before so, this was a chance to do that.
+- I don't like cardio since I get bored but dancing is another form of cardio that works well for me.
+- Thankfully I have good genes and a fast metabolism, which doesn't make me put on weight easily.
+- I don't want my shows to run for more than a year as you get bored doing the same role. But you don't want your show to end in three months either.
+- For me, a good role, and not the length, is important.
+- EHT' did wonders for my career. Earlier, people knew me mostly for my dancing abilities, but this show made them take notice of my acting capabilities as well.
+- But I don't think TV will face any threats from web series. Every medium has it's own audience.
+- If I weren't an actor today, I would have been a choreographer for sure.
+- DDLJ' - it's an out an out love story and one can relate to it. It's one of the best movies I have ever seen.
+- Maybe I am not destined to be part of movies. I feel that one needs to be connected in Bollywood, because, for outsiders, if the first film doesn't work, no one gives them a second chance.
+- I never thought I would be an actor.
+- I rather love going home after a long day at work to my husband with a fresh mind.
+- I'm upset that 'Dastaan' is ending. After working so hard, to see it end abruptly is painful.
+- There is a bit of myself in all the characters I play.
+- I am present on Facebook but I am not that active.
+- Success and failure are temporary in TV.
+- I love dancing and since I had never done Dhunuchi, I found it exciting to learn.
+- I keep a track on everything that is happening on TV.
+- Piya Ka Ghar'... is one of the best shows I have been associated with.
+- We are very glad to receive so much of love, support and appreciation for 'Bas Ek Baar.' Now with the release of 'Ajnabee,' both I and Aamir are all excited to see everyone's response once again.
+- Marriage will be happy and blissful if you understand and support each other well.
+- TV doesn't have variety. It's a fact that you don't have different roles to perform. You get similar characters only.
+- My parents are completely cool with whatever decision I take.
+- I have never sat in a Metro in Delhi and Mumbai, but one day I would love to travel in the metro in Lucknow.
+- I have done versatile characters from the beginning of my career.
+- It is very important for actors to maintain a variety in their body of work.
+- For me, the characters I played in each of my shows were important, because I work very hard and always gave my 100 percent.
+- I am always up for new and different things, regardless of the medium.
+- Though I and Aamir are both busy with our respective shoots, but whenever we get free time, we like to spend with each other.
+- People love my spunk and the energy I bring into my roles.
+- I like to play different roles in TV serials and do not want to create a particular image.
+- I am not too keen to do movies, as I don't have time to waste on struggling for a role in a film.
+- I'm ambitious but not overtly so.
+- I am clear about what I want from life.
+- When you are working under stress you are bound to have different thoughts and opinion. But that doesn't mean one starts fighting.
+- Love, for me, means commitment and security.

@@ -1,0 +1,65 @@
++++
+author = "Vasyl Lomachenko"
+title = "Vasyl Lomachenko Quotes"
+quotes_len = "59"
+description = "the best 59 Vasyl Lomachenko Quotes"
++++
+- I moved up to 130 pounds hoping champions in this division were not cowards like those at 126 pounds. It looks like I was wrong.
+- My job is to work my best boxing in the ring.
+- As far as moving to 130, I got tired of waiting for the other champions, none of whom wanted to fight me. I'm hopeful that with the move to 130 lbs. will come better fights, particularly against the other champions, so we can make our dream of becoming undisputed champion.
+- Linares is one of the best fighters in his weight class.
+- I want to bring something new to boxing.
+- My father taught me boxing and showed me what this beautiful sport means.
+- I want everything, but I can say I have a lot of goals and I have a lot of wishes, but it doesn't depend on me. If everything depends on me, I am doing it. Sometimes it just depends on how everything is going to go.
+- Most important for me is to fight the best, where the fight means something and fans want it, people want to see it.
+- I don't want to be like any other boxer. My goal is to be a champion in my own style.
+- My talent is I understand what I want.
+- I came to this sport to prove to myself and others that I am this big and loud champion.
+- I have many goals, but I don't know if they are going to come true.
+- I became a professional boxer because I want the attention and interest to come back to boxing. I want people interested in boxing. That's very important to me.
+- I came to New York to prove who I am.
+- I think footwork is one of the most important things to becoming a great fighter. That's where everything starts.
+- Every fighter thinks about their legacy, and I'm not any different.
+- I think Marriaga is a very good opponent for me. It's very hard when you have to find the keys to his defense. If people don't understand boxing, they don't know what he's capable to do. I understand it all.
+- So far, I don't know what it means to be the champion. I'm just glad I have the belt.
+- In my hometown, I know everybody.
+- I want the best and to get the most out of my short boxing career by fighting the best I can.
+- I come in the ring to feel, check, and see my opponent. Then I understand him and understand the fight.
+- I have the biggest weapons in my hands. I can go a full 12 rounds at high speed.
+- I need more fights to get better as a fighter. And I will keep getting better.
+- I know I will have to prove I am the best and make history in pro boxing, but I have no doubts about it, as I did in the amateurs, and I will do it as a pro.
+- Marriaga has heart. He has the courage to get into the ring and fight. I respect that a lot.
+- People ask me about Orlando Salido. My answer is that I fight for Top Rank and will take on who they schedule for me. But I would like to welcome Salido to Lomachenko University in the ring some day.
+- The life of a boxing athlete is short, so I don't have time to waste or time to take tune-up fights or whatever.
+- If, in 10 years, or 20 or 30 years, you sit down with your friends and talk about boxing, you need to remember my name.
+- I have looked at videos of many great champions like Muhammad Ali, Sugar Ray Robinson, and Joe Frazier, who each had special qualities. I never say one particular fighter is the best ever because each has a special unique style of fighting.
+- Every fighter fights in the ring the way his opponent lets him fight.
+- I want to win, win, win.
+- Rigondeaux is a high-class boxer. He is smart, has speed and skill.
+- I don't like a big city.
+- I am not like most fighters. I want to be on the list of the greatest, best boxers in history.
+- I want to be known to fans and appreciated as a 'boxer-painter' in regards to speed, footwork, punching power - an art form inside the ring.
+- And since my father started training me, he always explained to me how important footwork is and how strong your legs have to be.
+- Money, titles, belts - you're not going to take with you when you die. History stays forever. That's why I decided to go for history.
+- While growing up, my dream and my goal was to win an Olympic gold medal. I did that, and both times, they were the proudest moments in my amateur career.
+- I want to speak English perfectly. In fact, I want to speak English just like I fight, and, until that moment, I find it very hard to do an interview solely in English.
+- It's not in my character to say what I'm going to do and how it's going to go.
+- I want to fight the best in the world.
+- I had a dream as a young boy to be Olympic champion in boxing, and that's what I focused on with my father - making it a reality.
+- I've never had a problem making featherweight. Of course, it wasn't easy, but it also was never an issue.
+- I always want a challenge - always.
+- Every fight has challenges.
+- No one will train me but my father.
+- Nowadays, it's not more about the sport; it's about the business. All the boxers became businessmen, not boxers. They look just to get the money, not the glory.
+- My legacy is to put my name in the history books in boxing.
+- I am like every single fighter - going into the ring, I have in my mind, 'Finish the bout before all the rounds are over, and to get the victory before that.'
+- For me, it doesn't matter. I will fight anybody.
+- Nothing is forever, but history is forever.
+- I don't want to be just a regular great fighter. I want to be the best.
+- I like to fight guys my size.
+- It's true that I went to dance classes as a young boy, and it did improve my feet, but I don't believe that it was solely dancing that helped my footwork.
+- Being recognized as the pound-for-pound No. 1 fighter is my ultimate dream.
+- I want to fight. I want to fight. I want to unify titles.
+- Everybody wants to see two warriors have a good fight.
+- People understand boxing in the U.K. The fans love it.
+- The reason I like Olympic boxing is that all the best fighters come together and find out who the best fighter is.

@@ -1,0 +1,37 @@
++++
+author = "Jakob Dylan"
+title = "Jakob Dylan Quotes"
+quotes_len = "31"
+description = "the best 31 Jakob Dylan Quotes"
++++
+- You have to have a work ethic, and you have to be educated in what you're doing. You have to take it seriously. It doesn't mean that everything you do has to be serious. But you've got to have the tools.
+- I always saw songwriting as the top of the heap. No matter what else you were going to do creatively - and there were a lot of choices - writing songs was king.
+- There's only so many things to sing about, so what's going to make a song appeal to you more than someone else's is just a unique way of saying the same thing.
+- Those things interest me a lot in songwriting - the human nature of how people think, and the muck that we wind up in.
+- If all you were left believing was what you were seeing, it'd be nothing but desperate. To have hope, you're going to have to imagine that there's something behind the curtain.
+- When I listen back to my music and everyone else that's out there, I'm aware that there's something I can do that the next guy doesn't do.
+- I liked getting the Grammy more than not getting it.
+- I'm in an area where I want to make music that I'm thrilled with, but, you know, I do have to worry about putting food on the table. I'm in that position where I cannot always be gauging what things might become. I have to look ahead, because I'm cautious.
+- I do look at songwriting as a lot of work. I don't over-intellectualize music as a special medium that only some people deserve to do. I think it's something you do if you put the work in.
+- I don't feel like I chose to do music as much as I made a decision to not stop doing music.
+- I got to watch my heroes meet him and saw how they reacted, whether it was Joe Strummer or Tom Waits. It was peculiar. I'm so stoked to meet Tom Waits, and he's so nervous to meet my dad. It's a head spin.
+- Every song you write you think is the last one you're going to manage. You put everything you've got into the song, and you've twisted it and pulled at it and dug in and found a way to complete it. To get another one is the trick.
+- Songs are not better just because they're emotionally honest. To write a song well, you have to put some work into it and grind it out.
+- You couldn't really like a bad guitar in 1960 'cause everybody was pretty good.
+- It's a little gross to put yourself in every song. I mean, how interesting do people really think you are?
+- When you're in the middle of writing a song, you can come up with this whole web of stuff only you know how to get through. That's very entertaining for me to do that.
+- I think there's always been hope in my songs, no matter how they've first appeared. I think there's always been a shred of hope in everything I've written 'cause I like that balance.
+- Writing songs is a trade like anything else.
+- The back story of a songwriter isn't important to me - I don't listen to music needing to know who the guy is.
+- It's been said that I formed The Wallflowers to hide my name but, really, I've always wanted to be in a band - right from the day my friends and I soundproofed a garage with bed-covers for our first rehearsal.
+- If people want to talk about Bob Dylan, I can talk about that. But my dad belongs to me and four other people exclusively. I'm very protective of that. And telling people whether he was affectionate is telling people a lot. It has so little to do with me. I come up against a wall.
+- I've got a life that really matters to me, and that's because of the way I was raised. My ethics are high because my parents did a great job.
+- I'm a very upbeat, positive, optimistic type of person.
+- Some people just can't get over their own hang-ups to listen to my music.
+- My songs have always had hope and perseverance in them - I never write songs that have no escape hatch, no positivity.
+- We've all had that experience where we hear a song that we've liked for many years, and we finally hear what the writer tells us what it's about, and you're often disappointed.
+- I don't like to sing things that just sound like they're going straight down the tubes, and they're circling the drain, and there's no hope. It doesn't feel good in any way to sing.
+- You might have a favorite band and really dislike one of the records. That's fine.
+- If I'm judged against my peers, rather than anyone else we could both think of, then I reckon I deserve to make records.
+- I'm not somebody who carries around a notepad and writes songs all day long. I don't imagine everything I think of is worth being in a song. So I tend to collect notes, and I set time aside to go to work and write songs.
+- To us, there was Bob Dylan, and there was dad. As for what he meant to other people, that was never glorified in our house. There were no accolades there, no gold records.

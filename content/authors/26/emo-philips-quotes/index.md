@@ -1,0 +1,47 @@
++++
+author = "Emo Philips"
+title = "Emo Philips Quotes"
+quotes_len = "41"
+description = "the best 41 Emo Philips Quotes"
++++
+- I ran five miles today. Then, finally, I said, 'Here, lady... take your purse.'
+- People come up to me... concerned... that I'll reproduce.
+- I'm a great lover, I'll bet.
+- You don't appreciate a lot of stuff in school until you get older. Little things like being spanked every day by a middle-aged woman: Stuff you pay good money for in later life.
+- I love to go down to the schoolyard and watch all the little children jump up and down and run around yelling and screaming. They don't know I'm only using blanks.
+- A computer once beat me at chess, but it was no match for me at kick boxing.
+- In our school you were searched for guns and knifes on the way in and if you didn't have any, they gave you some.
+- I discovered my wife in bed with another man, and I was crushed. So I said, 'Get off me, you two!'
+- He taught me never to smile, which helps me when I visit disaster sites.
+- Well, my brother says Hello. So, hooray for speech therapy.
+- I was walking down fifth avenue today and I found a wallet, and I was gonna keep it, rather than return it, but I thought: well, if I lost a hundred and fifty dollars, how would I feel? And I realized I would want to be taught a lesson.
+- I was at a bar nursing a beer. My nipple was getting quite soggy.
+- I got some new underwear the other day. Well, new to me.
+- People always ask me, 'Where were you when Kennedy was shot?' Well, I don't have an alibi.
+- I once had a large gay following, but I ducked into an alleyway and lost him.
+- Probably the worst time in a person's life is when they have to kill a family member because they are the devil. But otherwise it's been a pretty good day.
+- I was sleeping the other night, alone, thanks to the exterminator.
+- I got in a fight one time with a really big guy, and he said, 'I'm going to mop the floor with your face.' I said, 'You'll be sorry.' He said, 'Oh, yeah? Why?' I said, 'Well, you won't be able to get into the corners very well.'
+- Always remember the last words of my grandfather, who said: 'A truck!'
+- My jokes are in my head and I have a duplicate copy of my jokes in a lot of British comics' heads, where they are safe.
+- I was the kid next door's imaginary friend.
+- I once heard two ladies going on and on about the pains of childbirth and how men don't seem to know what real pain is. I asked if either of them ever got themselves caught in a zipper.
+- Whatever happened to the good ole days, when children worked in factories?
+- I was in a bar the other night, hopping from barstool to barstool, trying to get lucky, but there wasn't any gum under any of them.
+- I was with this girl the other night and from the way she was responding to my skillful caresses, you would have sworn that she was conscious from the top of her head to the tag on her toes.
+- Some mornings, it's just not worth chewing through the leather straps.
+- At my lemonade stand I used to give the first glass away free and charge five dollars for the second glass. The refill contained the antidote.
+- I love to go to the playground and watch the children jumping up and down. They don't know I'm firing blanks.
+- I asked my girlfriend, 'Will you marry me?' She said, 'We'll have to ask my father.' So we had a seance and Jack Ruby says, 'Hello!'
+- When I wake up in the morning, I just can't get started until I've had that first, piping hot pot of coffee. Oh, I've tried other enemas.
+- How many people here have telekenetic powers? Raise my hand.
+- You know, at parties, people always ask, 'Where were you when Kennedy was shot?' Well, I don't have an alibi!
+- You know what I hate? Indian givers... no, I take that back.
+- Probably the toughest time in anyone's life is when you have to murder a loved one because they're the devil.
+- Women: You can't live with them, and you can't get them to dress up in a skimpy little Nazi costume and beat you with a warm squash or something.
+- Actually, my cd was released in 1985, in return for two German missionaries and a Dutch urologist.
+- England is better only because I stand out there as 'unusual'.
+- When I was a kid I used to pray every night for a new bicycle. Then I realised that the Lord doesn't work that way so I stole one and asked Him to forgive me.
+- I go from stool to stool in singles bars hoping to get lucky, but there's never any gum under any of them.
+- The way I understand it, the Russians are sort of a combination of evil and incompetence... sort of like the Post Office with tanks.
+- My classmates would copulate with anything that moved, but I never saw any reason to limit myself.

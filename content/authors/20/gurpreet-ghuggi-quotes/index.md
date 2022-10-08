@@ -1,0 +1,86 @@
++++
+author = "Gurpreet Ghuggi"
+title = "Gurpreet Ghuggi Quotes"
+quotes_len = "80"
+description = "the best 80 Gurpreet Ghuggi Quotes"
++++
+- In Punjabi film industry I am given full freedom to change the lines according to the situation. Directors believe in my gut instinct.
+- Farmer's plight and dismal condition of common man in Punjab forced me to join politics.
+- I don't want to join politics as I am an artist, and let me remain so.
+- Drugs, killer roads and apathy of the government, all these issues forced me to join AAP.
+- I am shocked that both the Congress and SAD make fun of comedians.
+- For me, only freedom fighters like Kartar Singh Sarabha and Bhagat Singh are my fathers.
+- I fought a long battle for Punjab but it could not succeed because the intentions of the people along with whom I was fighting were not clean.
+- The name 'Fojian' says it all. There was a time when each family had a person in the defence forces.
+- I have a better and more secure future in films, but I want to give back to the state that made me what I am.
+- My own father and grandfather served in the Army.
+- Sohan Singh Bhakna, Gurdit Singh, Teja Singh Sutantar, Banta Singh Sanghwal... they are my fathers. Those who gave their lives for freedom are my fathers.
+- The sentiment that Punjab did not accept the Delhi leadership has been unanimously expressed by candidates and party leaders. Somewhere, the feeling has emerged that the Punjab unit should take lead rather than the Delhi team calling the shots.
+- There is too much of crass comedy in films.
+- I bow only before Guru Granth Sahib. I am not a follower of any sect.
+- Forming an alliance is not the tradition of the AAP and we will not fight elections in collaboration with any political party or front.
+- My seriousness as a politician will be seen from what I speak from a political stage and say in press conferences. If my comic flavor shows there, I cannot be taken as a serious politician.
+- The gloom of Covid-19 has cast a shadow on the charm of Diwali.
+- I want Punjabi film industry to make it's way into the text books, so that when children read about this industry they should know how it reached to its glory.
+- AAP does secular politics.
+- Does ever a kid likes to go to the school on his first day? No, right. But then he is prepared that way.
+- The youth of Punjab is directionless in the absence of job opportunities which drag them deep into the drug net.
+- It's a gratifying feeling to be in the middle of so many people, speak to them on different issues, meet people from all walks of life in panchayats.
+- My commitments are for Punjabi films - I want to work for the industry to uplift it.
+- We will eliminate the drug racket from Punjab.
+- I am trying change trends in movies, just as I am trying to change trends in politics.
+- AAP will ensure that farmers get back their respect in the state when it comes to power.
+- These days it takes a child nearly 20 years to find out that Superman, Batman will not come to his or her rescue.
+- What action the Centre has taken against the Punjab government for the alleged embezzlement of food stocks? Under what condition the CCL was given to Punjab? Isn't offering and accepting the loan request by the Punjab government to cover up the scam indicates a nexus between the Centre and the State?
+- It's a historic moment for the Dalits of Punjab that party has released Dalit manifesto giving voice to their issues and concerns.
+- Definitely Bollywood needs to learn from Hollywood - in terms of discipline... In Hollywood, everybody is very punctual, very focussed and very accurate. It is very professional.
+- My father had to shift from the village because he didn't have a steady job.
+- Indian food has crossed boundaries but we have not been able to tell the world that it is best enjoyed with hands.
+- I will also fulfill my profession commitments as an actor as I would not let the actor in me die after joining politics.
+- Punjabi film industry is not yet ready to give change to new actors, but if Punjabi singers, who already have a fan following, enter the industry, it will be a great help to uplift the industry.
+- Every good looking and handsome boy goes to Mumbai first to struggle; he doesn't focus on Punjabi cinema.
+- We have to see the sufferings of Punjab and focus ourselves to address them.
+- If the AAP comes to power, we will revise laws on road safety.
+- Actors who are talented try to take a jump and start their career from Bollywood. But when they don't get enough recognition, they come back to other options.
+- I have a house in Maharashtra.
+- Development is not that you make bridges, buildings or put marble floors in your house. Real development is building moral character of youth.
+- Changes are required as far as scripts are concerned. People need to open up and experiment in story lines. But we don't have good script writers, producers or directors. The Punjabi industry lacks cinema knowledge and professionalism. It is the saddest part.
+- I believe in Jai Jawan Jai Kisan - a country where the farmer is unhappy is on its path towards destruction.
+- Just because something exists in the society, it doesn't mean it has to be correct.
+- I feel sorry that whenever anybody raises his voice in the AAP in Punjab's interest, it is suppressed.
+- We simply keep telling our kids that you have to listen to us, you have to do what we say, but do we take the effort of explaining it to them that why they need to listen to us?
+- AAP leaders have failed to take people in confidence.
+- Our youngsters are not aware about the history of our heroes like Hari Singh Nalwa, Baba Banda Singh Bahadur, Madan Lal Dhingra, Baba Baghel Singh, the details of Gadar lehar and the heroes involved in this lehar who sacrificed their lives, Kama gata maru movement and much more.
+- Humility is my forte.
+- I am upset at the way I was removed... With a heavy heart, I resign from the primary membership of the AAP.
+- We will stand by Punjab, Punjabis and Punjabiat, unlike Parkash Singh Badal, who makes Chandigarh, river waters and other emotive issues his bread and butter during the elections.
+- The Punjabi industry lacks a lot in terms of good production houses and actors.
+- I feel motivated to give something back to society.
+- We've seen that if we do not pollute, then the environment becomes so beautiful.
+- I think with election conducted with pick and choose policy, injustice has been done to Punjab and Punjabiyat.
+- I do not let anyone use me and throw me.
+- Drugs have ruined Punjab.
+- Our governments have taught us that we should worship only two people - one is 'chacha' and the other 'bapu.'
+- I had left my career to join the party. But now it has become difficult for me to continue and so I resign from its primary membership.
+- I want to make out-and-out comedy movies.
+- From Mahmud Ghazni to Ahmed Shah Abdali, Punjab was hit by marauders so many times that we have learnt to laugh even at death.
+- AAP's Punjab Convener is not a rubber stamp.
+- We will protect Punjab's right over its river waters and fight hard to get back Chandigarh and Punjabi-speaking areas.
+- Present day politics is getting murkier by the day.
+- I have known Bhagwant Mann for many years, we have been colleagues and I am not upset with him as an individual.
+- I'm not a politician. My conscience has brought me before you. Give me a chance to serve you.
+- Politicians have made people cry... politics has become a circus.
+- Around six years back, I turned vegetarian for health reasons. This doesn't mean I feel left out. I can try grass if you put some tabasco sauce on it.
+- Punjab history is hardly taught to students in schools.
+- In real life my son plays cricket and I understand the worth a bat holds for the player.
+- If a parent keeps on saying that, 'my kid is not understanding me at all,' he or she needs to look inside and ask, what wrong am I doing that my child is unable to understand me?
+- If you look at the way I dress and my personality, you would immediately recognize that I'm dedicated to Punjabi TV and movie industry.
+- I never thought of joining politics, but found AAP as perfect choice for someone like me.
+- One thing which no one knows about me is I could be very good director. Although I have not directed any movie so far but I am sure the day I start it, I would be very good at it.
+- As parents, we all share the same emotions and relationship with our kids.
+- I am not concerned about my foreign audience.
+- The way Bhagwant Mann was reprimanded by Kejriwal at the time of his being made state president - with the condition that if he's found drinking he will be removed from the party's top post, and later Mann saying that he will step down if caught drinking - was not the right way of saying things.
+- I used to host a show 'Ghuggi Express' on Zee Punjabi and it aired more than 130 episodes and I single handedly managed the show.
+- When someone's eyesight is not right and he is asked to drive a bus then accident will certainly take place.
+- I keep asking my son about his cricket scores. I have worked hard for his passion for sports.
+- Ludhiana will again rise as Manchester of India if AAP comes to power.

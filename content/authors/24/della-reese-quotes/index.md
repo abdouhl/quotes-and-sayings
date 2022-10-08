@@ -1,0 +1,34 @@
++++
+author = "Della Reese"
+title = "Della Reese Quotes"
+quotes_len = "28"
+description = "the best 28 Della Reese Quotes"
++++
+- It's the truth and people need to hear the truth.
+- Touching people is very rewarding to me.
+- So I all knew was you lost your limbs and you died from it. I was scared silly.
+- Now I walk every where I can. I also ride a stationary bicycle for a total of 30 minutes. I do it three or more times a week now and I have lost 20 pounds.
+- The exercise I do now is a mammoth change for me because I never did any exercise ever.
+- So, yes, I believe in angels, absolutely, I do.
+- I also work with the spirituality of people.
+- I don't see how I possibly could have come from where I entered the planet to where I am now if there had not been angels along the way.
+- We have made people in the industry and the people that see us aware that God loves them.
+- People have known me for so long, I'm just Della to them.
+- My doctor explained that exercise and diet changes might help and that I also might need a medication.
+- So whatever it is you want, need or desire or just like to have, you better try to get it now, 'cause this is the only time there is.
+- I could not have made it this far had there not been angels along the way.
+- I have the background singers of Ray Charles, the background singers of Smokey Robinson, and the background singers of Barry White and I built a choir around that.
+- When you really believe in God, it gives you a courage, a confidence that enables you to meet the things coming.
+- We want to be a place where, and when there's no place else, you can turn us on and know that He's there, He cares, and He's going to do something about it.
+- I don't have to take insulin because I have been able to make these changes and take this medication.
+- My mother was a personal friend of God's. They had ongoing conversations.
+- I like to sing very much.
+- I teach metaphysics and pastor a church.
+- There are people much less fortunate than us, and I don't mean people hungry sleeping in the streets either.
+- I have been a Christian all my life, but it's impossible to be so deeply involved in these stories without it making you think again, and without it making you consciously aware of the people involved.
+- I have a children's book already out and my autobiography.
+- You see, I was born in the slums, that was before the ghetto. The ghetto was kind of refined; the slums was right there on the ground.
+- Each week, from a different point of view, you get another look at God, and that's exciting to me.
+- Yesterday is gone. Tomorrow may be for us and it may not.
+- They started to try and keep us off the air in the beginning.
+- Sometimes I think the choir gets a little ticked with me because I haven't sung in a long time and I can sing.

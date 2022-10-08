@@ -1,0 +1,27 @@
++++
+author = "Georg Wilhelm Friedrich Hegel"
+title = "Georg Wilhelm Friedrich Hegel Quotes"
+quotes_len = "21"
+description = "the best 21 Georg Wilhelm Friedrich Hegel Quotes"
++++
+- Amid the pressure of great events, a general principle gives no help.
+- Truth in philosophy means that concept and external reality correspond.
+- The Few assume to be the deputies, but they are often only the despoilers of the Many.
+- I'm not ugly, but my beauty is a total creation.
+- Mere goodness can achieve little against the power of nature.
+- Animals are in possession of themselves; their soul is in possession of their body. But they have no right to their life, because they do not will it.
+- Too fair to worship, too divine to love.
+- The learner always begins by finding fault, but the scholar sees the positive merit in everything.
+- Genuine tragedies in the world are not conflicts between right and wrong. They are conflicts between two rights.
+- To him who looks upon the world rationally, the world in its turn presents a rational aspect. The relation is mutual.
+- The history of the world is none other than the progress of the consciousness of freedom.
+- It is easier to discover a deficiency in individuals, in states, and in Providence, than to see their real import and value.
+- Governments have never learned anything from history, or acted on principles deducted from it.
+- When liberty is mentioned, we must always be careful to observe whether it is not really the assertion of private interests which is thereby designated.
+- Once the state has been founded, there can no longer be any heroes. They come on the scene only in uncivilized conditions.
+- All that is real is reasonable, and all that is reasonable is real.
+- World history is a court of judgment.
+- Nothing great in the world has ever been accomplished without passion.
+- We do not need to be shoemakers to know if our shoes fit, and just as little have we any need to be professionals to acquire knowledge of matters of universal interest.
+- An idea is always a generalization, and generalization is a property of thinking. To generalize means to think.
+- Education is the art of making man ethical.

@@ -1,0 +1,153 @@
++++
+author = "Plato"
+title = "Plato Quotes"
+quotes_len = "147"
+description = "the best 147 Plato Quotes"
++++
+- To love rightly is to love what is orderly and beautiful in an educated and disciplined way.
+- No evil can happen to a good man, either in life or after death.
+- When a Benefit is wrongly conferred, the author of the Benefit may often be said to injure.
+- The empty vessel makes the loudest sound.
+- Philosophy begins in wonder.
+- There's a victory, and defeat; the first and best of victories, the lowest and worst of defeats which each man gains or sustains at the hands not of another, but of himself.
+- For the introduction of a new kind of music must be shunned as imperiling the whole state; since styles of music are never disturbed without affecting the most important political institutions.
+- As the builders say, the larger stones do not lie well without the lesser.
+- No one knows whether death, which people fear to be the greatest evil, may not be the greatest good.
+- There is no harm in repeating a good thing.
+- Virtue is relative to the actions and ages of each of us in all that we do.
+- Courage is knowing what not to fear.
+- We ought to esteem it of the greatest importance that the fictions which children first hear should be adapted in the most perfect manner to the promotion of virtue.
+- A hero is born among a hundred, a wise man is found among a thousand, but an accomplished one might not be found even among a hundred thousand men.
+- Nothing can be more absurd than the practice that prevails in our country of men and women not following the same pursuits with all their strengths and with one mind, for thus, the state instead of being whole is reduced to half.
+- Death is not the worst that can happen to men.
+- To be sure I must; and therefore I may assume that your silence gives consent.
+- Ignorance of all things is an evil neither terrible nor excessive, nor yet the greatest of all; but great cleverness and much learning, if they be accompanied by a bad training, are a much greater misfortune.
+- Twice and thrice over, as they say, good is it to repeat and review what is good.
+- Man never legislates, but destinies and accidents, happening in all sorts of ways, legislate in all sorts of ways.
+- Must not all things at the last be swallowed up in death?
+- If particulars are to have meaning, there must be universals.
+- And what, Socrates, is the food of the soul? Surely, I said, knowledge is the food of the soul.
+- How can you prove whether at this moment we are sleeping, and all our thoughts are a dream; or whether we are awake, and talking to one another in the waking state?
+- Any man may easily do harm, but not every man can do good to another.
+- Ignorance, the root and stem of all evil.
+- Good people do not need laws to tell them to act responsibly, while bad people will find a way around the laws.
+- Whatever deceives men seems to produce a magical enchantment.
+- Thinking: the talking of the soul with itself.
+- Entire ignorance is not so terrible or extreme an evil, and is far from being the greatest of all; too much cleverness and too much learning, accompanied with ill bringing-up, are far more fatal.
+- The eyes of the soul of the multitudes are unable to endure the vision of the divine.
+- There will be no end to the troubles of states, or of humanity itself, till philosophers become kings in this world, or till those we now call kings and rulers really and truly become philosophers, and political power and philosophy thus come into the same hands.
+- Excess of liberty, whether it lies in state or individuals, seems only to pass into excess of slavery.
+- For good nurture and education implant good constitutions.
+- Wisdom alone is the science of other sciences.
+- I never did anything worth doing by accident, nor did any of my inventions come by accident; they came by work.
+- We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.
+- At the touch of love everyone becomes a poet.
+- Cunning... is but the low mimic of wisdom.
+- Excess generally causes reaction, and produces a change in the opposite direction, whether it be in the seasons, or in individuals, or in governments.
+- Knowledge is true opinion.
+- The most virtuous are those who content themselves with being virtuous without seeking to appear so.
+- The curse of me and my nation is that we always think things can be bettered by immediate action of some sort, any sort rather than no sort.
+- One man cannot practice many arts with success.
+- This and no other is the root from which a tyrant springs; when he first appears he is a protector.
+- Attention to health is life's greatest hindrance.
+- When there is an income tax, the just man will pay more and the unjust less on the same amount of income.
+- Nothing in the affairs of men is worthy of great anxiety.
+- Better a little which is well done, than a great deal imperfectly.
+- Necessity... the mother of invention.
+- Rhetoric is the art of ruling the minds of men.
+- States are as the men, they grow out of human characters.
+- The blame is his who chooses: God is blameless.
+- There is no such thing as a lovers' oath.
+- Justice means minding one's own business and not meddling with other men's concerns.
+- The excessive increase of anything causes a reaction in the opposite direction.
+- When the tyrant has disposed of foreign enemies by conquest or treaty, and there is nothing more to fear from them, then he is always stirring up some war or other, in order that the people may require a leader.
+- The learning and knowledge that we have, is, at the most, but little compared with that of which we are ignorant.
+- There must always remain something that is antagonistic to good.
+- To go to the world below, having a soul which is like a vessel full of injustice, is the last and worst of all the evils.
+- Injustice is censured because the censures are afraid of suffering, and not from any fear which they have of doing injustice.
+- Honesty is for the most part less profitable than dishonesty.
+- When the mind is thinking it is talking to itself.
+- All things will be produced in superior quantity and quality, and with greater ease, when each man works at a single occupation, in accordance with his natural gifts, and at the right moment, without meddling with anything else.
+- The direction in which education starts a man will determine his future in life.
+- For a man to conquer himself is the first and noblest of all victories.
+- Knowledge without justice ought to be called cunning rather than wisdom.
+- Wealth is well known to be a great comforter.
+- The community which has neither poverty nor riches will always have the noblest principles.
+- People are like dirt. They can either nourish you and help you grow as a person or they can stunt your growth and make you wilt and die.
+- Those who intend on becoming great should love neither themselves nor their own things, but only what is just, whether it happens to be done by themselves or others.
+- When men speak ill of thee, live so as nobody may believe them.
+- I have hardly ever known a mathematician who was capable of reasoning.
+- Hardly any human being is capable of pursuing two professions or two arts rightly.
+- We ought to fly away from earth to heaven as quickly as we can; and to fly away is to become like God, as far as this is possible; and to become like him is to become holy, just, and wise.
+- A state arises, as I conceive, out of the needs of mankind; no one is self-sufficing, but all of us have many wants.
+- To prefer evil to good is not in human nature; and when a man is compelled to choose one of two evils, no one will choose the greater when he might have the less.
+- Opinion is the medium between knowledge and ignorance.
+- The measure of a man is what he does with power.
+- It is clear to everyone that astronomy at all events compels the soul to look upwards, and draws it from the things of this world to the other.
+- The good is the beautiful.
+- Knowledge which is acquired under compulsion obtains no hold on the mind.
+- One of the penalties for refusing to participate in politics is that you end up being governed by your inferiors.
+- He who steals a little steals with the same wish as he who steals much, but with less power.
+- Life must be lived as play.
+- Democracy passes into despotism.
+- Dictatorship naturally arises out of democracy, and the most aggravated form of tyranny and slavery out of the most extreme liberty.
+- Not to help justice in her need would be an impiety.
+- The greatest wealth is to live content with little.
+- It is right to give every man his due.
+- He who is of calm and happy nature will hardly feel the pressure of age, but to him who is of an opposite disposition youth and age are equally a burden.
+- All the gold which is under or upon the earth is not enough to give in exchange for virtue.
+- The wisest have the most authority.
+- Tyranny naturally arises out of democracy.
+- No one is a friend to his friend who does not love in return.
+- If a man neglects education, he walks lame to the end of his life.
+- Then not only custom, but also nature affirms that to do is more disgraceful than to suffer injustice, and that justice is equality.
+- Our object in the construction of the state is the greatest happiness of the whole, and not that of any one class.
+- A good decision is based on knowledge and not on numbers.
+- Let parents bequeath to their children not riches, but the spirit of reverence.
+- Justice in the life and conduct of the State is possible only as first it resides in the hearts and souls of the citizens.
+- Man - a being in search of meaning.
+- Democracy... is a charming form of government, full of variety and disorder; and dispensing a sort of equality to equals and unequals alike.
+- I would fain grow old learning many things.
+- There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
+- This City is what it is because our citizens are what they are.
+- The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom.
+- The highest reach of injustice is to be deemed just when you are not.
+- Music is the movement of sound to reach the soul for the education of its virtue.
+- The rulers of the state are the only persons who ought to have the privilege of lying, either at home or abroad; they may be allowed to lie for the good of the state.
+- Every heart sings a song, incomplete, until another heart whispers back. Those who wish to sing always find a song. At the touch of a lover, everyone becomes a poet.
+- We are twice armed if we fight with faith.
+- The punishment which the wise suffer who refuse to take part in the government, is to live under the government of worse men.
+- All men are by nature equal, made all of the same earth by one Workman; and however we deceive ourselves, as dear unto God is the poor peasant as the mighty prince.
+- Music is a moral law. It gives soul to the universe, wings to the mind, flight to the imagination, and charm and gaiety to life and to everything.
+- There are two things a person should never be angry at, what they can help, and what they cannot.
+- No one ever teaches well who wants to teach, or governs well who wants to govern.
+- Knowledge becomes evil if the aim be not virtuous.
+- The beginning is the most important part of the work.
+- Wonder is the feeling of the philosopher, and philosophy begins in wonder.
+- He who is not a good servant will not be a good master.
+- No man should bring children into the world who is unwilling to persevere to the end in their nature and education.
+- Science is nothing but perception.
+- Then not only an old man, but also a drunkard, becomes a second time a child.
+- Philosophy is the highest music.
+- No law or ordinance is mightier than understanding.
+- The god of love lives in a state of need. It is a need. It is an urge. It is a homeostatic imbalance. Like hunger and thirst, it's almost impossible to stamp out.
+- We do not learn; and what we call learning is only a process of recollection.
+- To suffer the penalty of too much haste, which is too little speed.
+- It is a common saying, and in everybody's mouth, that life is but a sojourn.
+- Truth is the beginning of every good to the gods, and of every good to man.
+- They certainly give very strange names to diseases.
+- The gods' service is tolerable, man's intolerable.
+- Poetry is nearer to vital truth than history.
+- I exhort you also to take part in the great combat, which is the combat of life, and greater than every other earthly conflict.
+- Poets utter great and wise things which they do not themselves understand.
+- Man is a wingless animal with two feet and flat nails.
+- Courage is a kind of salvation.
+- The first and greatest victory is to conquer yourself; to be conquered by yourself is of all things most shameful and vile.
+- No trace of slavery ought to mix with the studies of the freeborn man. No study, pursued under compulsion, remains rooted in the memory.
+- Apply yourself both now and in the next life. Without effort, you cannot be prosperous. Though the land be good, You cannot have an abundant crop without cultivation.
+- The most important part of education is proper training in the nursery.
+- Love is a serious mental disease.
+- Astronomy compels the soul to look upwards and leads us from this world to another.
+- Love is the joy of the good, the wonder of the wise, the amazement of the Gods.
+- Human behavior flows from three main sources: desire, emotion, and knowledge.
+- He who commits injustice is ever made more wretched than he who suffers it.

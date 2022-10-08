@@ -1,0 +1,20 @@
++++
+author = "Dick Armey"
+title = "Dick Armey Quotes"
+quotes_len = "14"
+description = "the best 14 Dick Armey Quotes"
++++
+- Programs that pay farmers not to farm often devastate rural areas. The reductions hurt everyone from fertilizer companies to tractor salesmen.
+- I don't believe America will justifiably make an unprovoked attack on another nation. It would not be consistent with what we have been as a nation or what we should be as a nation.
+- I call it small government, grass-roots activism: The Tea Party activists are a part of it, FreedomWorks is part of it. FreedomWorks is the longest-standing, most active organization within this movement.
+- We're going to have a tax cut. Today's American family is overtaxed at all levels.
+- Make no mistake about it. These are not 'kookie' birds. Right now the greatest player, the big tent on the political scene in America, is called the Tea Party movement.
+- This is a big deal. My wife and I sat in our home and we watched those young men get slaughtered on the streets of Mogadishu in the absence of a plan. It broke our heart.
+- Three groups spend other people's money: children, thieves, politicians. All three need supervision.
+- You cannot get ahead while you are getting even.
+- The Democratic Party has pretty much abandoned all the things that they cherish.
+- Our current tax system is broken.
+- Spike Lee is obviously more stupid than anyone can be by accident.
+- My own view would be to let Saddam bluster, let him rant and rave all he wants. As long as he behaves himself within his own borders, we should not be addressing any attack or resources against him.
+- Hillary Clinton bothers me a lot. I realized the other day that her thoughts sound a lot like Karl Marx. She hangs around a lot of Marxists. All her friends are Marxists.
+- Politics will sooner or later make fools of everybody.

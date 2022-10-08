@@ -1,0 +1,106 @@
++++
+author = "Didier Deschamps"
+title = "Didier Deschamps Quotes"
+quotes_len = "100"
+description = "the best 100 Didier Deschamps Quotes"
++++
+- While there is life, there is hope.
+- It's hard to evolve when you only have fifteen days or three weeks to practice and correct and change tactics.
+- There are always crucial, decisive players in every side who make the difference and do not necessarily depend on others.
+- It's not just about the words you use, but the way you use them, and the message that puts over. Also your face too and the way you project your message. If you're telling the group to stay calm, be good, and you have beads of sweat dripping down your forehead, you're in trouble.
+- Paul Pogba can do everything but he cannot do everything all alone.
+- Sometimes you need to encourage them sometimes even to comfort them, let them know I trust them. Sometimes you need to tell the truth, being more aggressive. That's management. I need to put the players in the best possible conditions.
+- Quality has no age.
+- When you go to a club abroad and play against one from your own country, you are part of the enemy.
+- One of the main tasks of a manager is psychology.
+- Goal-line technology is a good thing. The ref gets the signal and can decide based on that.
+- A 3-0 win in the World Cup, it's never easy.
+- When there are hard times, the trend is to question yourself and to dig deep but when things go well you shouldn't relax and think things come easy or you need to put in less effort.
+- You can't win anything more special than a World Cup.
+- The key thing is knowing how to adapt. Adapting to the group that you have at your disposal; adapting to the place where you're working; adapting to the local environment. This is crucial: adaptability.
+- For me, the goal is to make the most of each player, play them in the position they feel best in. And then repeat, repeat, repeat.
+- Either a player accepts competition or they say they absolutely need to play. For a player to have an open door, I have to have, at the same position, an element that is just as good or even better.
+- Kylian is able to do extraordinary things. Look at his stats. He is efficient.
+- An invitation to the national team is not a declaration of love.
+- There are a lot of Kylians, but only one Kylian Mbappe.
+- Brazil remains a reference to the sport.
+- Scoring eight goals is never easy.
+- My players need to have the feeling that they've pushed themselves to their limits.
+- There are a lot of things you can practise to unsettle teams that defend deep.
+- Playing an ultra-defensive side is very difficult.
+- Sport represents a union of diversity.
+- In football, you don't hold on to the ball just to hold on to the ball. When you have it you need to be dangerous, create opportunities and score goals. And when you don't, you make sure the opposition doesn't.
+- You can always criticise people, the players are aware we can improve in a number of areas.
+- There is no better lawyer than Cristiano Ronaldo.
+- What I can say is that I feel very good as the national team coach. I really enjoy it.
+- You have to live in your times.
+- You can't wake up one morning and say, 'Right, now I'm going to be a leader.' I think it is something that's in you, that you're born with, and which develops. Some people have that character, that personality and it comes naturally. You can't force it. It has to be authentic and natural. Innate.
+- Open all the debates that you want, but I think that the players that I select, and in whom I have total confidence, deserve a minimum amount of respect.
+- What interests me principally are points.
+- People always want the same thing: to carry on winning.
+- When things are tough, French athletes tend to pull out great performances.
+- I don't think you just become a leader.
+- My past as a player is strongly linked to the red, white and blue France shirt.
+- We do not do everything perfectly, but the intentions are there.
+- I always ask myself if a decision is in the team's best interest.
+- For Euro 2016, we must remain humble, but we have the ambition to go as far as possible.
+- We want to be the best we can.
+- We often compare footballers with players of the past.
+- Messi plays in Spain, we know he makes a difference, but if you've played against him then maybe you're aware of situations that can repeat on the pitch. But Messi is Messi, with his talent, he may send a spark with very little and make the difference. He is unpredictable.
+- Being prudent does not mean being fearful.
+- What's important is you mustn't focus too early and try to play the game before it actually begins.
+- Sport is a way of uniting people.
+- When you're a coach there's no age limit. It's the results that make you last.
+- We can always improve everything.
+- The biggest victories can lead to the greatest foolishness.
+- Players like me, we did something of a thankless job. You don't show a hard tackle or stripping someone of possession in slow motion on the big screen. But if you add it all up, I was always the one that the coaches wrote down automatically on the lineup card.
+- Those friendly games are not pointless. They enable us to go forward.
+- History is in the past and tomorrow we will try and write a new page.
+- I always make decisions for the good of the team of France.
+- It's quite easy in football when you can bang it into the top corner.
+- I wish Kylian to have the same career as Thierry Henry.
+- In tough times, that's when you see true colours and personality.
+- He might not be very tall, but he's very useful. Kante wins balls, has great transition play, can be found everywhere, and always has solutions.
+- Competition is for everyone.
+- I am not a very good dancer.
+- We can always play better.
+- At the highest level, if you don't have a solid defensive base, you can't get by. In one match, yes. But over a whole competition? No.
+- Brazil is the land of football. They have a lot of passion.
+- Look, I was a water carrier, I don't reject my image. I didn't have the pretension to think that I could change a match by myself.
+- We can't really look back and see what is in the rear-view mirror. This is not how you are going to move forward.
+- Nothing is impossible. Lassana Diarra did not play for France for five years and then returned.
+- For me, I always considered that a group is above everything else.
+- All the great teams need a real top striker in order to win in Europe.
+- There is no worse situation to enter competition than losing the home opener.
+- Each member of the team must feel important - everyone must make my life and choices difficult.
+- When you play Argentina and Messi, there are several ways to limit his impact, at least.
+- I'm not immune to disciplinary problems and it's up to me to make strong choices. It's my responsibility.
+- All are welcome in sport.
+- To be in the France team means they have a number of duties and responsibilities.
+- Having fresh players is important.
+- To score three goals and not concede any is always interesting for a coach.
+- Nobody knows what will happen in the future.
+- Continuity is very important for national teams.
+- When you make your final list for the World Cup or European Championship you don't take the 23 best players, that is for sure.
+- Benzema is a team player, he is very important for us. He always wants to score with us, but scoring is not everything to him.
+- We arrived at the 2002 World Cup with two titles, very calm, well organised, maybe missing a bit of concentration. But the only truth is on the pitch. The dangers are there.
+- Nowadays you never see players playing cards. We used to sit around playing cards together all the time. But I can't fight that, I have to adapt and change.
+- Creativity is making a good pass at the right time... but it can also come from deeper, there should always be a balance.
+- We must condition the players. They need to get into the right frame of mind in the hours leading up the game.
+- We must not dive into tackles but force the opponent to run so that maybe they will crack late in the game.
+- With the support of all our fans, we have to be stronger than our opponents.
+- I've always hated to lose and I continue to hate it. But I've been obliged to accept it because I also have had some crushing defeats.
+- Managing players is harder these days because of the arrival of new technology. They are all using it in their spare time so they become more isolated and selfish. They share less, they talk less. They have apps, their phones and the Internet but they are less used to talking to people.
+- It is up to the players and their advisers to see what is best for the player.
+- It happens to attackers that they have a longer or shorter period where they are not always efficient.
+- For a player or coach, there is nothing better than the World Cup.
+- That's what international football is all about - be able to bounce after a bad performance.
+- Sometimes it doesn't take much to slip back into bad habits.
+- You always learn, especially in failure.
+- My departure from Juve remains a regret, a mistake that taught me one thing - never make an immediate decision, at the end of the season, when everyone is 'boiling.' I have paid for such an experience.
+- Football is my passion.
+- We can't hide from the truth.
+- Even when things are going well, there are always aspects that can be improved.
+- To build experience, you have to play.
+- You need to have discussions and make sure you guide players towards the collective spirit. It can't be done overnight.
+- It is always good to be careful or vigilant.

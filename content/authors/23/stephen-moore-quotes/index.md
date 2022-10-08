@@ -1,0 +1,106 @@
++++
+author = "Stephen Moore"
+title = "Stephen Moore Quotes"
+quotes_len = "100"
+description = "the best 100 Stephen Moore Quotes"
++++
+- Question: Why does anyone bother to listen to economists anymore? The profession has become an embarrassment, and the most respected economists have shown themselves to have as much predictive power as a deck of tarot cards.
+- Whenever I'm asked if the Trump tax cut is for the rich, I say yes. It is a tax cut for the rich. It is a tax cut for the middle class. It is a tax cut for small businesses. It is a tax cut for the Fortune 100.
+- The war on driving includes calls for carbon and gas taxes, tens of billions of gas tax money diverted to inefficient and little-used mass transit projects, and opposition to building new roads and highways.
+- It's very important to the conservative movement to be rid of the Ex-Im Bank.
+- One of the key principles of Trumponomics is that faster economic growth can help solve a multitude of other social and economic problems, from poverty to inner-city decline to lowering the national debt.
+- The original purpose of the welfare state was to lift people into self-sufficiency, not to create a permanent underclass dependent on taxpayers.
+- Borrowing isn't inherently bad; it depends a lot on what the debt is financing.
+- Occupational licensing laws - in trades like moving companies, realtors, hair dressers, limousine services, beauticians, physical therapy, and on and on - stunt small business start ups, destroy jobs, and raise prices for lower-income consumers.
+- If I've learned anything as an economic analyst, it is that the stock market and economic winds can shift by the hour.
+- The Affordable Care Act is a public-policy flop of epic proportions.
+- If you can, put aside for a moment your opinion of Donald Trump's words and actions and let's be perfectly honest: One year into his presidency, could the economy be any rosier?
+- The women tennis pros don't really want equal pay for equal work. They want equal pay for inferior work.
+- Fossil fuels powered the U.S. into the industrial age and replaced windmills and wood burning, which were inefficient, as the primary sources of electricity.
+- America should be about owning a piece of the rock, about letting every worker have equity and share in the returns to capital.
+- Government must become lean and efficient and customer friendly. It must begin to pay its bills. Liberals believe this is radical and cruel. The rest of us think it is common sense.
+- Nearly every policy during the Obama years was anti-growth: tax increases; minimum-wage hikes; ObamaCare; Dodd-Frank regulations; massive debt spending; the Paris climate change accord; an EPA assault against American energy; massive expansions of food-stamps programs and more.
+- No one has ever taken a serious stab at reducing fraud and cheating in Social Security, Medicare, food stamps, earned income tax credits, and so on. Trump will.
+- The truth is Mr. Trump could simply sit in the Oval Office for four years like a potted plant, and that would be a vast improvement over the Obama agenda, which was almost in every case - from tax increases to spending stimulus bills to Obamacare, Dodd-Frank, the war on fossil fuels, and so on - bad for growth.
+- Many small business owners want to pass their family legacy on to their kids and grandkids, but they are turned over to vulture funds because the family may be asset rich but lacks the cash to pay the estate taxes. I have met people who literally sold the farm to pay the taxes.
+- Obamacare does not allow patients to buy insurance across state lines, which would dramatically increase competition and lower costs. It does not allow small business-associated health plans. It limits low-cost health savings accounts options.
+- I have spent my entire career advocating for free-market economic policies, trying to convince the leaders of this country that unnecessary government interference in the market-place - and let's face it, most government is totally unnecessary - destroys liberty and inhibits prosperity.
+- America was built on cheap and abundant coal.
+- The single best time to invest is at a young age because the dollar in the market today will likely be worth 10 to 50 times that much, after inflation, by the time you reach age 65.
+- Mr. Trump's fiscal policies have produced more growth than Mr. Obama's because they were designed to incentivize businesses to invest, hire, and produce more here at home. The Obama 'stimulus,' by contrast, went for food stamps, unemployment benefits, ObamaCare subsidies, 'cash for clunkers' and failed green energy handouts.
+- The Obama administration and its allies, such as the Sierra Club, tried to kill coal because of their obsession with global warming.
+- It turns out the businessman knows more about how the economy really works than the chattering class. What a shock.
+- In a world without an Ex-Im Bank, which finances just 2 percent of U.S. exports, private firms would provide the insurance and credit these companies need, but at market rates that reflect risk of default.
+- The first iron rule of American politics is Follow the Money. This explains, oh, about 80 percent of what goes on in Washington.
+- Using cheap and efficient energy makes every other American industry more productive, and thus makes American employers far more competitive in global markets. Productivity creates higher paying jobs in America; it doesn't destroy them.
+- If the Left really wants to preserve family structure and advance cultural values such as work, why do they oppose reforms to a welfare system that pays teenage girls to have babies out of wedlock and disparage conservative proposals that require able-bodied Americans to work for their welfare benefits like food stamps?
+- The job market improved impressively under Barack Obama's presidency after the Great Recession, when millions of jobs vanished seemingly overnight.
+- In almost every case, whenever a tariff or quota is imposed on imports, that tax is strongly supported by the domestic industry getting the protective shield from lower-priced foreign competition. The sugar industry supports sugar tariffs; textile mills lobby for tariffs on foreign clothing.
+- The countries in the Paris climate accord have broken almost every promise they've made, and the nation (the U.S.) that hasn't signed the treaty is doing more than any other nation to reduce global warming.
+- Whenever there is an international crisis - an earthquake, a flood, a war - Americans provide more assistance than the people of any other nation.
+- Social Security is the greatest swindle of the poor ever.
+- Liberals complain that coal activity isn't a major producer of jobs because the industry is producing a lot more coal with a lot fewer workers. That is absolutely true. Ladies and gentlemen, that is called productivity.
+- A merit-based system will reward great public servants, and getting rid of the shirkers will improve morale and the pride of our federal workers. It will attract better workers to run our agencies.
+- Getting rid of the deductibility of state and local taxes will force the highest corporate tax states to lower their rates, or fewer corporations over time will headquarter there.
+- The number of jobs created under President Barack Obama's stimulus turned out to be fewer than the number we would have had if the government had done nothing - according to the Obama administration's own analysis. So we got $9 trillion of debt with almost nothing to pay for it.
+- Every dollar a foreigner spends over here directly subtracts a dollar from the trade deficit.
+- A lifetime single worker really gets a horrid deal from Social Security. The return on average is less than 0.5 percent. These workers would be nearly better off stuffing their payroll tax dollars under a mattress.
+- The rich did well under Obama's policies; it was the working class that got creamed. This was because the economy just wouldn't grow as it usually does.
+- No one understands the dysfunctions and debilitating impact of America's political system in the swamp better than Mark Melcher and Steve Soukup.
+- If the goal of the Trump tax cut is to make America look more like tax-cutting North Carolina and less like soak-the-rich Connecticut and Illinois, he's certainly on the right track.
+- Ex-Im Bank doles out billions of dollars of loans and insurance subsidies every year and has become the poster child for corporate cronyism in Washington. Think of the bank as food stamps for America's Fortune 500 companies.
+- The entire American concept of the 'family business' is put at risk by the death tax.
+- The best measure of inflation is what is happening with commodity prices.
+- We need national economic policies that have been shown to work at the state level.
+- The trade deficit always goes up when the economy is strong and plummets when the economy sinks, as it did during both the Great Depression of the 1930s and the Great Recession of 2008-09.
+- Many countries, even socialist Sweden and former communist Russia, have done away with their death taxes. They found the confiscation of wealth at death to be counterproductive.
+- Yes, sunny Nevada is an ideal state for solar power. As it gets cheaper, the state should use solar whenever it makes financial sense. But politicians shouldn't force you to buy it regardless of cost. It doesn't make sense to insert into the state constitution a requirement on energy use that locks Nevada into 50 percent wind and solar.
+- The climate-change industrial complex pontificates that the U.S. has to stop using coal to save the planet. But even if the U.S. cut our own coal production to zero, China and India are building hundreds of coal plants. By suspending American coal production, we are merely transferring jobs out of the U.S.
+- Federal employees are not rewarded for performance or excellence or results but, rather, for showing up, and often times, they don't even do that.
+- My father built a small business from scratch with years and years of sweat equity and many, many weeks away from home. He employed about 50 people, and by the end of his working years, the business was highly successful. He became a millionaire.
+- I have worked in the federal government and saw the debilitating effects of our antiquated civil service system on morale and results.
+- The Fed's job is not to stall growth or to prevent economic 'overheating.' It is to keep prices stable and the dollar a strong and reliable currency.
+- The problem with tariffs is they shift higher costs onto the backs of non-protected industries and consumers.
+- More travel to America would lower our trade and budget deficits.
+- The great American work ethic has not been lost, but it has been eroded by years of dumb government policies that Mr. Trump and Congress can correct.
+- Is there any nation on earth that has more natural attractions, from the scenic coastal towns of Maine to the volcanic islands of Hawaii and the natural beauty of our majestic national parks?
+- I don't think anybody can reasonably say I am a sycophant for Trump, because I'm not.
+- One of Trump's reforms is to limit the time that workers can use on the job at taxpayer expense working on union activities. What does this have to do with public service? So taxpayers have to pay overcompensated federal employees while they work on union activities so they can get even more taxpayer money.
+- We all, as individuals, can and should act compassionately and charitably. We can volunteer our time, energy, and dollars to help the underprivileged. We can feed the hungry, house the homeless. Most of us feel a moral and ethical responsibility to do so - to 'do unto others.'
+- Coal is tied to steel jobs, trucking jobs, and manufacturing jobs.
+- That is exactly what Mr. Trump is: The working man and woman's CEO.
+- One of President Reagan's first and wisest initiatives was to effectively shutdown the anti-trust division of the Justice Department.
+- Trumponomics is Obamanomics in reverse.
+- The historical evidence shows that shareholders usually greatly benefit from mergers.
+- Increases in output generally lead to lower prices, not higher prices.
+- Especially for the young and the lowest-skilled, minimum wage becomes a toll that prevents many from entering the work force and gaining the skills that can make a low income or middle class worker a high income worker. This is so obvious that one wonders why liberals keep championing the minimum wage cause.
+- For all the obsession in Washington and in college faculty lounges over income inequality, why isn't there more outrage over government policies that exacerbate the problem? There are hundreds of programs that make the poor poorer and increase poverty in America.
+- Obamacare has driven entitlement spending up much faster than expected.
+- Government can only spend a dollar to help someone when it forcibly takes a dollar from someone else.
+- America has the potential to lead the world in energy production and, in the process, to create millions of jobs and trillions of dollars in output - generating considerable tax revenue.
+- The 'progressive' tax-and-spend agenda has been put on trial. The policies not only lead to much slower growth but also benefit the rich and politically well-connected at the expense of everyone else.
+- Donald Trump is producing the kind of shoot-the-moon economic recovery that we last saw under Ronald Reagan in the 1980s. He's copied a lot of the Reagan playbook: Deregulate, cut taxes, promote American energy.
+- The modern Left is not driven by fairness. It is guided by an ideology of greed and envy. Those are vices, not virtues.
+- Venus Williams is a multi-millionaire not in spite of the fact that she is a woman, but precisely because she's a woman. She receives much higher pay than an equally skilled man. Isn't that precisely the opposite of what is meant by pay equity?
+- Stalin, Lenin, Marx, Mao, Pol Pot, Antifa, Castro, Che Guevara and the like use power to reduce the sanctity of the individual for the common good of the collective. It is a kind of enslavement that degrades the human spirit and makes us poorer over time.
+- The elimination of deductibility of state and local taxes will also encourage more privatization of municipal services.
+- Whereas Jimmy Carter had aggressively pursued anti-merger activity - the imbecilic case against AT&T was prosecuted under President Carter - Mr. Reagan understood the virtue of allowing companies to exploit the synergies of mergers to gain efficiency and lower costs.
+- If the Fed is omniscient, why didn't they pull back on the excess money supply that inflated the massive housing bubble that popped so disastrously back in 2008?
+- I suspect the Left's obsession with raising tax rates is not about helping the poor or middle class or about lowering the budget deficit, but about tearing down the rich.
+- Obama's economic policies widened the gap between the rich and the poor.
+- Tariffs have almost never saved a domestic industry from decline and, often times, by sheltering domestic producers from competition, only reward and prolong bad business practices.
+- Sometimes it seems President Obama lives in a parallel universe where facts are floating around to be plucked out of suspended animation. Never more so than on the effects of the Affordable Care Act.
+- At its core, government welfare is predicated on a false compassion.
+- Any move to reduce government spending is a positive for the economy.
+- I hate women's basketball.
+- Under the Trump tax plan, we are no longer going to subsidize big government in blue states. Now those who choose to live in blue states are going to have to join with their neighbors, collect their pitchforks, and demand tax and spending cuts from city hall and the state capital.
+- If only the majority of the wealthiest top 10 percent of Americans own stock directly - which does not include pension and retirement accounts - then the divide between rich and poor is likely to expand.
+- Every dollar the government doesn't spend, tax, or borrow is a dollar that businesses and families can spend or invest themselves.
+- Do environmentalists really believe that green progress means looking out at America's majestic mountains, forests, green oceans, wilderness areas and deserts and viewing miles upon miles of nothing but windmills and solar paneling?
+- There's a very practical reason why Pete Sampras, for example, makes a lot more money than Martina Hingis does. He's much, much better than she is.
+- Blue staters tend to send liberal politicians to office, who then vote for bigger federal spending - even though a greater share of the money goes to the red states.
+- Few nations have been as reliant on nuclear power as Korea. In many ways, cheap and reliable atomic energy helped make possible the 'miracle on the Han River' - i.e., the swift post-World War II economic surge of Korea.
+- Too often, we say that the Left is wrong but well-intentioned. Some are. But most simply want government to control other people's lives, and they believe in Stalinistic methods to achieve that goal.
+- Stacks of job-killing Executive Orders and regulations from the Obama era need to be repealed or rolled back. At the top of the stack is the Clean Power Plan, which has put tens of thousands of American coal miners out of work.
+- The big problem for atomic energy is that it can't compete on price with the new age of cheap shale gas and, to a lesser extent, clean coal.
+- Why would you want to shut down a nuclear plant, which requires at most about 1 square mile of land, to replace that power source with windmills, which would require 300 square miles of land to be paved over?

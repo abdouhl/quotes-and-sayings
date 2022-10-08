@@ -1,0 +1,28 @@
++++
+author = "Elton Gallegly"
+title = "Elton Gallegly Quotes"
+quotes_len = "22"
+description = "the best 22 Elton Gallegly Quotes"
++++
+- Congress has greatly tightened the loopholes terrorists can use to harm Americans. We need to do more. We need controls immediately on what forms of ID are adequate to board planes and enter secure sites.
+- We are a nation of immigrants, but we are also a nation of laws.
+- Consular cards are easily obtained with no proof of true identity and are easily forged.
+- Consular cards were not designed to be identification and no treaty recognizes them as such. Legal travelers, visitors and long-term residents carried passports, visas or green cards for that purpose.
+- Hospitals are closing across the country due to the burden of illegal immigration, college students find that summer jobs have dried up due to illegal immigration, and wages across the board are depressed by the overwhelming influx of cheap and illegal labor.
+- The fifth amendment of the U.S. Constitution guarantees that no private property shall be taken for a public use without the payment of just compensation.
+- In addition, California spends nearly $1 billion a year in Medi-Cal services for an average of 780,000 illegal immigrants a month, over and above emergency health services.
+- More than 65,000 horses were slaughtered in the United States in 2004, a 50 percent increase since 2002.
+- Instead, California is one of only 10 states that provides in-state college and university tuition to illegal immigrants. That's grossly unfair to a legal high school student who moves out of California for a year, then returns to attend college.
+- Horsemeat in many European and Asian countries is consumed as a delicacy.
+- It is our hope that in future discussions with the Mexican government, you will encourage Mexico to do its part to address illegal immigration rather than encourage their citizens to illegally enter the U.S.
+- Every unskilled illegal immigrant who enters the United States for work drives up healthcare costs for every American. And, every illegal immigrant we turn a blind eye toward weakens the rule of law our country is founded on.
+- It's been argued that of all the animals humans have domesticated, the horse is the most important to our history. For thousands of years, horses were our most reliable mode of transportation.
+- President Reagan is now at rest. We mourn his passing, but we are grateful for the gifts he gave us: a safer world, strong economic base, and a renewed belief in America's greatness.
+- Consular offices make no attempt to determine whether the person obtaining the card is legally in the United States. In fact, the only people who need these cards are illegal immigrants, criminals and terrorists. Consular cards also are easily forged.
+- Among other things, the Real ID Act sets minimum security criteria that states would have to meet to have their driver's licenses accepted as identification to board a commercial flight or enter federal facilities.
+- As a former mayor, I know that local governments must have control over land use decisions.
+- While a strong presence on our southern border is imperative, the border cannot be secured unless we enforce our internal laws and stop ignoring the open complicity of U.S. companies and foreign nations to promote illegal activities.
+- Since achieving their independence in 1992, the people of Croatia have built a democratic society based on the rule of law, respect for human rights, and a free market economy.
+- You took care of your horse, and your horse took care of you.
+- President Reagan achieved such successes because when you sat in a room with him, there could be over 1,000 people in the room, yet you felt like there was only the two of you, and his wonderful wit would put you at ease. That was a tremendous gift.
+- I have great respect for President Bush, Secretary Powell and Secretary Ridge.

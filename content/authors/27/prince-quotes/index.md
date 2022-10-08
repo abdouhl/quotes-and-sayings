@@ -1,0 +1,126 @@
++++
+author = "Prince"
+title = "Prince Quotes"
+quotes_len = "120"
+description = "the best 120 Prince Quotes"
++++
+- I do pay performance royalties on others' songs I perform live, but I'm not recording these songs and putting them up for sale.
+- Time is a mind construct. It's not real.
+- I have a lot of parties.
+- I like constructive criticism from smart people.
+- I learned from Jehovah's Witnesses that a fatalistic view is counterproductive.
+- Record contracts are just like - I'm gonna say the word - slavery. I would tell any young artist... don't sign.
+- It's work to play the same songs the same way for 70 shows.
+- I don't know who was the one that came up with the notion that you have to play the same songs every concert.
+- A bootlegger is a bootlegger, a scalper is a scalper.
+- Technology is cool, but you've got to use it as opposed to letting it use you.
+- It's fun being in Islamic countries, to know there's only one religion. There's order. You wear a burqa. There's no choice. People are happy with that.
+- I've never stopped writing, never stopped recording.
+- No one can come and claim ownership of my work. I am the creator of it, and it lives within me.
+- There's a dark side to everything.
+- You don't need a record company to turn you into anything.
+- Doing a residency in any particular city requires a large repertoire to ensure repeat business.
+- I don't want anyone to fail, so if you can make money off music even though you can't sing or dance, that's genius.
+- All these non-singing, non-dancing, wish-I-had-me-some-clothes fools who tell me my albums suck. Why should I pay any attention to them?
+- In the tech-savvy, real-time world we all live in today, everything is faster.
+- I became merely a pawn used to produce more money for Warner Bros.
+- When I found out that there was eight Presidents before George Washington, I wanted to smack somebody.
+- Sometimes ideas are coming so fast that I have to stop doing one song to get another. But I don't forget the first one. If it works, it will always be there. It's like the truth: it will find you and lift you up. And if it ain't right, it will dissolve like sand on the beach.
+- A strong spirit transcends rules.
+- I don't vote and I got nothing to do with it.
+- I really believe in finding new ways to distribute my music.
+- The music industry is a matrix that is counter to what is natural and right.
+- If you lend your consciousness to someone else, you're a robot.
+- Prophecy is what we all have to go by now.
+- Instead of hate, celebrate.
+- People don't understand real musicians anymore. Jack White is great - he's the real thing - but he isn't having hits.
+- Most bands out there are basically pretty boring. I try to affect people inside their bodies.
+- I used to have seizures when I was young. My mother and father didn't know what to do or how to handle it but they did the best they could with what little they had.
+- I like to open people's eyes.
+- When you don't talk down to your audience, then they can grow with you.
+- There's this thing called compulsory licensing law that allows artists through the record companies to take your music at will without your permission.
+- Any business situation is restrictive.
+- You can't understand the words of Cocteau Twins songs, but their harmonies put you in a dreamlike state.
+- Young people have decided they like to listen to music in a certain way, through ear buds, and that's fine with me as long as it doesn't bother them that they're not hearing 90 percent of the music that way.
+- You don't have to watch 'Gossip Girl' to have an attitude.
+- Anyway, all these computers and digital gadgets are no good. They just fill your head with numbers and that can't be good for you.
+- 'When Doves Cry' came out - it sounded like nothing that was on the radio. 'Let's Go Crazy' was number one on R&B stations, and there's nothing that's been like that on radio since.
+- Well, my musicians are my friends.
+- Too much freedom can lead to the soul's decay.
+- Every year, they ask me to play the Grammys.
+- I don't see why I should give my new music to iTunes or anyone else. They won't pay me an advance for it and then they get angry when they can't get it.
+- 'Billboard' needs to tell the truth, shake things up.
+- I'm a Jehovah's Witness.
+- If you look in the Bible there's no birthdays.
+- Most artists lose their voice, their hair, and their bands. That's not going to happen to me.
+- I've always understood the two to be intertwined: sexuality and spirituality. That never changed.
+- I have friends that are gay, and we study the Bible together.
+- My hair is capable of doing a lot of different things.
+- I'm not entangled in a bunch of lawsuits and a web that I can't get out of. I can hold my head up... a happily married man who has his head in order. There isn't a bunch of scandal in my life.
+- I don't talk about the past.
+- I always wanted to make a three-record set. 'Sign o' the Times' was originally supposed to be a triple album, but it ended up as a double.
+- All you see on television are debased images.
+- Each audience is different.
+- It gets embarrassing to say something untrue because you put it online and everyone knows about it, so it's better to tell the truth.
+- Music is real. It affects people; it's real.
+- I'm not one to get bad reviews.
+- I like arguments.
+- There's not a lot of pop music in the mainstream that makes you feel scared, that makes you wonder what's happening.
+- When you sit down to write something, there should be no guidelines. The main idea is not supposed to be, 'How many different ways can we sell it?' That's so far away from the true spirit of what music is.
+- I'm a fighter. I'm very competitive.
+- I have a writing addiction.
+- Oh, I love critics. Because they love me. It's not a joke. They care.
+- Contrary to what a lot of people think, I haven't been domesticated.
+- We have to show support for artists who are trying to own things for themselves.
+- It might be a shock to see me, but that's no reason for people to act crazy, and it doesn't give them license to chase me down the street.
+- The music, for me, doesn't come on a schedule. I don't know when it's going to come, and when it does, I want it out.
+- The gatekeepers must change.
+- Nobody sues their fans.
+- People speculate on your personal life all the time anyway. So I just think it's important to keep my private life private and my public persona more into music, you know?
+- To create something from nothing is one of the greatest feelings, and I would - I don't know, I wish it upon everybody. It's heaven.
+- I pushed the envelope as far as it needed to be pushed, and now it's on the floor, and people seem to want it to stay there.
+- When I first started out in this music industry, I was most concerned with freedom. Freedom to produce, freedom to play all the instruments on my records, freedom to say anything I wanted to.
+- My father left his piano at the house when he left, and I wasn't allowed to play it when he was there because I wasn't as good as him. So when he left, I was determined to get as good as him, and I taught myself how to play music, and I just stuck with it, and I did it all the time.
+- At one time, MTV was hip and suddenly it became outdated.
+- I don't live in the past. I don't play my old records for that reason. I make a statement, then move on to the next.
+- I'm real easy-going.
+- Hip-hop is very diverse, but if you only focus on one aspect of it, then what you get is this image of Black America that is completely contrary to what actually goes on.
+- Art is about building a new foundation, not just laying something on top of what's already there.
+- The internet's completely over.
+- Just sharing music with each other - that's cool. It's the selling that becomes the problem.
+- I like Hollywood. I just like Minneapolis a little bit better.
+- When it comes to the video channels and the programs, the radio stations, the music is geared towards kids, and it's made by kids.
+- YouTube is the hippest network, and they abuse copyright right and left.
+- I'm thankful enough or blessed enough to be able to say that Miles Davis was a friend when he was alive, and he was a wonderful mentor and really, really funny, you know.
+- Tell me a musician who's got rich off digital sales. Apple's doing pretty good though, right?
+- My mother told me one day I walked in to her and said, 'Mom, I'm not going to be sick anymore,' and she said 'Why?' and I said 'Because an angel told me so.' Now, I don't remember saying it; that's just what she told me.
+- So much has been written about me, and people don't know what's right and what's wrong. I'd rather let them stay confused.
+- My bankers are very happy with me.
+- Music is music, ultimately. If it makes you feel good, cool.
+- I always knew I had a relationship with God. But I wasn't sure God had a relationship with me.
+- I learned from Jimi Hendrix. They all wanted him to do the tricks, and at the end of his career, he just wanted to play. I lived longer than he did, and I can see how those pressures can really play with your head.
+- Despite everything, no one can dictate who you are to other people.
+- Every day I feel is a blessing from God. And I consider it a new beginning. Yeah, everything is beautiful.
+- I pride myself on working with great musicians.
+- I used to be more involved with every aspect of everything onstage. I'm way more relaxed now. It feels like anything can happen.
+- The key to longevity is to learn every aspect of music that you can.
+- I might just stop talking again and not do interviews.
+- When I started playing music, people weren't selling 5 million records. That was not the standard; that was not the focus.
+- Like books and black lives, albums still matter.
+- You can always tell when the groove is working or not.
+- The hardest thing with musicians is getting them not to play.
+- I ain't mad at anybody. I don't have any enemies.
+- People say I'm wearing heels because I'm short. I wear heels because the women like 'em.
+- You ever get that feeling that you just have too many hits?
+- Everyone has a rock bottom.
+- From its conception and that one and only meeting, 'HITNRUN' took about 90 days to prepare its release. If that's what freedom feels like, 'HITNRUN' is what it sounds like.
+- When everyone recognizes Jehovah's name, then everyone will be happy because everyone will know what to do and how to do it.
+- Being a Jehovah's Witness, I don't celebrate birthdays or holidays. I don't vote.
+- What's missing from pop music is danger.
+- I don't talk to old people; they try to find ways to stay static. Young folks are the ones with the ideas and constantly moving forward.
+- The Bible is a study guide for social interaction.
+- I record all the time.
+- There are people who are unhappy with everything.
+- I think you'll always be able to do what your ear tells you.
+- There are no great jazz-fusion bands.
+- Most people don't want to talk about politics and religion. They say, 'Let's talk about something else.'

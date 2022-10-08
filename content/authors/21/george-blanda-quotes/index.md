@@ -1,0 +1,106 @@
++++
+author = "George Blanda"
+title = "George Blanda Quotes"
+quotes_len = "100"
+description = "the best 100 George Blanda Quotes"
++++
+- Sometimes a little bit of experience helps.
+- I like beating old standardbearers of the N.F.L.
+- I've always had a strong desire to prove myself against odds.
+- I hate to lose. I can't stand to lose.
+- I never retired from any of my teams; I was fired.
+- Most players who've been around any length of time think of training camp as a time of hard work, frustration and monotony. But I can honestly say I look forward to it.
+- I think the AFL was capable of beating the NFL in a Super Bowl game as far back as 1960 or '61. I just regret we didn't get the chance to prove it.
+- I'm a hardened old guy. I've been cut in so many ways and dumped on by so many teams, I've been through it all, but I'd do it all over.
+- I always considered myself a student of the game of football.
+- I don't believe in getting mad if a guy misses a block and I get hit. I don't yell at the players. Everybody gets beat sometime.
+- Money has never been a consideration In my continuing to play for the Raiders.
+- The Super Bowl wasn't that big. It was just a game.
+- I honestly played the best football of my life in Houston.
+- There are things you can do to negate a strong pass rush. No matter how strong the rush.
+- When I signed with the Oilers, I felt like a rookie. I was 33.
+- Some guys are old at 21.
+- I grew up in the game when the pay was low and benefits were non-existent.
+- I talk common sense.
+- I would work all day and then go the gym in the evening. I owed it to myself to take care of myself.
+- It may sound corny to some guys but I still believe after all these years that the game isn't over until the last shot Is fired.
+- I compare field goal kicking to putting in golf. Both demand concentration and confidence. You make four or five good putts in a row and now you have the confidence that you are playing 'em right. It's the same way with kicking. You drive a few through the uprights and then you have convinced yourself that everything you kick should go through.
+- It's very sweet to win against people who let you go.
+- You know, Billy Cannon is very fast.
+- People are forever knocking kicking, but it's not easy, believe me. Ask Scott Norwood when he missed the field goal in the Super Bowl.
+- You never want to give it up. You always think you're capable, always think you're better than the other guy.
+- Winning is the name of the game - any game.
+- I have no animosity toward Al Davis or John Madden.
+- They serve a lot of good filets around the country.
+- I had six brothers and four sisters and I competed with my brothers every day when I was a kid. If you lost in my family, they kidded the pants off you until you won again.
+- If your body can take it, you can play forever if management wants you. But if you start missing field goals and losing games, then you are not long for the world.
+- I wish I could have played more.
+- Halas used to tell his players that football is what you make of it. It should not be what defines you, but football should be a stepping stone for what you achieve in the rest of your life.
+- I sat out the 1959 season.
+- Frankly, kicking was just an extra thing that I did. I guess most people remember that I was also a quarterback. But how many people remember that I was a linebacker and a cornerback when I broke into pro ball with the Chicago Bears? I was around when you had to go both ways.
+- I had a helluva time getting away from Halas.
+- I sat on the bench and then came in and made a pass or two.
+- Once you quit football, you might want to come back. But if you sit out a year, you're finished.
+- I don't like being compared to other kickers. Kicking, I've always felt, was my weak suit. The only area of kicking I was really proud of was that I was good under pressure. If all I had to do was worry about kicking, I'd have been much more proficient.
+- I've got my own philosophy. People who write books have different philosophies. You read too many people and you get screwed up.
+- I will play as long as I can help a team win.
+- I think a football career should be used as a stepping stone to something better - not as an end in Itself.
+- It's no big deal, starting a game.
+- I don't read much about the Canadian Football League.
+- I'm confident, but I don't think I've ever been complacent.
+- I think it's good to have a little experience around.
+- No one ever dreams about being a backup quarterback.
+- Competition is what drives me.
+- Things never change in football, it's still blocking and tackling and execution, and having an experienced quarterback who is patient enough to take what the defense gives him.
+- I like winning and hate being second best.
+- Age is a frame of mind.
+- What happened last week doesn't matter. That's history. You have to make history every day.
+- Halas was a great coach, but the only problem I had with him, the problem all the players had with him, was that we didn't get paid very much.
+- I make more money in the off-season than I do playing football.
+- I've had every experience you can imagine. I've been cheered and booed.
+- Those soccer style kickers have a difficult time getting the ball up, especially off dirt. They can get the ball up fast enough off artificial surfaces, but when it's on a natural grass surface it's entirely different for them.
+- When I was playing and playing real well I didn't get any publicity.
+- All records are made to be broken.
+- I learned a long time ago that you only have a few friends in this world - your wife and family and a very few friends.
+- It tickles me to beat George Allen.
+- The world is not going to come to an end because I'm not going to play football anymore.
+- The game that I remember the most was playing against Cleveland in 1970. We were down 20-13 and I came in and we got a touchdown and then we got a field goal in the last three seconds.
+- Back when I was playing I enjoyed studying films, looking for new trends in the game and examining the new players who came along.
+- Anything I do, I want to win.
+- I'll be the judge of when I can't play anymore.
+- The boos and critical words from sports writers affect pros more than anyone else.
+- If people can identify with me in a good way and get some inspiration out of what I've done, that's good. Then football's all worthwhile.
+- We did all the strategy right on the field. Today, the coaches call all the plays, so all the quarterbacks have to do is perform. They are more or less programmed.
+- All of the great quarterbacks have been guys who couldn't run a lick - John Unitas, Joe Namath. Sonny Jurgensen - guys who stayed in the pocket.
+- I've got to watch what I eat. Seems like if I even look hard at food I gain weight.
+- Being a pro opens a lot of doors. It enables you to meet a lot of people. By taking advantage of the opportunities, the future is unlimited.
+- I hate when people lump me in with kickers that lasted a long time. I have respect for guys like Morten Andersen, but I was a football player, not just a kicker.
+- When I look back on my nine years with the Raiders, what comes to mind first is my great association with Al Davis. If it had not been for him I may not have done the things I did once I left Houston. I may not have even kept playing if it weren't for Al. I respected him highly.
+- I've heard this stuff about a kicker 'losing his leg' ever since I was a rookie, and I can tell you that there is nothing to it. Every time a field goal kicker misses a few, the word gets around that he's lost his leg, meaning his kicking strength.
+- The owners need to have some protection against players jumping from team to team. The fans have the right to expect some continuity on the team they support from year to year.
+- I don't care who you are, you can't let anyone intimidate you or you are as good as through.
+- Playing on the same team with Sid Luckman and Bulldog Turner and against people like Sammy Baugh, those were nostalgic days for me.
+- I work hard and relax a lot, too.
+- It takes hard work, dedication, discipline and a positive attitude to get to the top - in business or in sports.
+- I knew I would be cut one day. But I never thought I would retire.
+- In fact, I'd like to play until I'm 60.
+- People watch TV and think a two-foot putt is the greatest thing in the world when a guy knocks it in. But nobody is rushing you. You don't have a center, you don't have a holder. You don't have 100,000 people screaming at you.
+- If you want something bad enough and are willing to work as hard as you can - every minute of every day - there is nothing you can't achieve.
+- Playing quarterback you're always going to get booed - eventually.
+- A pro football player is lucky. He has a chance to meet a lot of people and make some potential business connections.
+- Hell, the important thing is to do what you want to do, and give it 110 percent.
+- My wife wanted me to keep playing until I was 50. She thought it would be unique to play that long.
+- I'd rather be fired than retire.
+- Certainly I cut up Halas every chance I get. He decided that I was through in 1959.
+- I want to play as long as I can contribute.
+- In football, like any other sport, you have to prove yourself in every game.
+- The one record I was happy to get rid of was the one for the most interceptions, when Brett Favre got that one.
+- They don't have to tell me what life is like in a ghetto.
+- I worked my way through college by throwing passes for the University of Kentucky.
+- I retired one year in 1959. But then I realized I wanted to play more.
+- I've worked for everything I've got.
+- How many players can say they played 26 years? Nobody.
+- I came from a poor Pennsylvania coal mining family and the only way I was going to get an education was through an athletic scholarship.
+- Life isn't that complicated. I'm completely happy playing football. I'm happy to get out of the coal mines.
+- I was a guest coach with the Edmonton Eskimos in 1964.
+- Favre is smarter than the coaches. Most of those coaches have never played pro football, and they're second-guessing him?

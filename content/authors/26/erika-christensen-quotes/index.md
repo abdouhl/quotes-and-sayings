@@ -1,0 +1,86 @@
++++
+author = "Erika Christensen"
+title = "Erika Christensen Quotes"
+quotes_len = "80"
+description = "the best 80 Erika Christensen Quotes"
++++
+- When I first started going on the red carpet, I wore a lot of Armani, but I didn't really have my own style apart from that. I think I was just lazy.
+- Growing up, I was a bit of a tomboy; feminine things took a while to find their place in my world. But diamonds made me understand the magic and beauty of jewelry.
+- When a woman makes up her mind, she gets what she wants.
+- I was going to school with a girl who was an actor. And I was, like, 'No, I want to be an actor.'
+- I didn't plan on going to college, at least not a full-time schedule. I still have that plan. I may take some individual classes at some point as an indulgence.
+- I love 'Lost' and 'Mission: Impossible III.'
+- I know lots of people who eat raw, vegetarian, or vegan. I'm not into any of those things. I believe in eating enough so your body will actually run.
+- Sometimes, I get so annoyed when other people brag. And sometimes, I know that I'm better than that or I've got something better in the works; I don't say anything. I just say, 'Really? That's great.'
+- Work hard; be ethical.
+- I got to work with Jeffrey Wright, which is fantastic. I started out starstruck, but he's so cool, so it was all OK.
+- My theory is, if you force yourself to smile enough, then you start to feel it. Which comes in handy all the time.
+- There's a lot in Scientology that develops confidence because there is peace, I think, that I've gotten just to know that what I do know, I do know.
+- The SAT is not particularly relevant to my life.
+- I want to do a love story. I really want to do a love story.
+- My grandmother was, back when they called them 'stewardesses,' a flight attendant. I actually had a ball wearing that little uniform and making sure everything was under control.
+- If I can't find anything good, I am just going to have to get my butt in gear and start learning how to do everything.
+- I think that's just a natural instinct as an actor is that you want to just keep exploring humanity and finding different facets of it.
+- I think part of the beauty of our relationship with jewelry is that it can change and evolve as we do ourselves.
+- There are photos of me with my Pony trucker hat, sideways. Truly, awesomely, horrible.
+- I know I am eventually going to want to write or produce.
+- I can't say enough about how I'm against drugs. Be smart, think about it, look at what it does to people, look at how much you have to experience in life and be courageous enough to do everything you want to without that chemical help.
+- Those auditions - you sit down, and literally the whole time you're there, they scrutinize you, and you know that. But you can't take it personally.
+- Having convenience when it comes to fueling your body is definitely an important thing.
+- Watching Jodie on this is incredible; it's the perfect role for her. It's so intense and so emotional. She just jumped right into it and is so professional.
+- Scientology helps me in acting to focus on communication.
+- There are times when I think, 'I'm going to get this part. I know I am. I'm going to get this.' And then I don't, and I'm wondering, 'What happened? I went back five times!'
+- I'll continue doing good projects.
+- We were worried about that actually. The cast was thinking that they'd lose their minds. But we didn't.
+- I had a big 'New York Times' crossword puzzle phase.
+- It's funny to say its fun to explore someone's really rough time, but it is. It's exciting.
+- I'm not straight up and down. I have curves.
+- For the first six years of my career, I was relegated to those girl-next-door, sweet, cheerleader kind of roles, and it was really frustrating for me because you don't have to do much acting.
+- I have so many pairs of riding pants that are from the store at the stables in Burbank where you can go ride your horse at. I don't ride a horse, but I do wear the pants! I love them!
+- Jason Katims is fantastic.
+- I'm more proud of my upper body. Let's just say I'm a typical female in that way.
+- Number one, as an audience member, I tend to like violent movies and TV shows because it's not real.
+- I tend to be a fan of darker shows and love 'The Americans,' 'Ray Donovan,' 'True Detective,' 'House of Cards' and 'Peaky Blinders.'
+- I've found that a lot of my male friends have great style and great appreciation for designers.
+- My grandmother was a flight attendant; my mother had a pilot's license, and my grandfather was a pilot. That's how my grandmother and grandfather met.
+- I'm a goody two-shoes who's never taken anything stronger than Tylenol.
+- To be entirely honest, I am an extremely confident person, and I don't think I would have gotten into this business if I felt that I wasn't going to succeed and I intend to be in this business, for the rest of my life.
+- My buddy lost about 100 pounds cycling. He took me on a 31-mile loop. I was hooked.
+- If I had to sum it up, the goal of Scientology is giving the person back to themselves. Like, your own power of choice.
+- I love the idea of my daughter looking back at her childhood and growing up with a dog.
+- If being a skateboarder were a personality type and not actually an athletic activity, then I'd say I'm a skateboarder. But I don't ride one. I'm a bicycle person.
+- I had fallen in love with doing television.
+- After 'Traffic,' I was a total homebody. I was still a kid.
+- There are nearly 7 billion people on this planet, so there are a lot of characters to play.
+- I want to do an action movie where they say, 'Go the gym and get ripped like Linda Hamilton.'
+- Love scenes feel very mechanical. But our whole job is to make it look real.
+- I don't know if my agent will be upset but I quoted him saying that he would jump out a window if I turn down another project.
+- You can't have a relationship at all if you don't trust each other.
+- There was a little of this, 'Oh, you're such a sweet girl!' That's a wonderful thing to have in life; I don't mind it at all for life. But I remember, the first role I was ever cast in as a not-so-sweet-girl, I was so happy.
+- The thing about that too is that we had the same extras everyday. It was such a community. It was like a microcosmic little town. We were like all little towns people with extras and a crew.
+- I don't want to shut the door and only be thought of as the dark girl.
+- Erinn Hayes is hysterical in person, and I love that.
+- I'm an NPR and KCRW person.
+- Working with a kid is just so interesting to see.
+- I wrote and recorded a song that I highly doubt I will release. The lyrics are somewhat risque. I may have to create an alter ego, and she can be the 'singer.'
+- I don't have a 'Life's short, play hard' type of philosophy. That's about fear. I tend to think that life is very long - but you should still play hard.
+- I take things on a day to day basis when it gets really hectic. But I do think long term and I'm looking forward to the next couple of years when I do start producing my own films with my production company and playing some characters that are older and that's really exciting to me.
+- At the premiere for 'Leave It to Beaver,' I was walking down the red carpet, and they were screaming my name, and I'm wondering, 'What do I do?' So I had to think, 'OK, calm down, one person at a time.' Everything is kind of rattling, but afterwards, my publicist said I did really good.
+- I cheated once on a spelling test. I didn't know how to spell period. I leaned over the desk and looked at someone else's paper. I was probably ten or something like that.
+- Making a movie is a little bit like high school. Because everybody lives together, and you see each other every day, and word travels fast around there.
+- I can change my mind and can learn other things. And anything I don't know, I'm capable of learning if I so desire or if it's necessary.
+- It was when I met everybody on 'The Perfect Score' that, like, nightclubs became a thing.
+- At about twelve I just knew, something clicked, and I knew I wanted to be an actor and my parents, to their credit, granted this 12 year old girl a chance to give it a try.
+- My bike is my main form of transportation, so I've got a red clip-on taillight.
+- I can be a binger when it comes to information, but most of the time, I'm pretty good, and I try to focus on my own life and personal communication.
+- Green has always been my mom's favorite color. My father, aunt and I have gotten her jade, emerald, and peridot pieces over the years, and we always seem to be on the lookout.
+- My first thing was a McDonald's commercial.
+- I'm close with my whole family, but it requires email and texting because they don't all live nearby!
+- I look like a sweet, corn-fed kid. My roles are my rebellion.
+- I've always been a good flier. I love the whole experience.
+- I told my parents I wanted an agent, and they decided to let me have a go at it. Then I started working right away. I was 12.
+- There's no one who has more authority over my life than me. And I can learn things myself and how to communicate to other people and how to apply with the rules of life.
+- As a little girl, I really hated pink, for instance, and I didn't like wearing dresses. I didn't want to be a girly girl then, but now I love being a girly girl!
+- 'Confirmation' is the movie I'm super proud to be a part of.
+- I went through this rebel period where I didn't want to dress up.
+- I love to dance and sing.

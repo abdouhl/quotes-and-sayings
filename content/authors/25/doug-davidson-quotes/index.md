@@ -1,0 +1,22 @@
++++
+author = "Doug Davidson"
+title = "Doug Davidson Quotes"
+quotes_len = "16"
+description = "the best 16 Doug Davidson Quotes"
++++
+- I always wanted to host a show, throw whipped-cream pies. Theater is not my cup of tea.
+- For me, personally, I really get a kick out of game shows. I like the play-along factor.
+- If you win all the time, you lose the drama in life. To make the happy moments happy, you need the sad moments too.
+- One of the things I think you need to be a good emcee is silliness. And I'm basically a silly guy.
+- I used to let a lot of unimportant things bother me. I don't anymore. Right now, things are going great in my life. It used to be when that happened, I would be waiting for something to go wrong. Now I don't expect that - if something negative does happen, I'll deal with it, learn from it and realize it is the way it is supposed to be.
+- I think its really matured a lot. I like the fact that there is now more to do there than gamble, since I don't do a lot of that. The people are great. I seldom have time for vacations and when I do I prefer the beach instead of the desert.
+- I hope that 9/11 has grouped us as one, and in doing so it has united us. Perhaps as a unit we can help each other get ahead, survive and succeed in this free world. And hey guys, let's not forget out manners!!
+- I lost my mother, who suffered from Alzheimer's disease, and we had to relocate my dad after 58 years in the family home. That was tough.
+- The crew members for 'The Price Is Right' at night are the same guys who work 'Y&R' during the day. It's even in the same studio. I've been in the place for 15 years. So all the faces at 'The Price Is Right' are familiar.
+- My priorities are my family and my job. I have little time for much else.
+- It's much easier for me to be silly than it is to be serious on soap opera.
+- My favorite tennis player, who I'm amazed by, is Roger Federer.
+- I have a TV Soap Boomerang award, and I always start my year with the Australian Open tennis! Tennis, soccer, you name it.
+- Father's Day was great, but all the family gatherings brought up my mother's death. Maybe it's me, because I am a wimp. We would get together, but there was someone missing!
+- We moved to a place where we felt the children could have as normal an upbringing as possible. Los Angeles was not it. We live in a place with clean air and animals.
+- I like to sail. My son Caden and I are avid sailors.

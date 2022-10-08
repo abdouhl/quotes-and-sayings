@@ -1,0 +1,99 @@
++++
+author = "Sage Northcutt"
+title = "Sage Northcutt Quotes"
+quotes_len = "93"
+description = "the best 93 Sage Northcutt Quotes"
++++
+- The UFC expects you to perform at your very best. If you're barely training, if you're spending the majority of your time on school, it's impossible to be at your best.
+- I always have great cardio.
+- I really don't listen to any of the negative stuff. Anything that's positive, that's kind of the stuff I'm listening to, and that's kind of what, like, brings you up.
+- Houston is super cool, and Katy is super cool, and so is Sacramento.
+- I'm in the UFC; this is a sport about fighting. If someone wants to fight me, or someone wants to fight someone else... you're here to fight each other, so I get it.
+- I'm always pretty much smiling.
+- I'm getting to put all my time and effort into studying my martial arts and to be the best fighter I can be.
+- I feel like I have goals that I set, and I try to accomplish those goals, so no matter what room I step into, I know the direction that I'm wanting to head.
+- Getting to fight at my natural weight, that was huge for me.
+- People say I don't have the experience. I might not have 20 MMA fights, but I've been fighting my whole life.
+- I try to be very smart and use wisdom about everything.
+- I always talk about how Georges St-Pierre is my favorite fighter.
+- It's an incredible feeling, just to know that you have MMA fans that are behind you and want to know when your next fight will be.
+- I want to be super well-rounded.
+- I think that every single fight you have is to prove yourself. Even if you're the world champion, the UFC champion of the world, you're still proving yourself; people are coming to beat you.
+- I'm always looking to go out there and finish my opponents as soon as possible so I can stay safe and protected.
+- Being sick is a different story than having an injury. If you have a right arm injury, you can still use the rest of your body. You still have the energy to perform. But when you are sick and can't really get out of bed or walk or even breathe, you're not yourself. You don't have the cardio, strength, speed, or explosion.
+- I'm a bubbly, happy guy.
+- Every day at Team Alpha Male, I'm improving. The biggest thing with that camp is everyone is so positive and has the work ethic to go out there and push the pace and keep going and going and going.
+- Jon Jones is awesome and won his first world title at 23 and 8 months. I believe I can do it before then.
+- At 155, I kind of feel, when I'm fighting out there, I just don't feel like I have the right thinking ability. I kind of feel like my mind is foggy, if that makes sense. I don't really know how to describe it. Maybe it's the weight cut.
+- Any fighter fighting in the UFC would take the opportunity to take a fight against a YouTuber and stand to make several million dollars.
+- People can say what they want. But you can silence a lot of people when you go out there and win.
+- Mr. Faber is a huge role model. He's a UFC Hall of Famer. He's such a driven person and a champion.
+- By the time I was 4 or 5, I was doing 250 push-ups and sit-ups a day. When I was 6, we bumped it up to about 500 push-ups and sit-ups a day. Some days it could even be 750 or 1,000.
+- I'm always very humble.
+- I'm honoured and blessed to even be in the UFC, much less be 19 years old in the UFC, knowing I have so much time to learn, so much technique to learn, everything all around to make myself better.
+- When I was nine years old, I was on the cover of 'Sport Karate' magazine.
+- I think that we all got to have respect for each other. And we could all be more careful with the things we say.
+- What I love the most about being a pro fighter is meeting the people. You get to meet all the fans and new friends that you get to meet up with all the time.
+- Knowing what God has in store for me - it gives me hope. I kind of feel like God's warrior, pretty much. God's weapon.
+- The new 'Creed 2' movie is coming out, so I was actually going to audition for that. Got a little audition tape, so hopefully that goes through. That would be pretty neat. Being Ivan Drago's son in the movie? That would be pretty fun.
+- I'm training to be the champion. I become the champion of whatever I put my mind to, so I believe I will be the champion. I think the UFC will be able to realize that, and we'll see what they say.
+- Having full-time classes, it doesn't really work out because there's so much workload and so much studying that you really don't have time to train. I'd stay up until two or three in the morning just studying, and then I'd have to go get a few miles running, work out at the gym super late, and try to get my working out in late at night.
+- I've had such a tough time making weight at 155 all the time. I'd make the weight, but I don't feel like the same kind of Sage. My power in my punches, my explosion, my speed - it just doesn't feel the same.
+- I'm young, and I learn not only from every fight but from every practice. When you're young, you soak it all in. You have a lot to learn, and you can get better and better as each day goes by.
+- I do have a lot to learn, and I think that has a big factor in everything. Being 19 years old and being able to be in the UFC has a big effect on every single thing that people look at.
+- I've trained my whole life, and I've always had the UFC be a goal of mine.
+- There's always going to be people saying negative and positive things. If you let all that into you, and you're always contemplating that and thinking about that, I'm sure that can get to you. I try not to do that.
+- You only get one chance to fight in the UFC, and while you have the chance, you might as well take it.
+- I think for the UFC to re-sign me, that would be something that's great.
+- Sylvester Stallone seems like a really cool guy, and Dolph Lundgren seems awesome.
+- I want to be eventually be the best wrestler out there, be the best grappler out there, along with being the best striker - be all of them at one time.
+- I think me and Mr. Dolph Lundgren look kind of alike.
+- Going into the UFC debut, you have to wonder what's going on, what's the workout going to be like. It's just an honor to be at an open workout.
+- Each day is new, and I feel like I show something better each day.
+- For me, it was just a huge honor to fight in the UFC.
+- Everybody who is fighting at UFC 200 is awesome! It's going to be awesome to get to meet everybody. I'm excited.
+- I try not to hear anything negative about me, and if I do hear it, I try to block it out.
+- I would like to be the youngest UFC world champion. I believe I can accomplish that.
+- I'm a totally different person in training.
+- I just want someone who's got a great personality, beautiful, fun to be around.
+- I never get sick normally, but having strep throat three times in four months - that's pretty crazy.
+- Being in school and doing the fighting stuff, it is very tough. I had school work all the way from Monday through Friday, and then on the weekends, you had homework, engineering projects and stuff. That makes it very tough.
+- I've always thought about welterweight.
+- I believe the UFC knows what they're watching and looking for, so I always try and put on a great show for everybody watching and try to go out there and finish my opponent and do something exciting. I believe a lot of people come out to watch me and see me perform.
+- I consider my MMA training starting the day I set foot in Urijah Faber's gym.
+- It can be kind of difficult because of the workload I have at Texas A&M, so I have to find time to study as I pursue my major, but also to travel and compete and train hard for my fights to come in the UFC.
+- I have my coach, Urijah Faber. He's watching me do everything pretty much all the time. I'm training or grappling or sparring live. He's over there making adjustments. He's really hands on, so that makes a big difference.
+- I'm always learning and getting better with my technique.
+- I know I have great grappling myself, and I know how I do with submissions.
+- I never underestimate anybody.
+- I've always wanted to eat super healthy.
+- People see a lot of my standup, and that's what I'm known for since I was trained in karate and kickboxing, but I also have ground game.
+- Whatever Dana White and Joe Silva have planned for me, I'm ready.
+- What's neat about Sacramento is that you can drive - which I've done with the team a bunch of times - is drive, like, an hour or an hour and a half, and you're in Lake Tahoe, and you can go out to the lake or go up in the mountains or go off-road driving or hiking.
+- I feel the power in words that you can turn into reality.
+- I just want to say real quick, whatever kind of problems you've been going through, maybe you're having a hard time at work, maybe you're having a hard time with your family, whatever it might be, you can overcome that. You just have to keep your hope up.
+- I believe coming in early to the UFC gives me an advantage. More time to learn, more time to be in the UFC and get better as a fighter.
+- I might take a little time off from school to train. I'd be a totally different animal if I trained full time.
+- Typically, when someone gets a choke on me, I have a pretty strong neck. It's usually hard to choke me.
+- Georges St-Pierre - he's so awesome. It was very great getting to roll around with him and getting to train with him. He's so nice and so friendly, and he's very humble, too.
+- I'm taking it one fight at a time. But I always see myself being victorious.
+- I never really have a game plan other than to finish my opponent as quickly as possible.
+- A lot of the times, anything that somebody tries to say negative is actually kind of funny.
+- I know people want to get out there, and they're all tattooed up, and they're all serious and stuff and ready to fight. I'm ready to fight, but I still have a smile on my face at the same time.
+- I'm still trying to figure out being calm.
+- I love being young and looking forward to seeing what I can do.
+- The more fights I have in the UFC, the more people I meet, the more opportunities I have to make an impact.
+- CM Punk was a great wrestler, and he has so many fans and made a lot of people happy with what he did over the years.
+- I was at my house, and me, and my brother, and my sister were kind of just playing around. And I was like, 'I wonder if I can twist this apple and rip it apart?' So I was playing around, and I did it, and I was like, 'Wow, that kind of takes a firm grip.'
+- Words are powerful.
+- The UFC offered me a fight against one of the Top-10 fighters named Demian Maia. I believe he was, like, No. 2 at the time. They obviously believed in me to think that I could face one of the best guys in the division.
+- I started working out and doing martial arts when I was about 4 years old, and I was competing by the time I was five or six. So my mom and dad had me doing push-ups and sit-ups from a very young age.
+- What everybody has seen from me is very little compared to what I'm capable of doing.
+- I always stay positive if I can. I always stay upbeat and always have a ton of energy.
+- A lot of people have a lot of things going on in their life. You'll be walking past ten people in the middle of the day and not even notice, but someone might have a family member that died, or someone might be going through a hard time. Sometimes you're the only person that someone might see that lifts them up.
+- At the point in a match where most guys would wear out, I'll still be fresh.
+- Personally, I think I might end up fighting heavyweight in the future. I can just see myself keep growing. I'll be 24, 25, growing 2, 3, 4 more inches, and putting on a lot of muscle. I can absolutely see it.
+- Obviously, I'm trying to keep improving at everything, from the wrestling to the jiu-jitsu to the striking to the transitions, every part of my MMA aspect.
+- I think I'm one of the fastest and strongest lightweights out there.
+- I'm studying at A&M, and that takes so much hard work, so much dedication, and that effort is very tough.
+- I wanted to study to be a petroleum engineer and get my engineering degree and fight in the UFC at the same time. But unfortunately, to be the best I can be at the UFC, I needed all focus to be there, and more focus, also.

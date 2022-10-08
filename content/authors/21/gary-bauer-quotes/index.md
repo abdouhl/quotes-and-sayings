@@ -1,0 +1,64 @@
++++
+author = "Gary Bauer"
+title = "Gary Bauer Quotes"
+quotes_len = "58"
+description = "the best 58 Gary Bauer Quotes"
++++
+- In the continuing debate over the morality of enhanced interrogation, an essential consideration is often overlooked: intent.
+- As a conservative, I maintain a healthy skepticism of the theory of man-made global warming. I also believe that more people enjoying the fruits of modernity and economic development is a good thing - as long as those people arrived legally and obey the law.
+- There is something wrong with our culture when the view that marriage is between one man and one woman, a view shared by half the nation, is portrayed as evidence of hatred.
+- If Republicans are aiming for the heart, for compassion, the last thing they should do is abandon the sanctity of life. Instead, they should tell Americans that they believe in the dignity and value of every human being, from the defenseless unborn child, to the newborn with a disability, to the 90-year-old dealing with dementia.
+- The Left regards the Constitution as defective and outmoded - in part because it impedes the government's ability to control institutions, like churches and families, which stand between the state and individuals.
+- For the record, I believe elected officials should talk about faith. Our founders believed the moral principles of faith were indispensable to our nation's survival. The Declaration of Independence mentions God four times.
+- Catholics and evangelicals need to remain allied, and in solidarity, against the increasingly aggressive secularism of our age.
+- When people move from poor countries to America, they quickly adapt in at least one way - their consumption habits.
+- It seems that the only gun violence some leftists approve of is gun violence aimed at cops and other groups they see as oppressive or racist.
+- America used to have a strong 'moral safety net' for its people. Today that net is badly frayed, not only because families are disintegrating but also because the church doesn't play the same role that it once did in many Americans' lives.
+- Obviously, marriage is not a synonym for morality. But stable marriages and families do encourage moral behavior.
+- One thing everyone seems to agree on is that Republicans face a perceived compassion deficit.
+- Particularly black Americans, many of them, from quotes that I have seen and conversations I've had, are sort of insulted that the civil rights movement is being hijacked - the rhetoric of the civil rights movement is being hijacked for something like same sex marriage. Black Americans tend to have a higher degree of religiosity.
+- I have come to the conclusion that while a candidate's faith matters, what's most important is how he or she applies that faith.
+- It's important for American soldiers to be culturally sensitive when deployed in foreign countries. But it's just as important for the U.S. never to renounce the most fundamental American values, which, after all, are also universal values.
+- Democratic politicians, liberal activists and liberal news outlets routinely deploy incendiary rhetoric and wicked accusations to marginalize Republicans.
+- Having robbed children of any sense that their Father is in Heaven and that they are His creation, we then launched an experiment in raising them without earthly fathers too. Having neither a Father in heaven or a father in the home, many young men make gangs their families.
+- All the culture war issues will be settled by the court.
+- The abortion industry can try to improve its 'messaging' all it wants. But unless abortion advocates change their devotion to abortion-on-demand, the only message Americans will receive is that the abortion industry is only really interested in improving its bottom line at the expense of the most defenseless among us.
+- Part of America's greatness is its willingness to care for those who are truly in need. But those who defraud the system take money and resources away not only from American taxpayers but also from those who truly need help.
+- Americans have not only a right but a responsibility to consider the values of those who seek to lead them - whether they arise from life experience, political ideology or religious belief.
+- More and more political analysts and weak-kneed politicians are advising the historically pro-life Republican Party to abandon its pro-life stance for political gain. My first response is that if you cannot trust a party on the value of defending human life, how can you trust it on issues like marginal tax rates?
+- 'Fairness' can be an important quality for legislators to consider when they are passing public policies. But it is a subjective standard. And it has no place among judges on a court - whose duty is to dispassionately judge a law's constitutionality.
+- Some on the Left can be very selective about the kinds of violence they oppose. For some of them, gun violence is a crime to be decried - unless it is committed by an 'aggrieved' victim against what they consider a corrupt institution.
+- Big-government proponents embrace both the power of the federal government and the idea that millions of Americans ought to be dependent on its largesse. It's time to return to our Founders' love for small government. More is not always better.
+- If one is going to change the definition of marriage to be, quote, 'same sex,' then there is absolutely no valid argument constitutionally or rhetorically you can make against multiple people getting married. These are radical social changes.
+- The science of life is changing hearts and minds.
+- Independence doesn't - doesn't equate to moderates. Millions of independents are pro-life. Millions of independents believe marriage is between a man and a woman.
+- I'm pro-death penalty, but what I have not seen is anybody that would mock someone on death row.
+- I believe if more American children read the Ten Commandments and are taught what they mean, they will predictably engage in less crime.
+- Today's children are taught by our culture that we are a cosmic accident. Something slithered out of the primal slime and over billions of years evolved into a human being. We are cousins, ten times removed, to the ape at the zoo eating his own excrement.
+- Presidents have the right to nominate their own cabinet secretaries. But their nominees don't have a right to confirmation. Senators have a constitutional duty to advise and consent to the appointment of all Cabinet officials. They should take that duty seriously.
+- Republicans rarely criticize Obama for lack of empathy - in part because liberals have traditionally been seen as standing up for the weak and the vulnerable. Conservatives can be just as empathetic. But they believe that, in most cases, it's not government's role to be the primary dispenser of empathy.
+- Beyond politics, the West is suffering from what can be called a crisis of brokenness - broken institutions, broken families and broken souls.
+- I'm against big bureaucracy in Washington making health care decisions. I just have an aversion to bureaucrats. But it's not just government bureaucrats. I don't like HMO bureaucrats and insurance company bureaucrats either.
+- Obama often criticizes policies that place the interests of the powerful ahead of the powerless. But through his administration's support of abortion rights, Obama shows his lack of empathy for society's most powerless.
+- Environmentalists have been outspoken in their support of smaller family size and abortion rights as keys to reducing global warming. But when it comes to immigration, the single biggest contributor to population growth in the industrial world, they stand largely silent.
+- When the penalty for a policeman's mistake is to put a criminal back out on the street, then we are hurting America; we are hurting our law-abiding citizens.
+- The Founders believed liberty came directly from God. With their knowledge of Scripture, they knew each child was made in the image of God. That is why everyone had dignity, value and worth.
+- Empathy is a virtue, but it should not be a guiding judicial principle.
+- Liberals need to take the advice they routinely give to conservatives: that there are consequences to their divisive rhetoric, and that in their attempts to score political points, they are also inciting violence.
+- When it comes to social issues, Republicans don't just need to be more empathetic. They also need to be more emphatic in explaining to voters what they believe, and why.
+- Guided by nothing but pop culture values, many children no longer learn how to think about morality and virtue, or to think of them at all. They grow up with no shared moral framework, believing that the highest values are diversity, tolerance and non-judgmentalism.
+- Newt Gingrich is one of the brightest people in the Republican Party and he's always been a little unorthodox in his approach to politics, but that's what makes him Newt Gingrich.
+- There's a lot of people out now around America who depend on checks from their fellow taxpayers being in the mailbox every day.
+- As President, I will end once and for all the use of taxpayer funds to promote the National Endowment for the Arts and other programs that subsidize amoral and degrading activities.
+- I think it would be bizarre to pick somebody to speak at the convention based on their sexual preference, because once you go down that road, why don't you pick a transvestite?
+- Republican values - strong families, faith, personal responsibility and freedom, among others - are not unique to specific subsets of the electorate. They are universal values, and it is Republicans' job to remind Americans of that fact.
+- I have no problem with any gay group that says they're Republicans, but I will fight them tooth and nail if they try to change what the Republican Party believes.
+- As long as there's land available, single-family homes will be built, and Colorado residents will always go for a single-family over a condo.
+- The question Americans should ask is not whether a candidate is affiliated with a particular faith but rather whether that candidate's faith makes it more likely he or she will support policies that align with their values.
+- The stigma that was once attached to things society deemed unhealthy served the purpose of making them undesirable. With the stigma gone, many people see little reason not to do whatever feels good at the moment.
+- Enhanced interrogation is not to be considered lightly, but the use of enhanced interrogation techniques does not require moral people to abandon their beliefs. Rather, it is precisely during these difficult times that one's beliefs about life, justice and mercy become indispensible.
+- If Republicans want to be seen as more compassionate, they should continue to stand proudly for the sanctify of life and marriage. And they should do so without apologizing.
+- It's important to ask candidates about their beliefs, in part because politicians frequently exploit religious faith - often with the idea that voters will be more likely to unthinkingly accept certain political positions so long as they arise from religious belief.
+- All of my judges will want to welcome every child into the world, give them a place at the table.
+- When a young man massacres innocents, we have been trained to believe that the act was due to improper levels of chemical enzymes and misfiring synapses. As we learn more about our cells, we forget more about our souls.
+- My argument is simple, which is, that for several thousand years in Western civilization, marriage has been the union of one man and one woman. Research is overwhelming that children need mothers and fathers.

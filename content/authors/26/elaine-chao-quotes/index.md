@@ -1,0 +1,102 @@
++++
+author = "Elaine Chao"
+title = "Elaine Chao Quotes"
+quotes_len = "96"
+description = "the best 96 Elaine Chao Quotes"
++++
+- When Peace Corps was first proposed, some in Congress assumed that only men would be volunteers.
+- The OPPA route is nothing new. It follows the decades-old liberal agenda on trade, health care, global warming, and mass unionization. That agenda has never brought prosperity to workers.
+- I am not seeking any position in a Dole Administration.
+- My first port of call was Los Angeles. That's where I laid my first foot on America.
+- Where public pensions are concerned, many jurisdictions are running out of road.
+- My parents were very, very strict parents, and they were not used to this new, you know, American custom of letting your children sleep in someone else's house.
+- Smoot and Hawley ginned up The Tariff Act of 1930 to get America back to work after the Stock Market Crash of '29. Instead, it destroyed trade so effectively that by 1932, American exports to Europe were just a third of what they had been in 1929. World trade fell two-thirds as other nations retaliated. Jobs evaporated.
+- We need long-term tax reform that promotes private sector job creation. And legislated mandates that kill jobs by raising the cost of payrolls need to be eliminated.
+- The work of these women doesn't end when they return home from overseas, as one goal of the Peace Corps' mission is to help promote a better understanding of other cultures here in the United States.
+- Capital available for individuals to start and expand businesses would increase with regulatory and strategic tax reforms, like reducing marginal rates, repealing the alternative minimum tax, and making the U.S. the most welcoming place for employers to relocate and create jobs.
+- The ingenuity and creativity of the private sector is essential to meeting American's needs for a skilled work force.
+- I know what it is like to feel vulnerable and fearful during a difficult time.
+- The Obama administration's zeal to not 'waste a good crisis,' as Secretary of State Hillary Clinton put it, has been stunning even for Washington insiders to behold.
+- There are many reasons to worry; the evening news is full of them.
+- Those memories of living in a developing nation are part of who I am today and give me a profound understanding of the challenges of economic development - an understanding which will make my tenure as Peace Corps director, I hope, a very special one.
+- Even if it's a national issue, the federal government cannot provide all the answers.
+- In normal times, laid-off workers are unemployed an average of eight weeks.
+- When my mother, sisters and I arrived on the shores of America when I was 8 years old, the boat on which we came, a freighter, passed the Statue of Liberty.
+- We are a Republic with different branches of government, and so the Senate and the House are going to be full partners in working with the White House.
+- To foster entrepreneurship, expansion and job creation, more leaders at all levels of government have to demonstrate some understanding of what it takes to build and grow businesses in the private sector.
+- There should be an immediate moratorium on federal regulations that endanger jobs.
+- The borrow-spend-and-centralize agenda that has been so destructive to job creation elsewhere in America has been a gravy boat inside the Beltway.
+- To maintain their own competitiveness, workers need to attain and stay current on the qualifications needed to advance in a constantly evolving economy.
+- It has long been said the only things in life that are certain are death and taxes. Automatic enrollment for insurance of 401k loans would add an additional certainty. Fewer Americans would suffer the unnecessary loss of retirement savings due to unanticipated and untimely misfortune in an already stressful time of need.
+- I'm the first secretary of labor in the 21st century, and the competitiveness of the American work force and the modernization of decades-old regulations have been among our top priorities.
+- European-style interventions to which the Obama administration is inclined will not make America more competitive in the world-wide economy. Such policies will not increase growth, will not decrease unemployment, and will not increase wages for workers.
+- The greatest job creation is driven by entrepreneurs and young businesses, so they merit special attention.
+- Taxpayers should demand that their states honestly assess public pension plans, accurately measure the assets and liabilities, and take steps to provide fair benefits to public employees that limit taxpayers' liability.
+- To better deal with shortages of qualified applicants now and in the future, government policy makers need to acknowledge that government job training programs could stand improvement.
+- Even when America's economy has been by all measures healthy and the unemployment rate low, some businesses suffer or fail and lay off workers. But nearly always, a simultaneous and even greater burst of new jobs has been created to offset the jobs lost - millions of new jobs every year.
+- Deep in the heart of Kentucky's rugged Eastern Mountain region, there lives a woman who has fascinated and inspired me for two decades. She is known locally these days as 'Mayor Nan' - the octogenarian chief executive of Hazard and advocate for its 5,467 residents.
+- We have many rules and regulations that can be sometimes confusing and complicated. By reaching out to the employer community and educating them on what their responsibilities and obligations are to their work force, that, along, with strong enforcement, is the best way to protect workers.
+- In the best of years, millions of jobs are lost.
+- As I looked up at the Statue of Liberty, I thought at that time, 'What a wonderful country.'
+- Activists have every right to espouse their views of utopia.
+- Confidence, capital, and credit fuel entrepreneurship and economic expansion.
+- Nan Gorman was born in Memphis, Tenn., on St. Patrick's Day. She moved to Hazard in 1929 when her father, James Hagan, a recent medical school graduate and aspiring surgeon, went to work there.
+- It's not coincidental that America's vigorous recovery in the early 1980s was led by a president who worked hard to unshackle growth in the private sector.
+- Three years after the four deepest previous recessions began - in 1953, 1957, 1973 and 1981 - employment was on average 4.7% higher than the pre-recession peak.
+- America's competitive advantage lies in its human talent. All of us should be doing everything we can to cultivate and develop our work force.
+- Perhaps the original layaway angel knew from experience, or simply deduced, that people resorting to the old-fashioned installment method of layaway may be struggling financially.
+- News-free existence is not a serious proposal, but it is worth noting that while today's 24/7 media environment is wonderful in many ways, it can also be like drinking out of a fire hose and intensify a downward reinforcing cycle of despair.
+- I love working in the garden.
+- President Obama has been admirably pro-trade in public remarks, but there has been no progress in moving any new free trade agreements to expand exports abroad and create jobs at home.
+- Though the National Bureau of Economic Research deemed the recession to have ended in June 2009, to most Americans, that conclusion seems not to square with reality.
+- Consider trade protectionism. It's been tried - and found wanting - since the Great Depression.
+- Rising energy costs kill jobs and hit America's poorest the hardest.
+- What out country is facing right now is a skills gap.
+- America's private sector job creators need elected leaders to lead and get out of the way.
+- The expenses of complying with Washington's torrent of mandates and regulatory overreach are costing American workers jobs and income growth.
+- Our country needs to produce 250,000 net new jobs every month just to keep even with population growth.
+- America needs a new approach to boost the economy - one that does not doom future generations to being saddled with paying off today's federal deficits.
+- When there's change, people are always anxious.
+- When the Smoot-Hawley bill landed on President Herbert Hoover's desk, more than 1,000 economists urged him to veto it. Tragically, the president ignored their pleas.
+- Policymakers, elected and unelected, need to be ever-mindful that the U.S. economy does not exist in isolation.
+- While there have been news reports of recent college graduates living with their parents because they have been unable to find a job paying a salary sufficient to move out, their near and long-term career prospects remain far brighter than for those without a college degree.
+- In campaigns, lots of things will be said, and what they have said about my husband is just simply not true.
+- I will carry with me always the deep sense of what it feels like to be an outsider and how tough it was, how hard it was to adapt to this country.
+- As we celebrate Women's History Month this March, it's important to remember the key role women have played in promoting a better understanding and relationships between our country and the rest of the world.
+- Even a healthy economy and labor market would have struggled under the additional expenses enacted and proposed in 2009 and 2010 - from healthcare mandates and higher taxes, to carbon cap-and-trade and delay in extending the last decade's tax reforms.
+- Every person - we want to make sure that every person who wants a job will indeed get one.
+- The majority of the new jobs being created require higher skills, more education.
+- People can voice their different points of view. We are also a country where there will be criticism.
+- The Democratic Party's governing elite has long believed there is no problem that European-style policies cannot cure.
+- Employers should overcome a myopic quarterly earnings posture and focus on long-term strategies for growth that include investing in their own skills-training efforts to enable a broader pool of applicants.
+- We have a lot of employers who are looking for skilled workers and not being able to find them. And we have workers who lack the requisite skills to access these good-paying jobs in high growth industries.
+- Washington's parasitic approach to the private sector must change for there to be widespread, near-term and enduring prosperity and job creation.
+- We need fair and free trade.
+- While conventional wisdom has traditionally sided against borrowing from retirement savings, sentiment has shifted toward borrowing from one's own assets with the realization that other forms of credit come at a much higher cost and often are not even available to borrowers with limited means and urgent needs.
+- 401k savings accounts have become so important in the landscape of retirement planning that their security and expansion became a top priority in formulating and implementing the Pension Protection Act of 2006 that was enacted during my tenure as the U.S. Secretary of Labor.
+- We Americans typically are more positive about our individual futures, which we have some control over, than we are the nation's or the world's, which we see largely through the media prism.
+- My husband has an outstanding record in promoting opportunity for women and the women that he surrounds himself in his staff and the women that he has promoted throughout his career. He's the father of three daughters. He's obviously a husband who's been very supportive of a very active wife with her own career.
+- Washington policymakers have to understand the adverse implications of their actions on job creation, and they must reorder some of their priorities.
+- As tough as it is for many college graduates to get their planned careers on track, it could be worse: They could be trying to find a job without a college degree.
+- Because of these layaway angels, many children did not have to wonder why Santa skipped them in 2011.
+- Activist shareholder resolutions do not have to pass to succeed. The process itself can be so injurious to a company that management will cave to demands.
+- Our private-sector work force is the most industrious, innovative, productive, and ambitious in the world.
+- For significant job creation to occur, prospective entrepreneurs and current business owners must not fear the future or be under assault from their own government in the present.
+- The Obama administration likes to say that it is 'pro-worker.' But something is amiss when its labor priorities are forcing unionization and labor contracts on American workplaces, and denying union members information on how their dues money is spent.
+- Typically, after moving backwards, the economy takes even more steps forward.
+- My parents were very supportive.
+- Confidence, capital, and new markets fuel entrepreneurship and job-generating expansion of existing businesses.
+- Americans did not suffer alone. World trade overall fell two-thirds in the first few years of the Depression.
+- Never far from my thoughts are memories of being a little girl in Queens, N.Y., our family of five crowded in a small one-bedroom apartment, struggling to learn English and survive a new life in a new country, America. We humbly and gratefully still recall the kindnesses shown by strangers and neighbors who became new friends.
+- Government at all levels has kicked the fiscal can down the road for far too long.
+- We want to make sure that workers know their rights and that employers know their obligations. That is the best way to protect workers.
+- We're a robust democracy here. That's the wonderful thing about this country.
+- Around the time President Lyndon B. Johnson was declaring a War on Poverty in the 1960s, federal, state and local governments began accelerating a veritable War on the Private Sector.
+- Outside of Washington, D.C., most Americans aren't concerned with doing things 'big.' They're looking for less government spending, lower taxes, and good jobs.
+- Left-wing shareholder activists seek to leverage the mass economic power of institutional investors such as pension funds, whose managers are supposed to focus strictly on their fiduciary responsibilities to retirees.
+- If we did not have Obamacare, we could've addressed the healthcare crisis in a comprehensive but segmented fashion - meaning that we could have promoted a health savings plan. We could've pushed for tort reform, which added so much more cost to healthcare.
+- I can tell you I love California - and no more.
+- I know that some people, when they are growing up and they - as a person of color in a majority community - that they may feel as if they are left out, or they feel a bit strange.
+- For any trade deal to move forward, there has to be agreement.
+- Most private sector workers can only dream of getting the generous lifetime pension and health benefits typical of government service.
+- Progress is being made, but a lot of women are realizing it is not what they envisioned.

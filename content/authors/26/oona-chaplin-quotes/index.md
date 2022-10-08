@@ -1,0 +1,19 @@
++++
+author = "Oona Chaplin"
+title = "Oona Chaplin Quotes"
+quotes_len = "13"
+description = "the best 13 Oona Chaplin Quotes"
++++
+- I loved being on stage, but I told myself that if I didn't get into RADA, I wouldn't pursue an acting career. I did get in, though, and that was that.
+- My grandmother died in 1991 and I was born in '86. We only met once, but I didn't speak English and she didn't speak Spanish - so we had a communication problem.
+- I don't buy things now, I buy plane tickets. The only thing I want is to make enough money to be able to travel with my children.
+- My mother doesn't have much of a social life with other A-list people. Which in a way I'm very grateful for, because if I do make something of my career I will be able to say it wasn't because I was a Chaplin.
+- Watching yourself on screen is always a little weird, but I didn't cringe when I saw myself on 'The Hour.' It actually exceeded my expectations; every shot looks like a vintage postcard and even my most brutally honest friends have said they think it's good.
+- I'm a big fan of David Attenborough, who I think is the most adventurous of the nature program presenters.
+- People think that I can just walk into a room and get a job, but of the 200 interviews and auditions I go through a year, I may get three yeses. I just have to use my sense of humour to get me through.
+- My flat in Ladbroke Grove, west London, is in the best building in the world. It's like a commune - everyone gets on - and on Friday evenings I often cook us all dinner.
+- As I don't know what life would be like without my Chaplin connections, I work with them. I'm just really happy it's a family I can be proud of; it's not as if I'm related to some Z-list celebrity.
+- I love boxing. I box in a local boxing gym in London. I usually spar. But I've done two fights and I lost both of them admirably. I didn't realize how much it would hurt for them to actually hit me.
+- When people say 'Charlie Chaplin' I still think now of the guy in the moustache and bowler hat and funny walk - I don't think of an old man who was my grandfather.
+- I have to go through auditions, and my surname has got me into rooms, but I'll never know if it gets me any jobs. There's a lot of sexism and objectification, and a lot of people put you down.
+- I'm part Cuban, so anything with a good beat like Rumberos de Cuba gets me going.

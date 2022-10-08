@@ -1,0 +1,66 @@
++++
+author = "David Crystal"
+title = "David Crystal Quotes"
+quotes_len = "60"
+description = "the best 60 David Crystal Quotes"
++++
+- Anyone interested in language ends up writing about the sociological issues around it.
+- There is no such thing as an ugly accent, like there's no such thing as an ugly flower.
+- You don't talk to a linguist without having what you say taken down and used in evidence against you at some point in time.
+- Text messaging is just the most recent focus of people's anxiety; what people are really worried about is a new generation gaining control of what they see as their language.
+- It doesn't take a language long to disappear once the spirit to continue with it leaves its community. In fact, the speed of the decline has been one of the main findings of recent linguistic research.
+- You can say now, 'I dissed him' - to diss, I dissed him - or, 'Stop dissing her'. And that's the interesting thing, that it's the prefix that's become the verb! It's a most remarkable development.
+- Sending a message on a mobile phone is not the most natural of ways to communicate. The keypad isn't linguistically sensible.
+- One of the places the full stop is really being revised in a really fundamental way is on the Internet. You look at the Internet or any instant messaging exchange - anything that is a fast dialogue taking place. People simply do not put full stops in unless they want to make a point.
+- Enshrined in a language is the whole of a community's history and a large part of its cultural identity. The world is a mosaic of visions. To lose even one piece of this mosaic is a loss for all of us.
+- The main effect of the Internet on language has been to increase the expressive richness of language, providing the language with a new set of communicative dimensions that haven't existed in the past.
+- The story of English spelling is the story of thousands of people - some well-known, most totally unknown - who left a permanent linguistic fingerprint on our orthography.
+- Spellings are made by people. Dictionaries eventually reflect popular choices. And the Internet is allowing more people to influence spelling than ever before.
+- One of the lesser-known ways of making new words is to form a blend - and a blend is when you run two words together to make a third word.
+- At the same time we overlap, because, I do linguistics, and Ben did a first degree in Linguistics at Lancaster University, so he knows some of my subject.
+- Academics don't normally manage to alter people's way of thinking through their strength of argument.
+- Language has no independent existence apart from the people who use it. It is not an end in itself; it is a means to an end of understanding who you are and what society is like.
+- What turns teenagers on more than the Internet these days? If you can get a language out there, the youngsters are much more likely to think it's cool.
+- It's very difficult to find even one or two criteria that you will find in every Internet situation, and the reason is that the technology constrains language in individual ways.
+- When we look at the specific effect of the Internet on language, languages asking the question, 'Has English become a different language as a result of the Internet?' the answer has to be no.
+- Speaking, writing, and signing are the three ways in which a language lives and breathes. They are the three mediums through which a language is passed on from one generation to the next.
+- The Internet offers endangered languages a chance to have a public voice in a way that would not have been possible before.
+- There's nothing unusual about a single language dying. But what's going on today is extraordinary when we compare the situation to what has happened in the past. We're seeing languages dying out on a massive scale.
+- 'Spell it Out' rose to be number 4 on the best-selling Amazon chart - ahead of 'Fifty Shades of Grey!' Who ever would have thought that spelling would one day beat sex - even if it was for only a few hours!
+- English does have a larger vocabulary than other languages because of its history as the primary language of science and its global reach.
+- Likewise, there is no evidence that texting teaches people to spell badly: rather, research shows that those kids who text frequently are more likely to be the most literate and the best spellers, because you have to know how to manipulate language.
+- Over the last 50 years or so, we have seen an increasing cultural diversification across the country. Accents are a reflection of society, and as society changes, so accents change.
+- Language itself changes slowly, but the Internet has speeded up the process of those changes so you notice them more quickly.
+- English has been this vacuum cleaner of a language, because of its history meeting up with the Romans and then the Danes, the Vikings and then the French and then the Renaissance with all the Latin and Greek and Hebrew in the background.
+- One notable feature is that English doesn't have much of a system for expressing relative social status.
+- Ever since the arrival of printing - thought to be the invention of the devil because it would put false opinions into people's minds - people have been arguing that new technology would have disastrous consequences for language.
+- How do you spell the name of the Irish prime minister? It sounds like 'teeshuck', but we spell it 'taoiseach.' We respect foreign spellings these days - a sign of our more egalitarian times, perhaps.
+- The death of a language. The word has the same kind of reluctant resonance as it has when we talk about the death of a person. And indeed, that's how it should be. For that's how it is. A language dies only when the last person who speaks it dies.
+- It hasn't been a problem with Ben, I think we worked together very well, we don't have rows.
+- Of all the mediums that influence language, I think film is the one that has the most effect. Not so much from the point of view of pronunciation and grammar. I don't think we pick up very many sounds and grammatical instructions from the films we see - but the catchphrases.
+- People say that text messaging is a new language and that people are filling texts with abbreviations - but when you actually analyse it, you find they're not.
+- The Internet has given us 10 or 15 new styles of communication: long messages like blogging, and then short messages like texting and tweeting. I see it all as part of an expanding array of linguistic possibilities.
+- People are very ready to criticize other people's accents. There's no correlation between accents and intelligence or accents and criminality, but people do make judgments.
+- You don't usually get a compound word where the first part is a slang thing and the second part is a rather ordinary or formal thing - they don't usually mix - but 'gobsmacked' is a perfect exception to that rule.
+- Online, you show how brilliant you are by manipulating the language of the Internet.
+- Texting has added a new dimension to language use, but its long-term impact is negligible. It is not a disaster.
+- Every usage, no matter how bizarre or nonstandard, fascinates me, as it tells me something about the way language is evolving.
+- Increasingly, over the past ten years, I've come to take the view that a cultural perspective is intrinsic to the future of language teaching and learning, especially in the case of English, as it becomes increasingly global.
+- We are rearing a generation of kids who are more equitable and more understanding about the existence of language variety and why it is there.
+- The one thing about internet language, people join it, and what quickly evolves is an 'internet dialect,' as it were.
+- Vocabulary is a matter of word-building as well as word-using.
+- I don't have any particular desire to see words making a comeback. They are of their era, after all, and that is their identity - they form part of the linguistic color of a period.
+- Although many texters enjoy breaking linguistic rules, they also know they need to be understood.
+- Word books traditionally focus on unusual and quirky items. They tend to ignore the words that provide the skeleton of the language, without which it would fall apart, such as 'and' and 'what,' or words that provide structure to our conversation, such as 'hello.'
+- Spellings are made by people. Dictionaries - eventually - reflect popular choices.
+- Languages like English, Spanish, and Chinese are healthy languages. They exist in spoken, written, and signed forms, and they're used by hundreds of millions of people all over the world. But most of the 6,000 or so of the world's languages aren't in such a healthy state.
+- The ethos of 50 years ago was that there was one kind of English that was right and everything else was wrong; one kind of access that was right and everything else was inferior. Then nobody touched language for two generations. When it gradually came back in, we didn't want to go back to what we did in the 1950s. There's a new kind of ethos now.
+- A feature of English that makes it different compared with all other languages is its global spread.
+- At any one time language is a kaleidoscope of styles, genres and dialects.
+- Bilingualism lets you have your cake and eat it. The new language opens the doors to the best jobs in society; the old language allows you to keep your sense of 'who you are.' It preserves your identity. With two languages, you have the best of both worlds.
+- In Cardiff, I've heard a number of accent mixes that weren't previously heard before such as Cardiff-Arabic and Cardiff-Hindi. This pattern is repeating itself in many urban communities across the U.K.; people are especially keen to develop a strong sense of local identity.
+- Everybody wants to say who they are and where they're from. And the easiest and cheapest and most universal way of doing that is through their accent.
+- It took three years to put Shakespeare's words together, there were a lot of words to be studied and a lot of words to be sorted out, and it proved to be a major project.
+- As I get older and I get a few more years experience I become more like Dad, you know, King Lear.
+- There's an old little jingle: 'The chief use of slang is to show that you're one of the gang.' What that means is that every social group has its own linguistic bonding mechanism. If there's a group of lawyers, they have their own slang. If there's a group of doctors, they have their own slang, and so on.
+- A community, once it realises that its language is in danger, can get its act together and introduce measures which can genuinely revitalise. You've seen it happen in Australia with several Aboriginal languages. And it's happening in other countries, too.

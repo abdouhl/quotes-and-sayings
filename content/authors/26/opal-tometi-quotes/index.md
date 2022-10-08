@@ -1,0 +1,81 @@
++++
+author = "Opal Tometi"
+title = "Opal Tometi Quotes"
+quotes_len = "75"
+description = "the best 75 Opal Tometi Quotes"
++++
+- Civility is the recognition that all people have dignity that's inherent to their person, no matter their religion, race, gender, sexuality, or ability.
+- We deserve a multiracial democracy that works for all of us.
+- The U.S.' refusal to acknowledge the plight of displaced Haitians and maintaining inhumane practices of neglect, disrespect, and violence amounts to a gross violation of human rights.
+- I just look back at my time in college and think about how much my community activism and my work in neighborhoods really informed my actual academic career and beyond... It can provide a way better learning than the traditional classroom setting.
+- The U.S. government has rarely, if ever, used the criminal history of a certain immigrant population in determining if the whole community should be allowed to remain in the country under a humanitarian program, like TPS.
+- We came in as organizers before creating the Black Lives Matter network and project, and we are still organizers, strategists, political thinkers, and philosophers, so we actually have a lot ideas and a lot of really thought out strategies.
+- We can't continue to sit on our hands and sit idly by as people are being brutalized, disenfranchised, and left out of the system.
+- I am the executive director of the Black Alliance for Just Immigration, which is the country's only national immigrant rights organization for black immigrants and African Americans. Being the daughter of Nigerian immigrants really drove me to do this type of work.
+- If black lives mattered, I believe that policing and immigration enforcement would not be the devastating force that it is in our communities.
+- We must create a committee to address the long-standing discrimination against black people in America.
+- I often think of Audre Lorde and her saying that we don't live and we don't fight for one specific struggle.
+- We know that there are people in our nation, black people, who are systematically being disenfranchised in a number of spheres in our lives.
+- My parents migrated to Phoenix, AZ, in the '80s, and I watched them work tirelessly to provide for me and my siblings as they encouraged us to pursue our dreams.
+- My parents being from Nigeria deeply informs all my social justice and human rights work.
+- I have two younger brothers, and I know my parents have spoken to them about driving and interacting with police. They didn't have those conversations with me, but they did have conversations about being exceptional black people.
+- Black Lives Matter has been viral, and people are taking it, appropriating it, and using it however they see fit.
+- We created #BlackLivesMatter. We created a platform. We used our social media presence online in order to forward a conversation about what is taking place in black communities.
+- Only when the oppressed are heard can we have an honest solutions based dialogue.
+- Many of the concessions that leading Democrats seem willing to make - from cutting diversity visas to chipping away at family visas - would be made on the backs of black immigrants, people from Africa and the Caribbean who deserve these policies to remain intact as some of the few legal tools they have to immigrate to this country.
+- Antiblack racism is not only happening in the United States. It's actually happening all across the globe.
+- What we are oftentimes reminding people of is the fact that the history of police in the U.S. was that they were slave patrols. They were quite literally created in order to capture enslaved Africans.
+- Despite claims that there are good and bad cops, we know that the system is failing everyone - including the police.
+- The valuation of profit over people impedes human rights across much of the world.
+- Implicit bias - our subconscious associations of race - permeates everything that we do. And we must pursue systemic accountability to fix it.
+- Get involved in your neighborhood. That's how I got really, really committed to the immigrant rights movement.
+- We deserve to live in a world where there's no impunity, but beyond this question of impunity, there are all these structures that are actually doing a disservice to our people.
+- I challenge us all to have the courage of our convictions to fight for a fair, justice and inclusive society.
+- There was a time when my uncle was in an immigration detention center, and members of our community would take turns visiting him each weekend. That instilled in me the value of taking care of each other even if the systems aren't working in your favor.
+- The U.S. has long characterized Haitian immigrants as criminals. This tradition began in 1963 when the first boat of Haitians seeking political asylum was summarily rejected by U.S. immigration officials, while at the same time the U.S. admitted thousands of Cubans as refugees and political asylees.
+- We actually know that all lives do matter. And we believe it is so much so that we had to create Black Lives Matter.
+- I have three godkids that are just so gorgeous; I love them dearly, and they keep me going.
+- As an immigrant justice advocate, I, of course, want legal status for everyone trying to make it in this country.
+- I think about issues like climate change, and how six of the 10 worst impacted nations by climate change are actually on the continent of Africa. People are reeling from all sorts of unnatural disasters, displacing them from their ancestral homes and leaving them without a chance at making a decent living.
+- Due to broken windows policing, the following interactions can lead to tickets, arrests and summonses, warrants if tickets go unpaid and, in some cases, violence: jaywalking, sleeping on a park bench, spitting, putting your feet up on the subway, and more.
+- As a community organizer who holds a degree in history, I understand the fascination with history. However, there is a tendency for many of us to get engrossed in the recounting of our history, which often amounts to purely intellectual activity without material action.
+- From my youngest brother to immigrant women to black queer folks, those are the people who keep me going. When I think about their various acts of courage, it reminds me that I am not alone and that we can do even more, and we deserve more, so we have to keep going.
+- To me and to a number of other activists from the U.S., we believe that the human rights movement has to evolve and understand the global implications of structural racism. This means engaging the United Nations and a variety of other human rights bodies.
+- I have always felt like I want to change the course of history.
+- I'm really looking for an agenda that looks at safety for our communities beyond policing.
+- I think it's really important that we understand the ways in which blackness plays out, right, and discrimination against black people impacts different communities in different ways but ultimately leaves them undermined and really devalued in our society.
+- I call on Democrats to use their leverage to fight for a clean DREAM Act and to reject Trump's racist agenda - not only in word but in deed.
+- Black Lives Matter is really an affirmation for our people. It's a love note for our people, but it's also a demand. We know that the system was not designed for justice for us.
+- Black immigrants and refugees have just as much at stake in the fight to make Black Lives Matter as African Americans do.
+- When we say 'Black Lives Matter,' we're not saying that any other life doesn't matter. That has never, ever been our message. Our message has always been from a place of love.
+- There are always groups on campus that are doing amazing things. I know when I was in college, I was a student at the University of Arizona, working on my bachelor's in history, and I got involved with a number of different groups that were connected to different social justice issues that I cared about.
+- I believe that our communities can benefit if they know about and participate in the U.N.'s various human rights forums.
+- President Trump is mentally incapable of imagining the humanity of anyone who looks different from him or hails from a different nation.
+- Fortunately, the leadership of black immigrant communities has always been present in all black liberation movements from leaders like Marcus Garvey to Shirley Chisholm to Malcolm X and Harry Belafonte. We know this is our legacy.
+- As we look ahead to our very diverse future, BAJI plans to continue to be at the forefront, uniting black communities to attain racial, social, and economic justice for all.
+- My mom, my aunts, and all the Nigerian women in my life have been so fierce and strong. I have only grown up around powerful women, so I have a strong sense of self and our power.
+- Police cannot be allowed to continue aggressive, violent, and often unconstitutional policing with impunity.
+- Being in the immigrant rights space, I've heard a lot of transactional talk with questions like, 'When will black people show up for immigrants?'
+- In my own personal experience, I've had different family members who have been held in immigration detention because they've had some sort of challenge financially, and they were making difficult decisions, and that led to their immigration detention and, eventually, deportation.
+- Lean into your curiosity about any issue, and there will likely be people to share a little bit more of their knowledge and insight and give you ideas on how to make change.
+- African-Americans and black immigrants share a resilience and a determination for a better life.
+- If things aren't working for us, it is our duty to rise up.
+- Anti-black racism operates at a society-wide level and colludes in a seamless web of policies, practices, and beliefs to oppress and disempower black communities.
+- To fully understand the black immigrant experience in the U.S., we must understand it not in contrast to the African-American experience, but central to it.
+- Let's demonstrate, illustrate, the ways in which our communities are being undermined time and time again, and make sure that the broader public and those in power choose to stand with us.
+- Some of us have held the hands of friends or brothers as they struggled with military and police academy recruiters, and though many of them never dreamed of being policemen, a lack of opportunities led them to those positions.
+- I think the two-party system isn't working for us. And it hasn't worked for us for generations - let's be very, very honest about that.
+- Black people, we are fully deserving of the room and space to fully express our humanity. This is what Black Lives Matter is truly about.
+- Racism should be a core concern for all Americans in every area of our lives.
+- For the U.S., a nation that boasts of being the land of the free, it does not live up to its ideal.
+- Without networks like the Black Immigration Network, organizations like Haitian Women for Haitian Refugees would not get the support and resources and amplification that their voices that they need and deserve.
+- Many thought that the abolition of slavery, the end of Jim Crow, and the legislative progress of the Civil Rights Era, among other watershed moments, would have fundamentally done away with the racist structures that have long oppressed black people. However, we know that has been far from the case.
+- Knowing that there is a community of people on every corner of this planet that believes in justice, that is willing to sacrifice, and that is willing to take a stand is the most heartening thing.
+- The reality is that anti-black racism is a global phenomenon, and it looks different in each context, but if you look at the outcomes, if you listen and look at the experiences, you will see that it's clear, and it's happening across the globe.
+- If people take the fight for justice seriously in their own country and with partners and immigrants in their community and folks in the international community, I believe that we will see human rights for all people affirmed.
+- The black immigrant experience in the U.S. must be understood not in contrast to the African American experience but as an integral part of it.
+- Our communities are reeling from poverty, from unemployment, from discrimination of all sorts and different interactions that they're having with the law enforcement, and education system, and so on.
+- I was in awe of previous black liberation struggle leaders - Sojourner Truth, Ida B. Wells. I wanted to be part of something bigger than myself. Black Lives Matter has been that.
+- Trump's racism has clearly driven his policy decisions during his first year in office - from his Muslim ban and his despicable treatment of DREAMers to his ruthless ramp-up of immigration raids and the callous termination of protections for Haitians and Salvadorans who fled natural disaster and violence.
+- Far from ending, systemic racism reinvents itself to conform to what is publically acceptable, leaving the quality of black life diminished and more permanently fixed with each passing decade.
+- We have to start imagining a new reality - this will mean fewer police and more social workers and teachers. This will mean creating more economic possibilities and investment that preserves and does not displace our communities.

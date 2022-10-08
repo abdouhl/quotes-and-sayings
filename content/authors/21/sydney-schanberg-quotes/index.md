@@ -1,0 +1,26 @@
++++
+author = "Sydney Schanberg"
+title = "Sydney Schanberg Quotes"
+quotes_len = "20"
+description = "the best 20 Sydney Schanberg Quotes"
++++
+- Pol Pot carried out through the years enormous purges against his own followers because of his paranoia.
+- As I understand it, Lacey has dismissed all of the fact checkers.
+- The mainstream press and television do a very soft job of covering the press, either as corporate entities or as news organizations.
+- What happened was very sad. Mr. Lacey told the staff that he was disappointed and appalled that the front of the book was all commentary and that he wanted hard news.
+- Contradictory to my religion, I think, is journalism.
+- You can criticize any news staff in some ways, but the one thing that you couldn't call the Village Voice staff was a staff of stenographers, taking notes from public figures and just passing them on.
+- I don't see any move toward international pressure to stabilize the situation.
+- People in New York pay attention to national issues - a huge percentage of people.
+- The Voice has always been an alternative paper. They have always understood that that was part of their role.
+- Lacey had this huge chip on his shoulder. He walked into the room thinking that the people didn't welcome him and didn't like him. He gave the impression that he didn't understand the Voice and New York, and he didn't want to.
+- This isn't a little debate society. That's high school stuff.
+- It's very easy to say that something is a shadow of itself, and it may be true in some senses.
+- My own reaction from a distance is that Pol Pot's demise as the leader of the Khmer Rouge was inevitable, and that his own paranoia did him in as much as anything else.
+- I asked him, How could we have a press column if we can't write about other work done in the press?
+- I don't judge myself by what someone says.
+- Lacey didn't like it, even though he was born here, I understand. I mean, he was born in Brooklyn. He told the staff that they better prepare themselves to say goodbye to some of their friends.
+- I don't know how you can do it, if you don't recognition the media as a power center in America.
+- If you believe in journalism, you don't insult good journalists.
+- I just don't believe that you have to come in and insult people when you want to change things.
+- Lacey said if he wanted to read a daily or regular critiques of the Bush administration, he would read the New York Times, and that's not what he wanted in the Village Voice.

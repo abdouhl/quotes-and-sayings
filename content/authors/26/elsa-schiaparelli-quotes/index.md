@@ -1,0 +1,35 @@
++++
+author = "Elsa Schiaparelli"
+title = "Elsa Schiaparelli Quotes"
+quotes_len = "29"
+description = "the best 29 Elsa Schiaparelli Quotes"
++++
+- White stockings I do not like. Why does anyone except a schoolgirl want to wear them? Nothing is more flattering to the legs than flesh color.
+- Women dress alike all over the world: they dress to be annoying to other women.
+- Fortunately, or unforunately for me, I am always at my best when I am unhampered: when I can let myself go and have a little fun.
+- Some women succeed at being strong and also tender, but most of those who have intended to walk alone, making their own way, have lost their happiness.
+- There are two classes of women in Soviet Russia. There is the professional class, which has taken the place of the nobility and includes government officials, artists, doctors, composers and writers as well as former members of the old nobility whose sympathy is with the Soviets, and also the peasant class.
+- A successful designer must be a gambler.
+- I stay out of the sun; it's terrible for the skin of any woman over 35. If you must have a suntan, at least keep moving while you're in the sun.
+- I think it is childish for men to joke about women's clothes, to make fun of our hats, to complain over the cost of a good fur coat.
+- In difficult times fashion is always outrageous.
+- Cheap jewelery should never be worn unless it happens to be something that you positively know suits you.
+- Give a man a chance, and he'll be so casual that he won't bathe, shave, or comb his hair. He'll just depend on his animal magnetism to get him by.
+- Before me, everything was black or navy blue or gray or brown or beige, things like that, for daytime. I began using shocking pink and ice blue and all kinds of bright colors. And I dyed furs.
+- A good cook is like a sorceress who dispenses happiness.
+- I get more disgusted with men all the time - particularly traveling Americans. They start out on a trip to Europe and never bother to pack a dinner jacket. This is not only stupid - it's bad manners.
+- The woman over 50 must be very frank with herself.
+- You cannot choose beforehand what you want to use for a suit. You may want to change your mind a dozen times before you are through.
+- In the building of a basic wardrobe, we cannot go wrong if we strive for simplicity and perfect fitting.
+- Many men admire strong women, but they don't love them.
+- Eating is not merely a material pleasure. Eating well gives a spectacular joy to life and contributes immensely to goodwill and happy companionship. It is of great importance to the morale.
+- What Hollywood designs today, you will be wearing tomorrow.
+- I myself used to do absurd things. Yes, I mean that. I had to have a laugh, and some of the things were absurd. But they could always be worn by an elegant woman; they did not negate her elegance.
+- It's not polite to refuse to dress for a parly. It's an insult to your hostess. After all, correct dress is a part of good manners.
+- Russian women are now interested in clothes. But they will never attach supreme importance to fashions as do Europeans and American women, because they are too vitally interested in all the various projects going on in their country.
+- Men have to be freed from the tortures of heavy clothing that covers everything but the face and hands.
+- Never fit a dress to the body but train the body to fit the dress.
+- Women can learn from men and improve their 'chic.' A man wouldn't think of wearing a tight shoe or one that didn't harmonize with his suit.
+- Man was created to frame the woman.
+- Pearls, including cheap ones, are always in good taste.
+- There are times to be casual and times to be correct. It's all right to wear a sweater and slacks on a picnic, but they don't belong in the theater or the drawing room.

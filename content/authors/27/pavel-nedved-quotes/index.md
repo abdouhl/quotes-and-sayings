@@ -1,0 +1,23 @@
++++
+author = "Pavel Nedved"
+title = "Pavel Nedved Quotes"
+quotes_len = "17"
+description = "the best 17 Pavel Nedved Quotes"
++++
+- I knew the training pitch better than anyone. When others went out clubbing, I went to sleep. When others had Christmas, I went out in the woods to run.
+- I'm not much to watch. I run, I fight, I'm not elegant like Raul, Figo, Zidane or Beckham.
+- It's a team game. Sometimes individuals play and sometimes not. I'm happy with what I have achieved and I hope I can accomplish even more.
+- Living in the woods is part of my origins, it's like when I was a kid.
+- In my career, I've never seen someone score a goal without shoes.
+- I liked the generation of Paul Scholes and Ryan Giggs, who I admired. I was a little bit jealous of Karel Poborsky who played in Manchester and experienced great matches. I know he still feels that love.
+- I will never find people like the Italians... there is this spontaneity, this living life with a smile, to its fullest.
+- I learnt since I was a child growing up in a small village in the Czech Republic that I had to be like that to compete, to be the best and then to compete against the best. There has not been a second, a minute, an hour, a day that I have missed because I always wanted to improve.
+- Because I have always felt privileged. I have been able to do what I love, I have always been treated well, I have always been paid well so that's why. I feel that I owe something; that I need to return something. It's always been a great pleasure but nevertheless I do feel this responsibility.
+- I honestly cannot explain why my relationship with fans is so strong but, possibly, it's due to the way I see football. I have always seen it as the result of great sacrifice, sacrifices you make every day for the victories, and hard work.
+- I've always appreciated English football and the Premier League, I've always liked it.
+- I think fans appreciate players who give everything in a game.
+- In Italy I have learnt a lot, I have matured both as a man and as a player. I have lived the best years of my career here.
+- A regret? That I never played for Manchester United, I'd have liked that.
+- Sometimes, you mustn't think about risking your career and make a decision right from your heart.
+- In no other country is football lived like it is in Italy, almost to the point of overkill. There is too much football on TV and in the papers, there is always talk about football during the week.
+- I have always had everything at Juventus and I wasn't missing anything.

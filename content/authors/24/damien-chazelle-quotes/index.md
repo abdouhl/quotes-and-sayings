@@ -1,0 +1,109 @@
++++
+author = "Damien Chazelle"
+title = "Damien Chazelle Quotes"
+quotes_len = "103"
+description = "the best 103 Damien Chazelle Quotes"
++++
+- There are no large-scale original musicals being made right now. They're all Broadway adaptations and jukebox musicals or catalog musicals, and they just don't interest me as much.
+- My dad is a big jazz fan, and that was the reason I first got into jazz.
+- As delicate as 'Guy and Madeline' was, it was important that 'Whiplash' come off as more of a fever dream.
+- The greatest thing has been that projects that were pipe dreams before 'Whiplash' are now feeling more realistic.
+- Mozart was born Mozart. Charlie Parker was born Charlie Parker.
+- As a drummer, you're always fighting for a level that you never quite attain.
+- I love the idea of using film language similarly to how musicians use music - combining images and sounds in a way that they create an emotional effect.
+- Real practice means working on stuff you're not good at. Real practice is about butting your head against the wall repeatedly until you get it right.
+- What I love about jazz is that it's full of legends, full of myths. It's an oral history because it started in New Orleans and Kansas City, under the radar.
+- I was a jazz drummer, and it was my life for a while: what I lived and breathed every day.
+- There were so many specific things from high school jazz band that I remembered: the conductor searching out people who were out of tune, or stopping and starting me for hours in front of the band as they watched.
+- I didn't have traditional stage fright. If there was 500 people in the audience or three people in the audience, it didn't really make a difference. What made a difference was the conductor. Everything that I was scared about as a drummer was him.
+- Practicing is not normally fun. Sometimes people say they're practicing, but they're really just enjoying themselves and the instrument. That's not real practice.
+- Before 'Whiplash,' I'd had a string of failed scripts. I'd pour my blood, sweat and tears into them, and no one would like them.
+- I guess art itself is insane. Its actual function is rarely clear, and yet people give their hearts and souls and lives to it, and have for all of history.
+- I love being in the editing room and playing with tempo and with the rhythm of shots.
+- I want to do an American 'Umbrellas of Cherbourg.'
+- I love the ending of 'The Wrestler.'
+- I find L.A. kind of romantic, actually. As a movie junkie, it's a city that was built by the movies. There's something really weird and surreal about it that I find energizing.
+- I was always pretty decent at fast stick work or doing stuff that seems impressive that's not really; I was pretty tasteful and had good ideas musically. But I had a terrible sense of tempo, which is like being a blind painter. The conductor would just rip into me, and it lasted for years.
+- I never desperately wanted to be a jazz drummer. If anything, I was motivated a lot by fear. Fear of the conductor, fear of the future.
+- If you're an artist, you want to draw from real life; you want to draw from experiences, emotion, and it's something that a lot of musicians juggle with. I've always found it so fascinating.
+- Certainly, I've loved musicals for a while, so I did some short films in college that had musical numbers and things like that, so I've kind of been obsessed with Fred and Ginger and Vincente Minnelli and Stanley Donen and Jaques Demy forever.
+- I like movies where you feel like it was actually thought through.
+- I tend to latch on to things and not let go.
+- There's something very particular about the kind of rage you feel when you're alone in a practice room by yourself, unable to master a simple thing like a rudiment.
+- I was in high school, and when you get to be 14, 15, you start to feel a little more like your own person so that you can assert your adulthood a little bit.
+- There are a few musicians that I know who seem on the outside like very asocial or somewhat unemotional people, people who aren't capable of emotions, and people think they're very cold inside.
+- First time that I cried at a work of art was at a drum solo that I saw. A drummer named Winard Harper, part of the Billy Taylor Trio, gave back in - I would have been in high school - 2005 or something.
+- What's great about musicals is their energy and go-for-brokeness - stopping the story to sing and dance. How can you not love that?
+- I remember moving out to L.A. straight after college and just starting to try to write scripts and trying to get stuff off the ground.
+- If you look at 'West Side Story,' a lot of those numbers are actually pretty cutty, but the cuts are always musically motivated.
+- In a weird way, I'm always going to ground myself. I'm an insecure kind of pessimist, but I'm always kind of waiting for the other shoe to drop.
+- My motivation for being a good drummer was born out of fear, which, in a way, seems so antithetical to what art should be.
+- I don't think of 'Macbeth' as the villain. I don't think of 'King Lear' as the villain. I don't think of 'Hamlet' as the villain. I don't think of 'Travis Bickle' as the villain.
+- Certainly, grades only matter so much when you're in Hollywood. But I became an utterly motivated, devoted, committed student. I was a good student because I was convinced that it would somehow help me in my quest to become a filmmaker.
+- I was interested in music and making movies about musicians, but my own experiences, and doing what it felt like for me to be a drummer? Nah, I wasn't interested in that.
+- By the end of high school, I had this fork-in-the-road moment where part of me considered going to vocational music school to really pursue it.
+- I think, especially living in L.A., it's very easy to get wrapped up in weekend announcements and the trades and the whole social life of the city, and to get divorced from what actually matters.
+- I like the idea of working my way up. I don't feel impatient to immediately jump into something that could literally bring down a studio if I don't do it well.
+- When you're trying to paint a portrait of a very specific world, you're trying to show what makes the world different. So, sometimes it means exaggerating certain kind of aspects, but I don't think it's that important or it's that much of an issue as long as you get an emotional truth across.
+- I didn't have traditional stage fright. If there was 500 people in the audience or three people in the audience, it didn't really make a difference. What made a difference was the conductor. Everything that I was scared about as a drummer was him. It was his face. It was whether or not he'd approve of my playing.
+- 'Whiplash' was always the song I hated the most because it's a song designed to screw with drummers.
+- When someone is playing drums, they aren't actually moving around a space; they're just moving their arms and limbs. They're stuck behind the drum set. So to film someone playing the drums and make it feel as kinetic as a car chase or a shootout or a battle scene was the challenge.
+- I wanted to look at the mentality that can breed that sort of intensity, that kind of cutthroat, pressure-cooker feeling, especially a form of music like jazz, that should be - or you'd think should be - all about liberation and improvisation and everything.
+- It's easy to show terrible people's behavior on screen, and we all just kind of nod and go, 'Isn't that terrible.' It's more interesting when you can show terrible behavior in the interest of something good.
+- Whiplash' was just a lucky kind of convergence of events in that I'd been trying to get a bigger project off the ground with no success for a while, and then finally, out of frustration, I just wrote this leaner, meaner, personal script about my experiences as a jazz drummer, and that's the one that wound up getting made.
+- I actually grew up wanting to be a filmmaker. I wanted to make movies, and music was a detour, almost.
+- I remember being inspired myself when smaller films, whether it's 'Beasts' or 'Winter's Bone,' wound up in the Oscars lineup.
+- As a kid, I was just writing scripts and taking whatever film classes I could in college.
+- Certainly, my manager Gary Ungar was the first person to give me any attention and hustle for me. This was back in 2009.
+- If there's a good review, I'll skip over the headline, but I always find the bad reviews and read those. I don't know why. It's a little sick and demented.
+- There are a lot of musicians in my life. But movies came first for me. That was my original passion.
+- It's a little difficult when something goes from being an utter obsession - a thing where your skill defines you as a person - to it just being a thing you occasionally do.
+- I was really trying to sell to people who hate jazz: to make a case for the art form as youthful and energetic, not the sort of rarified intellectual activity it's painted as.
+- At the upper echelon of musicians in general, I guess performers in general, you have to have this kind of live-or-die, cutthroat mentality.
+- It's a weird thing where, especially in jazz, you have to totally mention cutting sessions and people one-upping each other and people being super, super tough on each other. And out of it emerge these genius musicians.
+- I remember when I first met Jason Reitman with the 'Whiplash' script; he quickly became a mentor figure who guided me through the process and also protected me and made sure that when it came time to actually make 'Whiplash,' I was able to make exactly the movie I wanted to make.
+- I was always pretty decent at fast stick work or doing stuff that seems impressive that's not really; I was pretty tasteful and had good ideas musically. But I had a terrible sense of tempo, which is like being a blind painter.
+- Nothing is guaranteed to last, so you should just enjoy it as it happens.
+- It was only through getting interested in more out-there and avant-garde forms that the musical suddenly seemed like such a wonderful genre to me.
+- I've always, especially through old Hollywood musicals, loved just to watch tap dancing; I adore it. I think it's fantastic.
+- I don't like the idea the viewer can kind of sit there and go, 'Make me like this person.' People aren't inherently sympathetic.
+- I didn't feel the kind of joy every day playing drums that I thought you were supposed to feel.
+- My hands were constantly blistered or bloody; my ears were always ringing. I tore through drumheads and drumsticks like there was no tomorrow.
+- The first thing I did as a child was draw. I wanted to make animated movies. I think Disney's 'Cinderella' was the first movie I ever saw. 'Peter Pan' was the first movie I ever saw in the movie theater. I grew up with 'Dumbo' and 'Pinocchio' and 'Sword in the Stone.' Those were the movies I wanted to make.
+- I like movies that are specific. Movies that home in on a very specific subculture, a specific discipline, a specific world.
+- I handle screenings and award ceremonies really badly.
+- I feel like a lot of directing is casting.
+- If you want to make a movie, there may be many forces trying to pull you down, but really, a lot of it is will power. You can will it into being if you just believe that you are going to make a movie.
+- 'La La Land' is about the city I live in. It's about the music that I grew up playing; it's about movies that I grew up watching. Even the big spectacle of the movie feels private to me in that way.
+- My version of a stress dream is, really, showing up on a concert stage with a drum set and not knowing the chart.
+- There's something very particular about the kind of rage you feel when you're alone in a practice room by yourself, unable to master a simple thing like a rudiment. You keep trying to master this very basic thing, and when you don't get it, you just scream. I broke a lot of drum heads, and I broke a lot of sticks.
+- I was a kid living in New Jersey, who - I'd wanted to make movies since I was a little kid, so that came before music for me. But I started playing drums just as a hobby, and I wasn't even really into jazz that much.
+- I guess I'm kind of interested in that elusive search for a bond between life and work and between compassion and competitiveness. There's always something at the end you have to find to live a full life, but it's hard to find.
+- There something to be said for having even unrealistic dreams. Even if the dreams don't come true - that, to me, is what's beautiful about Los Angeles. It's full of these people who have moved there to chase these dreams.
+- People aren't inherently sympathetic.
+- One interesting thing about jazz, or art in general, but jazz especially is such an individual art form in the sense that improvisation is such a big part of it, so it feels like it should be less soldiers in an army and more like free spirits melding. And yet, big band jazz has a real military side to it.
+- I was a writer for hire. I wrote to pay the bills.
+- People like Art Blakey and Buddy Rich, you look at them playing music, and it's just like looking at a heavy metal drummer. I mean, they're playing with the same amount of ferocity. It's not to say all jazz is like that.
+- I hadn't seen that many movies that really go deep enough into the fears of playing music or the language that musicians can use to treat each other or, like, the way that you can see it dehumanize and the way that it can feel like boot camp.
+- In some ways, jazz is the most precise of art forms and the loosest in the sense that it's all about improvisation, but the musicianship required is kind of insane. To actually play with real jazz musicians is a different level of musicianship that almost has no equal in any other form of music in the world.
+- I do truly believe that the smallest stories can wind up being the biggest because it's through the specific that a writer can best access the universal.
+- Going back to my film education, I always have that voice in my head that's always screaming, 'Sell out!' And that's good: you want that, because it keeps you on your toes, and it's important to remember what's actually important.
+- I had seen a lot of music movies that celebrated music or that showed the kind of joys from playing music, which is a big part of it of course, and not something that I would want to deny.
+- I would break a lot of cymbals. You whack the cymbals hard enough, and they will crack in half. Drums are not actually as sturdy as they look. They're actually somewhat fragile instruments.
+- The go-to reflex all over Hollywood is still likeability. I've always had a problem with it because I think I have a weird barometer in the sense that some of the characters I've cared about the most in movies are characters that are often thought of as despicable.
+- My first movie was totally improvised.
+- If you're on the varsity team, the responsibilities are a lot bigger and there's more stress, but you also walk around feeling probably like you can hold your head high.
+- I'm predisposed to never be in pure celebration mode.
+- The end result of my personal story is that I became a really good drummer, and I know myself well enough to know that I wouldn't have without this really tough conductor and this really cutthroat hostile environment I was in.
+- I'm too self-serious for a comedy.
+- I've always wanted to make movies that are fever dreams.
+- I like a set to be a happy place, where people can feel free to experiment.
+- I'm a terrible procrastinator.
+- I love movies where you can sense that the director risked biting off more than they can chew.
+- I love the idea of thinking of cinema as not that far from music. A lot of my favourite movie makers, the way they move their cameras or the way they cut just feel very musical - even if the movies have no music in them at all.
+- It's interesting when you wind up distilling all your ambitions and your goals and dreams into one single person. It's giving that person a lot of power.
+- 'Whiplash' scared me. I feel you should only do projects that scare you to some degree. I get motivated by those sorts of feelings.
+- I think there is something to be said for not coddling people and not accepting good as good enough.
+- It's certainly no coincidence that big bands became the entertainment of the army in WWI and WWII, and that jazz drumming style is very military influenced. The snare drum comes from the military and becomes the core kind of sound of jazz drums.
+- I was in this public high school in Princeton, and it had this topnotch jazz program - if you were a musician of any kind of caliber, your holy grail was to be in that orchestra. It was that claim to fame of the school, of the town, other than the university. But it was better than the university band.
+- There's something about some of my favorite musicals that they put me in a sort of heightened state where I feel like I'm floating out of the theater rather than walking out.

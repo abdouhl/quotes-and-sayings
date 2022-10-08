@@ -1,0 +1,26 @@
++++
+author = "Jeffrey Katzenberg"
+title = "Jeffrey Katzenberg Quotes"
+quotes_len = "20"
+description = "the best 20 Jeffrey Katzenberg Quotes"
++++
+- You shouldn't be fearful of starting over.
+- I haven't got a lot of patience.
+- If you want people to do something new, you have to make it rewarding for them creatively and financially.
+- I dare you to be married for 44 years and exceed anyone's expectations.
+- The entire exhibitions industry in the United States of America has filed for bankruptcy.
+- Every single thing you see on-screen came out of somebody's creativity. It doesn't exist. Nature didn't deliver it to us. Everything had to be dreamed.
+- Ron Howard is a great filmmaker and also a great storyteller in 60- and 30-minute shows, so why isn't he going to be a great storyteller in 10-minute pieces?
+- Since we made Shrek in the digital format, you actually can see it in its purest form digitally.
+- A company like DreamWorks, all we do is make product. That's all we do. We don't own distribution. We are purely in the creation of content.
+- You can tell when an actor or actress cares about their work. It's really clear.
+- Inspiration comes from all different places.
+- What I love most about animation is, it's a team sport, and everything we do is about pure imagination.
+- I have a very difficult time getting the Napster world.
+- I love to look at The Graduate, or Lawrence of Arabia, or things I had nothing to do with. But you could not get me to go back and watch movies that it was a privilege just to be around them when they were being made.
+- Remember, I'm someone who got fired from Disney and eight days later started the first studio in 65 years with two of the most brilliant, successful people in the history of the entertainment business, doing something everyone said was somewhere between improbable and impossible. I'm afraid that's exactly what I love doing.
+- I know what we do really well - I just try and keep us focused on doing that.
+- Shrek is not like anything anybody has ever seen before.
+- One of the things that has happened for me is that whatever came next was better than what I had before.
+- It was the business that made Pop go away, not our inability to create.
+- The thing that's changed the most has just been the rapid technology.

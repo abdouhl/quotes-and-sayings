@@ -1,0 +1,15 @@
++++
+author = "Drew Seeley"
+title = "Drew Seeley Quotes"
+quotes_len = "9"
+description = "the best 9 Drew Seeley Quotes"
++++
+- I did the whole struggling actor thing and lucked into being in the right place at the right time and getting involved in the first 'High School Musical.'
+- You always want to make sure that you're not the weak link. You're surrounded by really talented, great actors and singers, so just staying on your game is the main thing.
+- I think focusing limits you. As long as nothing that I'm doing suffers from my ADD in wanting to do everything, then I want to just keep doing everything. It keeps it fresh and fun.
+- I went to UCF in Florida in Orlando. I went for advertising and public relations. I moved out to California my senior year because I knew I wanted to be an actor, but I also wanted to finish school and get my degree. I took mainly a bunch of criminal justice courses online for the last year because that's all that they offered.
+- I think it's always great to not be the smartest person in the room because I don't want to ever feel like I can't improve upon what I'm doing. I just want to surround myself with people that are better actors than me and better singers and dancers and see what happens.
+- I'm living in New York, getting paid to do what I love. I get to boss people around, wear a fancy costume, dance with beautiful mermaids, and meet my fans every night at the stage door. I'm loving it.
+- I really hope for more Broadway. I didn't think I was going to love it this much. I would love to stay here.
+- The proposal is the only thing that the guy has control over in the entire wedding deal. It is your one chance to make this moment stand out, not only for you, but for her.
+- I'm consistently recording and releasing stuff online or YouTube videos or whatever it is. I just don't know if it's going to be a full on, I'm the next Rihanna, or whatever. I'm not going for it to that level. But I love making music and I don't think I could stop if I wanted to.

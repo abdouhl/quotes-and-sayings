@@ -1,0 +1,62 @@
++++
+author = "Guy Pearce"
+title = "Guy Pearce Quotes"
+quotes_len = "56"
+description = "the best 56 Guy Pearce Quotes"
++++
+- Men often still expect women to be under their thumb.
+- I think when people are repressing things, or burying things, that can manifest in all sorts of ways.
+- I don't really relate to certain blokey men who just want to talk about blokey things. I never really know what to say and I always feel I have to act blokey in order to have them not say, 'You're a weirdo.'
+- The thing I've come to learn is that what's great about small independent films is the intimacy and the communication that occurs when you're making them.
+- I've always been resistant to parties and schmoozing.
+- You would think that with ten super-famous people in one movie, it's gonna be ten times more popular or viewed, but on some level, they can cancel each other out.
+- Every time you say yes to a film there's a certain percentage of your yes that has to do with the director, a certain percentage to do with the story, a certain percentage with the character, the location, etc.
+- If I'm exhausted, physically and particularly emotionally, I can't tell what's good and I can't tell what's bad and I'm useless.
+- When you're promoting a film it's really interesting trying to gauge what people think about it.
+- Well, I never wear shoes at home. Never.
+- Working on films where the money's more important than the creativity, I just get a bit freaked out by that. I just don't feel comfortable.
+- The reality is that we have all these awards and all these festivals that give out awards, so you sort of go, 'okay, well, people liked the film, and I think it's a good film, and it's up for an award - well, I guess it should win the award then.'
+- Comic-strip stuff isn't really my cup of tea, really.
+- The majority of people who join law enforcement are doing it for good, moral reasons, but then there are the few who get through, where you go, 'Whoa, hold on a second. What's this guy doing here?'
+- I went through a period where I just wanted to punch everybody. Since then, I've had a lot of therapy and I've figured a lot of things out.
+- I think a lot of actors take on fun roles and then they're lazy or flippant with them. I just can't do that.
+- I'll generally write out every scene that's in the film on a couple of pieces of paper, just with a little one-line. And then I can scan it a bit and go, 'This first third of the film, generally, I'm kind of calm.' Then I might do something on one piece of paper that just relates to the energy of the character.
+- When I go to a movie, I'm always thrilled if I've seen an actor do something and I didn't realize until the end of the movie that that was that person. I love that.
+- I tend to project my father figure onto any director that I'm working with, or mother, if I'm working with a female, or it can be confused.
+- I don't enjoy movies in 3D. I find I can't engage with the story as well.
+- I grew up with such an affinity to cats. I adore the way that they think and operate.
+- You work on things and you have such faith in them while you're making them that everything feels special - in a way.
+- The movie industry is very competitive, and if you're like me and you suffer from your own insecurities about whether or not you're any good, that can be troubling.
+- I always look at films as real stories with real people in real situations. That's why I struggle with the whole notion of calling someone the 'good guy' or the 'bad guy', because I think we all have potential to do good things and all have the potential to do bad things.
+- A movie that gets a PG-13 rating can show someone running down a street killing 27 people. And there are no repercussions.
+- I'm interested in the psychological exploration of human nature, and it just happens to come in the form of film-making.
+- Doing that hunt scene was really quite demanding. I actually broke a rib during that scene. And then all the scenes after that became quite challenging, just breathing and laughing.
+- I'm never there enough to really keep up with what's going on in the Australian film industry. I just try and be part of it as much as I can.
+- I've been asked to do action-oriented movies in the past and they just haven't been right for me.
+- Success comes in waves.
+- I wish I had the ability to crack wise, generally. You know, without getting punched. There's no way I could do it while getting beaten up. Definitely.
+- I feel I do my best work when it's all there on the page, and I feel that the character is very vivid as I read the script and I'm not having to create stuff and trying to cobble together something. If I have to do that, then I don't entirely trust what I'm doing.
+- I'll have a different answer tomorrow that I do today.
+- I'm constantly trying to be as original as I can.
+- I don't have many friends.
+- The thrill of coming home has never changed.
+- I grew up doing musicals. I've done so many musicals in my life, I kind of got them out of my system. But, I certainly would be open to them. Rocky Horror Show is a big favorite of mine.
+- I am geared towards communicating on a female level.
+- Funny enough, if you are looking at people these days who are putting Botox in their face and getting all sorts of plastic surgery, we look at them and go, I can tell you've had Botox. I can tell you've had plastic surgery. You look really strange to me. But no one's saying anything. We're just accepting the fact that they're strange-looking.
+- I don't understand the actor who plays the same role from movie to movie. Maybe it's because I worked on long-running television when I was in my teens, and so the idea of playing the same role just bores me intensely. I'd rather not do it at all.
+- Where do you even draw the line between genres?
+- I just can't talk about things before I do them, because just for me... I give energy away before I've put energy into the job.
+- Having a partner who has nothing to do with Hollywood helps keep things in perspective.
+- Growing up, I was a kid pretending to be an adult.
+- I don't feel I'm making a conscious effort to go more commercial.
+- I'm far more comfortable in my 40s than I ever was.
+- On stage, you've got dialogue you've learned. You've got a paying audience. It couldn't be better, you know?
+- My problem is I'm an addictive personality. I can't have one coffee. I can't eat one piece of chocolate.
+- I never really enjoyed the fame stuff.
+- I don't believe in God, but the thing I do believe in is that we're all connected.
+- I suffer from overheating quite easily.
+- It's funny, though, with films, because you can incorporate a variety of elements, and sometimes that can work for you and sometimes I think it can work against you.
+- I always think the really unfortunate thing about the Australian film industry is its lack of momentum. And I don't mean this in a derogatory way. I'm always wanting it to pick up momentum, and I'm wondering if that's even possible.
+- A lot of people are going to hate me for saying this, but one of my least favorite kinds of music, or the kind of music that I feel I've so got out of my system, is musicals music.
+- It's hard to pinpoint why all of a sudden a group of Australian films will be doing well and why they perhaps are better made than some from the past.
+- You never say never, but I don't think I'd want to do a long-running series.

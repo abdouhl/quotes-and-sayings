@@ -1,0 +1,106 @@
++++
+author = "Diego Simeone"
+title = "Diego Simeone Quotes"
+quotes_len = "100"
+description = "the best 100 Diego Simeone Quotes"
++++
+- There is no such thing as revenge in football, or in life for that matter, just new opportunities.
+- In fact, a coach is primarily a trainer, not only in tactics but also in emotional matters.
+- Talent has to be accompanied by effort as well, and that's shared around when you work as a team.
+- As a coach, the greatest passion you can have is for improving players.
+- It's not enough to just have talent at Atletico Madrid. At other clubs it is, but we can't sign superstars and have to look for players with a good work ethic.
+- It's like Barcelona who have Messi. He decides games with his attacking play; Oblak resolves them with his saves.
+- If I had to chose between Messi and Ronaldo, then most likely I would choose Messi.
+- I'm very happy in charge at Atletico. The squad give me commitment, talent and style.
+- I like brave people.
+- When we were children we played on the street - on tarmac and things like that.
+- Psychology is important but motivation is something that if you don't have it inside then you can't provide it.
+- For Altetico to keep wining we can only do one thing - work and fight.
+- Football is not just in Europe, there is football all over the world so I am always open to the idea of managing anywhere in the world.
+- My ambition is to work to improve my players.
+- With me, what you see is what you get.
+- Finding myself in a final with Atletico makes me happy. Why? Because I know the feelings of all the people at the club - because I know how the players feel. They need to see their team as champions, so we have more fans every day.
+- In La Liga you are awarded for consistency.
+- Catania was a real learning curve. I grew amid difficulties. In terms of courage and ideas, a lot about my Atleti comes from Italy.
+- Strikers are streaky creatures.
+- When there are changes there will always be people who like it and people who don't.
+- Maybe the key aspect of imposing fear to the opposition is to make them understand that we have no fear.
+- The first time I played England was at Wembley in 1991.
+- With any possibly erroneous decision, you can always look back and think you could've done something differently - but always with the benefit of hindsight.
+- As a coach you need to choose the characteristics your players can contribute. I don't think it's a good thing for a coach to analyse his team by looking for something he sees in other teams. He has to pay close attention to the characteristics his team have, and make the most of those.
+- As a player, you can be more spontaneous and instinctive, but now as a coach I have to find a psychological balance within the team.
+- There are those who discredit a style or a way of playing and those who accept all the different styles.
+- It's not easy to play for Atletico. Talent is not enough, the bar is very high.
+- I was 27 or 28 years old when I really decided I would become a manager. I would go home from training at Lazio, grab a folder and pretend I was taking a training session. You know the way kids imagine things, when they are playing? I would do the same as an adult, playing at being a manager.
+- I have to continue to be very demanding of myself in order to evolve.
+- I will never coach Real Madrid.
+- I went a week to see Mourinho at training, and another week with Guardiola. I learned from the two, I took important things from both.
+- We play to win, with the arms that we have.
+- Whenever a fellow coach is sacked it is not good for any of us - it hurts. You just have to accept it because it is part of the game.
+- I would never close the door on any job because I like to work, I like football.
+- What I'm trying to say is that within the styles, first, there's something clear: the style is given by the players on the roster.
+- We want to be the team that no one can stand to play.
+- Motivation should come from within each player; if not, it's difficult to get results.
+- Of course, becoming champions is something we all want, but I think that the best 'championship' for a manager is to see players like Koke, Lucas Hernandez, Angel Correa - lads who have come up from all the way down in the lower divisions - become professionals of a high standard.
+- He's an animal, Diego Costa is an animal!
+- Football is marvellous and there are countless ways to play and to win.
+- The teams that defend well are as important as those that attack well. If you don't concede goals it is much easier to win but it is all about having balance.
+- Ajax have a set model, a defined youth programme - Barcelona have one too, and Juventus. And Atletico Madrid do too. Real Madrid don't - because they alternate developing their own players with signing talent.
+- I demand a lot and we look to improve, but I'm glad that Atleti are expected to be among the best every year.
+- Liga MX is a great environment, the fans are very enthusiastic.
+- Waking up every day and planning games makes me motivated.
+- Artificial pitches are just one more condition for us, like sun, wind or snow; we should be able to deal with such conditions.
+- Winning is always beautiful.
+- A final is a final, and is motivation in itself.
+- Few footballers at 20 or 21 are the finished article.
+- The hardest thing in life is reinventing yourself and staying at the top of your game, whilst the hardest thing in football is finding that club you want to stay at.
+- Football is like hunting. One second can change it all, but it's not just any second, it's a flash. The prey is there and suddenly then it's not. In an instant it's over - you won't have the chance again. You need to know which one precise second to train for, and to understand that moment.
+- At some point, I would like to coach Argentina, but I have to improve as a coach. I would like to do it in the final stretch of my career.
+- There will always be mistakes, all teams make mistakes.
+- In football you need to look to make life difficult for the opponent.
+- Defeats are always tough, whatever you have lost, and they affect me the same way they affect anyone who loses a match - no more or less.
+- Those who manage to keep the offensive and defensive balance are more successful. We search for balance in order to keep a stable level, which is the most difficult thing to do.
+- I say what I feel.
+- Football is wonderful because no one is right: there's no absolute truth.
+- I relate football with boxing, with a street fight. In both cases there is always one moment, a second, in which someone shows fear in their eyes, in their body. In football it's exactly the same.
+- Every footballer has their own identity. A Uruguayan player is different to a Spanish player. A Portuguese player may be similar to a Spanish one, but not the same - and so on.
+- You have to live in the present.
+- When coaches arrive at a club, we need to understand its history. If we don't understand it, then we are destined to have a bad time.
+- I think there is an idea, a unique essence to every club.
+- I would never close the door on coaching in Mexico.
+- Each person can think what they want.
+- The only improvement I know in football is through work, it is the only way for the team to grow.
+- When the opposition team sense that there is fear, they take advantage without mercy.
+- Griezmann is an extraordinary player who adapts to all the needs of the team.
+- He who brings a style to a club that can't carry it out, he is not a good manager, because he is attacking the club that hires him.
+- Football is about balance.
+- It's difficult to get ready to face a player like Cristiano Ronaldo. He's a goal animal.
+- Football is everything, mind, heart, talent.
+- I don't drive a truck, I drive a team of footballers who work for a major club like Atleti.
+- Diego Costa always gives us physical and moral strength. He is a very important player for the character he transmits to the team, and his potential as a football player.
+- I always believe that there are players that are hard to replace.
+- Maradona and Messi played in different times and in different positions. Messi is much more a striker, Diego was all over the entire pitch. They are two extraordinary players.
+- Football is like boxing because you have to know when it is time to attack.
+- It is always good and important that the strikers score.
+- From the first moment you accept to join a club, the best thing you can do and the most respectful thing to do is ask yourself: 'What is the history behind this club?'
+- Sometimes, there isn't respect for our ways, but you can't change people.
+- Busquets reads everything. Players like Busquets or Xabi Alonso in midfield have the capacity to read the whole game.
+- Football is wonderful because everyone can have an opinion and make judgements about what they think and see.
+- My role is to take the player to his limits, to provoke him, to annoy him against me, because in this nervousness is the will to improve.
+- I'm a believer that emotions can move mountains, that spirit alone can trump budgets.
+- I think talk is cheap - when I hear people say what they'd like to happen, I think it's empty.
+- Like I've always said, in football the most important thing is the quality of minutes not the quantity.
+- Whether you win or lose against English teams, you always feel it's been a proper contest.
+- The game's my life and I'm so passionate about it. When you see your life so intertwined with football it can make things very difficult. You might go and watch a film and start imagining footballers running across the screen, you know?
+- I am very respectful and always have been.
+- A coach I admire? Jurgen Klopp. No doubt.
+- It's hard for me to interact with players who don't give themselves completely. The weak don't interest me.
+- From when I started to play with a ball I wanted to win everything.
+- Heart can cancel out budget.
+- VAR exposes everything. Before we didn't have the possibility of seeing some things that we now see. The referees are people who can be wrong as well.
+- Geminis are aggressive, changeable, intense.
+- I do not listen to criticism or flattery, one weakens you and the other angers you.
+- Fans can't score a goal but they have energy.
+- The characteristics of people according to their star sign are similar, and we pay attention to how we can get the best out of them.
+- Whether you like Mourinho's style or not is open to discussion but he has won in different places and this has a lot of merit.
+- If there is one thing I am, it is very hard-headed. If I want something, I go after it - and I go after it ad nauseum.

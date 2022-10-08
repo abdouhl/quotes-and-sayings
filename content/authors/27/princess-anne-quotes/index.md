@@ -1,0 +1,22 @@
++++
+author = "Princess Anne"
+title = "Princess Anne Quotes"
+quotes_len = "16"
+description = "the best 16 Princess Anne Quotes"
++++
+- I don't like children.
+- I do think... gene technology has got real benefits to offer, which will have maybe an occasional downside, but I suspect not very many.
+- She's my mother and the Queen.
+- The biggest danger to the movement is that it is getting too big in sheer weight of numbers. Other sports will become more popular in terms of numbers, and everyone will want to be involved in the Olympics.
+- I think it's quite difficult to follow in your parent's footsteps in the same sport.
+- You are a pest, by the very nature of that camera in your hand.
+- Golf seems to be an arduous way to go for a walk. I prefer to take the dog's out.
+- It's a very defined area, Newfoundland. It's an island - Labrador is a huge empty space. It's a very defined area with a very few number of people.
+- When I appear in public people expect me to neigh, grind my teeth, paw the ground and swish my tail - none of which is easy.
+- From a conservation issue alone, you'd have to say there are too many badgers. A bigger growth in the badger population is not good for the balance of conservation anyway.
+- I know my own heart to be entirely English.
+- Surely, if we are going to be better at producing food of the right value, then we have to accept that genetic technology... is going to be part of that.
+- For many children, the sport they do is because that is the one that was most available to them.
+- People don't believe they've experienced the event unless they've taken a photograph.
+- I don't ever remember not riding.
+- I never liked the idea of the 'Royal Family' film. I always thought it was a rotten idea.

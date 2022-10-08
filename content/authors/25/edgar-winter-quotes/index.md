@@ -1,0 +1,31 @@
++++
+author = "Edgar Winter"
+title = "Edgar Winter Quotes"
+quotes_len = "25"
+description = "the best 25 Edgar Winter Quotes"
++++
+- We started out when I was 6 years old. We played ukuleles and sang Everly Brothers songs.
+- I've always considered myself something of a musical rebel.
+- I get really tired of hearing of all these old rockers whine and complain about how hard life on the road can be. Just stop if you don't like it. I don't think of it as work. I love it all.
+- I believe that blues and jazz are the two uniquely American contributions into music.
+- I started out playing ukulele when I was 5 or 6 years old.
+- I can't imagine anything more worthwhile than doing what I most love. And they pay me for it.
+- I love music more just in and of itself. I love harmony and rhythm.
+- When I was first starting out, you'd have to bang an old upright piano and stick a mike in it and it would always feed back and you could never turn it up loud enough to be heard and I would beat my hands black and blue and bloody.
+- When I did 'Frankenstein,' the record company said, 'Now you can do 'Dracula' and 'Wolf Man' and we'll call the whole thing Monster Rock!' and I said, 'No, that's not going to happen, I'm not going to do that.' I kind of enjoy defying categorization. I love music in and of itself. I love the beauty of harmony and rhythm.
+- There's a bootleg album that was recorded when I was 14 or 15, a compilation of things live at different clubs. Songs like Girl from Ipanema and Cry Me A River. I don't know what the title of it is.
+- I liked the more sophisticated urban style of blues like Ray Charles and B. B. King, Bobby Blue Bland, Lou Rawls; people like that with more of a tendency toward jazz.
+- I guess that I'm primarily thought of as a rocker, largely because of 'Frankenstein' being such a heavy song - you know, it was really hard rock, almost a precursor of heavy metal and just the image of the synthesizer. I happened to be the first guy to get the idea of putting a strap on the keyboard.
+- As far as I'm concerned, blues and jazz are the great American contributions to music.
+- I played Woodstock in '69, and it really changed my life. Without a doubt, it was the single event that really changed the way I felt about music. Up to that point, I hadn't really thought of myself as more serious musician, and I didn't really have that much interest in pop music.
+- There's just no telling what I'll do. But I can say for certain I will continue to play, record, and put out music.
+- The most profound, tangible influence in my life has been my wife, Monique. I don't know that I would even be alive were it not for her, and I certainly would not be the person that I am today.
+- There is a real formula to writing music, verse, chorus, verse, chorus, bridge. It's very formulaic. The subject matter that you can address in pop music is somewhat restricted. It just doesn't allow that same emotive quality that you can put into poetry.
+- Music is very spiritual, it has the power to bring people together.
+- I really had little interest in becoming famous. When I write my book, it will be my guide to avoid becoming a rock star.
+- I'm primarily thought of as a rocker, and certainly 'Frankenstein' had a very dramatic power rock image. It was almost a precursor of heavy metal and fusion. But I also love jazz and classical and if there's one common thread that runs through all my music, it is blues.
+- But when I played Woodstock, I'll never forget that moment looking out over the hundreds of thousands of people, the sea of humanity, seeing all those people united in such a unique way. It just touched me in a way that I'll never forget.
+- I think The Doors are one of the classic groups, and I think we're all tempted to feel like the time in which we grew up was somehow special, but I really do believe that there were two golden eras in music: The Forties and Fifties of big band, jazz and swing, and the Sixties and Seventies of rock. To me, they're really unparalleled.
+- I hadn't realized the number of people that are still interested in listening to what I am doing, people I would never know about if not for being online.
+- So yeah, I am definitely a blues man at heart.
+- I just want to thank all my fans for their loyalty and support-for coming out to the shows and buying the CDs.

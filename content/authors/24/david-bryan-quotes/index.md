@@ -1,0 +1,88 @@
++++
+author = "David Bryan"
+title = "David Bryan Quotes"
+quotes_len = "82"
+description = "the best 82 David Bryan Quotes"
++++
+- I like to see other bands, and I like to hear their songs, but I really like it when they engage the audience.
+- The American Music Awards mean more to us; that's a people's award, and we're a people's band. The Grammys are the critics.
+- I remember, when I was very young and going to the Fillmore East and watching three of my favorite bands in one night, I'd want a hit. I want to hear the songs that brought them to that pinnacle of success.
+- Why would we want to do an experimental album? That's just selfish.
+- When I'm playing in the band, I'm sweating - giving 120 percent.
+- We would say we would play every pay toilet and use our own change. Across America and across the world, we just kept going and going.
+- We never do the same set twice... We play for at least two and a half hours, sometimes longer, so there's a lot of songs from all the records. And we know there's a stable we as fans would want to hear, so we always give them, then we change up a bunch of songs and throw in a couple new ones.
+- We've always been a band of the people, and we will always remain a band of the people.
+- I just wanted to release an album of piano music for music's sake. I'm not expecting to sell millions of albums. It's was just nice to be able to sit down at an acoustic piano and make some music.
+- There's trials and tribulations in a band.
+- I think, at the end of the day, we're Americans: that's what we are, and we believe in America.
+- Every time we do a new record, we do the best we can. For us, every record is stepping into the ring with another heavyweight champion.
+- My muse has always been the piano.
+- How do we keep it up? Because that's what we do; we're musicians, and we love to play and make music. And with every album, we get better, and with every tour, we get better.
+- Whether you're black or white, you're a human - and that's what matters.
+- Everybody in the world has problems, and the nice thing about entertainment is you get to forget about those problems and have a good time for a couple of hours.
+- We've been here since 1983 as a band.
+- Most theatre people and composers are like research hounds.
+- Our job is to be performers and give everybody a great night where they can forget about their problems and the world's problems, because they're always going to be there. They were there since the beginning, and they're going to be there until the end.
+- It's a sense of pride, a sense of you set out to get a record deal, and we got that. We set out to get a No. 1 record, and then we got that. Then you say, 'Wow, that was impossible and now even more impossible is to stay No. 1 and stay current and put out new records that people care about,' and we really stuck to that.
+- We're a bar band, so we know all the bar songs.
+- We really earned our keep by going door to door, going to every town, playing in every club.
+- We don't want to just be known for what we did. We want to be known for what we do and what we did. We've been highly productive since 2000 when 'Crush' came out.
+- Usually for the tour, there's about 80 songs in our brain.
+- When it comes to writing musicals, you write the best piece you can. Then, its destiny is in the hands of the actors and the director.
+- Any honor is an honor. You can't really say which one is better than the next, but it's always wonderful when you're honored by your peers for your work.
+- The Broadway run of 'Memphis' has been like going to the moon. It was so great to actually open at the Shubert Theatre and then amazing to be nominated for eight Tonys and attend all the luncheons and events.
+- I think, bad times, I sit down and I play - there's definitely certain songs that touch in certain ways. I go back to 'Moonlight Sonata' by Beethoven; that usually takes care of everything.
+- When I was growing up, there was hate. I looked around and saw that it was so wrong. I got to go round the world with my rock band, and you can bring harmony.
+- In rock n' roll, there are notes that aren't like notes. They're something in between, and it's the way you scoop into it.
+- A lot of my friends are doctors, and the difference between me and them is there's no musical emergencies to pull me away from dinner. 'I need the chords for that song right now!' No, it can wait.
+- I guess, for me, the therapy is walking on stage, playing all of our songs, and walking out. That's probably my therapy. That's a good time.
+- Every time you're on stage, you look out at a packed house, people all the way up to the top, people having a blast, everybody forgetting about the world for a couple hours. That's a special thing.
+- One of the greatest things about our band is that we bring the American dream to the world. Here's a bunch of kids that were living in nowhere New Jersey, and we made it through a lot of practice and a lot of work and a lot of luck. It shows the world, 'If we did it, you can do it.'
+- We play anywhere around two, 2 hours, so we're always in shape, but you've got to get yourself in super shape so you can sing that long, play that long, and feel strong.
+- I'm not a guy who grew up in theater. I've always played in rock bands.
+- Glass and wearable technology is an example of another step in consumer-facing innovation that will change how we share the music experience with our fans in the future.
+- I think 'Slippery When Wet' was the turning point, where our records represent our energy that we do live.
+- I went to Temple Emanu-El, and my rabbi, Rabbi Landsberg, was a huge influence on me. When I was 7 and went to kindergarten, there he was, a young rabbi who didn't wear a yarmulke and rode a motorcycle.
+- We have to play 'Livin' on a Prayer,' 'Bad Medicine.' We have to play them, and we want to play them, and that's what we're supposed to do. It's like going to see The Beatles and them not playing your favorite song. It's not the right thing to do.
+- I'm in a very successful band. We all love each other. It ain't ever breaking up. I also have a terrific hobby that became a full-time job. My only problem? There's not enough time to sleep in my world.
+- I think growing up in the shadow of New York shaped me for life. Hey, you come from Jersey, you get used to being dumped on by the big city.
+- The wild thing is that when I'm in the band, I can control my destiny with four other guys. As a composer sitting in the audience, you can throw good vibes at everybody, but you can't control anybody's destiny, so it's really unsettling.
+- I don't like it when bands don't want to play that one song everybody wants to hear. I think that's cheating everybody, and I think it's selfish of an artist to do that.
+- When I'm writing Broadway, it's for a character, a man, a woman, an old guy, a kid. In the band, you're talking in your own voice in the lyrics, saying what you think or feel. On Broadway, you're expressing that through a character.
+- There's no way you can imagine going from kids in high school to being the best band in the world.
+- I'm going to stop when I'm 100. I put a limit on myself.
+- I'd say that 98 percent of the bands we've played with through the years have either broken up or are stuck in some kind of '80s revival now.
+- I don't find writing for the theater that different from writing a rock song.
+- We love to make records, and we love to tour.
+- I remember that poster of Led Zeppelin with the plane. I had it on my wall when I was a kid. I thought that was the coolest. It amazes me that it came true.
+- A musical is really one of the most complicated beasts. It's a play, and there's music... and there's dancing... it's unbelievably satisfying to get something up out of your brain onto a piece of paper ... and start the process and then see it on the stage.
+- We've always been just an American rock n' roll band.
+- On stage with the band, your destiny lies in your own hands.
+- We never do the same set twice.
+- I've been through a lot of experiences in my life being in the biggest band in the world.
+- We started out a long time ago, and we've managed to just keep writing current songs and have No. 1 current records.
+- When you're on tour with the band, it's a different mentality. You don't sightsee because you're making sure you can do the show. But in musicals, I don't have to sing or play: I just have to use my brain, and the rest of the time, I'm free.
+- 'Memphis' lives in me, and I'm bringing it around the world.
+- There's no glamour in stupid mistakes.
+- I love my band. I love to play. I love to write.
+- When I was growing up, I had more comedy albums than musical ones. George Carlin, Cheech and Chong, Steve Martin, Richard Pryor - those were my main men.
+- I love the Memphis sound. When I was 16-and-a-half, with my driver's permit, I was playing New Jersey clubs in a 10-piece band; we had a horn section and would play great, great songs like 'Hold On! I'm Comin'' and 'Knock on Wood' and 'Midnight Hour.'
+- Most of Broadway is based on a movie or a book. You don't see many original musicals.
+- We keep trying to get better - constantly working at it. We love to tour. I love to play in front of people. You sit there, and everybody's smiling, and you're smiling. It's a good time.
+- In times of joy and sorrow, love or hate, peace and unrest, music has always been an important outlet for expressing our emotions individually and as a nation.
+- Before 'Memphis,' I had never considered working on a musical. But when Joe DiPietro sent me the script, I heard the entire score in my head.
+- I just write the way I feel, and if it feels good to me, hopefully everybody likes it.
+- I grew up as one of the few Jews in Edison, and I had people tell me they hated me because of my religion.
+- My father was a very big musical influence on me. He was a trumpet player. And that's what I started with. Then, when I was 7, my parents introduced me to the piano.
+- Musicals weren't on my radar.
+- We thought the hardest thing in the world was to get a record deal, then the hardest was to get a No. 1 record, and then the hardest thing is to stay at the top. It's a lot of work.
+- It's so much fun to be on stage and play. It really is.
+- I'm a good Jewish boy from Edison, New Jersey, so I went and saw 'Fiddler on the Roof' because you have to: that's part of your bar mitzvah experience.
+- You start out with your eyes wide open, and you've got dreams, and we worked really, really hard, and ours came true. So - and we're fortunate enough to keep putting out number one records, and we're fortunate enough to get out there and keep playing, and we truly have a blast.
+- It's funny - Americans are the colonials who ran away from the royals, and yet we're fascinated by them.
+- When we get on stage, naturally, you just get out there and work it as hard as you humanly possibly can do it.
+- People ask me, 'Is there pressure to win a Tony for your next one?' I've got three on my mantelpiece; I'm good. If that's the end of the story, I'm fine.
+- I've been playing piano since I was 7. I took 15 years of lessons. I've got a lot of miles on these hands.
+- Some I want to see just for curiosity. But no, I don't really rush out to see a bunch of musicals.
+- We strive to have new records. We strive to have new songs on the radio. That feels good that we can gain those new fans and still bring out our fans that have been with us for some of the ride or all of the ride.
+- It's really fun to just stretch out and not have any boundaries or just try something for the craft.

@@ -1,0 +1,141 @@
++++
+author = "Ehud Olmert"
+title = "Ehud Olmert Quotes"
+quotes_len = "135"
+description = "the best 135 Ehud Olmert Quotes"
++++
+- The State of Israel, in partnership with Project Better Place and Renault-Nissan, is set to become the first country in the world to initiate the mass deployment of electric vehicles.
+- I want to separate from the Palestinians. I want them to have their independent, separate state on a contiguous territory, and I want Israel to exist, of course, as a Jewish state in its own territory, as an independent state in its own territory. The Palestinian state, the Israeli state, separate. This is my dream.
+- Abu Mazen has got to do only one thing: to fight terror. That's what he needs to do.
+- How are fears born? They are born because of differences in tradition and history; they are born because of differences in emotional, political and national circumstances. Because of such differences, people fear they cannot live together.
+- I sometimes feel tired. But there are so many reasons for being tired.
+- I always wake up early Saturday morning, and I have a little bit more time, so I go to the gym.
+- For me, Arik Sharon - I remember his courage and inspiration. I want to remember him the way he really was, not as an aging 80-year-old man living in bed helpless and unconscious.
+- Every word I wrote in my book is documented, certified, true, and correct. The truth wins, and that is my picture.
+- Assad is the president of Syria. He enjoys fairly effective control over his country.
+- I have to think about the possible ramifications of an early retirement.
+- Before I became prime minister, as mayor of Jerusalem, I became world-renowned because of my fight for the unity of Jerusalem.
+- I'm not in power, but my ideas are in power. And my ideas will prevail.
+- There is no doubt that there is a very strange phenomenon called the 'State Comptroller.'
+- Israel is prepared for a compromise. The majority of Israelis understand this compromise will be serious, will be meaningful, and will be painful.
+- I want to lead. I want to change. And I'm going to do it.
+- There is always a human being behind the titles and the status.
+- There is an alliance between Israel and the United States, and it has never been stronger than at the time of George W. Bush.
+- I want to make one thing clear: I am proud to be a citizen of a country in which a prime minister can be investigated like any other citizen.
+- I believe that there is no path other than the path of peace.
+- Many Palestinians have been living for decades in camps, disconnected from the environment in which they grew up, wallowing in poverty, in neglect, alienation, bitterness, and a deep, unrelenting sense of humiliation.
+- If the Gaza ceasefire proves stable, Israel will not remain in the Strip.
+- Palestinian violence is not a response to the capture of the West Bank and Gaza. Palestinian nationalism's roots are not so shallow.
+- As long as there are no negotiations with the Palestinians, Israel is and will continue to be in a difficult situation.
+- In Israel, we are sorry for the loss of life of Turkish citizens in May 2010, when Israel confronted a provocative flotilla of ships bound for Gaza. I am sure that the proper way to express these sentiments to the Turkish government and the Turkish people can be found.
+- Abu Mazen told me he does not want to change the demographics of Israel.
+- Promoting tolerance and human dignity is one of mankind's unfinished challenges.
+- What do you prefer? A prime minister obsessed with being popular, or a prime minister who does the job?
+- Emerging from embattled and humble beginnings, the Jewish state has exceeded all expectations for its success and prosperity.
+- I know the war in Iraq is controversial in the States, but for us in the Middle East it has made a great and significant impact.
+- Already at the time of Israel's birth, Ben-Gurion extended his hand in peace to the Arab nations. His hand was rejected, but it remains extended.
+- There were certain people who were out to get me. I know who those people were. They exist, believe me. They know that I know. They spent millions of dollars in order to try to get rid of me. I'm happy they lost most of their money.
+- I am focused on what needs to be done for the people of Israel. Period. I do not pity myself and I do not pat myself on the shoulder. I get up in the morning full of energy to fulfill my mission.
+- Israel stands proudly at the forefront of international achievement. The world's leading corporations - Google, Intel and Motorola, to name but a few - maintain research and development facilities here, and our technology start-ups continue to be acquired by the likes of AOL, eBay and IBM.
+- A prime minister has to keep a certain balance when dealing with sensitive issues.
+- In my position as prime minister, I bear the highest responsibility for decisions.
+- Look, miracles in the Middle East are a reality.
+- I've been mayor of the city of Jerusalem, which is perhaps, in some ways, more complex and more difficult than a ministerial position.
+- Palestinians want Israel to return back into boundaries, the width of which is 12 km., that can be cut into pieces within minutes.
+- Israel has the power to protect itself and its citizens.
+- Iran is an anti-Semitic, terrorist government.
+- I was not born to be prime minister, and I'm not going to stay here until the end of my life. I'm too young for that.
+- As one of the participants in the Aqaba summit, I can testify that Israel fully expected the Palestinian Authority's newly reorganized and trained security agencies to take harsh action against the rejectionists who sought to wreck the peace process.
+- As a citizen of a democratic state, I have always believed that when a prime minister is elected in Israel, even those who voted against him at the polls are obligated to desire his success.
+- The United States provides Israel with crucial security and economic aid and invaluable political backing in the international arena.
+- There is nowhere I encounter greater understanding for Israel's existential issues than in the Oval Office.
+- Peace is important for Israel.
+- It is impossible to think of a world in which America was not there in the honorable service of humanity.
+- Historic scores cannot be settled, and scars cannot be obliterated.
+- Everything that can strengthen Abu Mazen is favourable.
+- I know I'm unpopular.
+- Have I made mistakes in my many years of political activity? Of course! I am sorry and regret them.
+- We are the greatest experts in the world in criticizing our country, but no one loves his country more than the Israelis. No one.
+- Arafat is the greatest instigator of terror.
+- Political leaders can help change the psychological climate which affects the quality of relationships among people.
+- Israel will not tolerate a situation in which Iran has effective control of non-conventional weapons that can be used directly against the state of Israel.
+- There is nothing that I'd love to do more than negotiate with Palestinians. This is my desire. This is my dream. This is my mission.
+- The days that Israel was separated from Europe are gone.
+- Turkey is not an enemy of Israel. I have worked closely with the Turkish prime minister, Recep Tayyip Erdogan.
+- When it was not very comfortable, politically, for me, I said things which lots of people didn't like, some of them may have liked. I said my beliefs, my truth, and my convictions, and that's how I am going to continue to do in the future.
+- For me to propose a division of Jerusalem was really terrible. I did it because I reached a conclusion that without which there will not be peace.
+- Israel has said many times - and I also said this to German television in an interview - that we will not be the first country that introduces nuclear weapons to the Middle East.
+- As a young politician, I voted against the return of Sinai and peace with Egypt. I was mistaken.
+- The dreadful terrorism perpetrated by Palestinian terrorist organizations has affected thousands of Israeli citizens, has destroyed families, and has tried to disrupt the lives of the citizens of Israel.
+- Politicians are strong to the extent that they are ready to take serious decisions and fight for it.
+- A bloc of states is emerging that understands that they may have been wrong to think that Israel is the world's greatest problem.
+- It is important that democracy in Lebanon is protected and that Hezbollah will not be supported by outside forces like Syria and Iran.
+- Yasser Arafat never wanted to make peace with Israel.
+- I'm entirely free of any suspicions or complaints about the Obama administration. I think the Obama administration is very friendly to Israel. I know a lot of the people in the administration, and they are committed to Israel.
+- I think the attempt to draw a comparison between Iran and Syria is false, misleading and dangerous.
+- I don't expect to be coddled, but I'm also a human being.
+- Growing up in Israel, how can I not be an optimist? When you remember what Israel was 50 years ago and you see Israel now, one of the most successful countries in the world, stable, democratic, with an enormously stable economy despite everything that has happened in the global economy in the last few years, how can I not be an optimist?
+- I have to make sure that I am doing the right thing. I can't afford to make any mistake.
+- The enemies of peace have not disappeared.
+- I have reached a conclusion that when we have to make a choice between greater Israel or a Jewish democratic state - and we have to make this choice, it is inevitable - then my choice is a Jewish democratic country.
+- Don't fall in love with everything that you may have read and everything that you may have heard from any political leader, including myself.
+- A prime minister must not promise things that can't be fulfilled.
+- I don't understand this pathetic need for luxuries.
+- I'm not saying it was wrong to intervene in Kosovo.
+- The Palestinians are facing a historic junction at which they will have to decide whether they want to remain stuck in a corner of extreme fundamentalism, which will cut them off from the entire world, or whether they are ready to take the necessary steps. My role is to assist in building this process.
+- Barack Obama's journey to the White House has impressed and inspired the entire world.
+- I don't like this terminology that you have no choice. You always have a choice.
+- There is a Western world. There is America. There is Great Britain and Germany and France and Russia and China and other nations. I doubt that there is one country amongst those I mentioned which has a desire to see Iran, with its fundamentalist, Islamic, extremist government, possessing nuclear weapons.
+- When armed people from Hamas and armed people from Fatah are standing opposite each other, there is more likely to be a confrontation amongst them.
+- I'm not in the most comfortable position, but I think my government is very stable, perhaps more stable than any government in modern Israeli history.
+- I would never agree to an exclusive Muslim sovereignty over areas that are religiously important to Jews and Christians.
+- There is no need to get caught up in any apocalyptic prophecies that have no basis in reality.
+- Mofaz was elected to head Kadima since the party had been shattered.
+- In Israel we tend to be carried away by our emotions.
+- When I addressed international forums as prime minister, the Israeli people expected me to present bold political initiatives that would bring peace - not arguments outlining why achieving peace now is not possible.
+- Terrorist groups and their extremist state sponsors cannot be fought with kid gloves and flowery words of persuasion. As the U.S. has displayed in Afghanistan and in Iraq, only a vigilant and determined campaign of confrontation can deter and obstruct them.
+- Merkel is an amazing woman, very experienced in international politics.
+- I want to arrive at the possibility of peace with the Syrians, and when I believe that the conditions are right, I will not miss the opportunity.
+- We must give up Arab neighborhoods in Jerusalem and return to the core of the territory that is the State of Israel prior to 1967, with minor corrections dictated by the reality created since then.
+- Stopping all the violent and hostile actions means ending the smuggling of arms into the Gaza territory.
+- The Goldstone Committee was formed in April of 2009, after I was not prime minister. So it was a new political situation.
+- The United States is a superpower whose influence reaches across oceans and beyond borders.
+- Throughout the second intifada, America provided unprecedented support for Israel's struggle against Palestinian terrorism and Israel's construction of the security barrier.
+- I never thought that Syria and Israel should engage in a violent confrontation because I don't think that there is any particular interest for any of us to do it.
+- Who thinks seriously that if we sit on another hilltop, on another hundred meters, that this is what will make the difference for the state of Israel's basic security?
+- The legacies of Menachem Begin and Anwar Sadat, of Yitzhak Rabin and King Hussein, stand as an inspiration for all who work for peace.
+- When public figures write memoirs, there is always some indecision regarding how much they want to write of things as they were and how much they want to cut corners to avoid riling up others. I decided to write my memoirs exactly as they were, and I will not digress - not when things are ill at ease and not when they are comfortable.
+- As mayor of Jerusalem, I wanted the government to invest the necessary funds in order to unite the city in an effective manner with full rights for the Palestinians living in Jerusalem, so the world would say, 'Okay, it can work.'
+- Saudi Arabia is the country that in the end will determine the ability of the Arabs to reach a compromise with Israel.
+- What's the logic of investing millions in agriculture if it will not pay off?
+- Every prime minister ... has the responsibility to provide security for his people.
+- I always admired the tolerance of my family - you know, that they tolerated my dissension for the family consensus.
+- Nobody stands above the law.
+- I never took a bribe. This is the truth, and there is no other.
+- Dictates are futile, and mutual accusations are nothing but useless word games.
+- Terrorist organizations such as Hamas must be shut down.
+- It's a problem sometimes when you speak to journalists. They quote you, and then they read what they wrote, and then they even explain it. It's dangerous.
+- I was not interested in being minister of defense or minister of foreign affairs.
+- Maaele Adumim is part of Israel. Gush Etzion is part of Israel.
+- The newspapers are always reminding the public that I am an unpopular prime minister.
+- International economic and political sanctions on Iran, as crucial as they may be, are only an initial step, and must be dramatically increased.
+- When you fight for the impossible, sometimes you lose everything.
+- I can tell you that if I'd had an opportunity to meet with King Abdullah of the Saudis - which I have not - he would be very surprised to hear what I have to say.
+- The history of the Zionist enterprise is well-known: surrounded and outnumbered by hostile neighbours, the nascent Israel was forced to defend itself against invasion and certain destruction.
+- The situation of any leader in the Middle East is not easy.
+- The military operation in Lebanon was the most successful military operation in recent Israeli history. Many in Israel don't recognise that.
+- The values of democracy, brotherhood, and freedom that constitute the building blocks of American society are also shared by Israeli society, together with the faith in man's power and ability to change and influence his surroundings.
+- When the President of Iran talks about removing Israel from the face of the Earth and is building nuclear bombs with a range of 3000km, you have to be worried.
+- I understand the importance which the Palestinian society attributes to the issue of prisoners.
+- I don't know that there is one serious American representative that will advise Israel to sit with a terrorist government and negotiate with them.
+- I trust the integrity of the British government and the British soldiers.
+- My doctors say I am very healthy.
+- Iran is a major threat to the well-being of Europe and America just as much as it is for the state of Israel.
+- I have found myself under a wave of investigation and criticism from the moment I was elected. Since my first days in the Prime Minister's Office I have had to fight against evil attacks while I have been busy making decisions on crucial matters related to Israel's security and existence.
+- Israel is grateful that America believes in us.
+- From the end of 2006 until the end of 2008 I think I met with Abu Mazen more often than any Israeli leader has ever met any Arab leader. I met him more than 35 times. They were intense, serious negotiations.
+- The Palestinian Authority is ruled by Hamas, an organization committed to vehement anti-Semitism, the glorification of terror, and the total destruction of Israel.
+- Abu Mazen has deprived himself of all the practical authorities of government.
+- Israel always has to be in a position to defend itself against any adversary and against any threat of any kind.
+- The fundamental interest - long-range strategic interest - of the state of Israel is that we will have the international bodies and primarily the United Nations recognize the two-state solution, so that there will never be any doubt as to the right of Israel to have its own Jewish independent state.
+- I love my country more than anything else.

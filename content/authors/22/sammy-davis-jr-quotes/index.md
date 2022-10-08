@@ -1,0 +1,56 @@
++++
+author = "Sammy Davis, Jr."
+title = "Sammy Davis, Jr. Quotes"
+quotes_len = "50"
+description = "the best 50 Sammy Davis, Jr. Quotes"
++++
+- Sober up, and you see and hear everything you'd been able to avoid hearing before.
+- I had traveled 10 states and played over 50 cities by the time I was 4.
+- Reality is never as bad as a nightmare, as the mental tortures we inflict on ourselves.
+- Bogart could have been color blind. He got to know a man before he decided if he liked him or not.
+- I have to be a star like another man has to breathe.
+- Fame comes with its own standard. A guy who twitches his lips is just another guy with a lip twitch - unless he's Humphrey Bogart.
+- My home has always been show business.
+- Alcohol gives you infinite patience for stupidity.
+- The manic pursuit of success cost me everything I could love: my wife, my three children, some friends I would have liked to grow old with.
+- During three decades, along all the highways of my youth, Frank had always been there for me.
+- Everything Michael Jackson does on stage is exactly right.
+- When you lose a lover it's like getting a bad haircut. It grows back in time.
+- You always have two choices: your commitment versus your fear.
+- I go to temple a lot less than I would like because when I do, people still look at me as if they think it's a publicity stunt.
+- What have I got? No looks, no money, no education. Just talent.
+- Though I love the luxury of the Waldorf Towers, room service there doesn't do soul food.
+- When Liza Minelli was a child, she used to sit on my lap and call me Uncle Sammy.
+- Being a star has made it possible for me to get insulted in places where the average Negro could never hope to go and get insulted.
+- The one thing you don't want is that stale sound when you've done a line so much you can't find a fresh approach to it. Drop it.
+- We can't answer King's assassination with violence. That would be the worst tribute we could pay him.
+- Would it be better if I'd married a Negro woman? Would they treat my child any better? Erect fewer barriers?
+- If you want to get known as a singer you hire five sexy chicks and let them fight over you onstage and for the cameras. That's publicity, man.
+- I saw that my image was changing or fading. One of the reasons for taking a break from clubs was to be missed-not forgotten.
+- To appear on the stage drunk, to have them leave there and remember me making drunken mistakes, that was death.
+- All I really had was my talent. Without that I wouldn't be welcome at the White House.
+- Marilyn and I were rumored to be an item. We were friends. Nothing more. Marilyn was one of the sweetest creatures that ever lived.
+- There's nothing that can match Broadway for stature and dignity.
+- You can be in this business 50 years and still not know anything about it.
+- Part of show business is magic. You don't know how it happens.
+- Real success is not on the stage, but off the stage as a human being, and how you get along with your fellow man.
+- The ultimate mystery is one's own self.
+- I'd learned a lot in the Army. I knew that above all things in the world I had to become so big, so strong that people and their hatred could never touch me.
+- I didn't hate being 60 as much as I had 50.
+- Ten million dollars after I'd become a star I was deeply in debt.
+- The civil rights movement wasn't easy for anybody.
+- I was so opposed to the war in Vietnam that I initially refused President Nixon's urgings for me to go there.
+- May was young and beautiful, we were legally married, but she was caught in the prison of my skin.
+- A man is not complete until he has seen the baby he has made.
+- There are certain romances that belong in certain cities, in a certain atmosphere, in a certain time.
+- I hadn't been in Vegas 20 minutes when I got word that the bookmakers were offering three to one that Frank wouldn't show for my wedding.
+- There are lines that I know are going to get a belly laugh, but after a few shows I get sick of hearing myself say them so I drop them.
+- I believed in Bobby Kennedy. Campaigning for him was an attempt to give back something to this country that has given me so much.
+- You don't swing where you sleep.
+- With an ocean between you and your European friends, you have to keep them in your heart.
+- I bought a house in the Hollywood Hills and brought my grandmother from Harlem to live in it with me.
+- I wasn't anything special as a father. But I loved them and they knew it.
+- I don't have many easy songs.
+- Being in public with May and the children was too heavy. I was irreversibly tuned in to everyone around us.
+- The success of the Rat Pack or the Clan was due to the camaraderie, the three guys who work together and kid each other and love each other.
+- I had more clothes than I had closets, more cars than garage space, but no money.

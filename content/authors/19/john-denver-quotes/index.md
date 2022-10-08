@@ -1,0 +1,31 @@
++++
+author = "John Denver"
+title = "John Denver Quotes"
+quotes_len = "25"
+description = "the best 25 John Denver Quotes"
++++
+- I think more about the family now. That's an interesting progression for me.
+- We must begin to make what I call 'conscious choices', and to really recognize that we are the same. It's from that place in my heart that I write my songs.
+- I think the biggest problem in the world is that we have a generation of young people, and maybe two, who don't think it's going to get any better.
+- We don't teach kids how to feel, we don't give them the words to go by.
+- I ran away from home when I was a senior in high school, and it came out of all the conflicts that happen between parents and their children who can't communicate.
+- Things go up and down. If you can survive the down, it will come back.
+- I get an awful lot of fan mail, and I read all that I can.
+- I wasn't really an alcoholic, but I was losing control. I still go for a beer, but I drink a lot less.
+- I would so much like young people to have a sense of the gift that they are. Not many of them feel like that.
+- I was never trying to write a hit. I was just trying to write good songs and get a message out, and it was my great good fortune to be popular.
+- It's a great big step for me to open my heart up even a little bit.
+- My activities were centered around school and football and church and senior high fellowship, and I got together with a couple bands and started playing parties, proms, stuff like that. It was the music that really worked for me.
+- I don't want to just entertain people. I want to touch them.
+- At times I've got a really big ego. But I'll tell you the best thing about me. I'm some guy's dad; I'm some little gal's dad. When I die, if they say I was Annie's husband and Zachary John and Anna Kate's father, boy, that's enough for me to be remembered by. That's more than enough.
+- I believe that we are here for each other, not against each other. Everything comes from an understanding that you are a gift in my life - whoever you are, whatever our differences.
+- I know I'm incapable of orchestrating an entire film.
+- I started ninth grade a week after everybody else had started, and I didn't know anybody. I was in a chorus class, and they asked me to bring my guitar to school one day, which I did, and all of a sudden, people knew me... in the halls, people would start saying hello.
+- Peace is a conscious choice.
+- My purpose in performing is to communicate the joy I experience in living.
+- There are so many things we are afraid of, thinking that if we confront them, they will kill us. Most of it goes back to your infancy.
+- Heck, I'm no Henry Mancini or Michel Legrand. I just play the guitar and write songs.
+- I've had a deep love affair with skiing for many years.
+- I think that's one of the things that's missing in a lot of people's lives. That's finding out what works for you and doing that.
+- Divorce is just the most awful thing in the world.
+- I just play the guitar and write songs.

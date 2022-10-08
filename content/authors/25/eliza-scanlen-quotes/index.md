@@ -1,0 +1,28 @@
++++
+author = "Eliza Scanlen"
+title = "Eliza Scanlen Quotes"
+quotes_len = "22"
+description = "the best 22 Eliza Scanlen Quotes"
++++
+- I used to ice skate at parties when I was eight, but that was sort of the extent of roller skating, ice skating, that kind of sport.
+- I guess my sense of humour leans more towards irony and tongue-in-cheek performance.
+- I remember being a kid and wanting to be so many different things. There was even one point that I wanted to be a clarinet player, and I had never even touched a clarinet, in my life. And then, I wanted to be a chef. And then, I wanted to be a vet. It's hard to decide who you're gonna be, as weird as that sounds, because we all do it.
+- I think the weird thing about playing a psychopath is that you really have to believe that you, as the character, did nothing wrong.
+- I think it's really easy to approach a touchy subject head-on, but 'Sharp Objects' does it in a way that's subtle and it presents mental illness as something quite common and normalized. It's so common and shouldn't be a conversation we're afraid to talk about.
+- When you're an aspiring actor, you do so many self-tapes that it gets to a certain point where you have to develop a thick skin, otherwise you will never survive.
+- When I was seven, my mom took my twin sister and me to a play. I remember being fascinated about life onstage.
+- When I got a bit older, I put on my own plays and forced my friends to perform.
+- I'm quite close with my family, especially my twin sister, and it's always hard to leave her.
+- My mom usually does my self-tapes, and we've built a kind of shorthand with one another... Also, just having fun with it and not feeling restricted in your space and giving yourself enough space filming the shot to move around, things like that.
+- I'm vegan, so obviously there is not a lot to eat in Georgia.
+- I grew up watching Amy in 'Enchanted'; I was told that if you had to meet your first famous person you'd be lucky if it were Amy Adams.
+- And you sort of have this idea in your head about how you're going to go about the audition, and as soon as you get there, all of those thoughts just kind of drop away and you realize you're standing in front of Amy Adams, whom you've admired for years and years. That was the first time that I was ever really starstruck in my life.
+- I have like a whole album of screenshots of my sister's face, and it's hilarious. One look at that and it'll put you in a good mood for the rest of the day.
+- I feel like a lot of teenagers have typically been played by 25 year olds, and even 30 year olds. It's nice that I'm playing a little bit more to my age, although from 15 to 19 are pretty progressive years.
+- I've always loved absurdism and plays of that genre. I think that my humour is very much rooted in theatre and drama.
+- A part of the bigger picture is much more interesting to me than just bringing attention or focus on myself or my character.
+- Being on a set for the first time is in general an overwhelming experience, and coming into 'Sharp Objects' was already nerve-wracking enough with the cast - it's just such a talented group of people and it'd be kind of strange if you weren't nervous.
+- I've played piano since I was probably six or seven, but I stopped when I was about 13, and I couldn't be bothered to do the exams or learn my scales.
+- I don't know why actors are just attracted to really messed up people, but it almost makes it more fun, in a perverse way.
+- I think that's what I really love about acting; all of the social and moral codes of society can be thrown away when you're acting, and it's just you being totally committed to the role.
+- After I was cast, I decided to read 'Sharp Objects'. I ended up drowning it in sticky notes, highlighter and pen. It became my little diary I could refer to. I took little quotes out of the book and transferred them onto this scrapbook I kept about Amma.

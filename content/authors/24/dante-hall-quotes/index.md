@@ -1,0 +1,22 @@
++++
+author = "Dante Hall"
+title = "Dante Hall Quotes"
+quotes_len = "16"
+description = "the best 16 Dante Hall Quotes"
++++
+- Treat everyone the way you would want to be treated... this can be applied to any situation.
+- On certain plays and situations I feel like I have the advantage. But sometimes I just have to not think about the size of the guy in front of me.
+- I love to play pool.
+- I love my relationship with Coach Vermeil because it is one of the few genuine relationships that I have.
+- Sports are not for everyone.
+- I would want my legacy to be that I was a great son, father and friend.
+- I never dislike anyone that I am in competition with. I welcome the challenge. Besides, I get along with just about everyone.
+- Anything that is unexpected is the X-factor.
+- My two favorite things about being a pro player are Sunday afternoons being able to excite many fans and the money because I get to treat my family and friends and myself to nice things.
+- The only reason we make good role models is because you guys look up to athletes and we can influence you in positive ways. But the real role models should be your parents and teachers!
+- If I had the hand strength to sign autographs for everybody in Kansas City, I would... but its just impossible to get to everyone.
+- My favorite NBA team are the houston rockets and favorite college team are the duke blue devils.
+- I love all sports.
+- Every time I fumble or drop a ball I am embarrassed.
+- Part of my success was having a place to play as a kid.
+- There is no formula to making it to the NFL other than good fortune and and playing well in college.

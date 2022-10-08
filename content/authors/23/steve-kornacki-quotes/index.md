@@ -1,0 +1,106 @@
++++
+author = "Steve Kornacki"
+title = "Steve Kornacki Quotes"
+quotes_len = "100"
+description = "the best 100 Steve Kornacki Quotes"
++++
+- Evan Bayh learned early that liberalism and ambition don't always mix in a red state like Indiana.
+- I think I'll forget to eat a lot during election week.
+- Favorite-son candidates almost always win their states decisively in presidential elections. But their status as national celebrities can end up breeding fatigue and resentment among home-state voters when the election is over.
+- It's been a very strange thing to see the attention my clothes have gotten, just because it's so inversely related to the amount of thought I put into them.
+- Compared to the '88 GOP race, the Democratic fight to succeed Clinton was orderly and drama-free. In the formative days of the campaign, Vice President Al Gore seemed at least potentially vulnerable.
+- The godfather of the modern Mississippi Republican Party, Charles Pickering, left the Democrats in 1964 because the party's national convention agreed to seat two black delegates.
+- We read primary results to assure ourselves that this candidate has won this state's primary and can win the state in the general election. I think that's a very dubious jump to make.
+- When we talk about the rise of tribalism, I think the evolution of media in the '90s and beyond is a huge part of it. And you can draw a pretty straight line from Newt Gingrich recognizing the power of CSPAN.
+- Richard Nixon built his presidency on his notorious 'Southern strategy.'
+- I think a lot of people's memories of the '90s are nostalgic. The economy was pretty strong, there was good TV and movies, yet our politics were changing quickly and dramatically.
+- Governorships and Senate seats are the most common stepping-stone offices for presidential campaigns, and U.S. House seats are the most common stepping-stone positions for statewide campaigns.
+- There is huge money to be made - by candidates, by book publishers, by merchandise peddlers - from small-dollar conservative consumers who are as enraged by their own party's establishment as they are the Obama White House.
+- American politics are rich with characters and stereotypes - Joe the Plumber, Harry and Louise, Nascar dads and hockey moms, to name a few. But one persistent type hasn't gotten much attention: the Republican football coach.
+- We'll always romanticize the past. We did not have this great, glorious era where everything was bipartisan and everything worked, but there was room for bipartisanship. And there was room for government to be more functional. The country itself was forced by all the upheaval of the '90s to take sides, to chose one or the other.
+- There's been no end to the grief Mitch McConnell's taken for his declaration early in Barack Obama's first term that his party's top goal was to make Obama a one-term president.
+- I don't read a ton of fiction, but Tom Wolfe's death got me to pick up 'The Bonfire of the Vanities.' I'm a slow reader, but wow - I ended up devouring it in about six days. I'm fascinated with that period, the '80s, when the country was turning around but it seemed like New York and other cities were just hopelessly lost.
+- My first job in journalism was covering politics in New Jersey.
+- Through the years, through my own conversations, through my own weird obsessions, I think I have developed some very deep politics of political knowledge - and I think I have huge blind spots, too - which I have tried to build not necessarily through traditional interviews so much as it is conversations and a lot of research and reading.
+- There's always been deep divisions in this country - we had a civil war - and there've been regional and cultural and demographic. They've always been there.
+- Prior to civil rights, the Democratic Party had been defined by an increasingly untenable alliance of ideological opposites - integrationist Northern liberals like Hubert Humphrey and Herbert Lehman teamed with Southern segregationists like Richard Russell and John Stennis.
+- Bill Clinton broke what was known as the Republican electoral lock on the presidency, and Bill Clinton won the White House in 1992. That was sort of the impossible dream for Democrats.
+- The Tea Party was really a two-front war - one against Obama, the other against any Republican politician who reeked of insiderdom or insufficient purity.
+- What I really love is modern political history. I love the research process, whether it's digging through old newspaper stories, artifacts from election campaigns or TV stories and being able to recreate moments in history that - when you look back at them now - you can get to that question of how did we get here.
+- Some coaches keep quiet about politics to avoid alienating boosters and other higher-ups.
+- The lesson I take from TV is the less rehearsed it is, the more natural it's going to seem. Don't overthink it. It seems to work enough for me, and I'll just keep doing it.
+- I was the All-American kid, or so I told myself - good grades, never in trouble, bright future, well-respected by my peers. My favorite comedian was Bob Newhart.
+- The Paul name has been a divisive one at Obama-era CPAC gatherings, with rabid supporters of Ron Paul invading the hall to cheer on their man, jeer his Republican enemies, and in 2010 and 2011 delivering straw poll victories to him.
+- In 1948, northern liberals inserted a civil rights plank into the national Democratic platform, prompting a walkout of Southern delegations - which then coalesced around the third party Dixiecrat candidacy of Strom Thurmond. An uneasy truce between national and Southern Democrats was reached after that election, but it was untenable.
+- In 2016 you had a significant number of voters who said on Election Day: I don't like Donald Trump. I don't think he tells the truth. I don't think he has the temperament to be president. I don't think he is qualified. I do think Hillary Clinton is qualified. And I am voting for Donald Trump.
+- History will always regard Florida as the state that decided the Bush-Gore contest, but if Gore had carried Tennessee, Arkansas, Missouri, West Virginia or Kentucky - all states that his boss won twice - then he'd have won the election anyway.
+- I don't think my political opinions, to the extent I have them, are useful.
+- As a general rule, midterm elections - in both their first terms and their second terms - aren't kind to incumbent presidents, even popular ones. Just two years after winning a 49-state landslide, for instance, Ronald Reagan watched his party lose control of the Senate and slip further into the minority in the House in 1986.
+- Few losing V.P. candidates in the modern era have walked away with their reputations and future political prospects significantly enhanced, and some have even been damaged by their turn on the national stage.
+- I think I'm statistically literate and numbers-oriented. But I'm nowhere near as sophisticated as a lot of other folks I see. Maybe that helps me not get too jargony and communicate this stuff in a way that's somewhat accessible.
+- Whereas his father would deliver rambling lectures that were heavy on gold and often disconnected from the political news of the moment, Rand Paul communicates a desire to make himself relevant to the GOP conversation.
+- Boston is both a world-class city, home to some of the best academic and medical institutions on the planet, and a quirkily parochial place, where one of the biggest annual sporting events involves college hockey players competing for a beanpot and where generations of baseball fans actively believed they were victims of a curse.
+- By their nature, midterm elections favor the out-of-power-party. Its voters tend to be more motivated to show up and swing voters are more likely to treat it as a protest vehicle for their frustrations.
+- New Jersey's governorship is the most powerful in the nation.
+- Football coaches aren't the most diverse group, which may help explain their political similarities.
+- Exactly why Democrats were crushed in the '94 midterms is impossible to say.
+- Back in August 2002, I was hired as a reporter for a website covering New Jersey politics, then still a pretty novel concept. I was 22 years old, not from the state, and thoroughly inexperienced.
+- Midterm elections, by nature, just aren't about the party that's out of power. But presidential years are different.
+- My knowledge of popular music more or less ends in 1972.
+- I just didn't fit the stereotypes of gay men. I was an ESPN addict as far back as elementary school. I'd also had early crushes on girls.
+- We've seen senators like Ted Cruz before. The historical comparison most commonly invoked involves Joe McCarthy, whose scurrilous red-baiting crusade in the early 1950s shattered the careers of innocent public servants and alienated McCarthy from his fellow senators, but also made him a folk hero on the right. Jesse Helms comes to mind too.
+- By 1996, Clinton was able to run for re-election on the strength of what the '93 budget had delivered - and to taunt the Republicans (including his opponent, Bob Dole) for having been so afraid of it.
+- The Founders surely never imagined that a three-fifths majority would be the standard requirement for passing legislation in the upper chamber, and for most of American history it wasn't. But filibuster use skyrocketed in 1993, when Republicans found themselves locked out of the White House and big Democratic congressional majorities.
+- From the end of Reconstruction through the civil rights revolution, the South was an almost uniformly Democratic region. In 1936, for example, Franklin Roosevelt won more than 98 percent of the vote in South Carolina.
+- Race has clearly played a role in Kentucky's Obama-phobia, as it has in other swaths of Appalachia. The Obama administration's supposed 'war on coal' is a big factor too.
+- Mr. Giuliani's liabilities as a G.O.P. candidate were obvious. There was his well-documented history of cultural liberalism - on abortion, gay rights, immigration and gun control - which he tried, unsuccessfully, to mask. And then there was his style - bland, uninspiring, even soporific.
+- There's no evidence that coaches with a conservative bent are better coaches or more likely to get jobs.
+- I almost flunked pre-calculus back in high school.
+- I've read stories from people who say they always knew they were attracted to the same sex, or that they figured it out at a young age. I'm not one of them. I had practically no idea until one night in my sophomore year of high school.
+- In a gesture to moderate Republicans, Reagan put Bush on his '80 ticket, and Bush recognized that the Reagan crowd was rapidly becoming an overwhelming majority in the party. So he adjusted his views, served Reagan loyally and spent much of his vice presidency using his stature to convince conservative leaders they could trust him.
+- After sweeping to power in the Newt Gingrich-led 'revolution' of 1994, the GOP had overplayed its hand and watched Bill Clinton easily defeat Bob Dole in 1996.
+- If Rand Paul does run for president in 2016, his campaign will have a credibility that Ron Paul's three bids for the Oval Office lacked.
+- When LBJ signed the Civil Rights Act of 1964, the modern Southern GOP was born.
+- When it comes to gay marriage, the electorate can be broken into three basic groups: a relatively small core of committed opponents; a relatively small core of committed supporters; and a vast swath of conflicted voters who like to think of themselves as 'tolerant,' but who are instinctively uneasy with sudden, sweeping change.
+- Generally, the real question in a midterm year is whether the damage for the ruling party will be severe or mild.
+- Running 26 miles is a feat that demands respect, no matter how long it takes.
+- When the two have crossed paths in public, McCain hasn't even tried to mask his ill will toward Obama.
+- The early favorite for the GOP nomination and 'natural' heir to Reagan was Vice President George H.W. Bush. But Bush was an imperfect fit for the party's base.
+- Chris Matthews is a giant. He's a legend.
+- I do a lot of walking.
+- History suggests that the opportunity to run again for the presidency four years after losing is reserved for those who exceeded expectations their first time out - not for the John Connallys of politics.
+- They say it doesn't get any more Jersey than 24-hour diners. Of course, they say the same thing about women with big hair, hapless college football teams and governors who tell their wives they're gay on national television.
+- With writing, obviously you can really take the time to crack what you're going to say and build to a big point.
+- For more than a decade after the 2000 election, leading Democrats ran from their gun control past and bent over backward to assuage the fears of gun owners.
+- I've been a football fan pretty much my whole life.
+- My favorite player, all-time, will always be Doug Flutie.
+- I learned you just need to know people who know how to tie ties, and they'll tie them for you, and you can just put them on and take them off.
+- The 1994 midterms had been a shocking rout for the GOP, which picked up 54 seats in the House and eight in the Senate. No one had seen it coming. The Democratic Congress was supposed to be a permanent fact of life; it had been 40 years since Republicans had controlled the chamber.
+- Newt Gingrich's rhetorical tics are well-known - his fondness for the word 'frankly,' his eagerness to frame even the most mundane development in dramatic world-historical terms, and his eagerness to accuse his enemies of practicing 'machine' politics.
+- Republicans have used the filibuster to turn the Senate into a de facto 60-vote body.
+- The occasional nomination of a Todd Akin or Christine O'Donnell or Sharron Angle is a problem for the GOP. But it's really just a symptom of a much more serious malady: an environment on the right that demands and rewards an ideal of 'purity' that has little appeal outside of the conservative movement.
+- Ron Paul's CPAC appearances perfectly captured the nature and limits of his political appeal. His libertarian message, non-interventionist views and devotion to the gold standard attracted a sizable, committed following, but many of the true-believers weren't actually part of the Republican Party.
+- I was probably the worst calculus student in the history of my high school.
+- I try to do the deep breathing exercises and I end up panicking in the middle of them and it never goes well.
+- A case can be made that Boehner's skills as a House leader are underappreciated.
+- Numerous candidates lose their first White House race and try again four years later - but all of them do so after running surprisingly well the first time. No one ever talked about John Connally or Phil Gramm running again.
+- It's impossible to overstate the degree to which the '94 GOP revolution shook the political class. Bill Clinton was immediately dismissed as a one-term president. The main question was whether he'd bow to the inevitable and decline to seek reelection, or if it would take a primary challenge to dislodge him.
+- I can multiply. Long divisions start to be a stretch.
+- There was a certain futility to Elizabeth Colbert Busch's congressional campaign, one that had nothing to do with her and everything to do with the state and region she calls home.
+- Romney and CPAC were never a particularly good match.
+- Romney's Obama-era CPAC struggles spoke to a challenge his '12 campaign never overcame: to shore up the GOP's restive conservative base in a way that would allow him to pivot to the middle in pursuit of general election voters.
+- I have a specialization in a very particular area: the presidential primary process.
+- I tried the Calm app, but that I don't rec - well, maybe I got a bad story or something - but it didn't work for me.
+- The Romney who showed up at CPAC in early 2007 vehemently embraced the conservative cause and openly mocked his home state and its liberal reputation.
+- Walter Mondale was dissuaded from running for the Senate from Minnesota in 1990, in part out of fear that his 49-state loss to Ronald Reagan in 1984 had reduced his standing.
+- Patriots' Day is the essence of Boston, a Massachusetts-only holiday that seems like it was invented to celebrate Boston.
+- Politics, as the cliche goes, is a full contact sport. When you choose to play, you're going to get hurt.
+- Following college sports as a kid, I'd be like: Clemson. Where the hell is Clemson? By learning sports rivalries, you learn the regions and the culture of a state.
+- I'll sometimes forget it's my birthday, but my mom has taken to calling me at the exact time of my birth, so that'll usually remind me. It was an important moment for me, obviously, but I guess a more memorable one for her.
+- Ideologically, there are no major differences between the two Pauls, and there are stylistic similarities too; like his dad, Rand hardly minds being the lone 'no' vote in a sea of 'yes' votes. But unlike his dad, Rand seems to pick his spots with at least one eye on the bigger picture of politics.
+- I went to a public school, so we didn't have to wear a tie.
+- In the old days, there were a couple of TV channels and that was it, so every channel tried to appeal to as broad of an audience as possible. Newt Gingrich recognized a way to bypass this and he did so through CSPAN.
+- I want to thank Chris Hayes and his team for creating a totally original and incredibly smart model for political television.
+- Enacted in 1994, the first of the MSRB rules bars employees of firms that underwrite state and municipal bonds from donating to any official seeking federal office who has any role in giving business to bond firms.
+- Typically, the view of party leaders is that primaries are best avoided. Better to coalesce around a consensus candidate early, help that candidate amass a mighty bankroll, and focus the attention of volunteers, activists and other stakeholders on the general election.
+- Trump showed you can get elected by voters who think very poorly of you.

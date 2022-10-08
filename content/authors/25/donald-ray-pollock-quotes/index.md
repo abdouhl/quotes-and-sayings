@@ -1,0 +1,26 @@
++++
+author = "Donald Ray Pollock"
+title = "Donald Ray Pollock Quotes"
+quotes_len = "20"
+description = "the best 20 Donald Ray Pollock Quotes"
++++
+- Don't get me wrong: I think that everyone should put forth an effort to do better, but let's face it, some of us are just plain luckier than others.
+- Four hundred or so people lived in Knockemstiff in 1957, nearly all of them connected by blood through one godforsaken calamity or another, be it lust or necessity or just plain ignorance.
+- I'm not sure about 'absolute' happiness, but I am happiest when I go to bed at night knowing that I tried to do my best that day.
+- I would like to write a book that wasn't so violent and weird, but I just don't think I can do that with my talent. I don't think it would come off.
+- I'd always been a big reader, and I loved books, and I always thought writing would be a great way to get by in the world.
+- I would try to write my own story about some East Coast suburbanite having an affair or something like that. So I did that for maybe two years or so, and it just wasn't working for me at all.
+- When I turned fifty, I decided to quit the mill and go to graduate school.
+- I listen to a lot of different stuff, from Mozart to Johnny Dowd to Monster Magnet. I don't listen to music while I'm writing a draft, but I do listen to it when I'm revising.
+- I am very indebted to southern writers and not just Flannery O'Connor. Also Harry Crews, Larry Brown, Tennessee Williams, Barry Hannah and William Gay.
+- If the story wasn't overly long, I'd type it out. And I'd carry it around with me for a week and jot notes on it, and then I'd throw it away and do another one.
+- When I was growing up, I just wanted to be somewhere else. I didn't like living in Knockemstiff, and I figured when I got older, I'd move off to some big city.
+- When I was growing up, I always wanted to be somebody else and live somewhere else. I've always felt a little uncomfortable around people.
+- Nobody really turns out too happy in any of my stuff. It's really strange, because I'm actually a pretty happy person. I'm not walking around giggling or anything like that, but I've got this feeling that everything is okay with my life.
+- I sort of like writing about weird characters, I guess.
+- I was 35 when I started taking classes at Ohio University. After I got my degree, I kept working at the mill. When I was 45, I decided I was going to try to learn how to write short stories.
+- I spent thirty-two years in a paper mill in southern Ohio, and before that, I worked in a meatpacking plant and a shoe factory.
+- I was always a big reader, even when everything was bad and miserable.
+- I'm not really a good reader. What I mean is, I think I'm not one of those people who can read a story and analyze it just like that.
+- I'm probably the least cerebral guy you're ever going to meet as a writer.
+- 'Knockemstiff' is a collection of short stories set in the holler of the same name in southern Ohio where I grew up. I tried to link the stories together through the place and some recurring characters.

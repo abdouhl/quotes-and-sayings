@@ -1,0 +1,29 @@
++++
+author = "John Belushi"
+title = "John Belushi Quotes"
+quotes_len = "23"
+description = "the best 23 John Belushi Quotes"
++++
+- I want to do different things all the time.
+- Christ, seven years of college, down the drain.
+- If Brando can do Capote and I can do Brando - well then, I can do Capote.
+- I give so much pleasure to so many people. Why can I not get some pleasure for myself?
+- I've seen Animal House two and a half times now at sneak previews with a real audience, and the reaction was great.
+- I used to scrimp with Judy in one-room apartments.
+- I guess happiness is not a state you want to be in all the time.
+- I'm learning to cope and not deny my own success, but I still think it's not happening a lot. I get nervous, and I am capable of doing something to blow it on purpose. A lot of actors have that problem.
+- It's hard to go back and be constantly funny.
+- You don't know what it's like to be me.
+- I don't go anywhere without Judy.
+- The trick is knowing what you want to do and then resolving to do everything you have to do to get there.
+- What rock n' roll was supposed to be about was getting loose, enjoying it, going a little crazy, and not caring how you act or dress.
+- Work is no longer challenging.
+- Rock n' roll is at a standstill, I think - and comedy is taking its place as something exciting.
+- Nothing is over until we decide it is! Was it over when the Germans bombed Pearl Harbor? Hell, no!
+- It's all false pressure; you put the heat on yourself, you get it from the networks and record companies and movie studios. You put more pressure on yourself to make everything that much harder.
+- Some comedians love their characters. I don't fall in love with mine. In fact, I get tired of them very fast. You have to be willing to throw it all away.
+- Back in Chicago, all we cared about was rock 'n' roll and staying out of the army.
+- It's very hard to be a good actor, you know. It's easy to be cute.
+- I owe it all to little chocolate donuts.
+- I want to do a romantic comedy that nobody thought I could do. And then do a comedy with Dan Aykroyd that is totally different from 'The Blues Brothers.' I'm a comic actor, but I'm an actor, too.
+- I'm out of control.

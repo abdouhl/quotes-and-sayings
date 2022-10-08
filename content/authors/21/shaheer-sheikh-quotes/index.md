@@ -1,0 +1,72 @@
++++
+author = "Shaheer Sheikh"
+title = "Shaheer Sheikh Quotes"
+quotes_len = "66"
+description = "the best 66 Shaheer Sheikh Quotes"
++++
+- TV does not have anything meaty to offer the male actors. It is a female-dominated industry.
+- I am a person who keeps doing something or the other, pursuing one interest after another.
+- I worked very hard playing Arjun, and I was consumed by the character.
+- If I like what I am doing, the TRP games doesn't bother me.
+- My fans write to me every day, and I feel connected to them. They know me, and I know most of them by their name.
+- I think I should go out and socialize more, meet more people. But I don't do that a lot.
+- I feel Arjun is one of the central characters of 'Mahabharata' and people have lots of expectations from me when I started working on the show.
+- I really don't believe in planning my life. I am just going with the flow and following my heart.
+- When I came to Mumbai, I had no experience in acting 'til I actually did it.
+- One thing just led to another, and today, here I am, acting in a daily soap, and I am just loving it.
+- I never joined the TV industry for fame.
+- I have worked too hard on my body. I hope people like it.
+- I have been offered films as well, but it's better to do good television shows rather than a small role in a film.
+- I'm from Jammu, and every time I go to there, I make it a point to stop by Delhi and meet up with my friends and, of course, eat the chaat here.
+- Photography is my passion. Whenever I get time, I click.
+- I have a message for all the birdies who try to get in touch with people online who they think might help them to meet me or give my personal information. That will never happen. Don't believe anything anyone tells you on social media about me because not even my parents know what I am up to.
+- The show 'Mahabharat' has given me sleepless night; I just couldn't stop thinking about it. It's a once-in-a-lifetime opportunity for me, and I don't want to leave it at any cost.
+- I don't think I have the power to do more mythological shows, but I would love to if it's like a finite series. But doing that as a daily soap is not easy.
+- When I was shooting for 'Mahabharat,' in those one or one and a half years, I didn't live my life. I was living as Arjun. Not even one single day I was Shaheer. But that paid off very well, as everyone loved my role.
+- I have no idea if I will go for an arranged marriage or love marriage.
+- I like challenges, and thus, I keep trying something different and new every time. And these challenges and interests turn into passion.
+- I always wanted to act. I am very passionate about the art. So when I got the opportunity, I was more than happy.
+- I'm very passionate about making good films. I want to make good films for the whole world because I think it is one of the biggest inspirations for society.
+- I do what I feel like doing.
+- When I told my dad about my decision to take up acting, he supported me in every possible way. He's very proud of me. Mom's happy because, as an avid TV viewer, she loves seeing me up there.
+- I have learnt one thing in life: if you love being with someone, you have to accept that person with all the flaws.
+- I am thankful to all the love that I have received from my fans.
+- Arjun was a perfectionist. He was the perfect son, the perfect husband, the perfect father and, above else, a great warrior.
+- A lot of subjects are untouched by the Indian Television.
+- Mythological shows take a lot from you.
+- Shooting in Jaipur was one of the best experiences of my life. The city is culturally quite rich, and each part of it has a history.
+- I plan to venture into direction as well.
+- That's my whole motivation in life - to educate people to become better a citizen, better person, better son, and better father.
+- I am not really keen on doing reality shows. But you never know.
+- To get married, I need to first fall in love.
+- I would love to do films, but the script has to excite me.
+- I buy whatever I need and want for myself.
+- I would like to spend more time with my parents. I wish they could shift to Mumbai or I could go and spend time with them.
+- I have learnt one thing in life: that if you love someone, you have to accept that person with his/her flaws.
+- I am more than happy that I did 'Kuch Rang.' Really proud to be a part of this show.
+- I have no notion of a perfect woman, as I feel if I fall in love, it can be with a wrong person also.
+- My work keeps me so busy that I don't have much time even to interact with my family.
+- I live every day as it comes. I never plan my life.
+- I am a human being: sometimes I am happy, but sometimes I am not feeling that great or not in a mood.
+- I don't mind if what they write about me has some truth in it. Pure imagination makes me feel sad about the whole thing.
+- Earlier, I used to try to act, but now I just react naturally. I feel the scene and then do it. Emotions, feelings just flow in naturally.
+- I'm fun with people I know. But at the same time, people also say that I am a little cold, rude, and moody. 'Moody' is the word they generally use for me.
+- I was studying in Pune when I was asked to audition for 'Navya' through a social networking site. Once I landed the show, there's been no looking back.
+- Arjun's character has brought discipline in my life. Now everything happens in my life well planned. Initially, I used to get up at any time, but now I get up at appropriate time, and I keep a check on my diet.
+- Arjun is very close to my heart, and even the audiences associate me with the character.
+- I am drawn towards this new format of web series.
+- My fans' love and support keep me going. I've a cupboard which comprises letters, cards, and gifts sent by my fans. They encourage me whenever I feel low.
+- It's amazing when people who don't even know you pray for your good heath and success. But being a private person, sometimes I don't know how to handle the adulation that comes my way.
+- Putting yourself in danger just to meet me or talk to me is not a sensible idea.
+- When I am not shooting, all my waking hours are dedicated to horse riding and gymming.
+- If you do a bad role in a film, you may not get television offers in future.
+- I can do a dance, adventure, or sports-based reality shows. But I cannot live in a locked house because I'm very moody.
+- The movie 'Devdas' is extremely close to my heart. It is one of my favourite movies. and the name Dev, too, is something I like a lot.
+- When I get time after pack up, I try hitting the gym or go for a jog.
+- Feeling and reacting has more impact than just trying to emote what your character's saying.
+- Delhi is like my second home.
+- I was happy being a lawyer, and the thought of becoming a model or even actor never came to my mind, even though I knew I looked good.
+- Playing the character of Arjun is a challenging task, and I like taking up challenges.
+- I learned acting while doing my shows. I never joined any course or anything. I just jumped into acting. I learn from experience.
+- Supriyaji is my all-time favourite actor. 'Tu Tu Main Main' was the first show I watched as a kid, and I have loved her work since then.
+- I used to be a model, but acting was never on my mind.

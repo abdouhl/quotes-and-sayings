@@ -1,0 +1,20 @@
++++
+author = "Gordon Taylor"
+title = "Gordon Taylor Quotes"
+quotes_len = "14"
+description = "the best 14 Gordon Taylor Quotes"
++++
+- Football has to work really hard to put a smile on people's face and not to be so focused on the question of money. Everything is in danger of losing its soul if you're always going to sell out to the highest bidder.
+- Footballers are the most vulnerable people. They exude confidence, but inside, they're so lacking in confidence. They know they can lose form or be injured. This profession is so insecure, you wouldn't believe it.
+- David Beckham is a patriot, and I am sure he will help in any way he can. Beckham needs to be part of any future plans to remould the England set-up. Beckham and players like him need to be integrated into the set-up in the same way that the Germans take on board former players from Beckenbauer to Rummenigge.
+- Every person has got the right to speak in public so long as it is their own point of view and it does not reflect badly on their employers, the game or other personalities in the game.
+- You don't hear a film director saying 'Money mustn't go out of the industry' to actors. You don't hear a concert promoter saying 'We must make sure that money doesn't go out of our industry' to Elton John. Some people in football seem to think, 'Never mind the players, let's get on with the game.'
+- Footballers are kept in such a bubble that horse racing is a release.
+- The whole object of the players' association is to try and make sure that any individual is able to capitalise on his ability, particularly in football, which is a very short career.
+- Manchester United and Liverpool have been bought with huge leverage, and we've got Roman Abramovich at Chelsea who can turn his loans into shares. It is really important for the Premier League to ask itself: if a club is being bought on such a mountain of debt, isn't that a possible recipe for disaster for the future?
+- I know so many players who say they wouldn't entertain coaching, until they retire that is, and then they want to take their coaching badges. I suspect this might happen with David Beckham.
+- In politics, they found there were not enough females in the House of Commons, so they came up with the idea of shortlists having to have women on them.
+- There are people who enjoy the life in England but don't pay a penny in tax, whereas my footballers pay more than half their income in tax.
+- We are trying to educate players to use their spare time to train for a life after football, which comes to everybody. You can lead a lot of horses to water, but you can't make them all drink.
+- The Football Association have always acted more as a referee than a governor. And the FA, aware the Premier League provide players for the England team, have always had too gentle a hand on the tiller. The result is that the Premier League are the tigers in the English football jungle everybody's scared of.
+- Footballers are an easy target. They are offered big lines of credit. Every sport is vulnerable; it's such a big gambling industry, and there are problems with syndicates in other countries.

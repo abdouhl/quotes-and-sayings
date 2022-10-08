@@ -1,0 +1,19 @@
++++
+author = "Jennifer Sky"
+title = "Jennifer Sky Quotes"
+quotes_len = "13"
+description = "the best 13 Jennifer Sky Quotes"
++++
+- I came on to the film with a very happy-go-lucky attitude which I think my character, Charlie, did when she went into the house. I expected it to be good, and then slowly things started to change for us all.
+- I guess men like me - somebody out there must think I'm hot.
+- The '80s were fabulous. The '90s sucked, and the '70s were just a sad, sad time in human history. Go 1980s! There's something that's just so cute about that time. And not just yellow nail polish and 'I'm a loner.'
+- Growing up in Florida, it rained a lot, so we spent a lot of time indoors. I used to love Frogger. I got a lot of use out of that and Ms. Pac-man on my little Atari.
+- I was big time into Barbie. I also had Wonder Woman Underoos that I really liked. I actually wore them as an outfit to school. As I said, I was a strange child.
+- I had glasses and was kind of weird. A lot of actors are pretty weird people.
+- I was very introverted. I had glasses and was kind of weird. A lot of actors are pretty weird people.
+- I don't even like to show midriff - it's my characters who are always showing midriff.
+- I just see myself as just an ordinary chick from Florida, not some beautiful woman.
+- I was big time into Barbie.
+- I'm not really very comfortable being hit on at all.
+- I come from a TV background, so for me this more like doing a freeing theatre piece because we'd go into a room and do the scene, instead of doing it as a wide shot, medium shot, and close up with only the odd line of dialogue.
+- I also had Wonder Woman Underoos that I really liked. I actually wore them as an outfit to school.

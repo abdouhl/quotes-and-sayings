@@ -1,0 +1,122 @@
++++
+author = "Jillian Michaels"
+title = "Jillian Michaels Quotes"
+quotes_len = "116"
+description = "the best 116 Jillian Michaels Quotes"
++++
+- There is a huge misconception that if you do something like hot yoga, you'll burn more calories, and the opposite is true. You want to heat your body from the inside out, not the outside in.
+- I have this intrinsic sense that everything will be okay.
+- If I was ashamed of who I am, I would be in the closet.
+- Gay is not a choice.
+- I supplement a lot. So I'll take a probiotic, and I mostly eat green food.
+- Whenever you have a failure or setback, you need to take a step back and find out what you can learn from the scenario. What did you do to contribute to that failure? This way, you can make sure you don't repeat that pattern.
+- I've always believed fitness is an entry point to help you build that happier, healthier life. When your health is strong, you're capable of taking risks. You'll feel more confident to ask for the promotion. You'll have more energy to be a better mom. You'll feel more deserving of love.
+- If you don't solicit me for help, I'll leave you alone.
+- People that know me know I'm very good about doing my own thing and minding my own business.
+- Make 80 percent of the food you eat healthy, then take 20 percent of your daily calories and make them fun.
+- You have to learn how to listen to your emotions, letting your internal compass guide you. Your emotions let you know when you are on and off track.
+- Life has a way of working out the way it's meant to.
+- I was an overweight kid, and I went through a period where, oh my God, they were making cow sounds at me when I walked down the hallway and just humiliating me. Kids can be mean.
+- Obesity in children is growing out of control. A big part of this is economic. Fake foods are more affordable. It's enticing people to eat more because they think they're saving money when they're really just buying heart disease.
+- Transformation in real life is extraordinarily incremental, and that's all I'm going to say.
+- My partner loves gardening and beekeeping and chickens and all that stuff.
+- Not to say you should let your physicality define you, but there are some things that can make people feel really insecure. So, if there is something you want to fix that allows you to feel a little bit more confident, I support it.
+- Fake fat, fake colours, fake flavours, fake sweeteners: this is poison.
+- People tend to think that metabolism is genetically predetermined. That you're either cursed or you're blessed. And that's not true.
+- I'm unbelievably superstitious.
+- I'm done with 'Biggest Loser.'
+- If you have the means, I would highly recommend using supplementations for optimal health.
+- My mom gave me enough self-worth to carry me through difficult experiences. She was very loving and accepting. She was like, 'Whelp, you're gay? OK, cool.'
+- Parenting is not for sissies. You have to sacrifice and grow up.
+- Put your choices in perspective.
+- I love yoga, but the namaste thing only takes you so far.
+- I'm a capri pant girl.
+- When you think of 'Biggest Loser,' you think of it as a TV show. But people are coming to lose weight. I take that very seriously.
+- We all have to work for happiness. And you cannot listen to other people. That is the worst mistake you can make.
+- If you don't learn from why you're in the position you're in, you are doomed to repeat it. You need to bring meaning to every setback.
+- The gay thing has always been hard for me.
+- I'm not sympathetic. I have zero sympathy. I understand about emotional eating, I understand how painful the process can be, but I also understand that change is possible.
+- When it comes to the chocolate, I allow it every single day, but I only get 200 calories worth. So I work it into my daily calories. It's a candy bar. But I usually only need it after dinner.
+- I used to tell moms that for the sake of their well-being they had to put themselves first. But I know now that's not always possible.
+- Let's just say I believe in healthy love.
+- I was an overweight kid, and my father struggled with his weight, too. We would go for a ride on his motorcycle on Sunday morning to get doughnuts, to make pizza together, or go get ice cream. I quickly learned that food equalled love and attention.
+- I really want to train Hillary Clinton.
+- I had my nose done when I was 16 years old, and I'll be honest: it did change my life.
+- When you eat a piece of white bread, think of it as putting a tissue on a fire. But if you eat something that has wholegrains, whether it's a little bit of oatmeal, a little bit of protein, it's like putting a log on the fire.
+- I have watched as a people and as a country and a culture over the course of my teenage-into-adulthood life, and I do still think there is a tremendous amount of homophobia that exists.
+- My agenda is trying to help people live a better life.
+- The key is to master a few simple ways to exercise that will burn the most calories in the least time. And you also need to figure out how can you eat more of the good stuff and less of the bad stuff without feeling deprived so your diet regimen feels manageable.
+- You can be predisposed genetically, but it's not a sentence. I'm genetically predisposed, but I manage my weight. The root of obesity, though, is usually emotional. The poor habits are a symptom of a deeper emotional issue.
+- I was picked on as a kid. I had a nose the size of a softball plus braces and acne. It was rough.
+- You can look for external sources of motivation and that can catalyze a change, but it won't sustain one. It has to be from an internal desire.
+- Everybody has haters.
+- There's a confidence and sense of self that comes with age that I didn't anticipate.
+- Witnessing the bond between a parent and their little ones firsthand really brought home to me how much I was missing.
+- I had a second-degree-blue-belt test, and I broke two boards with my right foot, and the next day I walked into school, and no one ever picked on me again. I suddenly believed in myself and respected myself. I had some inkling of my power, so the bullying stopped instantly.
+- It's impossible to put yourself first when you're a mom.
+- It's like, 'Oh, well of course you want gay marriage, you're gay.' I think when heterosexual people are talking to their peers and they're like, 'This is an equal rights thing,' it's a little bit easier.
+- I've wanted to be in daytime television for a long time, because that's where you can convey a message.
+- If I'm looking at a client, I can say, 'Oh, wow, this is where you're weak; this is what you need to work on.' I can correct her in a matter of seconds, and then she's practicing specifically on the thing she needs to work on instead of repeating the same mistakes. Having that feedback is essential for beginners.
+- Everyone is trying to make ends meet, and even if you aren't, no one wants to get ripped off.
+- The adoption process was not an easy one. The paperwork took nine months. It's a full-time thing!
+- I like to train the body from as many different angles as possible to use every modality available to do it.
+- It seems at times fate knocks on people's door, and they are too afraid to pursue it.
+- I looked to my mom as an example. And this is what I try to tell so many women: that my mom had a career, and she went to the gym. She took care of herself.
+- I find television to be a bit like a meat grinder. It's like, you have a cow, you put it through a meat grinder, and out comes a hot dog. It's almost unrecognizable.
+- I don't believe in eating throughout the day. I eat every four hours.
+- For years, I always thought it was hilarious that I was this fitness guru, because fitness was just a tool I utilized to help people improve their confidence. For me, it's never been about fitness. It's always been about helping to empower people.
+- I think that when moms just give themselves up, the kids know. They feel guilty; they resent their mother for making them feel guilty, and then they grow up and do the same thing. Whereas my mother showed me that it's okay to focus on yourself.
+- There is really no room in any healthy diet for trans fat, artificial sweeteners, and artificial colors in food.
+- There's still a tremendous amount of homophobia out there in the world, but it is what it is. I am who I am, and the people in my life are who they are, and they love us, hate us, for whatever reason. It is what it is.
+- There are millions of people who do want help. I'm not going to waste my time convincing people who aren't receptive.
+- Oh, God, food is a constant struggle for me. With exercise, I get my workout done, and I'm done until tomorrow. With food, I eat, and then an hour later I'm hungry again!
+- The fad diets are doing way more harm than good.
+- I felt the calling to adopt. You just know in the deepest part of your being that you are meant to find this little soul and guide them through life.
+- The irony is that I'm actually a very empathetic person, but I don't believe in sympathy at all.
+- Gardening is not my thing. You're digging in the dirt, and then a couple of months later, something happens.
+- Lazy doesn't exist. Lazy is a symptom of something else. The person who can't get up off their butt is just a person who's depressed. It's usually a pervasive lack of self-worth, or a feeling of helplessness.
+- Think of it this way: If you got a flat tire, what would you do? Change the tire? Or get out of the car and slash the other three tires? No! Get back on the road. Don't dwell on it; don't beat yourself up. That gets you nowhere.
+- I train in different modalities so that each muscle is targeted twice a week, with two days of rest in between.
+- You can dramatically affect the expression of your metabolism and your biochemistry by the way you eat and the way you live.
+- I could open up a little gym, and I would be blissfully happy.
+- The more you change and stress the body the quicker it's going to adapt and change.
+- I only eat healthy food, and I only want healthy love!
+- I will teach people not only how to identify their goals and dreams, but subsequently give them the tools to make those dreams a reality.
+- Whenever I've had a rough day, I like to pour my frustration into my workouts.
+- You need to cultivate your passion and crystallize your vision. If you don't know where you're going, how are you going to plan a road-map for how to get there?
+- My dad was a crazy person, but some of the best qualities about me came from him.
+- Look several months ahead, see where the obstacles lie, and figure out ways to overcome them.
+- We can't sit around waiting for big government, big business, big religion etc. to save us. We need to get informed and take inspired action.
+- I was a gay kid who didn't know I was a gay kid, which was really challenging because you think there is something wrong with you until you understand what it is.
+- The results I've seen with Bodyshred have been far superior to any program that I've ever created.
+- When you feel strong and you accomplish something physical that you didn't think you were capable of, your heart and mind open up to many possibilities that previously felt out of reach in other areas of your life.
+- It's important in life to celebrate any victory in life.
+- I don't lock into one type of exercise.
+- I wish I had some strapping football player husband. It would be such a dream to be 'normal' like that, but I'm just not.
+- People believe practice makes perfect, but it doesn't. If you're making a tremendous amount of mistakes, all you're doing is deeply ingraining the same mistakes.
+- Allow yourself a few parties, but be mindful the rest of the time.
+- In my experience, honesty is the best policy. And being a friend to somebody is not always the best way to help them.
+- Life? You can't manipulate it or bend it to your will. You have no choice but to roll with it.
+- When you're strong physically, it improves your strength in every other facet of your life. You're more confident, your self-esteem is higher, and your self image is better.
+- When I go, I go hard.
+- Strong, not skinny, is now sexy, and long workouts are a thing of the past.
+- By the time I'm 40, the hope is that I'll be solidly in daytime television and producing the various other experts we've brought along the way.
+- I was 175 pounds at 13 years old and 5 feet tall.
+- I think that anything in life is about the middle ground.
+- You just are born the way that you're born.
+- Try not to say, 'I'm a failure.' Instead, ask, 'What can I do better? What did I do wrong?' Then re-approach.
+- I'm part Bridget Jones, part Larry David. I'm shy; I'm prude.
+- Politics aside, you look at Barack Obama, he is ripped.
+- Stop turning to fad diets and use common sense.
+- I was homophobic because I obviously didn't know that I was gay.
+- I'm trying to get into the best shape of my life for 40.
+- I change the workout every month, so you never adapt and never plateau.
+- You've got to listen to the universe, to life, to God, whatever you want to call it. Because its going to speak to you.
+- Every now and again, you just gotta hit something. Not someone - something.
+- People will accomplish anything if they believe the goal is worth it - they are worth it and that they are capable of achieving it - and that's exactly what my 'Maximize Your Life' show will do.
+- Sometimes you've got to make your work and workouts co-exist.
+- I completely appreciate the importance of fathers but millions of children are without loving homes. I think a child is lucky with one parent who truly loves her.
+- When it comes to kids, it's just not hard to get them healthy. I don't find it hard and don't understand why people find it hard.
+- If there's something I hate the most, it's feeling helpless, powerless.
+- I'm on the younger end of Gen X, and for me, growing up gay was not cool.
+- Seeing my two kids together is a magical feeling.

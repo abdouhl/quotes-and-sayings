@@ -1,0 +1,62 @@
++++
+author = "George Washington"
+title = "George Washington Quotes"
+quotes_len = "56"
+description = "the best 56 George Washington Quotes"
++++
+- Guard against the impostures of pretended patriotism.
+- I can only say that there is not a man living who wishes more sincerely than I do, to see a plan adopted for the abolition of it - but there is only one proper and effectual mode by which it can be accomplished, and that is by Legislative authority: and this, as far as my suffrage will go, shall never be wanting.
+- True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.
+- If we desire to avoid insult, we must be able to repel it; if we desire to secure peace, one of the most powerful instruments of our rising prosperity, it must be known, that we are at all times ready for War.
+- Over grown military establishments are under any form of government inauspicious to liberty, and are to be regarded as particularly hostile to republican liberty.
+- The constitution vests the power of declaring war in Congress; therefore no offensive expedition of importance can be undertaken until after they shall have deliberated upon the subject and authorized such a measure.
+- Worry is the interest paid by those who borrow trouble.
+- Bad seed is a robbery of the worst kind: for your pocket-book not only suffers by it, but your preparations are lost and a season passes away unimproved.
+- There is nothing which can better deserve your patronage, than the promotion of science and literature. Knowledge is in every country the surest basis of public happiness.
+- Let us with caution indulge the supposition that morality can be maintained without religion. Reason and experience both forbid us to expect that national morality can prevail in exclusion of religious principle.
+- Labor to keep alive in your breast that little spark of celestial fire, called conscience.
+- Let us raise a standard to which the wise and honest can repair; the rest is in the hands of God.
+- I walk on untrodden ground. There is scarcely any part of my conduct which may not hereafter be drawn into precedent.
+- If the freedom of speech is taken away then dumb and silent we may be led, like sheep to the slaughter.
+- A slender acquaintance with the world must convince every man that actions, not words, are the true criterion of the attachment of friends.
+- Let your heart feel for the afflictions and distress of everyone, and let your hand give in proportion to your purse.
+- The basis of our political system is the right of the people to make and to alter their constitutions of government.
+- It is better to offer no excuse than a bad one.
+- Associate with men of good quality if you esteem your own reputation; for it is better to be alone than in bad company.
+- My observation is that whenever one person is found adequate to the discharge of a duty... it is worse executed by two persons, and scarcely done at all if three or more are employed therein.
+- Nothing can be more hurtful to the service, than the neglect of discipline; for that discipline, more than numbers, gives one army the superiority over another.
+- Few men have virtue to withstand the highest bidder.
+- When we assumed the Soldier, we did not lay aside the Citizen.
+- I hope I shall possess firmness and virtue enough to maintain what I consider the most enviable of all titles, the character of an honest man.
+- War - An act of violence whose object is to constrain the enemy, to accomplish our will.
+- There can be no greater error than to expect, or calculate, upon real favors from nation to nation. It is an illusion which experience must cure, which a just pride ought to discard.
+- Mankind, when left to themselves, are unfit for their own government.
+- Being no bigot myself to any mode of worship, I am disposed to endulge the professors of Christianity in the church, that road to heaven which to them shall seem the most direct plainest easiest and least liable to exception.
+- I beg you be persuaded that no one would be more zealous than myself to establish effectual barriers against the horrors of spiritual tyranny, and every species of religious persecution.
+- The Constitution is the guide which I never will abandon.
+- Some day, following the example of the United States of America, there will be a United States of Europe.
+- Arbitrary power is most easily established on the ruins of liberty abused to licentiousness.
+- Lenience will operate with greater force, in some instances than rigor. It is therefore my first wish to have all of my conduct distinguished by it.
+- Truth will ultimately prevail where there is pains to bring it to light.
+- Observe good faith and justice toward all nations. Cultivate peace and harmony with all.
+- Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.
+- It is impossible to reason without arriving at a Supreme Being.
+- My first wish is to see this plague of mankind, war, banished from the earth.
+- It is better to be alone than in bad company.
+- Experience teaches us that it is much easier to prevent an enemy from posting themselves than it is to dislodge them after they have got possession.
+- It may be laid down as a primary position, and the basis of our system, that every Citizen who enjoys the protection of a Free Government, owes not only a proportion of his property, but even of his personal services to the defense of it.
+- Laws made by common consent must not be trampled on by individuals.
+- The time is near at hand which must determine whether Americans are to be free men or slaves.
+- We should not look back unless it is to derive useful lessons from past errors, and for the purpose of profiting by dearly bought experience.
+- It is far better to be alone, than to be in bad company.
+- It will be found an unjust and unwise jealousy to deprive a man of his natural liberty upon the supposition he may abuse it.
+- Happiness and moral duty are inseparably connected.
+- Liberty, when it begins to take root, is a plant of rapid growth.
+- Friendship is a plant of slow growth and must undergo and withstand the shocks of adversity before it is entitled to the appellation.
+- I am persuaded, you will permit me to observe, that the path of true piety is so plain as to require but little political direction.
+- Let your Discourse with Men of Business be Short and Comprehensive.
+- To be prepared for war is one of the most effective means of preserving peace.
+- Discipline is the soul of an army. It makes small numbers formidable; procures success to the weak, and esteem to all.
+- The alternate domination of one faction over another, sharpened by the spirit of revenge natural to party dissension, which in different ages and countries has perpetrated the most horrid enormities, is itself a frightful despotism. But this leads at length to a more formal and permanent despotism.
+- The foolish and wicked practice of profane cursing and swearing is a vice so mean and low that every person of sense and character detests and despises it.
+- I have no other view than to promote the public good, and am unambitious of honors not founded in the approbation of my Country.

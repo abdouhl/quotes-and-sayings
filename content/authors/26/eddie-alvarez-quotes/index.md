@@ -1,0 +1,104 @@
++++
+author = "Eddie Alvarez"
+title = "Eddie Alvarez Quotes"
+quotes_len = "98"
+description = "the best 98 Eddie Alvarez Quotes"
++++
+- The idea is to go out there and win in a dominant fashion. That changes people's minds, the way they're thinking about me, and lets people know I'm here to contend for a title.
+- I think it's important to say that I am genuinely thankful for the time at Bellator.
+- I like to keep a high pace, violent fight. I don't like to waste time, and I don't like to go to the judges. I feel like I've fought long enough where I can adapt to just about any situation.
+- Conor McGregor - this guy is so offensive minded and never on the defense that whenever you put him on the defense, he gets so flustered and so upset.
+- The first time I fought Mike Chandler, I was thinking about money way too much. I was thinking about the end of my contract. My focus was way off. I didn't believe in the people that were guiding me.
+- If they could put us all in a tournament, that'd be the best way, but they're not going to do that here at the UFC.
+- I would love, love, love to watch Conor McGregor fight Floyd Mayweather.
+- I've experienced success, I've experienced failure, I've been a world champion, I've fought all over the world; I think I've experienced enough that I won't get in front of a million people and get gunshy.
+- I think sports is a quest to find out what really is - not what perceptions are.
+- Having your worst nightmares kind of come true is truly liberating.
+- I enjoy fights the most once them nerves go away and you settle into the fight. That's when you can have your fun and be creative and just kind of be yourself.
+- I want an opportunity to fight the best in the world and make millions of dollars doing it.
+- I had to fight Donald Cerrone, Anthony Pettis, Gil Melendez, Rafael Dos Anjos. I had to fight these guys in order to prove myself in order to get a title shot.
+- I want to fight Gilbert Melendez.
+- With MTV2, every fighter is exposed to millions of people, and they won't have to take a monster pay cut to do so.
+- When I say 'fighter,' I am thinking about how you deal with adversity, how you deal with being in bad situations.
+- My biggest fear as a fighter is to be knocked out in front of millions of people. But after it actually happened, there's this calmness about you that says everything is OK.
+- I really didn't want to enter the UFC in a fight that nobody really cared about or where people thought I was just going to whoop some guy.
+- I won my first 10 fights by knockout. The money was getting larger at the same time.
+- In this sport, the good thing about the UFC and MMA in general is a lot of it's based on perception.
+- The truth is, a large majority of the market, I'd guess 80 percent, doesn't know anything more than what they are sold.
+- I've done it a couple times where I've had fight of the year. It's not what you aspire to.
+- Money is always a motivating factor, but money has never been my driving force. In my first fight, I paid the promoter in order for me to fight. I was in the hole 300 bucks for that. Money has always been a byproduct of me doing something I love.
+- I've been fighting the best guys, so I would like a gimme fight.
+- If I can put the right guy with the right mouthpiece in front of the right opponents, we can build a champion, but he doesn't really have to beat the best guys; we just have to give him the right matchups.
+- The longer I'm in this sport, the more I realize that it's not about the wins and losses that makes you a good fighter. It's about putting the time in and fighting the best guys possible and going after them. The outcome will take care of itself.
+- You win a world title, you beat the best guys in the world, and a lot of these fans are kind of misconstrued about who are the best fighters in the world.
+- People say I'm good at standup. I don't even think I'm that great at standup. I just hit hard. I don't think I'm super technical or anything like that. I got a couple knockouts. I think I just hit hard more than anything.
+- If your worst fear can come true, and everything can still be OK, then there's really not much to fear at all.
+- It's MMA - anything can happen. You can throw a punch from one knee, a punch from anywhere.
+- I'm my own biggest critic, so no matter what was being said in the media or being said by fans, I feel the worst when I disappoint myself.
+- I'm not here if Bill Hunter never forced my hand in wrestling. It was a pivotal point in my life.
+- I've knocked a ton of guys out. I know the power I have and the advantages I have against the best in the world.
+- I don't like going to 155; I do it because everyone else does.
+- I will fight whoever the UFC wants me to fight.
+- Where most kids play stickball and hockey, I'd walk down the streets with two sets of boxing gloves and knock on my friend's door and see if he wanted to box. There were boxing gyms on every corner.
+- I don't have a nickname. But, hey, they can call me what they want - The Silent Assassin, The Underground King. In Japan, they call me American Knuckle Star. Call me what you want.
+- I've got the fighting Irish, and Puerto Ricans are some of the best fighters in the world. I'm proud of who I am, but it doesn't define me as a person.
+- Me? I'm no sob story. I get paid well, and I live comfortably.
+- I never prepare according to how I feel for a fight. I always prepare to be a better me.
+- It's a fist fight - the idea is to go out there and impose my will.
+- I boxed. I did track and field; I did basketball, football, any sport I was able to sign up for.
+- Where in normal neighborhoods, they would play stick ball and hockey and baseball, we used to slap box and bring boxing gloves down the street and box each other.
+- There's a part of martial arts where we need humility and respect.
+- I know what I can do at 155.
+- I beat Gilbert Melendez, and he got two shots at the title.
+- I'm old school, man. I think, if you want to be the best, then beat the best guys.
+- I want to fight only dangerous guys. Whenever I've done that in my career, I've stepped up and risen to the challenge.
+- The fans, man, the fans have a little different way of thinking. They really applaud the spirit of fighters, and that put a huge influence on the type of energy I fought with, rather than if I won or lost. America's a real win-or-lose culture, where with the Japanese, fighting with spirit is enough.
+- The more dangerous the opponent, the better fight I've fought. It always made me move in ways I'd never moved before.
+- I have a very good ground game and very good wrestling. People just underestimate it. That's it. I want to keep it like that.
+- I want the best guys the promotion has to offer, put them in front of me, and I'll beat them.
+- If you're not successful at a certain weight, it rarely has anything to do with gaining or losing 10 pounds. It's something inside of you that you need to fix in order to win. It rarely has anything to do with cutting 10 pounds.
+- There's a lot of guys in the UFC who are good at one thing, and they get matched up stylistically well.
+- There's not a single strike that good preparation can't negate.
+- Fighting, for me, is not a career - it's an opportunity. I'm going to take full advantage of it and do it as long as I can. As long as my body lets me and I'm healthy enough to do it naturally, I'll do it.
+- I like to be with my back against the wall in dangerous situations.
+- I don't need to be told what I am or what I should do or if I beat this guy it means I'm good or if I lose to that guy it means I'm bad. I'm at peace with myself, and I know what I do every day in my training will speak for itself, and success will be a byproduct.
+- I'll beat a bunch of good guys, and then I'll get a ton of fans come up to me and go, 'Do you think you can beat Conor McGregor?' And I'm like, 'Oh my God. You guys are disillusioned.' They think because this man's popular he's good.
+- I have a tremendous support from a lot of the Underground fans. They believe in me, they want to see me do well, and they're behind me. But there are a lot of people out there who don't believe it, and so I want to separate perception and reality. I want to be able to do that.
+- The fights for me are always about what you cannot see, the intangibles. It's about what's inside - what really is inside.
+- Typically, I would say that I'm not defined by one loss and I'm not defined by one win. But I'd be lying if I told you I didn't harp on the loss at Madison Square Garden.
+- I'm proud of both sides, and they are both really well known to be fighting heritages, so I tell everyone all the time - they say, 'What are you'? - I say I'm Irish. I'm Puerto Rican. I guess I was born to fight.
+- I will do whatever the UFC tells me to do, but there's not a doubt in my mind that I can be champion.
+- I rarely think that when a guy loses a fight, it's a weight issue. You can either fight, or you can't.
+- Going in there just to win and put on a boring fight, I don't want to be related to anything like that.
+- You don't want to be in a fight of the year. It takes years off your life. But, it's why fans tune in; it's why people gravitate toward your fights. It's why people want to watch you fight. It's important to get into them, but it's important to try not to get into too many of them.
+- From wrestling, I learned that I was capable of much more than I thought I was.
+- The goal never changes. It's about beating the guy in front of you.
+- I think bullying in general is for cowards.
+- Every once in awhile, we all get a bad hand dealt to us.
+- Fighting in general, but especially when I was younger, was tough to deal with because there are so many external things going on that want to control you that most people have no clue about.
+- I don't want to go that route where I'm going into fights dehydrated. I used to fight at 170 pounds. I was 10-0 at 170 with eight knockouts. I'm not going to listen to somebody from the outside tell me what weight I should be fighting at.
+- The fighters and the fights are what makes UFC great.
+- The business aspect of this sport is a contradiction to what it's really about, and that's knowing something for what it is and not just what it looks like.
+- We got four-ounce gloves here. It's not hard to knock someone out.
+- Gray Maynard? Kenny Florian? All these guys, they're UFC fighters, that's all. They're pushed by the UFC, but when they leave the UFC, they're forgotten. When's the last time you heard Josh Neer's name? You haven't. When's the last time you heard about Roger Hurerta? You haven't. They're no ones anymore.
+- I want to prove the naysayers wrong. They're everywhere. And to be honest with you, they're all I see, and they're what motivates me.
+- When I joined UFC, I said I want to be involved in fights where millions of fans are watching, biting their fingernails, thinking, 'What the heck is going to go on here?'
+- I started this fight career with one objective. When I step inside a ring or an octagon, it is to beat the guy in front of me.
+- It's hard when you win the title to not think, 'I'm here. Now what do I do?'
+- I've said it from the very beginning: Fighting the best guys in the world doesn't pay as good as the circus. I want to join the circus. I'm trying to get that circus money.
+- I never take a round off or a run off or a push-up off; that's just not in me.
+- The right thing to do is just ask what you can give, and then let things manifest in the time they're supposed to.
+- Regardless of the magnitude, the crowd, or the pay-per-view sales, the goal is to beat the guy in front of me.
+- I was never the most technical; I was never the best at one aspect at this sport, but what I was always good as was negating people's strengths and putting them in terrible situations where they're uncomfortable.
+- I'm looking to grab the UFC and pull them back in the direction of Philadelphia.
+- Out of nowhere, they made an interim belt and had Lee fight Ferguson. This is very odd for me; what went on there? You know. I don't know what went on there.
+- I can walk into a restaurant and knock five guys out, become 5-0 real quick. It's about the quality of opponent. You have to beat the right guys to call yourself the No. 1 contender.
+- The most comical thing for me, even when I watch movies, is the guy who's so crazy confident about himself, with the mink jacket - to me, that is so funny. I wish I could be like that. As a fighter, I wish I could do that, so I could make people laugh. But I can't; it's not my style.
+- When I fought Nick Thompson, I wasn't experienced enough. That was the first person that put me in a real fight. Before Nick, nobody had put me in a fight where I had to struggle.
+- These kinds of fights, these big fights that get everyone talking and interested, these are the fights I want.
+- I'm a whole lot more than just Spanish or Irish or whatever, but definitely, it's given me help. It's given me a push, and I'm very proud of my Spanish heritage.
+- I think when it comes to re-signing with an organisation, there's no real compromise if you're trying to move on.
+- I'm a little unconventional; I do things a little differently.
+- As far as Nurmagomedov, I just don't get how you become the No. 1 contender without actually fighting guys who are ranked in the top 10. It kind of baffles me.
+- I believe that in order for me to consider myself one of the top ranked lightweights in the world, I have to go out and dominate the fight.
+- Although I'm shorter, all of my weight I carry in my back and my butt. That's where most of my weight is.

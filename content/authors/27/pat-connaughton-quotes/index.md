@@ -1,0 +1,106 @@
++++
+author = "Pat Connaughton"
+title = "Pat Connaughton Quotes"
+quotes_len = "100"
+description = "the best 100 Pat Connaughton Quotes"
++++
+- Out of respect for the Baltimore Orioles, it would have to be a crazy scenario for them to look differently on me and for me not to come back.
+- I like to think that as much as I have a passion for both sports, I also am a decently smart guy on the business side.
+- You've got to make the winning plays at winning time, whether it's a shot in the clutch or getting a big defensive rebound. Those are the intangibles I try to bring.
+- I think there are a lot of people who say they want to be professional athletes, say they want to make millions of dollars, but don't necessarily like doing the hard work that goes into it.
+- The signing bonus is a ton of money, especially for a 21-year-old. But I'm not going to live off that money. At some point, I'm going to live off a college degree.
+- I love St. John's Prep as a school. I like the people there, it's a great school.
+- Sometimes the hardest shot is when people are giving you space to shoot, because it messes with your head.
+- I realized if and when I ever put my mind strictly to baseball. I can do some things very few people in this world can.
+- One of the things that I've always had fun with is the stereotype 'white man can't jump.' It's followed me along my whole career and it's something that obviously I've tried to disprove many times.
+- Hey, I'm comfortable with my masculinity.
+- I want to see if I can play in the Big East, ACC, Pac-10, and pitch, too.
+- Notre Dame was the first school to offer me basketball-wise.
+- I've done it before where I get guys banging their bat on the ground after their second or third at-bat because you just have so many different combinations to try to get him to swing and miss.
+- As guys know that you're a shooter, well, they're going to try to run you off the line.
+- When Coach Mike Brey at Notre Dame was recruiting me, he was like, 'There will be Irish on the front of the jersey; and Irish on the back of the jersey.' But no one actually knows I am a citizen over there.
+- I rooted for all types of Boston sports.
+- To be honest March Madness has not treated me very well.
+- I grew up with all hockey players.
+- There's nothing like being a pitcher on the mound. You're by yourself. Ever since I was a little kid watching Pedro Martinez do it, night in and night out. I've always loved it.
+- I drank a lot of milk as a kid so maybe I can get on a 'Got Milk?' commercial at some point.
+- We were able to change the mold of the regular season for Notre Dame basketball, so we thought, 'Why can't we do it in the postseason?'
+- The tap of the backboard, that's a lot of body control, I've gotta be hanging in the air for a quite a bit of time.
+- I only dabble in the digital currency. I'm not an expert or know if it's going to boom or bust. But being a business guy, I try to diversify a little bit.
+- For me, it was my dream as a kid to play two sports at the highest level I possibly could. Doing that at Notre Dame just meant I had to sacrifice in ways a normal college student wouldn't have had to sacrifice.
+- As NBA players, so much of the game is mental, as far as confidence and playing against the best players in the world.
+- It's not about how much weight you can lift in-season. It's about how fast you can move it, how strong you are, how you can maintain that strength so you can produce on the floor.
+- I play a lot of positions in high school, but in the end I'll probably be a pitcher.
+- No one thought I could even play D-I basketball.
+- For me, it's about making the winning plays, making the right plays, making the basketball plays and being aggressive whether it's on defense or offense.
+- I'm in a unique situation in every facet of my life.
+- For me, I love doing different things with real estate.
+- For me, defense is something that's important.
+- I'll celebrate for my teammates whenever a play is made.
+- You see people say: 'He should go back to baseball. He should do this; he should do that.' Those are people who said I would never even make it here. There's always another hurdle to go over, and it's fun to use that as motivation.
+- Basketball has always really helped me physically for baseball.
+- In my mind, I will pitch in MLB.
+- For me, I like any win I can get. It doesn't really matter where it is or who it's versus.
+- I'm not going to explore basketball recklessly.
+- I'm pretty confident in my strength, my ability to move, and athleticism.
+- You have to make sure you're good enough for basketball and in a good enough position where a team trusts that if you are pitching in the summer, you're still working out with basketball and still be able to succeed when you get back. If that bridge comes along, I'd definitely try to pursue it and make a run at it.
+- Not many guys are on a professional baseball roster, but have an ability to pursue another professional sport.
+- One of the things that I was taught in Portland is 'Never too high, never too low.'
+- I'm a competitive guy.
+- Sometimes I'll read a book before bed.
+- How many guys can say they've played in two professional leagues?
+- People know I'm from Ireland or have Irish roots.
+- I'm in a fortunate position where real estate isn't my full-time job, but I have an extreme passion in the field, so as far as picking projects, we don't have as much pressure in having to pick one in order to make a living.
+- Winning has always been the most important thing to me.
+- You've gotta feel at home when you're on the mound.
+- At the end of the day, if I can prevent the shot from getting to the rim, it's going to help my team.
+- This is the analogy I use is: A lot of guys tape their ankles, a lot of guys use braces on their ankles. But that becomes something your body relies on. It actually weakens your ankle muscles. So if you were to ever not use the tape or brace, or do lifts, you may not be as strong.
+- As busy as we are and as focused as we are at our sport, there are times the coaches want you to get away from basketball.
+- I wake up, I'll scramble some eggs, cook some bacon, have a few pieces of toast, yogurt, smoothie, whatever it might be. I'll then workout, whether it's outside, inside, bike, weights, whatever I have access to, however creative I can be.
+- I understand assets. My arm is an asset, and I need to take care of it.
+- You don't find a 6-foot-5 pitcher with the athleticism and coordination I have all that often.
+- Every playoff game is kind of like its own movie.
+- If you would have told me when I was a kid that I would be sitting here with an ACC championship and been drafted in the fourth round of the Major League Baseball draft, I would have taken it in a heartbeat.
+- The love of basketball, the time and effort I've put into it - I'd be doing a disservice to myself if I didn't see how far I could go in basketball before I tried to do anything in baseball.
+- When I was able to come to a school that not only has some of the best athletics but the best academics, I wanted to make sure I didn't let this school down.
+- You're using the same body parts over and over again, eventually there will be wear and tear.
+- For me, it's about making sure I do the best I can for my team.
+- I'd love to play in Cowboys Stadium or one of those football stadiums.
+- Winning a championship in Milwaukee, it's not about my other business. It's about bringing the notoriety to a great city.
+- It depends obviously on how the Bucks feel but I'd love - someday - to go over there and play in Ireland. I don't think they've had a ton of NBA players.
+- Obviously you have to be realistic. You have to figure out how you can succeed.
+- I grew up in a hockey town.
+- When I come off the bench, I have that intensity and that effort. That's something all of us guys are trying to bring, but especially the guys off the bench. Because we can play a role in any game, let alone the playoffs.
+- I'm in limbo. The baseball people are like, 'Oh, he's basketball athletic.' The basketball people are like, 'Well, he plays baseball, so he's probably not that athletic.'
+- I think October baseball is a lot of fun to follow, being a biased guy that enjoys the sport from time to time.
+- A lot of people see that I'm a good rebounder. And then they see the long hair and everything and they think I'm getting these rebounds because of toughness, and because I have a nose for the ball, not because I'm athletic and can actually jump.
+- I was texting with someone the other day and they asked me a question, 'What would do you if you didn't play basketball, or if you didn't play baseball? What would you want to do as a job?' My answer was, 'I've never even thought about it.'
+- I graduated from Notre Dame.
+- I bring a winning mentality.
+- You look at the body types of some of the strongest people in the world, they're compact. They can move their body weight because there's not as much distance to go.
+- For whatever the reasons may be, a lot of teams try to target me as a defender from a standpoint of assuming I'm not very great at it.
+- Everybody gets frustrated with themselves when they are not playing well because they feel like they are letting the team down.
+- For me, I try to stay even keel.
+- I think the Orioles know I have real potential in baseball.
+- I think it would be pretty cool, whether it would be basketball or baseball, playing for a national team.
+- In today's day and age, where so many kids are taught to specialize so early, I want to show them you don't have to - at a young age, high school age, college age and hopefully a professional age.
+- You know, if I cleaned out my backpack, which I don't really use anymore, I'd find a bunch of beads. I have a bunch of little girl cousins, they used to paint my toenails and stuff, and they'd make beaded bracelets and there are so many beads everywhere. It's kinda embarrassing.
+- The one thing I try to do with my business in real estate is try to be as creative as I can, think outside of the box and take advantage of the fortunate platform that I have, and the network I can grow within the city of Milwaukee via the Bucks, or within the Notre Dame network, or being from Boston.
+- It's kind of fun raising some eyebrows when all of a sudden you jump up and you get a tip-dunk or you dunk on Jabari Parker and everyone's like, 'Where did that come from?'
+- Baseball-wise, the Orioles specifically love that I haven't pitched as much as other guys coming into Major League Baseball.
+- I've always enjoyed the fact that a lot of people didn't have that much confidence in what I could do because I enjoy proving people wrong.
+- One thing that the coaching staff and the assistant coaches did a really good job of working me on was shaping myself into an NBA guard.
+- Now as I got older, it wasn't just that I want to be a pro in two sports, I want to be successful at the professional level in two sports. Obviously, I'm still working to attain that. Especially in basketball.
+- I don't think I've hid the fact that I like being Milwaukee Buck.
+- Part of being in the 450 players within the NBA, it's kind of a fraternity field, and if I can help them get involved in some business ventures they have interest in and help educate them along the way, I feel it is my duty to do so.
+- Kids specializing at sports at such a young age could be part of the reason why you're seeing so many injuries.
+- It's just like any job. We're either in the arena or working out during certain hours of the day, but you have other hours for things that you want to do during the day as a human being, and for me, maybe I don't go shopping. Maybe I go into my backyard and throw against a net.
+- I've always said I'm going to play two sports as long as possible.
+- I want to take basketball as far as I can.
+- You don't want to be playing 36 holes on the day before a game.
+- I think when it comes to basketball, there's so many different ways you can affect the game.
+- Bubble life hasn't been bad at all. It's different for everybody depending on their personal lives, but I don't have a girlfriend or a wife or kids. Talking with the guys that do, it's a little harder for them, a little less attractive.
+- I'm quick enough to hang with guards and big enough post them up, then when they stick a big man on me, I'm able to use my quickness to go around them.
+- Even if I have a successful and plentiful N.B.A. career, someday I am going to go back and try to be a big league pitcher.
+- Kids of this day and age know you don't necessarily have to specialize in one sport no matter how much society and your coaches are pushing you towards that.
+- A lot of the NBA teams didn't know I wanted to pursue basketball, and I'm trying to show them I do.

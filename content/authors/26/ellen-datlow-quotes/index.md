@@ -1,0 +1,21 @@
++++
+author = "Ellen Datlow"
+title = "Ellen Datlow Quotes"
+quotes_len = "15"
+description = "the best 15 Ellen Datlow Quotes"
++++
+- The genres of the fantastic and the grotesque are far more interesting to me than most mnemonic fiction.
+- Despite the fact that he's been dead for over seventy years and his prose considered purple and overwrought by many, H.P. Lovecraft's work is still widely read and has remained influential for generations.
+- I'll read any anthologies or collection I can get my hands on. If I find a book mentioned in 'Publisher's Weekly,' and it looks like it will be dark, I'll track it down.
+- Horror isn't only about ghosts or monsters. For example, paranormal romance seems the antithesis of horror. Once you have a sexy, fun vampire who is sweet, and you have a happy ending, it's not horror.
+- I hate being bored when I read a story. Even a well-trod theme can be made fresh by a different perspective or fresh writing.
+- I feel lucky that I get to read and publish stories that are not necessarily overtly horror in 'Best Horror of the Year.'
+- Dolls, perhaps more than any other object, demonstrate just how thin the line between love and fear, comfort and horror, can be. They are objects of love and sources of reassurance for children, coveted prizes for collectors, sources of terror and horror in numerous movies, television shows, books, and stories.
+- I generally find fiction without some move to the weird, less imaginative, dull, prosaic. Not all of it, of course, but a lot of it. I suppose it's just a question of taste.
+- Amanda Hocking and Hugh Howey have been successful in their self-publishing ventures. But notice that Hocking would prefer to write and hand over the editing, promotion, and selling to a traditional publisher.
+- I think most new writers are better off going with traditional publishers who will actually, at a minimum, edit your work, package it well, and market it for you.
+- Editing cannot be taught. Developing your own taste cannot be taught.
+- Dolls fire our collective imagination, for better and - too often - for worse. From life-size dolls the same height as the little girls who carry them, to dolls whose long hair can 'grow' longer, to Barbie and her fashionable sisters, dolls do double duty as child's play and the focus of adult art and adult fear.
+- Horror is edgier. Dark fantasy feels mushier to me. Finding the difference - it's an instinct. And they overlap a lot.
+- I am a collector of dolls and doll parts. I'm rarely creeped out by most dolls, either in real life or in literature, but I know many people who are.
+- I realized very young that I loved reading and wanted to do something related to books/reading for a living. I didn't think of publishing, really, until I was out of college.

@@ -1,0 +1,79 @@
++++
+author = "Suzan Delbene"
+title = "Suzan Delbene Quotes"
+quotes_len = "73"
+description = "the best 73 Suzan Delbene Quotes"
++++
+- Just because technological advances have made it easier for the federal government to collect information doesn't mean that our privacy rights can or should be violated on the ground or in the air.
+- I am running because I believe strongly that we need to get folks back to work and address the needs that the folks in the 1st Congressional District have in terms of employment and economic opportunity.
+- Stay engaged; be part of the process.
+- The United States and Israel have always had a unique and strong bond that can never be broken.
+- Congress should... at least keep pace with technological advances.
+- I don't believe corporations are people.
+- As a woman standing up here, we have to fight for the rights of women.
+- Policy gets out of date.
+- If funding for DHS is delayed, it will have a grave effect on Washington's economy as commerce grinds to a halt along the Canadian border.
+- U.S. companies need clear guidelines on when they have to turn over electronic communications to law enforcement if that information is stored abroad. The current uncertainty harms U.S. businesses and their customers and does not well-serve our foreign relationships.
+- When you have multiple patients on life support, you don't pull the plug on one just to save another.
+- People think about their business instead of their products.
+- Most of our technology issues aren't partisan.
+- In the more than four decades since Roe v. Wade, it has become clear that some will stop at nothing to obstruct women's reproductive rights.
+- I see it along our northern border - the importance of security must be balanced with humane enforcement policies that don't bully schoolchildren who are poised to contribute to our society.
+- More and more companies are updating their leave policies to reflect an understanding that being family-friendly is a smart investment in their workforce and America's future.
+- Women deserve better. They deserve the freedom to make their own health care choices.
+- Innovation is what we're going to need for the future, and that's always been a part of the technology industry.
+- The SP-i600 by Samsung with Windows Mobile software provides a great mobile phone experience that allows mobile professionals to be more productive and effectively manage their busy lives with seamless access to their data and the Internet when they are away from the office.
+- Growing our economy means supporting our small businesses, and one straightforward way to do this is to help business owners with the cost of health insurance for their workers.
+- Requiring companies to weaken devices with 'back doors' means we open up innocent Americans to the bad actors who would love easier access to our citizens' personal information.
+- There's nothing like having a football coach yelling at you at homecoming in front of a bunch of people. You do kind of get used to being inflappable in front of all that heated emotion. At times, that's very useful in business.
+- We have Windows 8 machines for our office. All of our staff have Windows phones. Some have desktops. We have a couple of folks who are using a Surface. I use a Surface.
+- Advances in technology and the Internet have dramatically changed the way we communicate, live, and work.
+- If you want to post pictures of yourself online, that's your decision, but you should understand the implications.
+- The Cingular-branded 2125 Smartphone is an example of how Windows Mobile 5.0 can create a flexible, powerful phone that helps mobile information workers access their most essential business data in a compact form factor.
+- We saw firsthand how a collapsed bridge in Skagit County impacted our local economy, which is why we must fix our infrastructure now before it's more expensive to maintain in the future.
+- The i730 provides an integrated mobile solution for customers who are on-the-go and want access to their calendar, contacts, and e-mail as well as a variety of applications and services that enable them to be more productive.
+- I will go on doing what voters tell me to do, which is working with others, working out solutions, and getting results.
+- Simplifying the tax code and reducing administrative burdens will save small businesses money and time and let owners and employees focus less on paperwork and more on how to operate in this tough economy.
+- A farm bill in Washington State is a jobs bill.
+- In this constantly evolving world, Congress must be a good steward of policy to ensure our laws at least keep pace.
+- Policy doesn't move as quickly as innovation happens.
+- Lawmakers need to be better stewards of policy and update it, not just keep adding on top of old laws.
+- People have looked at all sorts of effects of globalization and blamed trade. But it's lots of things.
+- You don't want to wake up and find out that your watch was hacked, that your thermostat was hacked, that your coffeemaker was hacked.
+- Together, Cingular Wireless and Microsoft are working to revolutionize the way people communicate with mobile devices and set a new standard for personal connectivity.
+- As I have said all along, for any trade promotion authority bill to gain my support, it must require strong, enforceable environmental and labor protections.
+- My parents were from Wisconsin, and football was a big thing.
+- Windows Mobile enables our industry partners to customize devices according to their customers' needs while including productivity features such as access to e-mail, contacts, calendar, and other critical business information for mobile workers on the go.
+- Zika has arrived on our shores, and the number of local infections is continuing to grow. Thankfully, companies like SpringStar are doing incredible work developing innovative tools to stop the spread of Zika. It's more important than ever that Congress provide the resources to deploy these technologies to the communities who need them.
+- Government has not been good about being good stewards of policy.
+- People assume that we have certain rights based on property that may be different now in a digital world.
+- Strong, enforceable environmental protections will not only help protect our planet for future generations, it will also level the playing field for small-and-medium-sized U.S. businesses by raising environmental standards.
+- Some of the best preparation I had for coming to Congress is being a football referee. Because you've got to make a decision, and no matter what you do, someone's unhappy with you.
+- When we look at policy, it's important we make sure that it's up to date and reflective of the way the world works today - and where the world is heading in the future.
+- We have a lot of folks who talk about immigration reform but haven't put their name on a bill.
+- It's not only in Israel's interest but in America's as well to stand with one of its closest and important allies.
+- The i730 combines the familiarity of Windows Mobile software with the innovative design of Samsung that will be a popular choice for mobile professionals.
+- We need to fight for the equal rights of citizens.
+- I was working in email in the early days in the late '80s, and people weren't using electronic communications at all in the way we take for granted today.
+- We don't have a lot of technology people in Congress, so one of the basic things is to help people be educated on how technology works: what's there, where is it headed, what some of the challenges and opportunities are.
+- I definitely think it's important for a CEO of any large corporation to understand how policy impacts their business and be aware of the decisions being made in Congress.
+- Congress has an obligation to clear the legal fog by passing my bill to require the federal government to obtain a warrant if it wants to conduct aerial surveillance.
+- There's nothing like making a decision when you're a football referee. It really pushes you to be very clear - to make that decision and to sell it to everybody who's there. You believe in it, but you have to make sure other people believe in it, too.
+- I talk to business; I talk to labor. I talk to everybody.
+- I know how businesses work and what government can do to help lay a strong foundation for the private sector.
+- It's clear that the small business tax credit created under the Affordable Care - while well-intentioned policy - can be improved to better serve the needs of small businesses.
+- I think we have to be more forward-looking when considering any legislation dealing with technology.
+- We are very pleased with Vodafone's decision to adopt Windows Mobile as a preferred software platform for its mobile business. Together, we will deliver services which we expect will help Vodafone achieve cost-efficiencies while delivering new propositions to its customers, thus making Windows Mobile an even more compelling platform.
+- The Windows 95 launch was such an incredible experience.
+- We need to learn what's working and what's not working.
+- The more we educate folks, the more it will help them make informed policy decisions.
+- We must not risk defunding environmental conservation programs, which is why Congress should reauthorize the Land and Water Conservation Fund to preserve our natural resources.
+- Technology is moving quickly. Policy is not moving as quickly.
+- You don't have the chance in a small business - when every dollar counts, every day - to make too many mistakes and recover from them, and you don't have the luxury of waiting to make the decision. You have to move quickly.
+- Climate change is a very real threat right now to our economy, the future of our children, to our way of life.
+- SXSW has been a melting pot of ideas and policy on immigration, cybersecurity, privacy, Internet of Things, international trade, and innovation.
+- The conversation has become so divisive now on all types of immigration reform that it is really hard to move anything.
+- Like many of you, I was very disappointed at the rollout of the Affordable Care Act.
+- As our nation continues to slowly recover from the recession, it is clear some families are doing better than others.
+- We need to pass measures that protect consumers' private information while also encouraging new technological innovations.
+- We must update our country's workplace policies to remain competitive against other developed countries.

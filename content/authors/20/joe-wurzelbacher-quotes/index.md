@@ -1,0 +1,44 @@
++++
+author = "Joe Wurzelbacher"
+title = "Joe Wurzelbacher Quotes"
+quotes_len = "38"
+description = "the best 38 Joe Wurzelbacher Quotes"
++++
+- Private unions, such as the UAW, is a choice between employees and employers. If that is what they want, then who am I to say you can't have it?
+- I have lived in Toledo, Ohio, off and on throughout my entire life, and I have plenty of friends who are union members. Sometimes we agree politically and sometimes not, but it has never kept us from being friends.
+- It's not politically incorrect to say you're Republican or conservative.
+- In 1939, Germany established gun control. From 1939 to 1945, six million Jews and seven million others unable to defend themselves were exterminated.
+- I'm a flash in the pan: a novelty.
+- I just know whenever I fall off His path, things get really hard. So I just stick with what God tells me to do.
+- One thing I've been thinking about is taking the social issues out of national politics. For example, if Georgia wanted abortion and Alabama didn't, that's going to be up to the people in Georgia. I can't sway them. Would I give them advice not to? Absolutely. Would I say it's wrong? Yes.
+- If a kid is being bullied at school, my advice to them is to punch the bully in the face. The government can create as many boards, commissions, and informational sessions on sensitivity that it wants. The fact is, we still have bullies, and we still have victims who are trained not to stand up for themselves.
+- I'm kind of like Britney Spears having a headache. Everybody wants to know about it.
+- When you can't ask a question of your leaders anymore, that gets scary.
+- It's an American worker's right to unionize for sure, but that being said, don't expect me not to point out when or if union leadership takes advantage of union members.
+- In order to work for Chrysler, you are required to join the union, in this case UAW. There's no choice - it's a union shop - the employees voted to have it that way, and in America, that's the way it is.
+- Obama likes to quote great men but will never be a great man himself. I can't stand it when our leader goes around apologizing for who we are.
+- Not all Republicans are rich, dress in three-piece suits, and have $200 haircuts. I'm somebody who's lived from paycheck to paycheck. I'm focusing on my blue-collar roots - I've worked side by side with union people.
+- I'm allowed to have my opinions as an American, but it seems the Left becomes very intolerant when you have an opinion other than what they state.
+- I've had some friends that are actually homosexual. And, I mean, they know where I stand, and they know that I wouldn't have them anywhere near my children. But at the same time, they're people, and they're going to do their thing.
+- I am a plumber. Just a plumber.
+- There is common ground we can look towards and hopefully make this country better for all of us. That is what Joe for America means. I want more jobs. I want veterans to have better benefits and not have them taken away. I want people to succeed in this country and have the tools to do so.
+- I've always found a way to make my way, and now I've had the fortune of being hired by a great company - Chrysler Corporation - one of the original Big Three.
+- Ever since Obama's election team and media thugs made me famous for asking a simple question in 2008, I've had more than my share of death threats by people who are by definition at least a little crazy.
+- You have to be taxed. Just because you work a little harder to have a little bit more money taken from you, I mean, that's scary. I worked hard for it. Why should I be taxed more than other people?
+- In 1911, Turkey established gun control. From 1915 to 1917, 1.5 million Armenians, unable to defend themselves, were exterminated.
+- When you hire a plumber because no hot water is coming out of the kitchen sink faucet, you need to go to the water heater, not the faucet.
+- Yes, I have a website that puts out conservative news. Yes, I am part owner of a gun company. Yes, I'm a Republican who was cast into the limelight for having the temerity to confront Barack Obama on the question of redistributing wealth... But I'm a working man, and I'm working.
+- The politicians in Washington are spending trillions of dollars of our money. When are Americans going to stand up and say enough is enough?
+- I was glad that I could be used as a focal point to possibly bandy around some ideas, and maybe people would open their eyes to Obama's socialist ideology. However, there were so many important issues to be discussed other than the 'Joe the Plumber, Joe the Plumber.'
+- If I can inspire some leaders, that would be great. I don't know if I want to be a leader.
+- In my dictionary, and everyone's dictionary in the 1970s, the word 'queer' did mean strange and unusual. There was no slur to it.
+- Learn the Constitution. Then when someone wants to be elected, hold their feet to the fire and make them follow it because that's what we need to get back to. It works so well when we follow it.
+- I don't believe there's two sides to every story. It's black and white. There's right and wrong.
+- I love America.
+- Can a conservative work safely and soundly in a union environment - in a shop filled with union workers, activists, voters and life-long supporters of the Democrat Party? You betcha.
+- The media's worried about whether I've paid my taxes; they're worried about any number of silly things that have nothing to do with America.
+- Conservatism is about the basic rights of individuals. God created us. As far as the government goes, the Founding Fathers based the Constitution off of Christian values. It goes hand-in-hand. As far as the Republican Party? I felt connected to it because individual freedom should not be legislated by the federal government.
+- Since I became part of the zeitgeist, I've been called a sellout many times.
+- I'm cynical by nature, but I am also very hopeful because I see people from the Left and the Right showing up to these tea parties. You have people, bikers, union members and guys in three-piece suits showing up to these things.
+- I have a zero-tolerance policy when it comes to bullies.
+- God is pretty explicit in what we're supposed to do - what man and woman are for. Now, at the same time, we're supposed to love everybody and accept people, and preach against the sins.

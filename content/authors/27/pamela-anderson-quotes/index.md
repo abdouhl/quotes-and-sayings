@@ -1,0 +1,79 @@
++++
+author = "Pamela Anderson"
+title = "Pamela Anderson Quotes"
+quotes_len = "73"
+description = "the best 73 Pamela Anderson Quotes"
++++
+- I'm known for my handwritten notes.
+- In order for a man to feel whole, he needs someone to look up to and someone to look up to him.
+- My refrigerator is full of kale and greens. I can't imagine something greasy, or eating meat.
+- I'm an immigrant myself. It was a tough road to come to America and work.
+- I started running, and I hated it. Of course, everyone hates running for the first mile. If you're running two miles or twenty miles, it always hurts. Now I live it. I look forward to it. It's really good. It clears my head.
+- I don't wear sunscreen. I don't have a skincare program.
+- I have this phobia: I don't like mirrors. And I don't watch myself on television. If anything comes on, I make them shut it off, or I leave the room.
+- I'm a complete romantic - it's why I always get married. Someone should really stop me.
+- I am what I am and I'm a horrible liar. I can't do it. I'm just very candid.
+- Like I said, everybody has got something they have to deal with health-wise, and everybody's human. I should look after myself better, but so should everybody, right?
+- There's never going to be a great misunderstanding of me. I think I'm a little whacked.
+- I don't do the gym and I don't diet. I'm vegetarian but I don't diet.
+- I've been married a couple of times and survived!
+- I hate remakes of TV shows - I didn't like the new Charlie's Angels at all - and I just don't see the point of going back and doing the same thing over again. Baywatch was fun and successful, probably because we didn't know what the heck we were doing.
+- I'm a soccer mom. I'm T-ball, soccer, karate, homework, keeping them on their schedules. I love being the snack mom, when I get to bring the cut oranges. I have one of those coolers with wheels. I'm at every game, every practice, sitting on my blanket. I love it.
+- I've had lots of things that didn't work out, like TV shows. You learn a lot through mistakes - I learned that you have to be the captain of your ship. Actually, I own my ship.
+- I have to think of moderation, which is not a word that's in my vocabulary. But I try.
+- I have two homes in Malibu, a home in Canada that I'm building, and I just love pouring my heart out into this part of my life.
+- My dad read the Bible ten times, and I want to do it in my lifetime. But it's definitely tough getting through.
+- I thought, 'If you're going to be on TV, and if you're going to be out and glamorous, the natural look can stay at home.'
+- I don't know if women are meant to run, especially after having kids.
+- Oh God, I don't know if I ever really felt beautiful. I don't, really.
+- My career only took off because of one football game. I thought it was funny. 'Playboy' called and offered me a cover just like that. I turned them down initially, because I was nervous about it and my boyfriend at the time didn't want me to do it, but they kept coming back, so I eventually said yes.
+- I look back on the last 10 years and I have to say I'm proud of what I have accomplished, because I've been able to raise two beautiful children.
+- People who wear fur smell like a wet dog if they're in the rain. And they look fat and gross.
+- Natural beauty takes at least two hours in front of a mirror.
+- Good Viking genes, being vegetarian and having rowdy dogs and kids definitely keep me in shape. Not eating meat gives me the energy I need to keep up with work, family and travel - I'm very active.
+- You grow up and change your look. I feel different from how I did in my Playboy days. Now I think I'm in charge of toning down my look or not.
+- I feel... sexier, I think, with short hair. I feel like an alien!
+- I want to see what I look like when I'm old - I'm curious where that's going to take me.
+- I do a lot for PETA. I do a lot of things I think are really important, I volunteer at school and I'm still amazed I can pay my bills because I feel like I don't work that much, I really don't.
+- And I'm not an actress. I don't think I am an actress. I think I've created a brand and a business.
+- I like to do everything myself - I'm very hands-on with my housekeeping, my children, travelling, how I do things.
+- It's nice to have boundaries, because as long as we have them, we can cross them a bit, and that's what perks interest. If you have full freedom, what do you do?
+- I'm a mother with two small children, so I don't take as much crap as I used to.
+- I was never an ambitious girl, or even a self-confident one. I never went in for beauty pageants or wore a stitch of make-up until I went to Los Angeles.
+- If people knew how KFC treats its chickens, they'd never eat another drumstick.
+- It's very liberating to cut your hair.
+- People always tell me, 'Reinvent yourself, re-this, re-whatever.' I haven't reinvented myself. It's an honest evolution. I've always been authentic.
+- Making love in the morning got me through morning sickness. I found I could be happy and throw up at the same time.
+- It's great to be a blonde. With low expectations it's very easy to surprise people.
+- My ideal relaxation is working on upholstry. I spend hours in junk shops buying furniture. I do all the upholstery work myself, and it's like therapy.
+- I have a Stella McCartney Adidas sports bra. I feel like I'm totally comfortable running. No problem. I have support where I need it.
+- My father is a great grandfather. He's a wonderful grandfather, but he's a terrible husband.
+- I feel that, at this point in my career, I don't want to do another television show. I don't want to do a film.
+- I'm never away from my boys for more than three days.
+- I want Barack Obama for president. I love Obama. I call Palin the helicopter huntress from hell! I want my children to have a wonderful future, and it's disturbing when I look around. Americans aren't very well-liked. A likable president would be a great start.
+- The bust of Colonel Sanders stands as a monument to cruelty and has no place in the Kentucky state Capitol.
+- I did five seasons of 'Baywatch,' and I did four seasons of 'VIP.' I've been around awhile.
+- I am turning into the person I knew I would.
+- I don't think I am an actress. I think I've created a brand and a business.
+- Even as a kid, I read 'Jung - Reflections and Individuation In Fairy Tales'; all the inner circle of Jung was a real huge thing for me.
+- I don't look at the tabloids. I don't read the tabloids.
+- Eventually you just have to realize that you're living for an audience of one. I'm not here for anyone else's approval.
+- I don't really think about anything too much. I live in the present. I move on. I don't think about what happened yesterday.
+- I've created my own career in my life, and I've had a lot of fun doing it. I think that's good.
+- I don't consider myself a feminist, but I feel very empowered as a woman, and I've used all my resources widely. I believe in equality, but that's just naturally happening. I still want a door opened for me, to be treated like a lady, but I also want equal rights for women, of course.
+- Tattoos are like stories - they're symbolic of the important moments in your life. Sitting down, talking about where you got each tattoo and what it symbolizes, is really beautiful.
+- Confining marine animals to tanks and separating them from their families and their natural surroundings, just so people can watch them swim in endless circles, teaches us far more about humans than it does about animals - and the lesson is not a flattering one.
+- Being halfway through my life, I think we start feeling less invincible and we start thinking more about the important things.
+- I have my hands full with my kids and so romance is not high on my list of priorities.
+- I was a gymnast when I was little, like 8, 9, 10.
+- I am the ultimate California girl, which is funny, being that I'm Canadian.
+- The true meaning of feminism is this: to use your strong womanly image to gain strong results in society.
+- My little circle of friends know how twisted my brain is. I'm constantly reading and people always think, 'Ah, we didn't know that about you', but that's part of my charm.
+- My hair was so much a part of my personality and all my photo shoots. I hid behind my hair. And then, I just decided I was okay with myself. To have short hair and really show my face is even more revealing than anything. It's a statement - not to everyone else, more to myself. I'm just ready to get out from behind my hair and be myself.
+- Basically, I'm a free spirit. I'm kind of an Everywoman.
+- I like to work and it kind of keeps me in line, which is very good because I need that structure.
+- I'm kind of proud of myself. I've been able to keep a certain grace about me, even in the times of disgrace and craziness.
+- There's no way I set out to be a certain kind of symbol - the way I dress is the way I am, the way I live my life.
+- It's going to take a certain man for me to ever get involved with, because he'll have to realize I don't have two children, I have three. Tommy is always going to always be a part of my life.
+- I was getting a little bored with my hair. It's kind of a symbolic thing, just getting rid of the past, moving forward. It's amazing what a reaction you get when you cut your hair.
+- I'm a good example of someone who can come to Hollywood and keep their feet on the ground with all the rock stars, all the drama that goes with being here. It's still important to pump your own gas and to be able to vacuum.

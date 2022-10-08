@@ -1,0 +1,83 @@
++++
+author = "Sayed Kashua"
+title = "Sayed Kashua Quotes"
+quotes_len = "77"
+description = "the best 77 Sayed Kashua Quotes"
++++
+- I don't really wake up in the morning and say, 'Ohmigod, I'm a Palestinian in a Jewish state.' I wake up in the morning and say, 'Ohmigod, I have to make sandwiches for my kids.'
+- Sometimes I wonder: What are the children thinking? And sometimes I wonder why the hell I'm not buying a tree like the other neighbors. After all, there is no mention in Christianity of Christmas trees, and even if there were - is there any good reason why I shouldn't be buying some red stockings?
+- Sometimes it seems as though all parents are certain that their children are victims of abuse by other children.
+- The truth is, I never travel without cash. I always take a few tens with me in case of an emergency. There's never been an emergency, and in time, I realized that Americans don't want to touch customers' dirty bills. They also don't want to touch your credit card: you have to put it through the machine yourself, with your own fingers.
+- After five years of marriage, she is still the most beautiful and attractive woman in the world.
+- There is really no place for individuals in Israel.
+- As I see it, religion shouldn't interfere in a relationship.
+- I tell you a joke to have you listen to me, and then maybe I will tell you another joke that we can laugh together and feel equal. And then I will tell you a story hopefully that will make you cry. So I think that's the way that I approach the columns, as a surviving tool in a way.
+- I can never get to sleep without a book.
+- I use a lot of humor, and I follow the saying that if you want to tell people the truth, you better make them laugh first; otherwise, they will shoot you.
+- When I come to the airport, they always send me with all the other Israeli Arabs to the foreign workers' line. I don't mind. I feel like I belong more with all the people from abroad and the foreign workers than in the Israelis' line.
+- Somehow it seems that all parents are certain that they themselves were victims of abuse in school and that they will not allow this to happen to their children. Even though children can also be the cruelest group imaginable - especially the cutest of them.
+- If there was genuine desire on the Israeli side, even without a solution, it would be possible to solve a large percentage of the problems between Israelis and Palestinians by means of simple statements from the Israelis.
+- I don't know how it works with the Jews, but here in Beit Safafa, as in every self-respecting Arab community that is respected in turn by the state, there are no street names and no house numbers.
+- The smell of onion is the most effective thing for relieving stinging eyes irritated by tear gas.
+- For one moment, after I left Jerusalem with my family for life in Illinois, I thought that maybe there's still a chance: maybe there are still enough people in Israel who refuse to rule and oppress another nation.
+- All in all, we Muslims have only two holidays, and they're always getting moved around from season to season, from month to month, because we're dependent on the moon and not the sun, and unlike the Jews, we haven't created a leap year, so we have no Adar Bet.
+- Well, you can't say you are lucky to live in Champaign, but I was lucky to be at the University of Illinois. It's a very international cosmopolitan community. That's very helpful.
+- I always envied them, the owners of the cars with the white plates who can be seen around Jerusalem. I always wanted to be one of them. We call them U.N., even though U.N. are generally foreign correspondents with leased cars and yellow plates.
+- They're completely American. When I served my son falafel in a pita the other day, he said, 'Daddy, this taco is very good.'
+- Sometimes I wonder if there is any hope left for an Israeli-Palestinian discourse that is built on equality and liberty rather than a fruitless discourse of master and servant.
+- To be critical of television is almost like questioning the fact of God's existence.
+- Everything in London is quite good, apart from the weather: it's cold and rainy there, and the winter is long.
+- Christmas is relentless. It's around the clock. I sit with my little ones in front of the TV screen, and we watch movie after movie after movie.
+- I conduct all my nighttime activities under the assumption that my wife is awake, that she never falls asleep.
+- Back in Israel, I would spend much effort and plenty of money on presents when I went abroad, even if it was only for two days.
+- When was the last time an Arab MK who appeared on television wasn't there in the role of the accused who is attacked by a skeptical broadcaster?
+- Sometimes I think that if we have to go back, then it certainly won't be to Jerusalem. Not to the Jerusalem beset with racism that we left at the height of the last Gaza war.
+- Americans are connected to the situation in the West Bank and Gaza and Israel because, generally speaking, Jewish Americans were always there, and many American Jewish people connect their nationality to the Israeli one.
+- Like with all the Arabs, they use the 'suspect procedure' on me. I arrive four hours before the flight. They do a body search in a back room behind the curtain and then escort me onto the plane because they're afraid that on the way I might pick up a bomb from someone.
+- I'm always sad when Dad doesn't like my columns. He waits for them every week and usually likes them, in which case he doesn't say a word - it's only if he's critical that he bothers to call.
+- How I'd like to start a new life in a distant land. Not because of racism or politics. But to be in a place that I knew hardly anything about, in a place where I wouldn't even care to know the prime minister's name. A place where names and faces would have no meaning for me.
+- 'Arab Labor' was light, snappy. We got emotional over things, but from a safe place, from the terrace.
+- I'm totally secular, but I'm scared like hell of God.
+- My children don't even know who Fairuz is - a horrifying thought.
+- Somehow, since I became a family, every minute in which I am alone and not listening to two kids screaming in stereo feels like a vacation.
+- I began to write, believing that all I had to do to change things would be to write the other side, to tell the stories that I heard from my grandmother.
+- The Palestinians have tried everything, and by God, it's Israel's governments that taught us that the only thing the Israelis appreciate is force.
+- It's problematic being an Arab who writes in Hebrew.
+- We were, as Arabs in Israel, educated not to leave our villages, in order to protect our identity.
+- I hate flying. The first time I flew with my wife, Najat, was the first time I'd ever flown in my life, and that was just a short flight to Turkey. I spent the whole time with my shirt pulled over my head. Then I got used to it.
+- Is it too late to institute a leap year and mandate that the holidays fall on regular, convenient dates - so that Id al-Fitr will come, say, in the spring and Id al-Adha in early summer?
+- I wanted to bring likable Arabs into the average Israeli living room.
+- When I was 14, I saw a library for the first time.
+- Israeli independence - what we Arabs call al-Naqba, 'The Catastrophe' - it created Palestinian identity more than anything else.
+- Sometimes I can write very angry columns, but I know that it doesn't work.
+- I really just want to be a writer and a storyteller. But maybe pain is one of the things you have to feel in order to be creative.
+- I wanted the Israeli mainstream audience to meet different kinds of Arabs - not just terrorists or politicians - and to listen to their language and their stories.
+- When Jewish youths walk down the street and demand the death of Arabs simply because they're Arabs, then I've lost my own small battle.
+- When there's a revolution in Egypt, you can't really get depressed about not knowing what happens after you die. When there are millions out on the streets, that's not the time to start panicking about contracting swine flu.
+- I'm afraid of a gas leak, although I installed detectors. I'm afraid of a blown fuse that could cause a fire, and that's why I don't turn on electrical appliances at night.
+- I wish I could be proud of being an Israeli citizen, but how can I do that when I'm not really recognized as a full citizen?
+- Americans like to add the word 'super' when they're describing things.
+- It's the friends that make you survive this flat place called the Midwest.
+- I couldn't lie anymore to my kids telling them that they are equal citizens in the state of Israel. They cannot be equal because in order to fit in and to be accepted and to be a citizen in Israel, you need a Jewish mother.
+- There's a lot of hypocrisy and condescension in Israel's institutionalized support for Mubarak's tyrannical rule, in its backing of a corrupt leader who established a brutal secret police state to suppress his citizens and keep their mouths shut.
+- People who go far don't sleep an average of 14 hours a day.
+- A trip to Tel Aviv is a ritual. I always wear the same clothes to Tel Aviv: black pants and a blue-checked shirt that I bought especially from Ralph Lauren.
+- I once wrote that the first week in Jerusalem was the hardest week of my life. I was different, other; my clothes were different, as was my language. All of the classes were in Hebrew - science, bible, literature. I sat there not understanding one word. When I tried to speak, everyone would laugh at me.
+- Whom do you speak to about introducing a leap year? Is it heresy to request such a thing? Why do the Jews have one and we don't?
+- Sometimes it seems that what really worries the Israeli governments, even more than the Muslim Brotherhood, is the real Egypt.
+- I always see my wife as the clever one, as the wise one in the family.
+- Israel defines Palestinians more than anything else.
+- All Israelis think Arabs steal cars.
+- I hate it when I have to abandon my children. I politely turn down most of the invitations I get from abroad and try to fly only when it's absolutely necessary.
+- A lot of my friends in my student days complained about how their parents made them play an instrument when they were kids. I always felt compassion for them and didn't believe a parent could be so cruel, but when I check today, those complaining friends grew up to be quite successful, and many of them are now making their children play.
+- What kind of people will these ghettos of Palestinians produce? What form of morality, national consciousness and hope will people be left with after so many years of stifling occupation and a sense of hopelessness?
+- Maybe I would go back to West Jerusalem without too much bother if I could lie to my kids and tell them they are equal citizens in a democratic state.
+- Since being on television, I have felt that my brain is degenerating.
+- Many Israelis are educating their kids in a very nationalist, powerful identity, since kindergarten - and the Arabs as well.
+- I wanted to tell, in Hebrew, about my father who sat in jail for long years, with no trial, for his political ideas. I wanted to tell the Israelis a story, the Palestinian story.
+- Thanksgiving is the only day of the year when most of the stores here are closed during the day and reopen after midnight. Even restaurants shut down for the holiday, except for the fast-food chains.
+- I'm not representing anyone - not Israelis, not Palestinians - I'm just a storyteller trying to raise more questions than give answers.
+- Somehow, the rare trips to Tel Aviv give me the feeling that I have a career.
+- I don't like identity. We accept identities in Israel. We make them holy. But what does identity really mean?
+- It sometimes seems that the only plan the Israeli government has for the Palestinians is for them to sit quietly while Israel does whatever takes its fancy, equipped with its army, with laws it promulgated, and with courts it established.
+- It always seems to me that my life would look completely different if I didn't have to take care of the rent.

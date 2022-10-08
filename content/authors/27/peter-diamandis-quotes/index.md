@@ -1,0 +1,178 @@
++++
+author = "Peter Diamandis"
+title = "Peter Diamandis Quotes"
+quotes_len = "172"
+description = "the best 172 Peter Diamandis Quotes"
++++
+- People need to understand how exponential technologies are impacting the business landscape. They need to do some future-casting and look at how industries are evolving and being transformed.
+- Large companies and government agencies have a lot to protect and therefore are not willing to take big risks. A large company taking a risk can threaten its stock price. A government agency taking a risk can threaten congressional investigation.
+- We know from hard research that educated populations have lower growth rates, are more peaceful, and add to the global economy.
+- Nothing matters more than your health. Healthy living is priceless. What millionaire wouldn't pay dearly for an extra 10 or 20 years of healthy aging?
+- As sensors and networks continue to expand around the world, we'll see violence drop even further. After all, when there's a danger that your actions can be caught on tape and shown around the world, you're more responsible for your behavior.
+- Your mindset matters. It affects everything - from the business and investment decisions you make, to the way you raise your children, to your stress levels and overall well-being.
+- My childhood dreams were focused on being part of the effort to make humanity a multiplanetary species.
+- Many have built their careers buttressing the status quo, reinforcing what they've already accomplished, and resisting the radical thinking that can topple their legacy - not exactly the attitude you want when trying to drive innovation forward.
+- Every generation feels it has the problems that will destroy it. That's because we can perceive them a long time before we have the ability to fix them.
+- The constant monitoring of our emotional landscape and personal interactions is a bizarre concept. But it is one that could help many people.
+- When hiring, trust your feelings.
+- If you look back 600 years ago, royals' sole goal was to keep their wealth within the family.
+- It's never been easier to share your ideas and passions with the world.
+- The automotive X Prize, to a great degree, is focused on addressing petroleum usage and carbon emissions.
+- It used to be that, in astronomy, a small team of people could look at photos of a few thousand galaxies and classify and catalog them relatively easily. But now, with a new generation of robotic telescopes scanning the skies constantly and producing millions of images, that's become next to impossible.
+- Eight billion people will have Internet access by 2020.
+- 3D printing will massively reduce the cost of certain products as the cost of labor is removed.
+- My personal fascination with the power of the crowd has been growing: Exactly what can a 'crowd' accomplish? We know crowds can raise billions of dollars, create Wikipedia, and even design and build small autonomous drones. But how about something large and complex like designing a new car, and maybe someday even a spaceship?
+- Drones photograph, prospect and advertise real estate from golf courses to skyscrapers; they also monitor construction in progress.
+- Drones watch for disease and collect real-time data on crop health and yields.
+- My father, who grew up picking olives on the Greek island of Lesbos, was a doctor. So my family expected me to become a physician.
+- If you have a fear of flying, don't. The data are very clear: If you have to travel someplace, the safest way is by airplane.
+- I think about the Internet and cell phones and jets and spaceships, and I wonder, 'What's going to make that look ancient?'
+- Even a small village in the middle of Africa with a 3D printer will have access to any good it can download. The world of the 'Star Trek' replicator is not far away.
+- I think we're heading towards a world of what I call 'technological socialism.' Where technology - not the government or the state - will begin to take care of us. Technology will provide our healthcare for free. The best education in the world - for free.
+- Because it's cheaper and easier to fly than ever before, air travel is becoming democratized.
+- Regardless of what the naysayers believe about human interaction and social media, the data show us that the abundance of technology is actually increasing the abundance of happiness all over the world.
+- I think people are dreaming big because they have the tools to dream big. I hope that people are dreaming big because it makes them feel good about their lives.
+- Once we start believing that the apocalypse is coming, the amygdala goes on high alert, filtering out most anything that says otherwise.
+- I don't think the space station is innovative. Going to the moon was innovative because we had no idea how to do it.
+- Companies have too many experts who block innovation. True innovation really comes from perpendicular thinking.
+- Elon Musk with PayPal revolutionized banking.
+- In 1976, Kodak's first digital camera shot at 0.1 megapixels, weighed 3.75 pounds, and cost over $10,000.
+- Three hundred years ago, during the Age of Enlightenment, the coffee house became the center of innovation.
+- Never before in history has the global marketplace touched so many consumers and provided access to so many producers.
+- An exponential growth is a simple doubling. One becomes two becomes four.
+- When I think about creating abundance, it's not about creating a life of luxury for everybody on this planet; it's about creating a life of possibility. It is about taking that which was scarce and making it abundant.
+- In the early '90s, well under 5 percent of the global population was online.
+- In 1994, to motivate me to complete my pilot's license, my good friend, Gregg Maryniak, gave me Charles Lindbergh's autobiography of his solo flight across the Atlantic.
+- If you stop and think about it, the form of propulsion used today hasn't changed in over a thousand years... since the invention of fireworks by the Chinese.
+- As education becomes dematerialized, demonetized and democratized, every man, woman and child on the planet will be able to reap the benefits of knowledge. We're rapidly heading toward a world of education abundance.
+- Today, we don't blink an eye when the world's wealthiest individuals donate enormous sums of money to charitable causes. In fact, we expect them to do so.
+- If you give people unlimited time and money, they'll do things the same old way. But if they have to achieve the goal in a brief time, they'll either give up or try something new.
+- Making things open-source brings the cost down.
+- We are effectively living in a world of communications and information abundance.
+- We are living toward incredible times where the only constant is change, and the rate of change is increasing.
+- It's easy to forget that for centuries - for millennia - the 'workforce' was all of us.
+- In 2000, just before the first dot-com bubble burst, it cost a whopping $5 million to launch a tech startup.
+- The old newspaper adage, 'If it bleeds, it leads,' is as true today as it was a century ago.
+- I get my news from selected Google News and my social feed.
+- Private companies should be building businesses.
+- At the turn of the 20th century, the disparity in literacy here in the U.S. largely came down to race. Nearly half of minorities at that time - 45 percent - were illiterate, while 94 percent of white citizens were literate.
+- Human exploration is something that's been going on for thousands of years, and the models that worked 500 years ago are likely to work again today.
+- In the 1940s, about 20% of people in the U.S. had graduated from high school, but less than 5% continued their education to get bachelors' degrees or higher.
+- As humans, we have evolved to compete... it is in our genes, and we love to watch a competition.
+- When I was a grad student at MIT, I had a chance to become friends with the Viking Mission's chief scientist, Dr. Gerald Soffen. Viking was the first Mars lander looking for signs of life on Mars.
+- I founded a launch company called International Microspace when I graduated medical school in 1989. We were trying to build a microsatellite launcher.
+- Millions of years ago, our brains became wired to remember about 150 people as 'close friends.'
+- As of 2011, it cost about $5,000 to launch a tech startup.
+- By 2020 the U.S. will be short 91,000 doctors. There's no way we can educate enough doctors to make up that shortfall, and other countries are far worse off.
+- In the 1820s, the U.S., Japan, and the U.K. were some of the only countries where the average population received at least two years of formal schooling.
+- All over the world, we're seeing access to food, clean water, education and healthcare improve; as a result, global innovation is rising as well.
+- As you may know, I'm the co-founder and co-chairman of an asteroid company called Planetary Resources that is backed by a group of eight billionaires to implement the bold mission of extracting resources from near-Earth asteroids.
+- Future companies will be smaller and more nimble.
+- As lower-cost phones begin to penetrate, they'll become the educator and physician everywhere on the planet.
+- Not only are we working less, we're enjoying ourselves more. As we're working toward this world of abundance, we're able to increasingly enjoy leisure time.
+- A dapper Canadian in his mid-fifties, Rob McEwen bought the disparate collection of gold mining companies known as Goldcorp in 1989. A decade later, he'd unified those companies and was ready for expansion - a process he wanted to start by building a new refinery.
+- I think the folks who go after grand challenges are impatient.
+- One thing that humans still do better than computers is recognize images.
+- Super-ambitious goals tend to be unifying and energizing to people; but only if they believe there's a chance of success.
+- Many people who try to do big bold things in the world find out it's not about the money or the technology: It's about the regulatory hurdles that will try and stop you.
+- Back in 2007, I had the opportunity to meet Professor Stephen Hawking through the X PRIZE Foundation. In my first conversation with him I learned that he was passionate about flying into space someday.
+- Nothing is more precious than life... especially the life of your child.
+- I think that we're living in a time where there are trillion-dollar opportunities that never existed before.
+- After more than a decade as the editor of 'Wired' magazine, Chris Anderson started the company of his dreams - a robotics manufacturing company called 3D Robotics - to produce the autonomous flying vehicles coming out of DIY Drones.
+- It used to be that the only ones with access to cutting-edge technology were top government labs, big companies and the ultra-rich. It was simply too expensive for the rest of us to afford.
+- Today, the smartphone in your pocket has a high-quality digital camera. Everyone - not just artists - is a photographer, and the explosion of photos taken annually proves it.
+- Mining asteroids will ultimately benefit humanity on and off the Earth in a multitude of ways.
+- In 1980, during my sophomore year at MIT, I realized that the school didn't have a student space organization. I made posters for a group I called Students for the Exploration and Development of Space and put them up all over campus. Thirty-five people showed up. It was the first thing I ever organized, and it took off!
+- With faster Internet and better computers, you'd better believe we're creating and consuming more digital data.
+- Two-thirds of all growth takes place in cities because, by simple fact of population density, our urban spaces are perfect innovation labs. The modern metropolis is jam-packed. People are living atop one another; their ideas are as well.
+- It's now possible to have your body 3D-imaged from head to toe at a sub-millimeter accuracy, showing every ripple of muscle or cellulite, to allow the perfect-fitting jeans or shoes.
+- I collect a lot of data. We all do.
+- Online games for data-mining have a short virtual shelf life. People get bored, especially if the game seems stagnant.
+- In 1980, it cost just under $600 to take a round-trip flight within the United States.
+- Your chances of dying a violent death are 1/500th of what they used to be during medieval times.
+- The reason we care so much about what happens to the likes of Lady Gaga is not because her shenanigans will ever impact our lives; rather because our brain doesn't realize there's a difference between rock stars we know about and relatives we know.
+- Old-style management is irrelevant.
+- I had started Zero-G specifically to broaden the public for access to weightlessness.
+- True disruption means threatening your existing product line and your past investments. Breakthrough products disrupt current lines of businesses.
+- Large-scale philanthropy, based in the private - not the public - sector, is a relatively recent historical development.
+- We live in a world bathed in 5,000 times more energy than we consume as a species in the year, in the form of solar energy. It's just not in usable form yet.
+- When I talk about taking bold actions in the world, few things are bolder than creating the 'Huffington Post' from scratch and reinventing the newspaper business.
+- Visual artists use drones to capture beautiful new images and camera angles.
+- The U.S. government doesn't build your computers, nor do you fly aboard a U.S. government owned and operated airline. Private industry routinely takes technologies pioneered by the government and turns them into cheap, reliable and robust industries. This has happened in aviation, air mail, computers, and the Internet.
+- Learning how to understand how technology evolves, using tools like a Technology Road Map, is what you need more than anything to ride on top of the tsunami instead of being crushed by it.
+- The Department of Energy made an investment that failed, and it got raked over the coals for that failed investment. This is ridiculous. The fact of the matter is, the government should be making a lot of risky investments, the majority of which are likely to fail.
+- I have the general philosophy of creating the future you want to see.
+- Passion gets an entrepreneur through the startup days and the enormous efforts it takes to build a business.
+- If the government regulates against use of drones or stem cells or artificial intelligence, all that means is that the work and the research leave the borders of that country and go someplace else.
+- I view risk-aversion as crippling America in many ways.
+- The Net is allowing us to turn ourselves into a giant, collective meta-intelligence. And this meta-intelligence continues to grow as more and more people come online.
+- Government research has to go through peer review.
+- Never tolerate a toxic person in your organization.
+- When you have an employee who's innovative in your organization, what are they thinking about in the shower? If they're working in an exciting place, they're not thinking what they're going to do over the weekend. They're thinking: 'How do I solve that problem?'
+- The rate of innovation is a function of the total number of people connected and exchanging ideas. It has gone up as population has gone up. It's gone up as people have concentrated in cities.
+- I've stopped watching TV news. They couldn't pay me enough money.
+- Paul Allen with Microsoft revolutionized the software industry.
+- Now the amygdala is our early warning detector, our danger detector. It sorts and scours through all of the information looking for anything in the environment that might harm us. So given a dozen news stories, we will preferentially look at the negative news.
+- Space is an inspirational concept that allows you to dream big.
+- 3D printing has digitized the entire manufacturing process.
+- You might hear people decry the loss of privacy in today's world, but radical transparency is dramatically reducing violence everywhere. Most violent things happen in the dark when no one's watching, whether it's an oppressive dictator or someone causing violence in the inner city.
+- Since the age of 6, I've always wanted to go to space.
+- As medical research continues and technology enables new breakthroughs, there will be a day when malaria and most all major deadly diseases are eradicated on Earth.
+- By 2030, just a small percentage of the global population will live in poverty.
+- There are nearly one billion illiterate people on Earth.
+- Your mission is to find a product or service that can positively impact the lives of 1 billion people because that's the game we're playing today.
+- The goal of my work is to help assure that we can create a world of abundance in which we meet the basic needs of every man, woman and child.
+- If anyone has seen success and failure on a global stage, it's my friend Steve Forbes.
+- If you've been wondering where the next gold rush is going to take place, look up at the night sky to our closest celestial neighbor. The next economic boom might just be a mere 240,000 miles away on the bella luna.
+- Whether it's steamships disrupted by the railroads or railroads disrupted by the airlines, it's typically the large entrenched incumbents that are displaced by innovators.
+- What decisions would you make differently today if you knew you would most likely live to be 150? How would you think about your 50s or 60s? How would you evaluate your career arcs or investments or even the area in which you live?
+- Make it clear up front what the aim of the company is. Stay true to your authentic vision.
+- If you're the CEO of a publicly traded company, you're worried about quarterly returns.
+- Most advertisers spend millions upon millions of dollars to buy commercial time during the Super Bowl, and millions in creating eye-popping ads, hoping to create catchy, unforgettable commercials. Unfortunately, most Super Bowl commercials end up being unmemorable. Costly mistakes for brands and creative flameouts for advertising firms.
+- At its core, bitcoin is a smart currency designed by very forward-thinking engineers. It eliminates the need for banks, gets rid of credit card fees, currency exchange fees, money transfer fees, and reduces the need for lawyers in transitions... all good things.
+- If someone is always to blame, if every time something goes wrong someone has to be punished, people quickly stop taking risks. Without risks, there can't be breakthroughs.
+- Nothing gets us down more than watching violence on television or reading about war and brutality in the newspaper. The truth is, there's a massive reduction in the amount of violence around the world.
+- Revealing water in significant quantities on the Moon could truly be a turning point in space exploration.
+- The world's biggest problems are the world's biggest market opportunities. And that's a huge thing. Solve hunger, literacy and energy problems, get the gratitude of the world and become a billionaire in the process.
+- Bad news sells because the amygdala is always looking for something to fear.
+- If the risk is fully aligned with your purpose and mission, then it's worth considering.
+- In 1900, 180-plus out of every 1,000 African-American babies died.
+- Today, every skirmish in every part of the planet is broadcast straight into your living room live, in HD... over and over again.
+- Now, we connect via Skype or Google+ Hangout and see our friends' and loved ones' faces live.
+- As I've conducted my interviews with crowdsourcing entrepreneurs and experts, it's constantly hit me that your ability to do something big and bold is really a function of the size and quality of your crowd.
+- Lots of people dream big and talk about big bold ideas but never do anything. I judge people by what they've done. The ratio of something to nothing is infinite. So just do something.
+- I get demoralized by organizations that start off with a mission and pull back when they find it's risky.
+- In 1750, 75 percent of people on the planet worked to support the top 25 percent.
+- WhatsApp is both disrupting and demonetizing the entire wireless industry, and now the Facebook acquisition provides the infrastructure needed for WhatsApp to begin offering voice calls. So instead of people paying on average $80 per month, users only have to pay $0.99 per year for the same services. Wireless carriers, beware.
+- In the 1960s, 110 countries had averages of six or more children per family.
+- The fact is that data are worth a lot of money.
+- So while I can't tell you if bringing a child into this world is the morally-responsible to do, I can say that the future, much like the present, is going to be a whole lot better than you think.
+- Many entrepreneurs that made their fortunes by founding successful technology companies want to give back and solve the world's biggest problems on a grand scale. There is tremendous opportunity in this approach.
+- There was a Gallup poll that said something like 70 percent of people in the United States do not enjoy their job - they work to put food on the table and get insurance to survive. So, what happens when technology can do all that work for us and allow us to actually do what we enjoy with our time?
+- Have an open mind - allow different ideas into your way of thinking.
+- Remember when vacation photos meant toting along a bulky camera?
+- Because it's free, easy to use, and high-quality, photography is now a fixture in our daily lives - something we take for granted.
+- Even in an organization that's doing something big and bold, there's the mundane, day-to-day execution work of keeping it going. But people need to stay connected to the boldness, to the vision, and stay plugged in to the main vein of the dream.
+- Gossip, in its earlier forms, contained information that was critical to survival because, in clans of 150, what happened to anyone had a direct impact on everyone.
+- From a scientific point of view, we now know that the water is interlaced with the lunar soil in many locations, perhaps as remnants of comet collisions with the lunar surface.
+- Collective management will build companies - not top-down decision-making.
+- Imagine what we could do for the world's grand challenges with a trillion hours of focused attention.
+- All of us are linear thinkers. We evolved in a world that was local and linear. You know, back 100,000, 200,000, millions of years ago, when we were evolving as a human species, nothing changed. You know, the life of your great-grandparents, you, your kids - it was the same. And so we are local and linear thinkers.
+- My feeling is that if you can make a big impact on the global literacy problem, you can uplift a big portion of society.
+- We're now able to 3D print in 200 different materials, from titanium to rubber, plastic, glass, ceramic, leathers, and even chocolate.
+- The communications industry has been tremendously successful, but we need to build the railroads and the oil wells and the gold mines of space.
+- Incentive prizes work.
+- Private industry's job is to make money. Private industry's job is to create a huge economic engine.
+- I live in L.A., where every coffee shop is filled with scriptwriters, producers and directors.
+- I was seeing a lot of entrepreneurs who were effectively working on the next photo-sharing app. I wanted to inspire them to go much bigger, bolder and more significant than that.
+- The fact that the Virgin logo was on the side of SpaceShipOne on October 4th, 2004 was fantastic.
+- The truest drive comes from doing what you love.
+- In 1820, the average lifespan was just 26 years. Twenty-six years!
+- With sufficient water on the Moon, solar energy can be used to split the water into hydrogen and oxygen. The oxygen is, of course, critical for humans to breathe and the water important for us to drink.
+- I think about things like, 'Will my kids need a college account? Will they even go to college?' I don't know if that will be the case.
+- The challenge is that the day before something is truly a breakthrough, it's a crazy idea. And crazy ideas are very risky to attempt.
+- In most developed countries, the average person receives about 16 years of education. Even in developing countries, the population gets five to eight years of education.
+- If the idea is really new and unique and big, other people will all think it is bad and is going to fail.
+- Did you know that Kodak actually invented the digital camera that ultimately put it out of business? Kodak had the patents and a head start, but ignored all that.
+- Every second of every day, our senses bring in way too much data than we can possibly process in our brains.
+- As of the mid-90s, over 50 percent of women have a bachelor's and master's degree, compared to about 35 percent and 30 percent, respectively, in 1920.

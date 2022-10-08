@@ -1,0 +1,46 @@
++++
+author = "Jay Leno"
+title = "Jay Leno Quotes"
+quotes_len = "40"
+description = "the best 40 Jay Leno Quotes"
++++
+- Politics is just show business for ugly people.
+- The Pentagon still has not given a name to the Iraqi war. Somehow 'Operation Re-elect Bush' doesn't seem to be popular.
+- For the first time ever, overweight people outnumber average people in America. Doesn't that make overweight the average then? Last month you were fat, now you're average - hey, let's get a pizza!
+- The New England Journal of Medicine reports that 9 out of 10 doctors agree that 1 out of 10 doctors is an idiot.
+- Bush reiterated his stand to conservatives opposing his decision on stem cell research. He said today he believes life begins at conception and ends at execution.
+- Today, one year after their divorce, Pamela and Tommy Lee announced they're getting back together. You know what that means? There's still hope for Ike and Tina Turner.
+- Don't forget Mother's Day. Or as they call it in Beverly Hills, Dad's Third Wife Day.
+- I was in the ROTC. Of course, ROTC stood for 'Running off to Canada.'
+- According to New York publishers, Bill Clinton will get more money for his book than Hillary Clinton got for hers. Well, duh. At least his book has some sex in it.
+- You cannot be mad at somebody who makes you laugh... it's as simple as that.
+- Al Jazeera aired a new tape of Osama bin Laden. It was the usual stuff, he called Bush evil, the Great Satan, called him a war monger. Basically, the same thing you heard at last night's Democratic debate.
+- My stockbroker asked me something important today: paper or plastic?
+- Do you know what White House correspondents call actors who pose as reporters? Anchors.
+- In America, we like everyone to know about the good work we're doing anonymously.
+- People don't mind if you have a lot of money if they know you're working for it.
+- You aren't famous until my mother has heard of you.
+- The Washington Bullets are changing their name. They don't want their team to be associated with crime. From now on, they'll just be known as the Bullets.
+- Here's something to think about: How come you never see a headline like 'Psychic Wins Lottery'?
+- If God had wanted us to vote, he would have given us candidates.
+- The best way to ruin a comedy is to throw a lot of money at it.
+- I think high self-esteem is overrated. A little low self-esteem is actually quite good. Maybe you're not the best, so you should work a little harder.
+- The Supreme Court has ruled that they cannot have a nativity scene in Washington, D.C. This wasn't for any religious reasons. They couldn't find three wise men and a virgin.
+- The University of Nebraska says that elderly people that drink beer or wine at least four times a week have the highest bone density. They need it - they're the ones falling down the most.
+- I went into a McDonald's yesterday and said, 'I'd like some fries.' The girl at the counter said, 'Would you like some fries with that?'
+- The Bush administration said today there is a lot of support for us to attack Iraq. Exxon, Mobil, Texaco, Chevron, they're all lining up.
+- You can't stay mad at somebody who makes you laugh.
+- The crime problem in New York is getting really serious. The other day the Statue of Liberty had both hands up.
+- Nineteen percent of doctors say that they'd be able to give their patients a lethal injection. But they also went on to say that the patient would have to be really, really behind on payments.
+- Major league baseball has asked its players to stop tossing baseballs into the stands during games, because they say fans fight over them and they get hurt. In fact, the Florida Marlins said that's why they never hit any home runs. It's a safety issue.
+- You're not famous until my mother has heard of you.
+- If you don't want your dog to have bad breath, do what I do: Pour a little Lavoris in the toilet.
+- Today is Valentine's Day - or, as men like to call it, Extortion Day!
+- If I have one advantage, it's that I will try to work harder than the next guy.
+- CNN found that Hillary Clinton is the most admired woman in America. Women admire her because she's strong and successful. Men admire her because she allows her husband to cheat and get away with it.
+- I didn't realize it was October until I saw the Chicago Cubs choking.
+- The reason there are two senators for each state is so that one can be the designated driver.
+- Magic Johnson, former basketball player, may run for mayor of L.A. in the next election. Remember the good 'ol days when only qualified people ran for office like actors and professional wrestlers.
+- More coming out about Saddam Hussein. We now know he takes Viagra and he has as many as six mistresses. No wonder Congress is reluctant to take action against this guy - he's one of their own.
+- Now, today is the day we honor, of course, the Presidents, ranging from George Washington, who couldn't tell a lie, to George Bush, who couldn't tell the truth, to Bill Clinton, who couldn't tell the difference.
+- If God doesn't destroy Hollywood Boulevard, he owes Sodom and Gomorrah an apology.

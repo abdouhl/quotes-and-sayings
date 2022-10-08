@@ -1,0 +1,89 @@
++++
+author = "Danielle Macdonald"
+title = "Danielle Macdonald Quotes"
+quotes_len = "83"
+description = "the best 83 Danielle Macdonald Quotes"
++++
+- People say things unintentionally, not realizing that it could hurt someone's feelings because they've just never experienced what you have.
+- I can't sing.
+- Not everybody gets to travel halfway around the world to see a whole different perspective. If we can see that on TV, we'll know that society is bigger than the small world we all live in.
+- I had agents in Australia; I just never had any auditions. And if you can't audition, then you can't work. I studied there. I did classes there. I learned how to act. Growing up there, I discovered my love for acting, but I just wasn't getting the opportunities to work professionally.
+- How many people get to say they recorded a song with Dolly Parton and Jennifer Aniston?
+- I will never stop being excited about 'Harry Potter.'
+- It's okay to be you and okay to be who you are and okay to love and accept yourself.
+- You can drive your own self crazy. You don't have to be in a bad situation or be bullied every day to feel this way. I was constantly judging myself. That's really the thing that gets you.
+- I wanted to act; wherever that was, I was happy. It just happened to be in America for me.
+- I think confidence comes with age and experience, honestly.
+- Emma Watson was a super-starstruck moment.
+- I think we all go through those moments of self-doubt.
+- Honestly, a lot of the time the character roles are the best roles.
+- I think avocado toast is the best ever. It's my favorite.
+- It definitely took me a while to adjust to L.A. I came out knowing nobody, and I'd never lived away from home before.
+- The most surprising thing - and the thing I really didn't think I would have an opportunity to do when I was younger - was I didn't realize the kind of roles I would be able to play. I thought it would be, like, two lines here, the joke.
+- I had to work at it - audition and fail, get things and lose others. If you really want something, you keep going.
+- I like Macklemore.
+- There's a process: you audition, you get rejected, occasionally you get jobs, and it's exciting, but it's all little stepping stones.
+- I'm very competitive. I'm very honest, too, so I wouldn't cut anyone down to get ahead. I play fair, but I like to win.
+- That's one of the really cool things about being an actor. You get to explore all different parts of yourself.
+- I came out to America just before I turned 19, got my first audition, and booked it.
+- I'm a realist - yes, I know: darn, I'm unlikely to have a love scene with Chris Hemsworth anytime soon, if ever. But I also believe that persistence and hard work pays off.
+- I remember loving 'Hairspray.' I was obsessed with it, and I didn't realise why. I felt so connected to it at the time because there wasn't any other kind of representation. So when it happens, you think, 'wow, I really connect with this movie. Why is that? Maybe it's because there's a girl like me up there on the screen.'
+- When you find out you're working with someone like Jennifer Aniston, you're like, 'Whoa, what is my life right now? ' It kind of doesn't really seem real. I grew up watching 'Friends' and all her movies, and I was so excited to work with her. And then, I met her, and I was like, 'Oh. You're, like, a very relatable human being.'
+- Words are just words. They only bother you if you let them.
+- When you rap, you're using all of yourself.
+- I think, in Australia, it's kind of a crazy thing to say, 'I want to be an actor.' People look at you weirdly. And when I said I was moving to L.A., I remember people saying, 'No, you shouldn't. You'll just come back disappointed.'
+- You just have to find the people that you love, and surround yourself with them.
+- I play a girl called Patti in the film 'Patti Cake$,' and she's a girl from New Jersey, and she dreams of being a famous rapper.
+- When I was in Australia, I had three different agents in three different years, and I didn't have one audition. They were good agents; I just never had one audition that was the right stuff.
+- I just got to do a challenging scene with Jennifer Aniston! That's unreal to me.
+- When I first watched '8 Mile,' it was amazing. It got me. I loved it.
+- Everyone goes through that time in their life when they're trying to figure out who they are, find their own purpose and their own way.
+- Because I don't look like most lead actresses look, I was told that I shouldn't even come to America. That I shouldn't even try! I think that's ridiculous.
+- I love acting, and I'm going to continue doing that.
+- I grew up in Sydney, Australia, and I started doing acting classes when I was in eighth grade.
+- The only thing is, I'm terrified of horror movies. I'm scared - I'm admitting it! I mean, I would still do a horror movie; I just probably wouldn't be able to watch it.
+- I'm very lucky with my family. They've always been very encouraging, and they never thought that anything would hold me back. I'm very fortunate to have had that.
+- None of my family is in the industry. But I watched movies like an insane person when I was a child. I used to make my dad stop at the video store every time we drove past it, and you had to drive past the video store to get to our house.
+- Don't stress out about the things you can't control.
+- It's kind of amazing to see that progress happens over time.
+- The big message is, you're the star in your own life. You don't have to change; you are who you are. Go and do what you want to do.
+- It's just so hard growing up: you go through things, especially acting - I go to a different set every couple of months, and you meet an entirely new group of people that are around you 24/7. It's not an easy situation to go into when you're a shy person.
+- The cool thing about being different in this industry is that you get different roles; you aren't pigeonholed the same way.
+- I didn't know how to be cool. I didn't know how to have swag.
+- When Sundance happened, it felt insane and not like reality at all.
+- I love Disney movies.
+- I want to play characters that people relate to, characters that make different kinds of women in society feel represented.
+- I'm not musical in any way.
+- Growing up, you see movies, and the big person is always the butt of a joke or the funny best friend, or they lose weight, and that's when they become redeemable.
+- People in big studios are like, 'People want to see other people who are skinny and happy and amazing.' But I think, nowadays, they are realising that what sells is real people from all different backgrounds, ethnicities, cultures and size. People want to see themselves represented on screen, and it's a real cool thing for everyone.
+- One of the cool things about 'Patti Cake$' is that it is about someone that is against stereotype.
+- 'Priscilla' was made in 1994, and I think it was kind of daring for its time.
+- I wanted to go overseas and act. I wanted to be an actor in an industry that isn't necessarily the most inclusive for anybody different.
+- You don't have to be scared of what other people are thinking. You don't need to feel judged by other people.
+- I have a dartboard in my place, and I play with my friends.
+- It would be really cool to have some more roles where it doesn't matter how a character looks. You get a script, you see it, and it doesn't matter: there's no description of how the character looks in any way shape or form; it's just, whoever is right for the role is the person.
+- I love tinted moisturiser. I feel like I'm wearing nothing when I'm wearing it, which is how I like to feel, but it still provides me with coverage - and it's got sunscreen in it, so I'm not worried about getting burnt.
+- I actually got a visa through a job that fell through, and it allowed me to move out here and start from scratch. There's more opportunity in America for girls like me, I guess.
+- Kendrick is phenomenal. I've never tried and practiced a song that was as hard as when I practiced Kendrick's verse on 'Control.' He's a genius. I think that people do recognize it.
+- People are always going to tell you to lose weight, and they tell you how they feel about it. There are pressures always to be a certain weight, but you have to be who you are. And if you want to change, you have got to do it for you and not for what people want you to be.
+- There aren't often plus size, very real normal women in film. It's never their story.
+- I'm pretty boring in my real life.
+- My mom is Italian, and her whole family still lives in Italy. My dad is Australian, and his family lives in Australia, so we were raised there.
+- I always like auditioning because it's like, 'Oh, my God, I have an audition - yay!' It means opportunity for work, which is great. But it's scary as well, because you put so much pressure on yourself.
+- Diversity is just 'the world.' It's different cultures, different backgrounds, different ethnicities, different religions, genders, sexual orientation, shapes, sizes. That is the world, but we call it 'diversity' because there is this one type that has always been accepted in the media, and it's finally starting to change.
+- I love Octavia Spencer. I love what she has to say as a human, and I love her career and the variety of characters she has played.
+- I've never actually played an Australian or worked in Australia. I really want to change that. I really want to work here - that would be great.
+- My sister, myself, and my cousins would put on shows for our parents and charge them to come and watch, apparently. That's what I'm told. My parents said I knew how to milk it.
+- Actually, for me, it's really funny because I play characters with mommy issues more than anything, and I have a great relationship with my mom!
+- I would love to live in a world that is purely equal, where everyone has equal opportunities in every way. But that is not reality.
+- I've been lucky enough to play lots of real women - flawed, strong, independent women - and I love it.
+- 'Harry Potter' is the first book that ever got me into reading. I had to read it in year 7, for school, and then I kept reading all of them.
+- I've seen a bunch of movies about pageants, and I know in general how they work.
+- I have a dog and a cat, and they are best friends.
+- I had a talk with Frances McDormand, actually, right before I did my first lead in a film, and that was really amazing.
+- I'm pretty stubborn.
+- If you make one person happy, there you go - you did your job.
+- When you take on new roles that you don't feel comfortable with, that require you having skills you don't have, it's terrifying.
+- I think you have to try and fail a little bit, because you learn how badly you want it.
+- There aren't plus-sized teens represented in film who aren't made the butt of a joke.
+- I think everyone kinda feels a little out place sometimes.

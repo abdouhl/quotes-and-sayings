@@ -1,0 +1,43 @@
++++
+author = "Jerry Garcia"
+title = "Jerry Garcia Quotes"
+quotes_len = "37"
+description = "the best 37 Jerry Garcia Quotes"
++++
+- The process of selecting the tone on the guitar is an aesthetic process like any other, so you try a lot of different things.
+- I'm not trying to clock scores in this lifetime, it's just that things are better now than they were like five, ten years ago. Music has gotten a lot better. There's a lot of people who are committed to - soulfully.
+- So it's one of those things where we have to - our problem is pacing ourselves and still reaching a large enough number of our audience. Because we don't want to burn the audience. And we don't want to be excluding anybody.
+- We're not uncomfortable with it, and we've already been through enough of the music business where I'm not really worried that commercial success is going to in some way - we're already past saving, you know what I mean? It's too late for us.
+- I don't know why, it's the same reason why you like some music and you don't like others. There's something about it that you like. Ultimately I don't find it's in my best interests to try and analyze it, since it's fundamentally emotional.
+- But hey, when you live in Watts, you need a little smack to get by, you know what I mean? You need something soft and comfortable in your life, 'cause you're not going to get it from what's around you. And society isn't going to give it to you.
+- If we had any nerve at all, if we had any real balls as a society, or whatever you need, whatever quality you need, real character, we would make an effort to really address the wrongs in this society, righteously.
+- The alternate media are becoming important and viable alternatives to playing live. Records, videos, that kind of thing. They're going to start to count for something. Because there's only a limited amount of us-time available to us.
+- I mean, just because you're a musician doesn't mean all your ideas are about music. So every once in a while I get an idea about plumbing, I get an idea about city government, and they come the way they come.
+- I don't wake up in the morning and say, 'Jeez, I feel great today. I think I'll write a song.' I mean, anything is more interesting to me than writing a song. It's like, 'I think I'd like to write a song... No, I guess I better go feed the cat first.' You know what I mean? It's like pulling teeth. I don't enjoy it a bit.
+- America is still mostly xenophobic and racist. That's the nature of America, I think.
+- Hunter can write a melody and stuff like that, but his forte is lyrics. He can write a serviceable melody to hang his lyrics on, and sometimes he comes up with something really nice.
+- I'm shopping around for something to do that no one will like.
+- I don't think that Slaughterhouse-Five was successful movie material. In fact, Vonnegut's books mostly I don't feel are movie material.
+- And for me there's still more material than 20 lifetimes that I can use up.
+- My kids seem to be more mature and older than I am now somehow. They've gotten ahead of me somehow. But they're very patient with me.
+- And Warner Bros. seems to be pretty much into re-releasing all of their catalog. So there's the Warner Bros. stuff and the stuff that we have control over, we're gradually re-releasing it. Some stuff we don't have control over.
+- And the live show is still our main thing.
+- But audio is a component of video, so there's always been that anyway, and although we've never expressed a visual side apart from the Grateful Dead movie, I don't find it that remote, you know what I mean? It's a departure of sorts, but it's like a first cousin.
+- Stuff that's hidden and murky and ambiguous is scary because you don't know what it does.
+- Death comes at you no matter what you do in this life, and to equate drugs with death is a facile comparison.
+- And there's a lot of that stuff with people bringing their kids, kids bringing their parents, people bringing their grandparents - I mean, it's gotten to be really stretched out now. It was never my intention to say, this is the demographics of our audience.
+- And as far as I'm concerned, it's like I say, drugs are not the problem. Other stuff is the problem.
+- I have all the patience in the world about Sirens. For me it's not a Grateful Dead project, it's a Me project.
+- For me, the lame part of the Sixties was the political part, the social part. The real part was the spiritual part.
+- What we do is as American as lynch mobs. America has always been a complex place.
+- I mean, whatever kills you kills you, and your death is authentic no matter how you die.
+- My guitar is a mutation between a classic Fender Stratocaster guitar, which I played for years, and a Gibson solid-body like an SG or a Les Paul. It contains all sounds of the basic classic rock n' roll guitars. It does what I want it to do.
+- Our strong suit is what we do, and our audience.
+- I have one custom guitar which I play almost exclusively. I have others - sometimes you want a little texture, kind of a different sound or something.
+- I listen to anything anyone gives me. I always go back to a few basic favorites. I can always listen to Django Reinhardt and hear something I haven't heard before. I like to listen to Art Tatum and Coltrane and Charlie Parker. Those are guys who never seem to run out of ideas.
+- I read somewhere that 77 per cent of all the mentally ill live in poverty. Actually, I'm more intrigued by the 23 per cent who are apparently doing quite well for themselves.
+- Constantly choosing the lesser of two evils is still choosing evil.
+- So we are pretty convinced we don't want to play huge stadiums unless we can play them well.
+- I don't think I've ever actually written from inspiration, actually had a song just go, 'Bing!' I only recall that happening to me twice - once was with 'Terrapin' and the other was 'Wharf Rat.' I mean, that's twice in a lifetime of writing!
+- Yeah, I think we have to. If we want our shows to be - if we want the quality of the shows to be good, and we want the energy to be high, and if we want to be in good enough physical shape to do them, and not exhaust ourselves on the road, and not get stale, we have to pace.
+- I think it's too bad that everybody's decided to turn on drugs, I don't think drugs are the problem. Crime is the problem. Cops are the problem. Money's the problem. But drugs are just drugs.

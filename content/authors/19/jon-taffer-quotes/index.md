@@ -1,0 +1,106 @@
++++
+author = "Jon Taffer"
+title = "Jon Taffer Quotes"
+quotes_len = "100"
+description = "the best 100 Jon Taffer Quotes"
++++
+- Keeping a bar clean is basic in this business. Having a staff that speaks adequate English is basic.
+- Revenue cures everything in the business world.
+- If I were to pick the life of someone whom I professionally mimic in many ways, it would be Howard Hughes, surprisingly.
+- My company was based in Palm Beach, Florida, but when 'Bar Rescue' took off, I knew I had to move west. It was a choice between L.A. and Vegas. I have a lot of friends in Vegas, and it became my choice. I'm so glad because I love it here. There's a real sense of community. It's a big town that feels like a small town. Everybody knows everybody.
+- When I'm angry on TV, I'm actually not. I'm manipulating you as an owner.
+- I have a playroom with my drum set, a guitar, and amplifier at home.
+- Don't build a bar for yourself. Build it for your customers. It's all about them: the walls, the finishes, the textures, the food, the beverages, literally everything has to be for them.
+- In the worst of our recession, bars were making money. Every bar can make money. If they're failing, it's not because of the president or Congress or Ukraine. It's because of them. And if you own failure, then you'll own success.
+- Government employees make a good amount of money - income levels are very high in Washington, D.C. compared to other markets, so they are living in a bubble.
+- People don't go to bars they think are uncool.
+- You ever see a bar with 200 beautiful women go broke? But I've seen a lot of bars with great DJs go broke.
+- I don't want to hire people who have less of a commitment than I do.
+- Excuses destroy success every time.
+- The simple things can be really powerful.
+- I believe that every person's failure is their fault, every single time.
+- When a sizable group of customers speak, I always listen! The 'customers' view' is key to my confidence in decisions.
+- I think success is a relative term. If you're a caveman, success is capturing an elephant. Success is achieving better than the norm. Success is being exceptional. It's exceptional reputation, exceptional income, and exceptional respect.
+- Don't open a bar if you think all you need to be is social and greet the customers. You have to run a business.
+- When I went to college, I really became interested in cultural anthropology. Our behavior isn't that different from other primate species'.
+- Make no mistake: confrontation is unavoidable in business.
+- I do a lot of corporate consulting work. I've been doing it a long time.
+- Great negotiations happen when people are relaxed, so a relaxing environment is important. A high-energy environment tenses people up. It closes them up. You're not as likely to get that concession.
+- If your main reason for opening a bar is to have somewhere for you and your friends to hang out, then build a bar in your basement, and stay out of the industry.
+- Bars are about experience and interaction; so often, the people make the bar.
+- I'm a really happy guy. I have a great career, a wonderful wife and family.
+- I went to college for political science and got a bartending job.
+- Each 'Bar Rescue' is shot in real time. So the complete rescue is 5 days from my arrival to my departure. I do not see or meet anyone in advance.
+- Leadership cannot be taught. Either you're a leader by the time you're 12 years old, or you never will be.
+- In the bar and restaurant industry, you're always one idea away from your next quarter-million.
+- The word 'mixology' adds $3 to the price of any drink.
+- Eating something with someone is the second most sensual and intimate thing you can do in life. The experience can't just be about consumption.
+- I think everybody thinks they can have the next $100 million venue. I think there is a bit of arrogance in that.
+- The right personality with a weak resume can be filled in. That's the employee who will become great.
+- The greatest gift of leadership is a boss who wants you to be successful.
+- I've traveled the world, and as an America,n I get insulted when people say American businesses aren't respected overseas. Look at how our food and beverage companies do around the world. We are regarded as the best at this. A lot of what we do here is exportable, and I don't think there's anybody that does it better in the whole world.
+- Putting somebody else in crisis mode and causing them to make quicker decisions, urgent decisions, rather than prolonged, more logical decisions can be very advantageous. So, to be successful in business, you have to understand the power of confrontation and how to use it correctly.
+- If you can't build a relationship with your customers, you're in big trouble. If you can remember the numbers from the reports and spreadsheets you spent hours poring over in your office, but you can't picture the faces of your customers - you're in big trouble.
+- Bars need to be conceived and built for the local audience, not the personal tastes of the owner. Huge mistakes are made with regard to market research and concepts. Research and capital are paramount!
+- Any business, no matter what it is, lives or dies by the customer reaction it creates.
+- If a candidate puts together a small business platform, I'll go out on the road for him. You know, I'll support him.
+- I believe that a cook in a kitchen isn't producing an entree: he's producing a reaction. The product is the reaction; the entree is just the vehicle.
+- When my company does a good job, we make people happy. They laugh, they smile, they have a good time - that's what we do for a living. Any business doing that is making a noble effort.
+- Failure is an awful thing, and when I look at the common denominator of failure, it seems to always be the same thing: excuses.
+- The gift of giving and paying it forward has always been traits I consider to be invaluable.
+- I could take a cemetery and make all the tombstones beer companies. There's a lot of craft beers that came and went. A lot of them.
+- I've made stupid investments. I've made stupid decisions as an employee. I've made foolish decisions as a manager. I've gotten fired. I've lost businesses. I went through all of those things.
+- It's easy to be good when things are great; it's tough to be good when they're not.
+- I'm the type of employer who will hire based on personality, based on potential. If you put the resume before the personality, you're going to fail.
+- I'm a businessman, not a bartender.
+- If I'm your boss, and I truly want you to be successful... I'm inherently going to teach you. I'm inherently going to correct your mistakes. I'm inherently going to spend time with you. I'm inherently going to lead you.
+- The Knack were a very, very powerful band, and you got to understand, when they came in, all the punk stuff was still going on. There was an amazing conflict within the scenes.
+- Any time a bar or chef cares more about their own ego than the tastes and comforts of their customers, they should just open a monument to themselves and not a business.
+- Human interaction is something that I believe, as humans, we crave for. And that is where bars and social environments come into play.
+- What I love about Vegas is that we have the mountains and the Strip. There is always something to do.
+- Too many bar owners built a bar for themselves... when they should have built what their market and demographic demands!
+- Leadership is a trait; it's not a skill.
+- Nine out of ten people who are failing blame their failure on somebody else. And that is the common denominator of failure.
+- The 'hottest bar in town,' to me, means high energy.
+- I can change businesses, but I can't change people.
+- On 'Bar Rescue,' failure is not an option. I have to try to turn the business around.
+- One of my first bartending gigs was on Santa Monica Boulevard at Doug Weston's Troubadour, a very famous live music venue.
+- Bars can't be everything to everyone. They must be everything to someone.
+- I opened my first bar that I owned in 1989. The first one I ever owned was in downtown St. Louis.
+- I really was going to run for Congress.
+- I think life takes circles sometimes.
+- Never eat anything out of a bowl in a bar... If it isn't in a package, don't eat it.
+- You have to connect with your market and your employees. First, understand that what your market says is fact and what you say is opinion. Then, take the time to create a good connection with your employees. Without those two key connections, your business will be stuck in mediocrity forever.
+- Honestly, if I could be anything, I'd love to be a small-business authority type of person.
+- I was 12 years old and in summer camp. I started a company called Aardvark Industries, which provided basic services to camp counselors.
+- Rarely does a congressman stand up and defend a liquor company. Rarely does a congressman stand up and defend a bar.
+- People connect to a good bar very personally.
+- You can tell within a second of entering a bar if it's a place you should spend your time.
+- There has been a black hole in the bar business in Las Vegas, particularly on the Strip in tourist areas.
+- Society is causing us to talk less and interact more digitally. So, I'd be remiss if I didn't believe that businesses will have to follow that same path.
+- I can't believe the sense of community here, the amount of pride the people who run this city have in Las Vegas. They are wonderful.
+- Sometimes people go into my business because they like to drink, which - that's insane.
+- A plate of food hits the table, lands right in front of you. One of two things happens. Either you sit up and look at it and react to it, or nothing happens. If nothing happens then that restaurant is stuck in mediocrity forever.
+- I guess I've just always had an entrepreneurial spirit.
+- In my extensive experience, I can honestly say that Sculpture Hospitality's inventory solutions are world class and, by far, the most comprehensive in the industry.
+- When you're finished, bars are not inherently profitable. You got to work at them to make them profitable.
+- Most people who get into the business are social animals by nature, but do they have the financial abilities to manage a business? A great bar owner has both.
+- When I meet with people who are ineffective managers with failing businesses, I can't change what they do - I have to change the way they think.
+- Don't eat the bar nuts.
+- I have no personal or professional regrets. I really don't.
+- When you're on-stage, you're expected to perform in the bar business. You shake hands. You smile. You're all positive energy: you add to your environment. When you walk in the door to the back of the house, that's like a stage door. You're off-stage now.
+- Pushing for excellence is a fight. You have to fight to hire the right employees, fight to get the supplies you need, to move line items around. Being a great manager means pushing to get those few extra inches every day. It's almost like a football game - the team that wins sometimes wins by just inches.
+- The fact of the matter is that the most important responsibility a bar owner has is public safety and the safety of the people in it.
+- A bar is a factory, a marketing organization, and a service organization all in one.
+- The wrong personality with the greatest resume in a business will not grow that business.
+- If you have to signal a bartender to get a drink, then they're not looking at you, which is their problem. They're not doing their job. So don't feel rude when you signal a bartender. They're the ones who caused you to signal them. Go for it.
+- Bar owners tend to be social rather than operators. Most bar owners do not manage their numbers. They do not have spreadsheets or reports to manage their budget, cost, or inventory. I would say 90% of independent bar owners do not even have a budget.
+- The infusion of technology and social marketing to bar spaces is a big opportunity.
+- I think the greatest mistakes have been my greatest lessons.
+- You give me someone with the right personality, and I'll give you a bar manager in three weeks. You give me someone who has been a lousy bar manager for 30 years, and in three weeks, you'll still have a lousy bar manager.
+- When I was running the Troubadour, there was this transition from the classic singer/songwriter Jackson Browne types to bands like Black Flag, the Dead Kennedys, and Fear. Those are just some that come to mind. Oh, and Adam Ant! The Fear fans wanted to 'crush' the Ants. These guys hated each other.
+- I've always said that my greatest crises are my greatest opportunities to prove my own character to myself.
+- People see themselves on camera. They're ashamed of the things that they do, so they have a choice: Either they accept responsibility for it, or they blame the show for it. It's a human reaction.
+- Cocktails and food are social.
+- The whole point of a bar is, I look in your eyes, you look in my eyes, we've never met each other before, we talk, we get to know each other, have a drink together, and the great end of that story is we get married someday.
+- Failure is an extremely personal thing, and so is success. The problem with people is they don't own their failure, and if you don't own your failures, you're never going to own your successes.

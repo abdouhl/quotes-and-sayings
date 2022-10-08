@@ -1,0 +1,80 @@
++++
+author = "Josh Allen"
+title = "Josh Allen Quotes"
+quotes_len = "74"
+description = "the best 74 Josh Allen Quotes"
++++
+- There are times in my career where I could've called it quits, and that would've ate at me for the rest of my life.
+- A defensive coordinator is always going to try to throw you something different and get you out of your element, and I have to do better with the pass protection.
+- It's fun to look over there and see a guy with as a great stature as John Elway. It's really cool that he went to one of my games.
+- Obviously, I didn't get looked at and didn't get recruited by Fresno State or any other school in the nation, to be honest. It has always been my goal to go into every game and show you why you should have recruited me, why you should have offered me.
+- I want to win football games.
+- My dad has sayings for days. 'You bloom where you're planted' ties into farming, but it also sums up the ideals and morals that we have as a family by staying in Firebaugh.
+- If I'm not the right fit for the Browns, that's fine by me.
+- I love football, so there's nothing that's going to replace that. But golf, it's a second.
+- Heaving up a blind pass to maybe pick up 10 yards, rather than throwing the ball away - I can't do that.
+- There's a lot of pressure that comes with being a NFL quarterback wherever you're at, and I'm ready to tackle any situation that's in front of me.
+- I think that kids who are at smaller schools or don't have offers from big schools can look at my story and continue to work hard. I preach to them that it doesn't matter where you come from: it matters how you play and how you apply yourself.
+- I'm just trying to be the best quarterback possible. So as long as I'm playing well and improving every day, I will just continue this.
+- Whatever team I go to, I'm going to give them everything, show them the type of character that I am because, like I said, my teammates know exactly who I am; they can vouch for me.
+- I'm a competitor, and I'm sure a lot of people who don't get to play because of an injury, whether it's their pride or their ego, whatever it is, they want to be out on the field.
+- I don't think I have accuracy problems. I do think when my feet aren't set, I deliver a different type of ball.
+- I just love how fluid football has to be, how much time and energy it takes to practice and then taking it to the field and executing in a game situation.
+- I would welcome sitting for a year. Being able to experience what the NFL is like, settling into a new city. You get a house situated, there's marketing, there's stuff going on you're not used to. Being able to have a year to learn the offense, learn the speed of the game, and coming out in Year 2, you could focus all on football.
+- I've never done any arm-strengthening drills.
+- I definitely need to do everything I can to help whoever is going to catch the ball.
+- Stats are for losers, and the one thing I'd like to point out, while at Wyoming, we won games, and I definitely think that's how quarterbacks are judged in the NFL.
+- I'm going out there, and I'm going to play football how I know to play football.
+- My biggest interest of being the No. 1 pick, obviously the pressure that comes along with that, I would love to have that pressure on my shoulders because I've always thrived in those situations, and I feel like Cleveland would be a great spot to be.
+- Coming all the way from one scholarship offer, you know, Coach Bohl and Coach Vigen, they believed in me when I came out of junior college.
+- I got to start limiting the hits I take on myself.
+- It's really cool to feel wanted by the fans.
+- Everybody's got their own opinion and their own say. In today's age, everybody wants to be right, so there's people that hate you; there's people that love you.
+- I'm a firm believer in your gut being undefeated.
+- That preconceived notion of me being inaccurate is completely false, and I look forward to changing that over time.
+- I truly felt like I was a Division I quarterback, and I'd felt that way for a long time. I just wanted other people to see it.
+- The reason I want to be out on the field is to help my team, whatever which way possible I can. When I can't do that, it hurts me.
+- I was in junior college a few years ago, so to be here sitting in this spot talking to these NFL executives, it's a dream come true. It's something that not a lot of people saw coming.
+- I'm making throws where I don't have to second guess, putting the ball where it needs to be, and when I'm making each throw, there's no grabbing or pulling in there, and it feels comfortable and fluid.
+- If you didn't want to believe in me, that's OK, because I'll make a believer out of you.
+- In my opinion, there's nothing better than practicing a play all week and then going on the field and thinking, 'This is going to be a touchdown.'
+- You see a lot of smaller-school guys go to the NFL and have success: Carson Wentz, Derek Carr for example.
+- I'm not really too focused on where I get drafted. It's what I do after I get drafted.
+- I want to be the guy that turns around the Cleveland Browns. The guy that does that is going to be immortalized in Cleveland forever.
+- In practice, I think I've thrown it 82 yards, one time. In a game, I don't think I've pushed it that far - probably 60, 65 yards in the air.
+- I am the one to admit that I didn't put the ball where it needed to be all the time. But, you know, given the circumstances that we had in Wyoming, we won two back-to-back eight-win seasons. It was a place where we ended up winning football games.
+- It's football at the end of the day, and throwing the ball is what I love to do the most.
+- Everybody does things well in their own aspect. We're all different. We all have our plusses and minuses.
+- Football's a part of me. If I'm not playing, then I'm not me.
+- There's one thing about me: I do love the game of football.
+- At the end of the day, it's not where you get drafted. It's not going to set you in stone with how good you're going to be in your NFL career. Obviously, it's being surrounded by the right people, the right coaches, how you present yourself, how you work hard.
+- Seeing my dad wake up super early when the sun wasn't even out and then coming home when the sun was set, he worked his tail off to provide for our family and did a great job. He's the most selfless man I know, and I think if I'm half the man he is, I'll be all right in this world.
+- Literally everybody talks about 56 percent completion percentage. It gets brought up in every meeting. It's something I'm trying to work on.
+- I know I've got a lot of flaws as a quarterback.
+- My mom used to call me Joshy Boucher. I watched 'The Waterboy' so much, my mom started calling me Joshy Boucher. True story.
+- It's football. The game hasn't changed. There's not tons of new concepts every year that go in. Offense is offense; it's our job to move the ball, to score points, and keep our defense off the field.
+- I'm not afraid of the media. I think I know how to handle them because I've been around them enough.
+- I can care less what people say about me. If I can go to the facility, work out, play football, and go home, that's what I would do. I'm a big-time football guy. I could care less about the outside.
+- I definitely would embrace that opportunity to be the No. 1 overall pick, obviously that every quarterback would love to be that. It's no different for me.
+- It's intimidating to come out and hear the 'Skol' chant.
+- There's got to be a fine line where I can find I'm still throwing the ball how I usually throw it, but it's able to dive down after a certain height and get to the guy.
+- I'm the ultimate competitor.
+- I don't care how ugly the stats look. If we're out on top, that's all I care about.
+- Any rookie that can develop a mentorship with a former quarterback like Jim Kelly, it's going to be huge.
+- It's every kid's dream to be drafted No. 1.
+- I'm not going to sit here and say I know everything about everything. I definitely have work to do. The thing is, I'm willing to admit that.
+- I'm the type of guy who wants the pressure.
+- I'm from a small town. I think that's what's going to help me succeed.
+- Any football game, you can be hit one way or another. It's not the safest sport that we play; it's a beautifully violent game, and that's what, in part, I love about it.
+- If I'm fortunate enough to become a Cleveland Brown, you can expect everything from me.
+- The key to my accuracy is making sure my feet are set right and trying to have a more polished throwing motion, a more polished stroke, you can say. When my feet are right, my hips are allowed to open a little better, which is kind of where your accuracy comes from.
+- I had to decide if I was going to try a junior college or walk on somewhere. I even thought about changing sports. But I eventually decided that football was my passion.
+- The only thing I've ever wanted to do is play professional football, and be a professional quarterback, so now that it's here and it's getting close, it's just kind of making all that pain and suffering and waiting and working hard worth it.
+- I'm going to prove I belong. There's a lot of skepticism about the type of player I am, where I come from, the University of Wyoming, obviously.
+- I've got to be smarter with the football.
+- I think where I come from is going to help me with a market such as New York.
+- The inaccuracy issue. Going back to college having a 56-percent completion percentage. Obviously, it's not great. But I think that it's a little blown out of proportion.
+- Hue Jackson is a great guy.
+- I'm not going to bow down to anybody, not going to back away from anybody.
+- I am way more accurate than my completion percentage shows.
+- I understand the New York media is a lot more magnified than most markets, but I'm up for that challenge. I'd definitely be suitable, and I'd be primed for a market like that.

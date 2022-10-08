@@ -1,0 +1,37 @@
++++
+author = "Oti Mabuse"
+title = "Oti Mabuse Quotes"
+quotes_len = "31"
+description = "the best 31 Oti Mabuse Quotes"
++++
+- With TV presenting, I speak a lot anyway!
+- Off the show, I still wear my £5 leggings.
+- I wouldn't do anything I don't enjoy.
+- It's really important to always have a positive mind-set, no matter what people have been through.
+- I've made storylines through dance to complement the music. It's all about enhancing the singing and acting. It's been an amazing learning curve for me.
+- If something doesn't go your way, then look for another way. If something's broken, fix it.
+- The goal was for me to become a civil engineer. But one day I really felt that it was important for me to do what I really loved. I was really good at engineering, but I didn't have a passion for it, so going to work was something I had to do, not something that I really wanted to do.
+- South Africa is really diverse, with many cultures and 11 official languages, so there are lots of different Christmas traditions.
+- When you are different, that can lead to judges not marking you right because they think you look 'odd' - and that's in any competition.
+- I couldn't ask for anything else. I am super, super happy.
+- My sister loves to play Christmas music - especially Mariah Carey's 'All I Want for Christmas Is You' - that's definitely the best to dance to.
+- I was born and raised in Pretoria. Nobody ever really talked about Santa because the whole concept just didn't make sense to us. Think about what South Africa looks like: I mean, we don't even have any chimneys for him to come down!
+- At the end of the day, a show like 'Strictly' is not about what colour you are, or where you come from. It is about how hard you are prepared to work and how well you can dance.
+- I'm obsessed with 'Wicked', and I'd love to play Nala in 'The Lion King'. Some of the songs from 'The Lion King' are performed in my native tongue, so when the cast performed an extract from the show in 'Strictly' in the language I grew up with, it made me cry.
+- I'm determined to not let my skin colour or the fact that I come from Africa be a hindrance.
+- I have a thing for earphones - I have five types.
+- I don't do anything I'm not going to enjoy.
+- I have different styles of shoe for different dances and I love sneakers, flats, platforms, heels, boots. Especially my thigh-high black leather boots from Kurt Geiger.
+- My first passion was to create for young girls the idea that you have to be brave and courageous, it's not easy taking big steps and saying, 'I'm going to be a professional dancer'.
+- I know first-hand what it's like to be judged and to have someone criticise your creativity, your hard work and your art.
+- In London, I live with one of the other 'Strictly' dancers, Amy Dowden. She got me a chocolate advent calendar and I had no idea what it was. I'd never seen one before!
+- Although I won many titles on the competition circuit, my first professional audition was in 2015 for the popular German version of 'Strictly Come Dancing', called 'Let's Dance'.
+- I've dedicated my life to competitive dancing, so I'd like to pass that on to others. You can't be half-hearted about competitive dancing, you have to be prepared to give your whole life over to it.
+- The most important thing any person can focus on, whether in a first audition or a first job, is to be the best you can be. The rest will take care of itself.
+- I can make a beginner, anyone with no dance experience, look amazing if we put in the hours.
+- I like to be so good, that no-one can have anything to say about me; my dancing speaks for itself.
+- I'm smiling every single day because every opportunity I've been given feels like a baby in Disneyland, I'm constantly hoping to move on to the next job.
+- In the rest of Europe, dance is seen as a sport and in the UK it's seen as an art. And art isn't subsidised in the same way sport is.
+- My family plays a big part in my role as a dancer and my sister was my first trainer. She's still my role model and inspiration until this day. She was my first trainer, she taught me my first steps.
+- I had been dancing in competitions in South Africa since the age of four, before going on to compete internationally.
+- The first dance we did for 'Ain't Misbehavin' was five minutes and I was like, 'What? Five minutes!'

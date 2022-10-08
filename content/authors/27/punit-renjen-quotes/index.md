@@ -1,0 +1,61 @@
++++
+author = "Punit Renjen"
+title = "Punit Renjen Quotes"
+quotes_len = "55"
+description = "the best 55 Punit Renjen Quotes"
++++
+- Skills-building opportunities should be extended to people outside of the mainstream talent pool. That might include at-risk youth, veterans returning to the workforce, or immigrants struggling to make a life for themselves in a foreign culture. The process for creating wealth must begin with creating opportunity for all.
+- I had this scholarship, two pairs of tight jeans, and a couple of hundred extra dollars, and I showed up in Oregon and went to school there.
+- Exceptional firms have always been good at aligning their mission or purpose with their execution and, as a result, have enjoyed category leadership in sales and profits.
+- Many businesses find their culture organized around a dangerous fault line known as 'us and them,' with executives on one side and employees on the other. The divide is both real and expensive.
+- It is a privilege to be part of an organization that delivers high-quality services and innovative solutions to the best clients, develops the most talented professionals into leaders, and does its part to improve the societies in which we operate.
+- Millennials want to work for organizations that prioritize purpose as well as profit. It's as simple as that.
+- When employees join executives in truly owning the responsibility for business success, an exciting new sense of teamwork takes hold.
+- As long as we deliver services with the highest level of quality and integrity, I'm happy.
+- Are businesses really benefitting if their communities are suffering? It doesn't seem like it.
+- As a young boy growing up in Rohtak, India, I had no idea what my life's work would be. But my parents instilled in me something that I have never forgotten: that work must have a sense of purpose beyond mere financial gain; that to be meaningful, work should make a positive and lasting difference in the lives of others.
+- We believe that if you want to have diverse leaders 10 years down the road, we've got to make sure they're getting the right assignments, the right client experiences today.
+- Success in M&As comes with executing with vigour along with the obvious right choices that you got to make.
+- For any young people looking for job opportunities, good grades and academic results are important, but what is more important may be showing you are someone who has the drive and capability and can fit in the company culture.
+- It is no longer enough to have a good product. A company's purpose and the way it treats its employees and the global community to which it belongs is also of great importance.
+- Technology is advancing at breakneck speed, upending old ways of doing business and resetting the social contract between employers and employees.
+- A strong sense of purpose drives businesses to take the long view and invest for growth.
+- I have put in more than 10,000 hours perfecting my craft. And I am good at it.
+- For a firm to be exceptional, it has to be led by purpose. Our purpose is to make an impact that matters.
+- Absolutely, at a macro-level, I want our firm to be a purpose-led firm. This notion of making an impact that matters, I want that embedded in whatever we do.
+- We are an organization led by a purpose - to make a positive, meaningful impact that matters to everyone Deloitte touches. I will do my best to serve the network by helping enable our leaders and people to fulfill their passion to make a difference.
+- The more a business is able to develop and articulate a core purpose and engage with millennials, who equate purpose with business excellence, the greater chances for long-term success.
+- Gandhi held no formal position of authority. Nor was there an organized army standing behind him. What he did have were his core beliefs and the audacity to speak truth to power.
+- The profound lack of economic opportunity for those left behind by globalization has created an ever-widening gap between the 'haves' and the 'have nots.'
+- I grew up in India. From my childhood, I remember the great reverence that people held for our national hero, Mahatma Gandhi. He galvanized millions to march as one, disarmed the empire that had ruled his country for nearly a century, and enabled India to become a free and independent nation.
+- I'm good at what I do. I'm really, really good at what I do, and I'm not saying this with any level of arrogance.
+- We want all clients to think of us first when they want to hire an auditor or if they want to have an adviser to solve difficult corporate problems. We want the best talent to join our firm.
+- I wish I was a great cricket player, but I am not.
+- I'm not motivated by having the largest revenue base - you get that as an outcome. If we do our job well, we will be appropriately rewarded.
+- Diversity is not just the right thing to do but right for business.
+- Leaders who understand the importance of the intangible elements contributing to workplace culture become sensitive to what makes their organization truly special. That is how they define core values and beliefs that are unique, simple, leader-led, repetitive, and embedded - transforming themselves from good to exceptional.
+- Exceptional businesses sustain bottom-line results, which they invest to create meaningful, positive impact for their stakeholders.
+- I want to be a purpose-driven, purpose-led organization, and I want the organization to achieve this aspiration of being the undisputed leader in professional services.
+- If corporations are to remain a legitimate instrument of collective action, they must concern themselves directly with the well-being of those party to, and affected by, their actions.
+- Rethinking product supply chains offers another opportunity for traditional enterprises to introduce a host of positive outcomes.
+- In exceptional boardrooms, the intellectual rigor generated by a challenging question is both an accepted norm and a precursor to reaching informed decisions. This is the crucial edge that sets apart boards that lead from boards that follow.
+- In order to generate extraordinary profits, you must have a focus that is beyond profits. You need to focus on how you serve your clients.
+- Fresh out of grad school, I arrived for my first day of work at Deloitte ready for the long haul. For my generation, that's what those early years were about - laying the foundation for a lifelong career with a great organization. More than 30 years later, I'm still with Deloitte, and I have no regrets.
+- While I was in school, a local magazine picked the 10 best students, and they picked me and profiled me in the magazine.
+- For millennials, conducting business with a purpose that goes beyond making profits is critically important in determining the kind of company they want to work for - and the kind of company with whom they are willing to do business.
+- As I progressed in the firm, I learnt the craft, and as I learnt my craft, my partners and the firm threw up different opportunities.
+- For us as a firm, not only from a risk mitigation standpoint but also as a point of differentiation, it is incredibly important to get consistency and the very best individuals with the capabilities to do the very best job.
+- For acquiring companies, the excitement is almost always about where they are going - that is, their strategy for gaining greater growth and productivity. But when mergers fail, it's often because no one focused on who they are - that is, their culture, which is critical to successfully bringing different groups of people together.
+- While they believe the pursuit of profit is important to sustaining a business, millennials also say that pursuit must be accompanied by a sense of purpose, by efforts to create innovative products or services, and, above all, by consideration of individuals as employees and members of society.
+- All the good work in the world will not compensate for the damage that a single facet of the business, or a rogue individual, can do. Insider trading, environmental damage, human-rights violations, and opportunistic practices erode trust and result in net negative impact.
+- An organization's culture of purpose answers the critical questions of who it is and why it exists. They have a culture of purpose beyond making a profit.
+- As business leaders, we should not choose between profit or good; rather, we must choose to profit from good. And that requires connecting what we do with a purpose beyond profit - a reason to exist that meets our shared sense of 'doing good.'
+- As a society, we need to refocus on creating an economy that works for everyone. I believe the business community is in the best position to lead the way.
+- When you talk about being exceptional, you do two things: You clearly answer the question 'Who are you?' which is your purpose. And you answer the second question, 'Where are you going?' which is your aspiration and how you're going to get there.
+- What I would say is that if someone faces discrimination, they should never back down. They should be self-confident and educate others not to have such an attitude.
+- Leadership changes, and evolving marketplace conditions can significantly impact business strategy.
+- It is harder to get into Deloitte than into the University of Pennsylvania.
+- Creative tension is constructive. Its purpose is to bring out the very best in management so that senior executives can generate the greatest value for shareholders, stakeholders, and society at large.
+- Defining, embedding, and living core beliefs set the stage for executives and employees to connect. Through actions that consistently convey who we are and how we act, executives can inspire employees to believe in the organization's values and buy in to its brand.
+- Most millennials have no problem standing their ground when asked to do something that conflicts with their personal values.
+- Our goal is not to be the biggest. Our goal is to be the best. That is why the aspiration that I have picked is to be the undisputed leader in professional services, and I'm starting with intangible metrics.

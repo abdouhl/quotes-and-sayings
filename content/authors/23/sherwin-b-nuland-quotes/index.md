@@ -1,0 +1,50 @@
++++
+author = "Sherwin B. Nuland"
+title = "Sherwin B. Nuland Quotes"
+quotes_len = "44"
+description = "the best 44 Sherwin B. Nuland Quotes"
++++
+- We have had a rewarding relationship, the belly and I.
+- Cancer cells are fixed at an age where they are still too young to have learned the rules of the society in which they live. As with so many immature individuals of all living kinds, everything they do is excessive and uncoordinated with the needs or constraints of their neighbors... they are reproductive but not productive.
+- The dignity we seek in dying must be found in the dignity with which we have lived our lives.
+- The Scientific Revolution, that remarkable transformation of European thought that occurred between approximately 1550 and 1700, brought with it an ascendancy of the experimental method and the refusal to believe any explanation of natural phenomena that could not be proven to the satisfaction of the empirical observer.
+- Only by a frank discussion of the very details of dying can we best deal with those aspects that frighten us the most. It is by knowing the truth... that we rid ourselves of that fear of the terra incognita of death.
+- Only the emerging specialty of psychoanalysis seemed to understand that mental maladies are not fully analogous to physical disease. They resist classification, and might better be known by their symptoms and the individualized sufferings of patients than by assigned names.
+- There are resurrection themes in every society that has ever been studied, and it is because not just only do we fantasize about the possibility of resurrection and recovery, but it actually happens. And it happens a lot.
+- Where the despair of loneliness and poverty haunts every hour, the optimism to embark on new projects cannot find a place to alight on the brain's cortex. Poverty itself is an enormous obstacle to an enlightened and enlightening - not to say healthy - old age.
+- Being someone who had had a very difficult childhood, a very difficult adolescence - it had to do with not quite poverty, but close. It had to do with being brought up in a family where no one spoke English, no one could read or write English. It had to do with death and disease and lots of other things. I was a little prone to depression.
+- It's unnatural to believe death usually has a beauty and a concordance and is usually a coming together of your life's work. It leads to frustration for the patient. And it leaves grieving families convinced they did something wrong.
+- Nosology (from the Greek 'nosos,' meaning 'disease,' and 'logos,' referring to 'study') is not a sport for the timid, and certainly not for those so scrupulous about rules and order that they demand consistency in all things.
+- Of all the named structures within the abdomen and the chest, those associated with reproduction retained the mysteries of their willful behavior long after others had been solved to the satisfaction of physicians and philosophers.
+- If there's one operation for a disease, you know it works. If there are 15 operations, you know that none of them work.
+- Medical judgment can be taught - laboriously, in long periods of training - but it cannot be neatly handed over as the occasion demands it. It is the irreplaceable and untransferable contribution that the healer makes to the suffering individual who would be healed.
+- I have been following the attempt to initiate or revamp federal involvement in the health of Americans since it was a major topic for my high school debating team in 1947.
+- Once the notion of depression had begun to dominate the diagnostic armamentarium, it became but a matter of time before patients with relatively mild disorders of mood or anxiety would be entered into it.
+- The good thing that may yet happen during dying is not the possibility of survival when we're beyond that point. The good thing that may yet happen is that our lives will have great meaning for those we leave behind.
+- I think when you think of death as being part of the life cycle and recognize that death is an inevitability for our species because the world has to be renewed with each death, then the hope becomes when it is renewed it will be renewed by people on whom I have had some influence for good.
+- You know, ever since man had any notion that some of his other people, his colleagues, could be different, could be strange, could be severely depressed or what we now recognize as schizophrenia, he was certain that this kind of illness had to come from evil spirits getting into the body.
+- The growing professional disciplines of medical ethics and bioethics have had a profound impact on researchers, bedside doctors, associations of physicians, and government.
+- Though moral axioms to guide the conduct of the practitioner have existed since the beginnings of the profession of healing, Western doctors are most likely to view the Hippocratic Oath of approximately two-and-a-half millennia ago as the first codified set of statements to which they can look for guidance.
+- The final disease that nature inflicts on us will determine the atmosphere in which we take our leave of life, but our own choices should be allowed, insofar as possible, to be the decisive factor in the manner of our going.
+- I never had a conscious fear of death, but I did have a conscious fear of sickness. By the time I completed medical school, that fear was gone.
+- By the time of my ninth birthday, I had become a bit of a socialist, as I am said by conservative colleagues to be to this day. I went on within the next few years to volunteer as an envelope stuffer for the American Labor Party, and my political thinking has not shifted measurably since that time.
+- 'Death with dignity' is our society's expression of the universal yearning to achieve a graceful triumph over the stark and often repugnant finality of life's last sputterings. But the fact is, death is not a confrontation. It is simply an event in the sequence of nature's ongoing rhythms.
+- Our deaths become a part of our lives in the sense that with our deaths we give something to those who are left behind, as we have given our lives to them.
+- Do you know what the world will be saved by? I'll tell you. It'll be saved by the human spirit. And by the human spirit, I don't mean anything divine, I don't mean anything supernatural - certainly not coming from this skeptic.
+- At times, morality can be dismissed as a matter of personal conscience, no matter how widespread its acceptance. Ethics, on the other hand, arises from societal or group commitments to principia of behavior.
+- Where nothing in a person's earlier years lends itself to an old age devoted to continuing intellectual and physical pursuits, a late-life interest in Tolstoy or even crossword puzzles is unlikely to appear, no matter the urging by well-intentioned social workers or people like me who write books about it.
+- Whether wisely or not, one of the first priorities of the incoming Obama administration was to present a package of healthcare benefits, which, to no one's surprise, produced an uproar in Congress and an assortment of polls declaring that the majority of Americans were opposed to it.
+- I have not seen much dignity in the process by which we die. The quest to achieve true dignity fails when our bodies fail.
+- I've seen so many patients, particularly elderly patients, over the years who become debilitated and changed by the process by which I cure them or another doctor cures them. And has it really been worth it?
+- Even putting aside the Judeo-Christian morality upon which the Constitution and our nation's culture are based, the notion of forced euthanasia would contradict the long-held body of medical ethics to which all American doctors must adhere.
+- Death belongs to the dying and those who love them.
+- Both individual fulfillment and the ecological balance of life on this planet are best served by dying when our inherent biology decrees that we do.
+- The writings and the recommendations of the earliest medical scientists and the new breed of clinicians between the mid-fifteenth and early seventeenth centuries were based on the supposition that sufficient study and experimentation would elucidate not only the origins of disease, but its treatment as well.
+- There is, to be sure, sometimes only a small difference between being alert to possible danger and allowing oneself to become terrified to the point of paralysis by seeming or imagined portents.
+- Too many of the elderly do not have the family or the communal attachments necessary to feel valued; too many are widowed or otherwise alone; too many live in surroundings where they are essentially without the companionship necessary to stimulate a mind in danger of deteriorating.
+- Long regarded as central to the contemporary understanding of medical ethics are four principles that must be satisfied in order to fulfill the requirements of moral decision-making. These principles are autonomy, justice, beneficence, and non-maleficence.
+- Every hope of successive generations of scholars that order might be constructed from the chaotic mess of medical nomenclature has been frustrated. Even diseases recognized in the same historical period have been given names based on characteristics that have no relation to one another, and thus no common criteria.
+- I was, in the 1960s, in a marriage. To use the word 'bad' would be perhaps the understatement of the year. It was dreadful.
+- Not death but disease is the real enemy; disease, the malign force that requires confrontation. Death is the surcease that comes when the exhausting battle has been lost.
+- To become comfortable with uncertainty is one of the primary goals in the training of a physician.
+- Though President George W. Bush made some small noises about his intention to present some form of improved health coverage, nothing grew out of them.

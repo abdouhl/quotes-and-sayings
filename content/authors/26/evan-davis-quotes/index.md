@@ -1,0 +1,68 @@
++++
+author = "Evan Davis"
+title = "Evan Davis Quotes"
+quotes_len = "62"
+description = "the best 62 Evan Davis Quotes"
++++
+- It's amazing, if you know what you want to say, how fast it is to write.
+- The key thing about me is that I'm really not very interesting.
+- For me, the main principle for broadcasters has to be that if people stand to benefit from an interview, they should be prepared to face some downside as well.
+- I don't want to sound like 'chirpy Evan' who's just bouncing around with his unrealistic views and doesn't understand what's going on.
+- I rarely come away from presenting the 'Today' programme without some sense of regret. There is always some question that I should have asked, or some point that I should have made. This is annoying but not surprising. Perfection is hard to achieve in a three-hour live programme.
+- All socio-political phenomena in the U.K. come laden with the baggage of a class-based theory or two attached to them. In the case of gay Tories, there is one particularly silly variant of the category, which asserts that gayness is bred in public schools and thus fits with Conservatism like hand in glove.
+- It doesn't annoy me but I think of myself as a presenter who is gay, rather than a gay presenter. It's a subtle distinction, but that's how I view it.
+- Now undoubtedly, we face some very British challenges when it comes to infrastructure. We rightly cherish our back yards and green spaces, and we'll defend them passionately when projects are announced. We live in a democracy, and we like to debate these things, often for many years.
+- Britain, however, has ended up specializing in the ones you don't see as much of: defense aerospace, making drive shafts for cars, pills and drugs, designing chips that go into 94 percent of the world's mobile phones.
+- I don't keep it secret that I live with my partner Gio. I'm very proud of my gayness. But there is lots I wouldn't want the press to write about me... it is a matter of regret that being gay is the most interesting thing about me.
+- There is a strong link between the following three things: exporting, manufacturing and the degree of saving by the population. It's complicated, but if the population doesn't save, the economy will not tend to export as much, and if it doesn't export as much, it won't manufacture enough.
+- Being funny, it turns out, is like being a bank. It's a confidence trick. As long as everyone believes in you, you are fine.
+- It is no wonder that bank capital is regulated. When borrowing and lending is profitable, it is tempting for banks to scale up their operations and to borrow and lend too much in relation to their capital, in effect reducing the effectiveness of the potential capital cushion.
+- Personally, I'd like us to have a few more women on the 'Today' programme.
+- Interestingly, human irrationality is a hot topic in economics at the moment. Behavioural economics it's called, on the cusp of economics and psychology.
+- Most people hugely underestimate the amount of 'empty space' we have in our country. Fly over the U.K., and you see that human settlement does not fill up the U.K. at all. It accounts for something of the order of 15 per cent of the landmass.
+- Even the 'Today' programme involves a balance between the worthy-but-heavy items with the worthless-but-entertainingly-light ones.
+- We Brits print banknotes out in Debden in Essex, and have contracted it out to the private sector. Here in the U.S. it is a government operation right in the heart of Washington next door to the Holocaust Museum.
+- At the BBC we've had plenty of women in good management jobs. It comes and goes but there's been plenty. On air, I think there's quite a bit more we can do.
+- My instinct is to assume that we consumers are an inconsistent bunch. We like competition if it delivers low prices, but grumble if it delivers the bad news that prices need to go up.
+- Even though disciplined sleeping habits and the adrenalin of live radio ensures that we are very awake while on duty, there is evidence of a phenomenon called circadian desynchronosis which causes one's brain to function slowly at those times of day when it thinks it should be asleep, regardless how wide awake the body is.
+- Nice guys finish last, but we get to sleep in.
+- Men don't know much about women. We do know when they're happy. We know when they're crying, and we know when they're pissed off. We just don't know in what order these are gonna come at us.
+- Historically, the British have always been rather wary of grand engineering projects - perhaps understandably, given that many of them have been delivered late and over budget.
+- Put simply, behavioural economics argues that human beings' decision-taking is guided by the evolutionary baggage which we bring with us to the present day. Evolution has made us rational to a point, but not perfectly so. It has given us emotions, for example, which programme us to override our rational brain and act more instinctively.
+- A chair's function is not just to provide a place to sit; it is to provide a medium for self-expression. Chairs are about status, for example. Or signalling something about oneself. That's why the words chair, seat and bench have found themselves used to describe high status professions, from academia to Parliament to the law.
+- Although being economics editor sounds impressive, it does not mean I actually edit anything. It mainly reflects two decades of title-inflation at the BBC, which has given ever more status to senior reporters, presumably because it is cheaper to do that than to offer higher pay.
+- For industry to settle in a country, you first need electricity; for electricity, you need some trained workers; for trained workers, you need some schools; for schools you need some money; for money, you need some industry.
+- One of the key problems is that the Germans know what they do because everywhere they go there's a 'made in Germany' label on it - they can feel proud of Volkswagens and Audis and Mercedes.
+- Art can help a town by attracting a certain Bohemian population that adds life to the bars, character to the streets and a buzz to the name. Employers may then follow. But art can't do much if every town does it. There aren't enough Bohemians.
+- It's not a bad idea to occasionally spend a little time thinking about things you take for granted. Plain everyday things.
+- Some people harbour an awkward clash of feelings - homosexual attraction on the one hand and shame or embarrassment about that attraction on the other. It is well known that the mind struggles to sustain conflicting views.
+- Now I can broadcast to an audience of several million people on the 'Today' programme. I can talk about the day's news. But on radio, believe it or not, we have notes and scripts. And while we might ad lib the odd wryly amusing asides, they come at the frequency of a suburban bus. About one every 90 minutes.
+- But beginners to the World Economics Forum have to understand there is no single Davos experience, and there is no single Davos community either. There are numerous tribes who interact only at a minimal level.
+- We all know that Americans love their statistics - in sport, obviously. And in finance too.
+- As it happens, I have personally been something of an enthusiast for the London Olympic games, mainly on the grounds a) that a bit of wasteland will be made nice and b) that it tends to make everybody happy that their country should be the centre of world attention for a couple of weeks in their life.
+- The two questions that anyone ever asks me are: 'Are house prices going to go down?' and 'Is it a good time to fix my mortgage rate?'
+- Someday we'll look back on this moment and plow into a parked car.
+- Once we are fed, heated, housed and healthy, our extra consumption inevitably has an element of luxury about it. And once luxury enters the scene, the practicalities are in trouble, as women who wear expensive stiletto heels can testify.
+- The fact that radio is so hopeless at delivering data makes it an uncluttered medium, offering the basic story without the detailed trappings. But it does mean that if data is important, radio is probably not your place.
+- Interest rate cuts have an effect in stimulating an economy by directly or indirectly making someone, somewhere, spend more than they otherwise would. That extra spending increases demand and ensures that we all carry on with work to do, without us having to slash our prices or our wrists.
+- In principle, there are only three main components of spending that much matter to monetary policy: consumer spending, business investment and exports and trade.
+- When a population saves a lot, the funds are invested outside the country as well as inside. If the Japanese invest in the United States, it pushes their exchange rate down and makes their manufacturing more competitive.
+- The Germans are clear about what they do - cars and machine tools; the Japanese are clear about what they do - electronics; the Chinese are clear about what they do - they're the workshop of the world.
+- Crossrail is a prime example of infrastructure. It is a rather deadly word, but I think it is exciting stuff, the civil engineering which makes Britain tick - the bridges, tunnels, power and water networks, which bind us together.
+- We escaped the last big bursting of a bubble - the dotcom bubble - with a relatively light U.S. recession. On that occasion, the world economy found its way back on track fairly quickly.
+- I don't particularly like going on about being gay or making a big thing about it, but I think it's a bit of a pain to be secretive about it.
+- We are more likely to cheat if we see others doing so. We tend to conform to accepted norms of reasonable behaviour, rather than adhere to strict rules.
+- Mistakes are nothing to be ashamed of.
+- But sometimes it's good to dare yourself to do the unthinkable. And rather than stand in front of an audience with no clothes on, I decided to have a go at stand-up comedy.
+- The new industries are brainy industries and so-called knowledge workers tend to like to be near other people who are the same. Think of the City of Hollywood. People cluster. This means you have winning regions, such as London and Cambridge, and losing regions. The people who want to be top lawyers in Sunderland are hoovered up by London.
+- I actually profoundly think the world's a better place when economics is fairly boring... The more boring the better.
+- I've always been scared of advertising folk. I've met them at parties and I've been to their offices and I've always found them intimidatingly cool. At one company I visited, they held their meetings in a caravan that had somehow been installed in the place, a rather more exotic place to gather than the typical BBC glass box.
+- Black Friday is not another bad hair day in Wall Street. It's the term used by American retailers to describe the day after the Thanksgiving Holiday, seen as the semi-official start of Christmas shopping season.
+- If you're not making some mistakes, it probably means you're not trying hard enough.
+- I swing both ways. I can see things from a kind of conservative point of view and from a more socially liberal or left-wing point of view.
+- Reducing every issue to an argument can become stale but it's often a very good way of clarifying issues.
+- Personally, I don't see old economics and behavioural economics as opposed. It is useful to assume people are rational as a good approximation to their long term behaviour, but it would be unwise not to think how in practice their behaviour may deviate from that simplifying assumption.
+- What comes with a job as a staff member of the BBC is a certain self-censoring that you get utterly used to. You don't say everything you think. You hold back on some things.
+- For years, we've grown dependant on American consumers as the world's spenders of last resort. They've kept Europe out of recession, allowed China to industrialise, and prevented global deflation. But at the same time, they've not been looking after their own futures.
+- What is so striking about Liberia is that in a place where there is so much to be done, I have never seen so many people with nothing to do.
+- I've never enjoyed sleep as much until I got the 'Today' job. There is something about early sleep that's much better than late sleep. I feel myself going to sleep; I don't just plonk my head on the pillow. It's a sort of winding-down thing.

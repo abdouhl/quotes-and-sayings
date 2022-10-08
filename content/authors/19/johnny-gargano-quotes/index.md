@@ -1,0 +1,75 @@
++++
+author = "Johnny Gargano"
+title = "Johnny Gargano Quotes"
+quotes_len = "69"
+description = "the best 69 Johnny Gargano Quotes"
++++
+- I'm an NXT Superstar and the current NXT Champion.
+- It seems like all of my biggest life events happen when I'm actually at home in Cleveland around my family.
+- I am not the best high-flyer or technical wrestler. What I do have is a work ethic that can't be beat.
+- When I was younger, I actually stepped foot in a ring for the first time at 8 years old because of my dad.
+- In the grand spectrum of things in WWE, you are wrestling for that camera and that camera and that camera - and all the cameras they have - and you have to make things work that way because, through that camera, there's a million people watching.
+- I've been lucky to combine my two loves quite frequently: that of Marvel Superheroes and Sports Entertainment.
+- When I moved to Orlando, it was my first time moving from Cleveland. You never know what to expect. But to be able to go and work with Shawn Michaels and learn from him - it's just mind-blowing.
+- I try to be very current. I try to take something from everywhere I've been. I've wrestled in Japan, Singapore, China, Germany, and England. I try to bring a mix of different styles to the table.
+- I've always been a singles guy.
+- Outside the ring, I am a huge Marvel fan and don't hide my overwhelming nerd-dom by any means.
+- We're all out to set our best foot forward and to make NXT the best we possibly can, but at the end of the day, we all want to have the best match.
+- I am super happy and super proud that Candice LeRae is in the WWE Performance Center.
+- For me, I am not a fan of any of my own matches, and it's both a blessing and a curse. Because I'm never satisfied, I'm always looking to improve in every area.
+- Sometimes you have to fall lower than you've ever been to stand taller than you ever could.
+- I'm still that indie kid at heart. I'm still that guy who wrestled in front of 15 people and never knew he'd make it to WWE. I'm still that person.
+- I've wrestled Rich Swann countless times. I've faced Akira Tozawa in Japan and America. Zack Sabre Jr. is another guy I've faced many times.
+- It's a blessing and a curse, 'cause I'm never satisfied, so I continually want to outdo myself. But still, I'm never happy.
+- I've said many times how big a wrestling fan I am, but all my bias aside as her husband, I'm a huge Candice LeRae fan. I was a huge Candice LeRae fan before we started dating. I was a huge Candice LeRae fan before we got married.
+- NXT in my head is something I'm trying to help build, get it to its peak. I will do whatever I have to: I will strap NXT to my back and carry it up a cliff if I have to.
+- This isn't the same Johnny Gargano that is going to overreact to things and let his emotions get the best of him. In 2019, I'm a little calmer and more collected.
+- It's always fascinating to me and blows my mind whenever I'm in a video game because I am such a big video game fan at heart.
+- I have nothing but respect for Adam Cole. I've known him for a very long time, and he's one of the best in the world.
+- Wins and championships - I want it all. I want there to be no doubt who I am. I want there to be no doubt that I'm a winner.
+- The fact that I'm still able to wrestle on the indies and yet still do my stuff in NXT, and the fact that I wrestled in front of 15,000 people at the Barclays Center at TakeOver, and then, the following weekend, I was still doing indie shows, is wild.
+- It started with Dragon Gate USA, where I started as a guy on the pre-show and wasn't promised anything. I kept coming and doing what I do and ended up on the main show and eventually won their championship.
+- I want my lasting legacy to be that I was a good wrestler but a better person. I want people to remember me as a good dude. I think that's very important.
+- NXT is unpredictable, and they are not afraid to tell a lot of different stories and compelling stories.
+- Anything nerd-wise, I have probably collected it, and it's displayed in our apartment.
+- I'm kind of a smaller guy in my given profession, and people always told me I'm too small, so I know how it feels to have people tell you you'll never be anything.
+- A lot of people have said that what makes me stand out is my passion, my heart.
+- I'm very open and very honest about my actions, especially to the NXT universe. I never lie to them. I never do. I am very real with them.
+- I was a socially awkward 8-year-old kid who fell in love with wrestling when he felt like the whole world was against him. That's the key word: love. I don't do this for revenge; I do this because I love it. That's Johnny Wrestling.
+- I always question whether people are going to know who I am, and I'm always blown away by the love and reaction I receive.
+- I'd love for it to go away and for people not to see NXT as a downgrade. I definitely don't think it is.
+- My mom made me a Shawn Michaels costume when I was a kid. I wore it every day and ran around the house dancing like him.
+- I didn't have a contract for the first year of my time in NXT, and that was very stressful.
+- I'm walking around our apartment right now, and I see tons of action figures everywhere. There's Spider-Man stuff, old 1996 WWF figures, Mighty Morphin Power Rangers, Marvel stuff.
+- For the longest time, I was horrified to hear the word 'failure,' but I've come to realize that we all fail. It's just a part of life. We all fall. It's how you rebound that shows the type of person you are.
+- For me, Philadelphia was always kind of that city you traveled to as an independent wrestler. I traveled there once or twice a month, doing that seven-to-eight-hour drive from Cleveland to Philly just to try and make a name for myself.
+- We've got a bunch of guys who have been travelling around the world for over 10 years, scratching and clawing, fighting, just trying to live their dream, just trying to prove people wrong, just trying to show that we belong, and that's kind of the essence of NXT.
+- NXT is my life. Plain and simple. I've put my heart and soul into this company, and I truly love it and its fans.
+- I don't think I'd be in WWE, and I wouldn't be in NXT, if it wasn't for my time in EVOLVE and Dragon Gate USA and things like that.
+- When I was younger, my favorite wrestlers were Shawn Michaels and Chris Jericho. I relate to them. I don't know what it was.
+- I'm a huge wrestling video game fan. I grew up on wrestling video games.
+- When I was Cedrick Von Haussen, the champion of Liechtenstein, I was only 18 years old. I was super, duper young. I started traveling around for wrestling when I was 16, so I had only been wrestling a few years at that point.
+- Johnny Wrestling, to me, isn't just a cool nickname or a fun thing for the crowd to chant. To me, it's a state of mind, and it's just who I am. I first stepped foot in a wrestling ring when I was 8 years old.
+- The reason Tommaso Ciampa is NXT champion is because of me. I admitted that, and it's my mistake to fix.
+- When I'm in the ring, I can hear the reactions and know the people are enjoying themselves.
+- I play my Switch a lot when I'm traveling, when I'm on the bus or things like that.
+- The thing I try to preach the most when anybody asks me for advice - I say just be a good person first and foremost.
+- I kind of watch a guy like Aleister Black go around, and he does whatever he wants. He Black Masses whoever he wants. He beats up security guards; he threatens general managers. Tommaso Ciampa does whatever he wants.
+- If you're a good person, and you work hard, I believe ultimately things are meant to happen to good people.
+- I saw 'Infinity War' in theaters four times.
+- Growing up, I was a socially awkward kid who didn't know where he fit in, and I didn't have many friends, but I always had wrestling. I always had what was in between those ropes, and that always put a smile on my face no matter what.
+- I will get in the ring and pour my heart out. I'll do whatever it takes to make sure that when the Cruiserweight Classic is over, the one name on people's minds is Johnny Wrestling.
+- I realized in myself, look, I'm a small guy. I'm never going to be 250 pounds - I'm never going to be 6'5'' - but I can get as jacked and as lean as humanly possible.
+- I hate all of my own matches. I hate all of my own work. I am my worst critic.
+- I have a very open and honest relationship with the NXT Universe.
+- I don't see myself as anything special. I'm just Johnny Gargano. I always have been, no matter what I'm about to do or where I am.
+- I get a lot of comparisons to Daniel Bryan, and trust me, I am flattered by all of them because we mentioned New Orleans and WrestleMania; I watched it at home and watched Daniel Bryan in the main event of WrestleMania achieve his dreams.
+- I'm a humungous Browns fan. My 30th birthday was actually at the Browns' stadium.
+- I think NXT is kind of like the Cleveland, Ohio, of professional wrestling. We're that underdog whose hungry, who's always out to prove people wrong, and that's kind of what our locker room represents.
+- I've said this numerous times: I've been in the ring with Daniel Bryan, and he's the best wrestler in the world, bar none.
+- I've main-evented the most matches in NXT history.
+- You can never control injuries. Accidents happen; that's just how things go.
+- I've had some of my best matches in front of 50 people in bingo halls and VFW halls and things like that.
+- If you watch the Cruiserweight Classic, you want different professional wrestling. You want guys who are going to go out there, put their bodies on the line, and show you passion.
+- The best part of watching any show is that feeling of being sucked in. If I'm watching 'Breaking Bad,' there is something compelling about Walter White.
+- I do believe that Raw, SmackDown, and NXT are the three brands, and I think that people can come from Raw or SmackDown to NXT, and I think that people from NXT can go to Raw or SmackDown. It's very interchangeable.

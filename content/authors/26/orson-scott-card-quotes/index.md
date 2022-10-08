@@ -1,0 +1,43 @@
++++
+author = "Orson Scott Card"
+title = "Orson Scott Card Quotes"
+quotes_len = "37"
+description = "the best 37 Orson Scott Card Quotes"
++++
+- Writing sessions can last an hour or sixteen hours, depending on how it's going.
+- The education that prepared me was my general education classes, which I tried to avoid when I was a stupid undergraduate, but which gave me the foundation of general knowledge that makes a career as a writer possible.
+- I hope I am remembered by my children as a good father.
+- The lies we live will always be confessed in the stories that we tell.
+- The best thing about my job, though, is stopping at the end of the day and rejoining the human universe.
+- Your work is first, learning is first, winning is everything because without it there is nothing.
+- I have lived in the only decades I could have lived in, and hope to live through at least a few more.
+- In all my study of history, I have never found a time or place I would rather have lived than now.
+- My college training was primarily in theatre, with an eye to becoming a director, actor, or producer.
+- I am especially grateful, however, to have known the fifties, before we began to poison our own civilization - or at least before the effects of the poison began to be felt.
+- Metaphors have a way of holding the most truth in the least space.
+- I wonder sometimes if the motivation for writers ought to be contempt, not admiration.
+- I realized that everything important in sci-fi showed up in the magazines first. It's the proving ground for new writers and new ideas.
+- But in the meantime I became accustomed to the writing life and it would be hard to change now - partly because of the salary cut if I went to my other love, teaching; and partly because I still have stories to tell, even though it isn't all that fun doing the work anymore.
+- Laws against homosexual behavior should remain on the books.
+- I buy way too many books.
+- You who speak languages, you are such liars.
+- There is more good writing and good acting in any ten minutes of Twister than in, say, all of Citizen Kane.
+- As long as you keep getting born, it's alright to die some times.
+- It's the middle class that feels the luxury of being able to have causes.
+- One mind can think only of its own questions; it rarely surprises itself.
+- In the moment when I truly understand my enemy, understand him well enough to defeat him, then in that very moment I also love him.
+- I fell into playwriting accidentally, took some classes in it, and also took creative writing classes, but I really didn't expect it to be a career because I didn't believe there was a way to make money as a playwright without being lucky and I didn't feel particularly lucky.
+- I don't believe that there are aliens. I believe there are really different people.
+- God, our genes, our environment, or some stupid programmer keying in code at an ancient terminal - there's no way free will can ever exist if we as individuals are the result of some external cause.
+- Of course, I also hear from critics who detest what I do, and while sometimes I feel rather proud of having made various the loathsome people or groups angry, at other times I wonder why I put up with such grief.
+- There's a reason why every human society has fiction. It teaches us how to be 'good', to behave in a way that is for the benefit of the whole community.
+- Everything important in sci-fi showed up in the magazines first. It's the proving ground for new writers and new ideas.
+- I say this as a Democrat, for whom the Republican domination of government threatens many values that I hold to be important to America's role as a light among nations. But there are no values that matter to me that will not be gravely endangered if we lose this war.
+- The most important training, though, is to experience life as a writer, questioning everything, inventing multiple explanations for everything. If you do that, all the other things will come; if you don't, there's no hope for you.
+- Working is hard and distracts from having fun.
+- I listen to music constantly while writing.
+- Among my most prized possessions are words that I have never spoken.
+- The priests say that God created our souls, and that just puts us under the control of another puppeteer. If God created our will, then he's responsible for every choice we make.
+- Ulysses, obviously. It was an elaborate prank, and our supposed intellectual elite continue to fall for it.
+- My favourite all-time work of fiction: Lord of the Rings. My favourite all-time nonfiction book: Guns, Germs, and Steel. Ask me again next week, you'll get a different answer.
+- Unemployment is capitalism's way of getting you to plant a garden.

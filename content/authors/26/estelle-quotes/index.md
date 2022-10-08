@@ -1,0 +1,125 @@
++++
+author = "Estelle"
+title = "Estelle Quotes"
+quotes_len = "119"
+description = "the best 119 Estelle Quotes"
++++
+- If there is enough space on radio for Busted and McFly, who are basically the same band, or for 50,000 versions of Stereophonics and Coldplay, there must be enough room for all of us.
+- I'm never scared to ask a question or state the obvious, y'know.
+- Luke James has this mystique about him that's not something you can explain; you can only experience it. He's got a whole D'Angelo feel to him as well.
+- You can't please everybody. I give up. I'm not trying to. I don't care. Leave me alone with that.
+- I like to write about the things I care about. It's no fun to sing about things you don't like.
+- When I need things to happen, I need them to happen now, you know. I don't want to be having a meeting about a meeting about a meeting, which is what can happen in Britain.
+- With the first album, I wanted to do so many different things, and I was fighting with myself to try and see if I was worthy enough to do it.
+- Adele ain't soul.
+- I love rom-coms. Any will do. Films such as 'How to Lose a Guy in 10 Days' or 'Funny Face' with Audrey Hepburn.
+- People like the shows I do. I want to be real, to have fun, even when I dance on stage... it's a buzz.
+- The only thing I don't have is hips.
+- Collaboration is the way to go. It's very timely and fun to do.
+- I can get a call at 2 A.M., and the person on the other end is like: 'Sorry, did I wake you?' and I'm like: 'No, I'm wide awake.'
+- My favorite film involving scarves was little Edie in 'Grey Gardens.' I often wear scarves like that, under hats.
+- I always thought that if record companies didn't understand me, fine - I'd go and do it by myself.
+- 'Something Good' is a feel-good song. A reminder that you're dope and have something wonderful to offer life and yourself and the world.
+- I grew up in a family of nine kids.
+- American food is not what I'm used to - everything is like three portions.
+- Garage music came up when people weren't paying attention.
+- You know, sometimes you fall in love and you get treated badly, sometimes you get treated well.
+- People have created feuds between me and other artists.
+- I wear what I feel and what makes me feel happy.
+- People want to say something negative before they say something good.
+- I always say, 'There's a difference between cooked food and McDonald's.' Your mom's homemade dinner - you enjoy this more than you enjoy the fast food that comes along and goes, and I strive to make homemade dinner every time I put out an album.
+- My songs are always about overcoming things, whether it's breaking up with a guy or just trying to be happy. They're always about being better.
+- I feel like I'm beautiful, and every woman should feel like that.
+- Lesson one, introduce yourself to everyone when you walk into a room. Don't act like you're too bougie to say, 'Hello.'
+- Me being a black girl in London, whose mom is first-generation African and whose dad is West Indian, gives me a different view. I'm coming at soul from my own place.
+- I would say my greatest musical influences have been Ella Fitzgerald and Mary J. Blige.
+- The man for me has to have his own life or be as busy as me.
+- The people who have the strongest opinion about everything have never left their city, their town, haven't left their 'hood, haven't left their area, their corner of the world. They don't read. They've never left their house.
+- I couldn't just hand in any old rubbish - I can't go on tour and sing something for three years if I don't believe in it.
+- I've always been a fan of Nigerian artist D'banj. He's now signed to Kanye West's Good Music label.
+- John Legend is a cool guy. He likes to chill, is easy to talk to and hang out with. He's also inspiring on a musical level.
+- I went to New York and Miami and hung out by the beach, and I love the American boys, so I wrote a song about it.
+- I am a black British female artist, so I must be like Ms Dynamite, I must be like Shystie, I must be like Jamelia, but we're all different.
+- I will test a guy to within an inch of his sanity because I've been through too much drama. He has to be 100%.
+- Nobody's going to tell me to rap in an American accent.
+- There is not enough faith in black music at a high level.
+- You can be sexy, but respect yourself and make sure you get that respect.
+- I've still gotta come across as happy when inside I feel crap!
+- No one goes straight to happiness after a breakup.
+- Sometimes I wake up in the morning and feel like going straight back to bed. But I still have to get up and work, and I still have to take advantage of the chances I've been given in life.
+- I'm used to traveling. I'm used to being in different areas of the world. Home is where my suitcase lands.
+- The Grammy snuck up on me. I was on tour. It just hit me. I skipped down the street in Vienna. I kept saying, 'I won. I won.'
+- I always want to remain inspired.
+- The Americans love me because I'm so completely unwilling to change my whole Britishness.
+- I never feel that far away from the tabloids.
+- Labrinth is a super talented singer, producer, songwriter from London.
+- If I don't agree with something, I let people know, and it occasionally leads to tension. But I usually iron things out.
+- My mum is West African, from Senegal; my dad is from Grenada. There was a huge controversy about them getting together.
+- People are getting ready for music that makes them feel happy again rather than being depressed at the way the world is going right now.
+- I never do a show where the people just sit there and look at me. They always sing along. It's going to be a fun time.
+- I learned that working out gives me a space to get clear. It's not just about the body. It gives me space to process things and get clear in my mind about decisions and things I want to do.
+- I will never say I am committed to somebody unless I'm serious about that person.
+- If you cannot smile when you listen to music, then do not listen to it!
+- I feel like it's not a bad average for every album I've got in the United States to be nominated for something off the album.
+- I try not to judge because I've been judged a heck of a lot, and it don't feel nice.
+- I always have to get my U.K. fix, and 'Downton Abbey' is definitely that. I absolutely love period dramas, but this one is particularly appealing - following the ins and outs of aristocracy as well as the interaction between the rich and the poor.
+- My mind is always going.
+- I wear and have worn scarves my entire life while traveling, working out, and now sometimes while performing, and not just on my head - I wear them around my neck and on my bag.
+- I hate that if you do one style of music or become really well known for that one song, that everything that comes after has to fit that mold.
+- A lot of scarves are made to stand out and therefore not appropriate on your head, say, at work.
+- I can sit in my room and write a song that I think might be a hit. I can sort of make myself do that, and then I'll play it to a friend, and they'll say, 'Oh, that's nice.' But when something happens to me, and I sit down and write a song to get rid of my emotions, they'll turn around and say, 'Wow, that's great.'
+- The reality show 'America's Next Top Model' is my girlie pleasure.
+- Conservatives, they're like the Republicans to me. They don't do much. They have this whole hierarchy and boys' club thing going on. That doesn't help the regular person.
+- When I was growing up, hip-hop was still a pretty specialised thing.
+- I grew up in a house full of music. Everything from reggae and afro-beat to Zook and pop.
+- The most personal track would have to be 'Love The Way We Used To.' It's one of the songs that I listen to outside of all the records that I wrote.
+- I got into hip hop from my uncle; he was always playing us Kool G Rap and Big Daddy Kane. He was a bad boy, and my mum was not really happy that I was hanging out with him.
+- I have to live authentically at all times. And that's part of what makes me an artist. I'm not scared to do that.
+- In order for me to write, I have to experience life. I write the songs based on real life, and I perform them from a very real place.
+- BMG has been an awesome partner throughout my career, and with New London, we plan to continue bridging the gap between soul, pop, London, and New York - uniting them through music.
+- Basically, if you go looking for trouble, it'll come find you.
+- Some days I might be wearing a little dress, and some days I might be wearing something with wings on it and be confusing.
+- I love singing, so I want to see how far I can take it. I love the challenge, and I won't be happy until I have a wall full of gold discs and seven huge world tours under my belt.
+- I got to the point where I was fed up with so many people telling me how and who I was supposed to be.
+- For four years, my mum allowed only church music in the house.
+- I've fully embraced who I am. I stopped fighting with people and just come to realize, 'This is me. This is all of me.'
+- When my career slowed, I knew deep down it wasn't over.
+- The people at my label are always endorsing what I say. They say, 'You see the truth, so speak it.' They believe in me. They respect my opinion. At least I have an opinion, and I'm not trying to play it safe. I don't go around saying, 'I think everyone is great, and the world is fantastic.' Everyone has opinions. They just don't say it.
+- I want a TV series, I'm gonna do some acting jobs, I'm gonna do some Broadway jobs, everything!
+- I remember being, like, the age of 7 and just always being in control of something or someone, a baby somewhere. I had lots of cousins and brothers, and we were all taught that's how you are, you know. Things don't just run themselves; you have to make them run.
+- A lot of my girlfriends are always telling me they're really strong independent women, but they've got their boy on the side, and they only go over when he calls.
+- When I'm full, I stop eating.
+- This fame is a juggernaut: It slaps you in the face, and you don't know what you're doing. You don't know who has your back, who is your support system.
+- I'm not slimming down for anyone and losing my figure.
+- I've always dug Audrey Hepburn. I think she's one of the classic beauties.
+- Parents, raise your kids. Young men and women, raise your kids.
+- I'm so, so full of joy that America elected Obama.
+- I'm the female Jay-Z. I never compared myself to other women artists. I compared myself with the best, and the best is Jay-Z.
+- Kanye West is my older brother, an inspiring guy and someone who keeps pushing my level up further and further.
+- We get older, and we forget that we have to carve a little time out to feel good in your body, in your head, and in your spirit.
+- If you think about where I'm from, I'm not supposed to be singing in the first place. I'm not supposed to be alive right now.
+- I have my family; I'm never alone.
+- Reality really isn't as dull as it's cracked up to be.
+- I'm signed to a U.S. label, and I didn't enjoy the 3 A.M. phone calls. I'm not a great sleeper, so I didn't enjoy being woken up.
+- I can't stand quitters. My mother is a very strong, determined woman. I was peeling onions when I was seven, but I walked off when my eyes began to sting. She said to me, 'You start something and you finish it', and that stuck with me. I'm persistent.
+- I think every artist strives for a record that crosses all energy, lines, boundaries or languages or barriers.
+- I think the one group I am trying to appeal to is the world. That would be big enough.
+- Success is based on music, not where you're from.
+- I believe in illusion - I don't believe in magic.
+- Americans have their issues with skin colour, even within the black community, with light and dark skin; it's crazy - but no one's oblivious to it.
+- Most of my thinking is done at night.
+- Walking round the Champs-Elysees late at night is the greatest time.
+- I started writing an album on flights to Africa and Brazil, but it was crazy because I left the notebook on the plane. It had seven or eight songs in it. After that, I'm not writing any more songs on notebooks - and I keep my Blackberry close!
+- I'd really started hating music. I'd started hating all the songs, hating being in the industry, hating doing the shows. So I had to learn to love music again if I wanted to continue doing this.
+- A lot of big whoever producers, they come with a song and they say, 'Sing this,' and I'm not that girl.
+- I just have a way about me where people know that they don't tell me what to do, they kind of just wait for me to do it.
+- I'm so sick of hearing that U.K. hip hop doesn't get credit and success when I'm working to get it - for me and for others, too.
+- My mom, for all intents and purposes, was a single parent.
+- I come from a family of well-endowed booty women.
+- I'm so, so full of joy that America elected Obama. He didn't win because he was black - people voted for him because he had a plan and because he talked sense and because you believed him.
+- I'm just excited that I get to put out the music I love versus music just for the sake of it.
+- Why should you stay in one place and one country if they're not offering you a job? It doesn't make sense!
+- My style is Edie Sedgwick meets Grace Jones, or Audrey Hepburn meets Salt 'n' Pepa. Strong and feisty but still classic.
+- Law became boring, but like every job I've done, it helped prepare me for a career in music.
+- You have to have courage to look back and be honest about your own drama.
+- With my music, I don't have to stay in one lane. One day I'm in Motown, and the next day I'm in reggae.

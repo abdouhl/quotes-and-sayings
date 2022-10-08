@@ -1,0 +1,88 @@
++++
+author = "Sebastian Kurz"
+title = "Sebastian Kurz Quotes"
+quotes_len = "82"
+description = "the best 82 Sebastian Kurz Quotes"
++++
+- We are not against immigration, but we want to have control on immigration. We want to decide who is allowed to come into Austria. We should not let human traffickers decide.
+- The concerns of Israel have to be taken seriously.
+- Migrants who set off for Europe don't want to go to Bulgaria or Hungary. They want to go to Germany, Austria, or Sweden.
+- Remembering in an honest way means admitting the truth.
+- A full body veil is hindering integration.
+- Every country in the E.U. should make a personnel and a financial contribution in that area. We shouldn't leave alone countries like Italy and Greece that have external borders; rather, we must make the external borders safe together.
+- It is my assignment to change this country.
+- Stopping and returning illegal migrants to their countries of origin must become standard procedure.
+- There is no better form of government than democracy.
+- What we want to do is to give all children and grandchildren of Holocaust victims the opportunity to become Austrian citizens if they want to.
+- Many people have placed great hopes in our movement.
+- Our national focus will be security, with the goal of 'a Europe that protects.'
+- I see myself as a go-to person for immigrants.
+- Political Islam's parallel societies and radicalizing tendencies have no place in our country.
+- We have a problem with political Islam in Austria.
+- The Brexit decision is a decision we see very negatively. But, of course, it has been taken by the British people, so now we have to find a way to deal with it, and from our point of view, it is important to avoid a hard Brexit.
+- If centrist parties face the challenges and start working for their people more efficiently, the ground for left- or right-wing populism will become less fertile.
+- Our companies are active worldwide. I don't detect globalisation angst among them.
+- There is no doubt that our government is pro-European.
+- I have always had excellent cooperation with the Jewish community in Austria.
+- We need sound political and economic relations with the United Kingdom, and I am very grateful to the European Union's lead negotiator, grateful to him for everything he has done. We will do our best to support him and also preserve the unity of the 27 in these matters.
+- When I started in government, I said that children who come here should take German classes before they start regular classes so they can follow what the teachers say. I said it should be possible to be a believing Muslim and a proud Austrian at the same time.
+- It took Austria a long time to be honest about its past.
+- We Austrians know that in light of our own history, we have a special responsibility toward Israel and the Jewish people.
+- The European Union is not only a great idea, but it's also an idea we must keep working on.
+- There are no grounds for discrimination in Europe, regardless of whether on grounds of gender, sexual orientation, or religion. On the other hand, there is equally no place for radical thought and political Islam.
+- Austria used to see itself as the first victim of National Socialism. That is certainly true for all those who fought in the resistance, whom we cannot thank enough, and who will always be shining examples. But... the ones who stood in such great numbers and celebrated in March 1938 in Heroes' Square were no victims.
+- As Foreign Minister, I worked to strengthen the cooperation with Israel, and now, as Chancellor, I have more opportunities do this.
+- A Europe without internal borders can only exist if it has functioning external borders.
+- One big mistake of many politicians is to have no understanding for the real situation of people in their country.
+- In order to guarantee security in Europe, we need to strongly confront our defense policy in Europe. And we need a solution to our migration policy to secure the inner security of the E.U.
+- We strongly condemn all forms of anti-Semitism as well as any form of downplaying or denial of the Holocaust.
+- Those who do not put clear limits on migration will soon start to feel like strangers in their own land.
+- Austria can only be strong if we are not just members of the European Union but also actively help to strengthen the European Union.
+- In Greece, refugees are being waved through to the heart of Europe. That is simply unacceptable in the long run. The European Union cannot act like a human trafficker.
+- In 2015, the majority of refugees and migrants reached the European Union through Greece. Greek authorities were overwhelmed by the sheer number of people arriving at their shores. But they did not stay there. They were waved through to Central Europe at an increasing pace.
+- Israel's security is not negotiable for us; that is absolutely clear.
+- We all know that history cannot be undone. But let me assure you that we Austrians know that, because of our history, we have a great responsibility.
+- Integration is a give and take.
+- I think people are justifiably fed up of hearing migration talked about at the E.U. level but not seeing anything happen in practice.
+- Between the summer of 2015 and spring 2016, Austria became one of the European countries most affected by the migration and refugee crisis.
+- What every generation must do is try to make Europe better than it was in the past.
+- We are not a superpower like the U.S. We are a small and neutral country.
+- It is important that we return to the principles of the Dublin agreement and help Greece with European funds to accommodate refugees.
+- Doing the right thing is a decision, which in many cases means you stand alone.
+- We have to be honest and state that Nazis were involved in all Austrian parties after the Second World War: in the Freedom Party, in the Socialist Party, and also in my party.
+- The right way is not necessarily the easy one.
+- Many of my supporters, they want to change the system, and they are not in favor of the establishment.
+- Bibi Netanyahu is a friend whom we work well with.
+- Luckily, Europe, step by step, recognised that these mass refugee movements to Europe cannot work.
+- The most important thing is that Europe has to remain united.
+- We need to shift our focus from the debates about redistributing refugees within the E.U. and should concentrate more on external border protection.
+- It's never good to turn to comparisons with Nazis.
+- Lots of migrants live in our country, and they make a significant contribution to our economy.
+- Most people want a normal centrist approach. But politicians in the center have to show them results.
+- Any restriction of press freedom is unacceptable.
+- In the E.U., there are always morally superior people who think they have to educate the others.
+- We need a change of course in the European Union. The most important is the focus on the big questions and a European Union that steps back on the small questions.
+- If people have the choice of where they settle in Europe, then we cannot be surprised that they choose to come over here in search of a better life.
+- Many politicians are far removed from their own electorates and continue to make the mistake of ignoring their voters' problems because they live in their own world.
+- We view the protection of Jewish life as a mission. We have a historical responsibility, and this is our duty as a republic.
+- Whoever boards a boat and tries to enter Europe illegally has ruined his chances of gaining asylum in Europe and will be sent back.
+- The mishandling of the migration question in Europe has certainly created a very fertile ground for protest parties.
+- Austria is unconditionally committed to the security of Israel and its citizens.
+- We are also trying to fight successfully in the European Union against anti-Semitism. Because of Austria's history, it is, from my point of view, our obligation to do that.
+- The shutting out or boycotting of selected media cannot take place in Austria.
+- Freedom of establishment is the freedom to work in all of Europe.
+- I'll fight with all my strength for change in this country.
+- I can assure you that Austria will fight all forms of anti-Semitism in Europe with determination, be it still an existing one or also newly imported anti-Semitism.
+- We have to stop illegal immigration in order to ensure security in Europe.
+- Austria is a very export-oriented country.
+- Taking money in taxes and paying it straight back in subsidies is wrong.
+- It's a question of evidence-based politics. If you know that something does not work, you should not keep doing it.
+- Forcing states to take refugees doesn't take Europe any further.
+- We are not only responsible for what we do but also for what we do not do.
+- Our historical responsibility does not end at the Austrian or European border.
+- We want Austrian-style Islam, not one controlled by other states.
+- We saw in Greece how dangerous it is if a country has a bigger and bigger debt, and I hope that we will not have a second Greece in our neighbouring country, Italy.
+- We have religious freedom - which is important. But we want everyone in our country to respect our laws, and our laws on Islam say it is not acceptable to have influence abroad on the Muslim community in Austria, and it is not acceptable that Islamic organizations or imams are financed from abroad.
+- The Socialists did not want to work with us, so we created an alliance with the FPO, and we are making good policies of reform for our country.
+- I'm always careful in generalising things.
+- We will try to raise awareness in Europe for the special situation and the special security needs of Israel.

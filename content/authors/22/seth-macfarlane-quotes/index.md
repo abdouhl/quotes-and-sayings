@@ -1,0 +1,72 @@
++++
+author = "Seth Macfarlane"
+title = "Seth Macfarlane Quotes"
+quotes_len = "66"
+description = "the best 66 Seth Macfarlane Quotes"
++++
+- The problem with the cable networks is the lack of money, not from personal income but as far as show budget.
+- Chris Elliott could read the phonebook and he's funny.
+- The quest for Tommy Lee Jones' laugh begins now.
+- 'The Brady Bunch' asks nothing of you as a viewer. Sometimes is just what the doctor ordered.
+- At one point, I was hell-bent on being a Disney animator, and sort of got over that in college and wanted to do my own stuff. You know, towards the end of college I had actually planned to go to the Boston Conservatory of Music for musical theater.
+- I love the English. My God, they brought us 'Benny Hill,' 'Monty Python,' 'The Office,' Neville Chamberlain.
+- I was about two years old when I first started drawing recognizable characters.
+- Evolution doesn't care whether you believe in it or not, no more than gravity does. I want to rekindle excitement over what we've achieved as a species with the space program. We can't afford to regress back to the days of superstition.
+- I'm from Connecticut, and we don't have any dialects. Well, I don't think we have any dialects, and yeah, it's very complex. That Rhode Island/Massachusetts New England region is arguably the hardest dialect to nail.
+- If I were to do a musical, I think I would rather make a film musical.
+- There are people on staff who have made that point, that the upside to a second Bush term is that it makes 'American Dad' work better. To me, the price is too high. I would gladly give up the comedy to have a President Kerry. But you work with what you have.
+- I can't believe I am hosting the Oscars. It's an honor everyone else said no.
+- You don't want to be nasty for the sake of being nasty.
+- I'm big on the importance of science, particularly right now at this point in time when there's sort of a systematic rejection of science by a lot of people in America.
+- I have a car that I like - an Aston Martin - for Sunday drives in the country.
+- I'm wide open to getting married, but actors are not easy people to date. You end up sharing that person with this other mistress that is their career. I very much like the traditional courtship method of making a date. That's what they do in normal places, but Hollywood's not normal.
+- The only problem is time.
+- With any half-hour comedy, it kind of takes on its own life and finds itself.
+- There are things about the single lifestyle that are very appealing.
+- I cannot tell good art from bad art. I have no eye for it.
+- There have to be people who are vocal about the advancement of knowledge over faith.
+- I had - I was pretty hell bent on getting into the cartoon business specifically as an artist from the get-go.
+- 'American Dad' is, by its nature, much more political.
+- If something is shocking without being funny it's hard to justify.
+- You gotta keep the funny intact.
+- Some of those more out-there jokes were written in the wee hours of the morning. Somehow, they remained funny the next day.
+- Every year, the Friday before the new Saturday-morning shows would premiere, the networks would do this big preview special, and I was always glued to the TV. As horrible as they were, they were entertaining at the time. There was a lot of showmanship from the networks based around the new lineup.
+- I wrote on a show called Johnny Bravo when I was at Hanna-Barbera.
+- You would not want me on your football team.
+- 'Family Guy' has this weird thing of attracting people. People either hate it or can't get enough of it. There's really no one in between.
+- The resistance to science is idiotic.
+- I'll tell you what I think is not okay. Have you ever seen that show on MSNBC, 'Lockup?' It's a reality show that takes place inside a prison. Do the prisoners have to sign release forms? Or do they have to be on it whether they like it or not?
+- What makes me happy is just keeping my brain challenged and stimulated and on its toes.
+- Denzel Washington has a great sense of humor. He did all those 'Nutty Professor' movies.
+- Science has become politicized, and that's an embarrassment.
+- The good thing about Broadway is that you don't have to worry about an airdate. It gets done when it gets done.
+- We never really tried to shock for shock's sake on 'Family Guy'. If something was horribly offensive and shocking, we would put it in if it was also hysterically funny.
+- On a certain day, I will tweet five times, and then I'll go four days without tweeting at all. It really depends on what time allows. Twitter, priority-wise, has to come after the work is done.
+- The Simpsons are ugly-looking, and they should be. That's what works. That's one of the things that's funny.
+- The way Disney characters move, they're very kind of slow and fluid and flowing; one pose kind of eases into the next. If you look at a show like 'The Simpsons' and subsequently a show like 'Family Guy' - the characters will jerk from pose to pose a lot, a bit more snappy. Which sort of goes along with the writing tone of the show.
+- I was a huge 'Star Trek' fan. I loved the 'Twilight Zone' growing up. In the future, I hope to create some thoughtful, sci-fi drama.
+- I spent my entire childhood in the same town, in Kent. I went to grade school there. There was a boarding school that my mother taught at, called - appropriately enough - Kent School, that I went to. Yeah, pretty much my entire childhood was spent in that town.
+- I'm bad at golf.
+- If a song is funny and absurd, and it sounds great, it's just going to be that much funnier. And there's no better example of that than 'Monty Python.'
+- Fox is notorious for having a very thick skin about taking shots at themselves.
+- I did a lot of theater when I was in high school and college. I also did stand-up in college, so it was always part of what I did.
+- When you are in a room and your job is to write jokes 10 hours a day, your mind starts going to strange places.
+- The average person has eight different jobs over the course of their lifetime. You get a little antsy doing the same thing.
+- Obviously I'm a big fan of 'South Park', but it gets tiring at times when there's so much of it.
+- I'm sure there are close calls that we're not even aware of hundreds of times a year. You cross the street, and if you'd crossed the street two minutes later, you'd have been hit by a car, but you'd never know it. I'm sure that kind of stuff happens all the time.
+- There was no joke I could make that was too offensive. I can actually remember at least one time where my mother told me something that, I was like, 'whoa!'
+- I think at times I read too much of my own press. I wish I was better at taking in how great my life is, but that's surprisingly elusive. I tend to be very hard on myself and insecure about failing no matter what happens.
+- People do that on Facebook and it's the dumbest thing in the world. I don't care what your dinner looks like. Stop cluttering up the Internet with pictures of your dinner.
+- I always thought it would be funny to have the Parents Television Council write an episode of 'Family Guy' and give them full creative control. Then see how good the episode is. That's something we've actually discussed in the writers' room. We haven't proposed it yet, but if somebody from the PTC reads this, it might be worth discussing.
+- The success of 'The Simpsons' really opened doors. It showed that if you were working in animation you didn't necessarily have to be working in kids' television.
+- There are times when I'm under the weather and the corporate machine tries to put me in the recording booth anyway. It's always up to me to say, 'Guys, listen to me, listen to what I sound like. I'm not myself.'
+- I was a big Fred Flintstone fan.
+- I was a film major with a concentration in animation.
+- The worst thing to happen at the Oscars would be if nothing happened. You want something unscripted, something to riff on, something kinda out there.
+- The trend today is vampires, zombies, angels, all the stuff that puts me right to sleep. It's too bad because it's so much less interesting than the diversity of stories you can tell with science.
+- Believe it or not, I have about the same success rate as anyone else. Sometimes you hit, sometimes you miss.
+- If something sticks around long enough that it makes it to seasonal D.V.D. release, I'll watch it. That's how I watched 'The Sopranos'.
+- Everybody in my family had a real sick, twisted sense of humor. Most of the jokes we make in our house, we would just never even dream of making anywhere else. Just sick, horrible stuff. That wasn't anything new to college.
+- I still do a lot of drawing on a daily basis.
+- When 'Family Guy' started, we wanted to make it more like a sitcom. And there was very little music.
+- I'm one of the few people in Hollywood who actually had a good childhood.

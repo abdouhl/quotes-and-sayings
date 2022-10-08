@@ -1,0 +1,84 @@
++++
+author = "Gael Garcia Bernal"
+title = "Gael Garcia Bernal Quotes"
+quotes_len = "78"
+description = "the best 78 Gael Garcia Bernal Quotes"
++++
+- I asked the producers when I was doing 'Y Tu Mama Tambien' if they could give me a VHS recording of the film that I could show to my family, because in Mexico and Latin America, when you do a film, you don't expect anybody to see it, especially not in the cinema.
+- In English, I'm a little bit limited. I speak English as a second language, and that's a little limitation that I have to work around and I have to use it to my favor. So, yes, that's why I end up wanting to do more things in Latin America.
+- It's very difficult to raise money, especially in the United States, for independent movies.
+- Talent survives and remains while beauty is diluted.
+- A person isn't born with the intelligence to be with someone special; you learn it, and you fail in the path of life, but you don't have to give up the chance to love.
+- In a comedy, after the day is done, you can figure out ways of how to make it even funnier for the next day. In dramas, it's very different - the mindset that you're in.
+- Every democracy is constructed day-to-day. And the electoral process reduces and minimalizes every single aspect of human complexity. We're putting it into pamphlets. We're doing a publicity show. We're becoming symbols.
+- 'Motorcycle Diaries' had the best costumes - that battered jacket and those linen shirts. I wear linen shirts in real life, too, and I have a nice, simple number I got handed down. As a father, you just stop buying stuff for yourself. It's all for the kids.
+- You can't be happy in a place like London when you don't have money.
+- If we do a little bit of insight into history, how many times have there been people doing hate discourse, blaming everything on a certain group of people. That really is the genesis of genocide, where it kind of sparks.
+- We have a documentary film festival in Mexico. It's really original. It's called Ambulante, and it's a film festival that travels around several cities in Mexico.
+- A boxing workout is the heaviest thing, but it's the best. The worst part is that boxing gyms are the smelliest things in the universe. You have to lie down on the floor, where everyone has been sweating and spitting, and do 1,000 situps and push-ups.
+- It's not easy to act, but to direct to act. It goes form one place to the next. It's not heading for the punchline, and also it's not about scoring goals. It's about passing the ball, and the goals will come by themselves.
+- In order to do 'Amores Perros,' I had to skip some time at drama school, so the director Alejandro Gonzalez Inarritu came up with a great Latin American solution, which was to say I had a tropical disease and had to stay in Mexico for a while. Everyone believed me.
+- Comedy requires a lot of energy.
+- In Latin America, you don't do things for the money because there is no money.
+- I want to direct every now and then, but I don't want to be a director.
+- The concept of monogamy is an inheritance of a medieval time, when family would carry the tradition of the name and certain privileges. It's a way of organizing society, perhaps.
+- My parents separated when I was very small. I grew up with my mother, and I was a single child then. She was very independent, doing her things and having fun alone and working.
+- The type of music we know as classical music began with rich people hiring musicians or owning them in a way. Without funding, it's very hard to have this experience. Be it state money or private money, there has to be someone dedicated to raising the money.
+- You know, Motorcycle Diaries has no incredible stories, no sudden plot twists, it doesn't play that way. It's about recognizing that instance of change and embracing it.
+- In general, I hate films that are overtly either very masculine or very feminine, you know? The same way that I don't like a war movie about soldiers smashing people's heads. But a chick flick I like would be Cassavetes' movies. 'A Woman Under the Influence,' 'Husbands.'
+- I think the water dictates how food will taste in a country. In England the apples taste unlike apples grown in any other place. England is an island, there's a lot of salt in the air and in the water. I think that has something to do with it.
+- Recently I've been doing risottos. Some of them have been amazing. Some of them, not all of them.
+- Texas is a country in its own. It's made up of half Mexico/half United States but completed mixed. I don't mean to draw a generalization but it is a place, a territory, that's really made up of all these encounters, you know?
+- I want to do work, but I also want to have a good time.
+- I grew up with a lot of exiles from Chile, Mexico, Argentina, Brazil, Peru, Colombia - I grew up with them, and I gained a family; I gained friends.
+- It is quite common to meet people that live a few kilometers away from Mexico and that have never been there. We need to revive on many levels an illustrious desire to get to know the world, to learn another language, to understand and create empathy with people that live a few kilometers away from us. It's never late to do this.
+- We think that democracy can change a lot of things, but we're being fooled, because democracy is not the election. We've been taught that democracy is having elections. And it isn't. Elections are the most horrendous aspect of democracy. It's the most mundane, trivial, disappointing, dirty aspect.
+- In Mexico you have death very close. That's true for all human beings because it's a part of life, but in Mexico, death can be found in many things.
+- In Mexico, theater is very underground, so if you're a theater actor it's very difficult to make a living. But it's also a very beautiful pathway to knowledge and to an open education.
+- When it's good, cinema can be one of the most important things in a person's life. A film can be a catalyst for change. You witness this and it is an incredibly spiritual experience that I'd never lived before; well, maybe only in a football match.
+- I go with the flow. Whatever music you play for me, I'll dance.
+- There's no such thing as a specific authenticity to what Mexico is, because Mexico is incredibly complex and varied, and the food is completely different if you travel 50 kilometers. It just changes all the time.
+- Music is really nothing if you think about it - it only becomes something when somebody listens to it. And then it becomes uncontrollable.
+- I was brought up the Mexican way, where actors are paid very little and every part you take is an act of faith. If people respect that, then great.
+- I would love to work with Martin Scorsese.
+- In Mexico, audiences want to see a big discussion around a film - what we expect from Hollywood films worldwide is more of an entertaining show. 'Y Tu Mama Tambien' was a road movie and comedy, but it had a very strong political connotation that sparked a discussion in Mexico that is still going on.
+- If anybody is interested in listening to good modern music, I would recommend Jim Fassett, 'Symphony of the Birds.' It's really beautiful... with real birds.
+- HeyHey is my favourite app. It's like Instagram but for sound recordings, with little soundbites from people's days. We spend far too much time looking down at our phones, so it's nice to have your head up while you listen to what other people have uploaded.
+- I was little there were times I wanted my parents to be normal. I wanted them to have a religion. I wanted them to have a job, like the parents of every other kid I went to school with.
+- Talking about food is like talking about your dreams. Everyone has something to say. We all have to eat, it's just what we eat which differs. Some people eat for fuel and I feel bad for them.
+- I didn't know I wanted to do films until I started to do them. Very few films are made in Mexico and film-making belonged to a very specific group, a clique.
+- The collective experience of watching a great film together in a room is a transcendent moment that will never die.
+- People still say to me, 'What, you still live in Mexico?' I don't have to go to the United States simply to find work, and I don't have to stop what I'm doing. I mean, which Hollywood film beats 'The Motorcycle Diaries?'
+- Theatricality is a concept. It's not a specific language.
+- Mexican food is far more varied than people think. It changes like dialects. I was brought up in Jalisco by the sea on a basic diet - tomatoes, chillis, peppers of every size and rice, which is a Mexican staple. The Pacific coast has a huge array of seafood.
+- Little remnants from everywhere I've been are scattered around my home. I collect rocks in a weird way, with stones from around the world as mementos. I've also got three haranas, which are little guitars.
+- Films, fiction, can encompass a whole global vision on a particular subject with any story, whatever it is. You can play the story in whatever country with whatever language in whatever style you want to tell the story in.
+- I feel optimistic about how heterogeneous societies pull together. We just have to keep on with the struggle.
+- I'm addicted to avocados, and I'll put them with anything, particularly chillies. Can you imagine if they became extinct? That would be like the apocalypse, no?
+- Every decision that you make you have to be incredible congruent. It doesn't mean that you have to starve. If you need money, you do something that gives you money, that's normal.
+- My story about becoming an actor is a completely non-romantic one. I became an actor because my parents were actors, and it seemed like a very... I knew I was going to act all my life, but I didn't know that I was going to be a professional actor. I thought I was just going to work as an actor every now and then.
+- I think the best thing I can say about it - and I think the best thing you can say about anything, really - is that 'The Motorcycle Diaries' made me feel like my home was bigger; it made me feel at home anywhere in Latin America.
+- There is something about the live performance of an orchestra that makes it very different to a film. With a film, you can rewrite it in a way with the material you have, and in rehearsals, you're really trying out different things. In an orchestra, you can't do that. They separate as soon as the performance factor comes into play.
+- I was asked to go to Cannes to present Amores Perros. And little did I know that this film would be huge. I saw it for the first time in Cannes, and it was the first time I'd seen myself on such a big screen. And it had a huge impact on me - it was the strangest feeling.
+- It's difficult to act in a language that's not your own. It takes a long time to put your head around it and feel confident with it.
+- My mom had me when she was 19 or 20. And my father was 22 or something. They were working on whatever they could, both of them aiming to be actors in theater.
+- I'm never going to be able to leave Mexico, really. It would be foolish of me to do it. I would be wasting such a great opportunity that the accident of life, or destiny, gave me, which is to be Mexican. If we would make 'Lord of the Rings' analogies, I think Mexico City is Middle-earth. That's where the fight of humanity is.
+- Doing films in Latin America is like an act of faith. I mean, you really have to believe in what you're doing because if not, you feel like it's a waste of time because you might as well be doing something that at least pays you the rent.
+- I don't know, a lot of people go crazy about 'Breaking Bad,' but I don't like the soap opera aspect of it and only following one character. I like the context to all of it, all the pieces, like 'The Wire.' It's more about the state of things; it's not about the narrative of a person.
+- We all have a cross-gender character: Every woman has a man that they can play, and every man has a woman that they can play.
+- As actors, we don't shy away from saying, 'I wanted to be an actor because I wanted to meet girls.' Directors cannot say the same thing.
+- Los Cabos has been an amalgam of many cultures that have been coming here. There have been beautiful Jesuit missions for example, in many places around this area. The towns are incredible. But there is a very strong Mexicanized culture here that exists because people from different parts of Mexico have come to live here.
+- I always laugh a lot when I see the dramas that I end up doing. I see myself behaving very seriously and I'm like, 'What is this?'
+- Life certainly points it out to you - 'you can go this way or the other way.' You have to decide and it's a very strong decision because, would you sleep well knowing that you're living in the best place, but you're letting the place where you should live alone?
+- The world of classical music is so fascinating. It's a world that encompasses people from everywhere and erases the basic restraints of nationality; everyone is united by this common language of music.
+- Let's not give the electoral process so much importance. We have to be cynical about it. Let's give importance to the real democracy that's constructed on a day-to-day basis. That's my hopeful perspective on it.
+- In Mexico we have a trick - add a crystal of salt to the kettle and the tea tastes better, almost English. But after four pots, your kettle's broken.
+- The whole Baja California peninsula is an energetic place, and it's incredibly alive.
+- Everywhere in the world, we're aware that democracy has incredible flaws and that the word has been used, especially in the United States, to wage wars.
+- Migration is as natural as breathing, as eating, as sleeping. It is part of life, part of nature. So we have to find a way of establishing a proper kind of scenario for modern migration to exist. And when I say 'we,' I mean the world. We need to find ways of making that migration not forced.
+- I always wanted to act, but I never thought it would be my profession. I thought that I'd end up doing other things, but that in the meantime I'd do plays.
+- Democracy should be practiced not every six years, but every day.
+- Histories are to educate so that we understand better for ourselves and for motivation.
+- I've never cared for the idea of a career path, or where a film might 'take me.' My love is for acting not money, so I only take on roles that I find challenging, in stories I find interesting.
+- In terms of work, obviously acting is such a job that is very in the flesh kind of thing. It's your work, but it's your life, in a way. You can get so mixed up.
+- Alexander Gonzalez Inarritu is a great director. He's the one I first worked with. He's amazing.

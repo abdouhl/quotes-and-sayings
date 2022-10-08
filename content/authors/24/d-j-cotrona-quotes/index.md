@@ -1,0 +1,20 @@
++++
+author = "D. J. Cotrona"
+title = "D. J. Cotrona Quotes"
+quotes_len = "14"
+description = "the best 14 D. J. Cotrona Quotes"
++++
+- I'm reading scripts just like everybody else. Tin cup in hand, knocking on doors, trying to get a job. It's tough. They don't make as many films these days, and there's a lot of guys that are fighting for jobs.
+- I did the 'Justice League' thing the wrong way. I read too much on the Internet. You can't do that. The Internet is the devil. Or the Internet is not the devil - the comment boards are the devil.
+- Let's say there are things about 'G.I. Joe' that you specifically expect and some things that need to be in the film at certain points, whether it be relationships or certain costume aspects.
+- I grew up loving films and making stupid movies with a good friend of mine, who now actually has a career in a really prominent special effects house, so he's still doing it. We just started messing around with a camera.
+- I spent a good amount of my time - like a lot of guys my age - obsessing and blowing things up with G.I. Joes. I know it well.
+- I think that, ultimately, there are so many characters in G.I. Joe that even all the iterations - the comics and the different cartoons and everything - have been a big ensemble. Lots of crossing storylines and stuff.
+- Skateboarding was the only thing I was ever good at. Growing up, I was doing that from, like, dusk till dawn.
+- Not a 'Mad Men' guy. Never got into it. I'm kind of a contrarian that way. If something gets too popular too fast before I can get on it, I just get really annoyed. Everybody tells me I'm an idiot; it's supposed to be amazing. I saw some of the second season; I loved it, but I was just detached. I didn't get into it.
+- I try to stay in decent shape.
+- My mother is going to get earrings of my head. Some will be dipped in silver, some will be dipped in gold, and I will hand them out to everyone I know.
+- Every DC or Marvel property is constantly getting reinvented because we love these characters. They're so iconic, and we want to watch them over and over again.
+- That's the great thing about G.I. Joe: it's essentially superheroes, but it's military based - and it's based in reality.
+- I love everything John Carpenter's ever done.
+- I've shot a lot of pilots that have never seen the light of day, jobs that have fallen apart or gotten canceled, so I'm really weary about what contracts I sign and where I swear my loyalty to.

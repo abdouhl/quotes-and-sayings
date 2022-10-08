@@ -1,0 +1,24 @@
++++
+author = "Jose Reyes"
+title = "Jose Reyes Quotes"
+quotes_len = "18"
+description = "the best 18 Jose Reyes Quotes"
++++
+- When I was a kid, I liked to enjoy the game. I play good when I enjoy the game. If I get too serious in the game, I won't play the way I'm supposed to play. That's the way I am, always. I like to be happy, and I have a lot of energy.
+- In baseball, nothing surprises me. I understand this is a business.
+- I hate when people say, 'He's having too much fun.' I've been in this game since I was 19 years old. Did you see a different Jose Reyes? No. You see the same guy every single day; nothing changes.
+- It's hard for me when I'm not getting on base too much. I feel like I'm not contributing to the ball club. When I'm on base, I'm making stuff happen; that's more energy for the ball club.
+- I'm going to try to be a better guy, a better man, better husband.
+- I like to run a lot. I like to chase the ball.
+- I don't have too much time to spend with my family. But when I have that time, I put everything into that. Nothing else. I spend all that time with them.
+- Sometimes you are going to have to games where you are going to have to manufacture runs, stealing. Particularly when you face real good pitching.
+- I feel like, looking back, if I didn't have so many injuries, who knows where my numbers could be right now. But only God can judge me.
+- I can go 0-for-5, I can go 5-for-5, I'm going to be the same guy. I'm a happy guy, people have to deal with it.
+- Nobody likes to lose. I'm not going to be happy and excited about that, but I'm still going to be me because I know from the bottom of my heart there's going to be a next game; maybe try to win the next game.
+- I don't have to prove myself to anyone. People know what I'm capable of. I've spent a long time in this game.
+- I want to win. I don't want to spend the rest of my career on a last-place team. That's not the kind of player I feel like I am.
+- When I retire, I'm going to go home and say, 'I played for what?' You know, if I don't win anything.
+- The Dominican is a real nice place to go for vacation. It is a poor country, but it has another side. Beautiful beaches. It's like every country. You're going to have a lot of poor people, but there's a beautiful side, too.
+- At the end of the year, you'll see my numbers. My numbers are always there.
+- In the beginning, when I signed with Miami, they said they were never gonna trade me, and then, after first year, boom, they traded me to Toronto.
+- I don't like golf. That's too boring for me. I need something with more energy and more enjoyable.

@@ -1,0 +1,21 @@
++++
+author = "Jeffrey Brown"
+title = "Jeffrey Brown Quotes"
+quotes_len = "15"
+description = "the best 15 Jeffrey Brown Quotes"
++++
+- Write a lot and don't think about publishing - just the writing.
+- I've never written a book with the intention of winning someone back or getting back at someone or anything like that. It's always just been about thinking about life and how relationships fit in to what life means.
+- I keep up with James Kochalka's online strip, and if I see a link somewhere or someone tells me about something, I'll look at it, but I don't usually keep up with any sites other than the 'American Elf.' I always have this feeling that there's not enough space in the screen, like everything's always getting cut off.
+- I think comfort, stability, and love are the things that really let me be happy. Deep down inside I'm a little boring, I guess.
+- I've always been a 'write first' artist: the drawings are always in service of the writing.
+- Generally, I don't pencil, especially with the autobiographical comics, although I've usually planed out composition in my head during the scripting stage. I like to work directly in ink, to keep the spontaneity and expression conveyed by a less worked over line.
+- I was always most interested in drawing - most of my childhood drawings are black-and-white line work. And when I kind of abandoned comics, through college and art school, I was doing a lot of painting. But once I started doing comics again, everything else just fell by the wayside.
+- Just about everything put out by Top Shelf and Drawn & Quarterly and Fantagraphics is what I keep up with. And once in a while, I'll read the more mainstream comics - I like Grant Morrison's writing and some of Warren Ellis' stuff, although maybe they're more on the fringe of the mainstream.
+- I always try to write from memory, and I always try to use memory as an editor. So when I'm thinking of something like a relationship or whatever, then I'm letting my memory tell me what the important things were.
+- I think I've been able to build up a wide range of styles in storytelling, using comics in different ways from project to project. I think my art has become more accomplished, although I try to keep it from becoming slick or superficial.
+- When you're looking for a sketchbook, you've got to find the right paper for the pens you like to use. I like to draw on both sides of the page.
+- My books should feel like you're getting a peek into a private world: a diary no one was meant to read. As soon as I start thinking, 'This book is going to be published,' my drawing becomes calculated and deliberate. It's one of the ways I trick myself.
+- Only 10 percent of people who go to art school will still be making art in 10 years. To some extent, you have to want to do it. It's hard. It is something you really have to stick with for it to work.
+- I usually balance out autobiography with goofy, amusing stuff to help keep the humour in my more serious work.
+- One thing I think is that comics are really good at expressing emotion. I think there's a way that comics characters can be drawn not-realistically, but the emotional reality is still very sincere. So you can have these exaggerations that express inner emotion through physical appearance.

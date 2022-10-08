@@ -1,0 +1,106 @@
++++
+author = "Diamond Dallas Page"
+title = "Diamond Dallas Page Quotes"
+quotes_len = "100"
+description = "the best 100 Diamond Dallas Page Quotes"
++++
+- The run that I had - which really was, like, four months in the WWE - it wasn't great. But my opening day was great. My opening day was humongous. And then WrestleMania was pretty much my closing card. I did one 'Raw' after that, but that WrestleMania 18 match that I had with Christian, that was a hell of a match.
+- When my career took off like a rocket in '97 - me against the nWo and Randy Savage - I wasn't just a top guy, I was the top guy, and then in '98, I blew my back out.
+- I can bend over and put my head between my legs, stick my foot over my head, and stand one leg.
+- No one iced their body in professional wrestling before me. I did it because I was 35, 36, 37. I was already what would have been considered an old timer.
+- My first match with Bill Goldberg, it was for the World Title in 1998. Bill had only been wrestling a year. Well, we stole the show. Because I was going to make Bill look as good as he was, and he was great. He had that incredible charisma, personality, and that 'it' factor. Rousey has that same thing.
+- In our personal and professional lives, we are constantly hit with one adversity after the other, most of which we have no control over. But the four things we have total control over is how we react, how we adapt, how we breathe, and how we take action.
+- I live for inspiring people to do things they think they can't. My goal is to completely eliminate the word 'can't' from the equation.
+- Through wrestling, my second home was Fort Myers, Florida.
+- I'm all about owning your life.
+- Everything I do, I have a certain amount of pride for.
+- I told people I was going to be a wrestler, and they fell down laughing.
+- I was the guy from the Jersey Shore, Springsteen country. We don't do yoga there. And we made fun of anybody who did.
+- Rock has the ability to make you feel like you're the only person in the room.
+- I will greet every person who comes to my workshops and seminars.
+- Everyone is connected to somebody with some type of addiction. It's so ramped now. Everyone has an uncle, a cousin, somebody who has addiction. We all have addiction.
+- I wrote a book called 'Yoga for Regular Guys.' We made the title of the book funny, but it was actually super serious. We were trying to get regular guys to do yoga. It just kept developing from there, and the concept eventually turned into DDP YOGA. I am so passionate about it.
+- I used to run a night club in Fort Myers, Florida called Norma Jean's Dance Club. That was the hottest spot from Sarasota to Cuba.
+- Wrestling is cyclical. And if you look at the '80s, it had an unbelievable run, and then it just fell down. '90s had the biggest run ever because of the Monday Night Wars.
+- I live by the business model that there is a better than, a less than, or a different than. Those are the three categories. I chose to be different than. The one that's different than will stand out with the proper work ethic.
+- Relationships are everything; a lot of people say it's who you know and who knows you. I believe it's all about who is willing to step up and say they know you. Who's willing to put their name on the line for you.
+- God has blessed me on a lot of levels. Have I worked for it? Absolutely. But it still takes that blessing.
+- I always believed I would be in the Hall of Fame when my career came to an end. I just didn't know when.
+- One of my biggest supporters is Gerry Briscoe.
+- It took eight years for DDP Yoga to become an overnight sensation.
+- People don't understand that, when I was at WCW, if I wasn't wrestling that night, I was down at the Power Plant teaching. I was teaching people how to do stuff, but every time you teach someone, you learn more. The more you learn, the more you teach. The more you teach, the better you get.
+- I don't think there is anybody, including Jeff Hardy, who puts their body through as much abuse as A. J. Styles.
+- People don't understand, and I do, is what happens after wrestling. What do you do when people stop chanting your name? For me, I already had that with the nightclub business before wrestling and now with DDP YOGA.
+- When you look at me in the beginning of '96 and at the end of '96, I'm two different people.
+- I don't need to prove anything in that ring anymore. I've done all that.
+- For the first 42 years of my life, I was the guy who wouldn't be caught dead doing yoga.
+- Without Dusty Rhodes, there is no Diamond Dallas Page. He took me under his wing and believed in me when nobody did - nobody.
+- When I came into WWE after Monday Night Wars, it wasn't my greatest time in the business... but they kept bringing me back.
+- I stretched my whole career - it didn't save me when I blew my back, and of course, that's where the whole things of DDP Yoga comes from.
+- I don't want to spoil this for anybody but wrestling, sports entertainment, is 'pre-determined.'
+- Bottom line is, work ethic equals dreams, and I am walking proof that that's a fact.
+- As great as Hulk Hogan was, he still wasn't that great a worker.
+- I don't think I'll ever be out of wrestling, because I was that kid at 8 years old that dreamed of being a world champion.
+- One of my favorite things to do when I wasn't competing was to watch the cruiserweights.
+- I'm always like Mickey Mouse with tattoos.
+- The nWo pursued me for a while. To be perfectly honest, I think WCW management purposely kept me off 'Nitro' for a while to keep the nWo from getting to me.
+- If you say you can or if you say you can't... you're right.
+- Vince McMahon made me a much better businessman, and I'm super thankful to him.
+- All the competitors knew the importance of Halloween Havoc. It was the WCW equivalent to SummerSlam.
+- I'm a big fan of Denzel Washington, and when I met him, he was just cool. And I was glad.
+- When you become a wrestler at 35 and your career takes off at 40, nobody believes in you. But there are some people out there who watch how I did it, and I did it through intense work ethic.
+- I'm all about health.
+- One thing 'The Very Best of WCW 'Monday Nitro'' really captures, which I remember very well about WCW, was how absolutely electric the crowds were.
+- I was reading at a third-grade level until the age of 30 before I made the decision that I was going to learn how to read.
+- If WCW and Eric Bischoff hadn't brought in the cruiserweights, I don't think the company would have ever gotten to where it was.
+- I started wrestling when I was 35, but my career didn't take off until I was 40.
+- That diamond cutter sign became my moniker.
+- Bottom line is don't ever be afraid to fail.
+- I have a huge respect for yoga today.
+- I'm not going to have anyone tell me what I can do promoting my product.
+- I used to say Page Joseph Falkinburg - which is my given name - when Page Joseph Falkinburg stopped trying to be this over-the-top professional wrestler, Diamond Dallas Page, and Diamond Dallas Page became Page Joseph Falkinburg, that's when my career took off.
+- Nobody can pull you down more than you.
+- You rarely see me without a DDP YOGA shirt on. There are times where I wear a regular shirt when I do an interview, and in the middle of it, I go, 'Wait a second. Let me change my shirt.'
+- In living life at 90 percent, the formula is life is 10 percent of what happens to you and 90 percent of how you react to it.
+- When Dusty Rhodes passed away, that hit me hard because I couldn't call him any more. He couldn't bust my chops. He made a huge difference in my life on so many levels.
+- I can't tell you how many times I hit that mat, especially that first year, where I said to myself, 'Man, this fake stuff hurts like hell. Do I really want to do this?' And every time, I would come back, 'Yeah, I wanna do this.'
+- Everybody has some kind of addiction. It's about how you get around that addiction. First, you have to break the habit like anything. You have to define the hurdle or the objective.
+- I challenge anyone to find a better match than me and Goldberg at Havoc '98. There are few matches that were as physical, exhausting, and psychological as that one.
+- You can meet me - and I won't disappoint. That's how I am.
+- I let the WWE control my destiny, and it didn't work out so well.
+- If you say 'I can't,' you'd better add on 'yet.' Once you start to change that inner dialogue, things that would seem completely impossible become possible.
+- I was sort of like a scout for Eric Bischoff if I saw people who had the talent. Sometimes I wouldn't bring people to him until they had the gimmick, like Raven.
+- How could I not be the underdog, starting at 35 and a half and going from a manager and a fourth-string color commentator to being a wrestler?
+- Some of my biggest victories have come directly after some of my biggest failures.
+- I worked the bar business in Fort Lauderdale.
+- I always saw myself working a WrestleMania.
+- Yoga is 'so hum,' spiritual and all that, and I get it, and I respect that, but that's not what I do. What I do with DDP Yoga, we have changed the face of how it's represented. The spiritual stuff for us is about the power of positivity along with giving people that inner confidence.
+- You'll never see me in an airport without a DDP YOGA shirt. It says, 'It Ain't Your Mama's Yoga' on the back and 'DDP YOGA' in the front. Every time I walk around, people see the shirt, and it makes them smile.
+- The biggest thing I've learned, on the inside of my Hall of Fame ring, normally people put their name. I've put 'Work ethic equals results! DDP.'
+- People used to say, 'Well, how do you fake that?' Two words - we don't. When you got hit with the chair, you got hit with the chair.
+- Wrestling and horror just sort of go together.
+- If you teach someone your craft, while you're teaching them, you're going to learn because you're going to get better at teaching, which is going to make you better at whatever you're doing.
+- I'm not scary anymore.
+- At 31, I decided to learn how to read and, at 32, read my first book: Lee Iacocca's autobiography. Ten years later, with my friend Larry 'Smokey' Genta, I wrote my first book, which was my proudest accomplishment.
+- I try to keep my mind full of really positive stuff.
+- P90X and Insanity are awesome workouts for young guys who aren't beat up. DDPYoga is for guys who are beat up. It's the fountain of youth for beat-up guys.
+- You can sit in the chair and do the workout. There's no other program in the world that is like DDP YOGA.
+- I had some great matches with 'Macho Man,' but the one at Halloween Havoc in 1997 was intense, and Havoc was the perfect venue for a Last Man Standing Match.
+- When I blew my back out at age 42, I said, 'Okay, I've got to be more concerned about food and health.'
+- I'm that guy. The guy that you think I am, I am. Not everybody can say that.
+- Originally, when I was introduced to yoga, I kept resisting. I kept saying that I wouldn't be caught dead doing yoga.
+- The elaborate sets and the theme of Halloween Havoc as a whole is what I think really caught the attention of the fans. Add in the explosive contests we had every year at the event, and it was definitely the perfect precursor to Starrcade.
+- I knew no one had better ring psychology than Jake Roberts.
+- I teach people how to breathe; I teach them how to use dynamic resistance, which is what gets your heart rate jacked up.
+- From wrestling, I learned what I'm not going to do again.
+- I didn't develop DDP YOGA for yogis. DDP YOGA is its own animal; if yoga was a bicycle, DDP YOGA would be a Harley.
+- No matter how bad or negative it gets, I somehow try to find the silver lining.
+- I would have always liked to have worked with Randy Orton because of the Diamond Cutter and the RKO.
+- DDP Yoga was never developed for yoga users: it was developed for people who wouldn't be caught dead doing yoga - the people who really need it.
+- My business wouldn't be doing as strong as it is without the support of WWE.
+- Everybody on top has a ton of haters.
+- Flexibility is youth.
+- Once I got done with my career, I knew in my soul that I don't have any negative thoughts about myself.
+- Wrestling is the first reality show. With a reality show, you never what is real and what is not.
+- Kevin Dunn is great at what he does.
+- In my mind, I always felt like I was worthy. I really felt like, with my career and just the way I did it, it was Hall of Fame-worthy.

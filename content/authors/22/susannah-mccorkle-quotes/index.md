@@ -1,0 +1,19 @@
++++
+author = "Susannah Mccorkle"
+title = "Susannah Mccorkle Quotes"
+quotes_len = "13"
+description = "the best 13 Susannah Mccorkle Quotes"
++++
+- Thank God for beautiful songs about feeling despair when you yourself are in despair. They really get us through.
+- If you sing honestly and sincerely to kids, they will respond with all their hearts.
+- I love words.
+- Somebody called me a 'bruised romantic' once, and I like that.
+- I had no desire to become a singer until I heard Billie Holiday. The first time I heard her on a record, it was a revelation. She sounded like a woman singing about herself.
+- I have complete artistic control, and I just do my best album every time and trust it to fate.
+- When I dance, I love the romance and sexiness of it, and love having it be clear to both dancers that the man leads! But the man has to know what he's doing!
+- Please believe that I do this because I am convinced that my illness cannot be helped for any length of time and I cannot bear to be a burden on anyone any longer.
+- People will always need love, romance, a tender touch, and really personal and deeply felt music.
+- If I love a song I hope to find a way to get other people to love it too.
+- I worry about kids and all they are exposed to. Kids get so bombarded with hard, commercial sounds. They don't even have a chance to develop the softer part of themselves without fear of being ridiculed.
+- It may be that my most helpful contributions to music aren't my compact discs but my articles about other great singers of the past for American Heritage magazine.
+- I'm very happy to have a small, long, career instead of one big hit and then oblivion.

@@ -1,0 +1,71 @@
++++
+author = "George T. Conway Iii"
+title = "George T. Conway Iii Quotes"
+quotes_len = "65"
+description = "the best 65 George T. Conway Iii Quotes"
++++
+- There should be no schools, bridges or statues devoted to Trump. His name should live in infamy, and he should be remembered, if at all, for precisely what he was - not a president, but a blundering cheat.
+- Voting by mail has a long, venerable tradition in this country, most notably the election of 1864, when 150,000 Union soldiers sent in ballots that helped ensure President Abraham Lincoln's reelection, the preservation of the union and the abolition of slavery. Mailed votes leave a paper trail that renders them less, not more, susceptible to fraud.
+- That's what it's all about for Trump. It's always about winning - winning for Trump, by making him look good in each day's reality-television production. It's never been about the country.
+- If there's one thing we know about President Trump, it's that he lies and he cheats. Endlessly. And shamelessly. But still, mostly, incompetently.
+- Judges certainly have political connections and strong political views, but that doesn't mean they can't rise above politics when they hear cases. We expect them to, and the law presumes they do.
+- I have contrarian tendencies.
+- A President's unofficial or non-presidential actions do not affect millions of people.
+- Americans should expect far more from a president than merely that he not be provably a criminal. They should expect a president to comport himself in accordance with the high duties of his office.
+- In essence, Trump thinks everything should be about him, for him, for his benefit and glorification - and he can't comprehend, and doesn't care about, anything that isn't.
+- Trump's lying, his self-regard, his self-soothing, his lack of empathy, his narcissistic rage, his contempt for norms, rules, laws, facts and simple truths - have all come home to roost.
+- If a politician takes a bribe to do what he thinks would have been best for the public anyway, he still goes to jail. If he's president, under a Constitution that refers to impeachment specifically for 'bribery,' as well other 'high crimes and misdemeanors,' he should still be removed.
+- Instead of channeling Trump, and attacking the courts in ways that are as bad as or worse than the president's, public officials who ought to know better should behave better.
+- Any U.S. attorney's office would fall over itself to investigate, for example, a state governor who, while running for reelection against a former mayor, so much as hinted to the mayor's successor that, say, highway funds would be restricted unless the current mayor were to announce an inquiry into her predecessor's alleged corruption.
+- If a president makes a reasoned decision about what best serves the nation's interests, even if he turns out to be wrong, he has committed no impeachable offense. The Framers didn't intend, through impeachment, to transform such policy disputes or mistakes into high crimes.
+- It's simply not bias for a judge to explain her reasoning in a dissent.
+- Confronted by a skilled examiner, Trump would melt down in minutes. He'd be humiliated, and he knows it - which is why he's too terrified to give testimony under oath, and why it won't happen.
+- Dershowitz may be a genius in some ways, but he's not necessarily the advocate you want on your side.
+- In civil or criminal litigation in a jury case, the only way for a defendant to avoid a trial is for a judge to rule that there was no evidence from which the jury could find for the other side.
+- Fiduciaries are people who hold legal obligations of trust, like a trustee of a trust. A trustee must act in the beneficiary's best interests and not his own. If the trustee fails to do that, the trustee can be removed, even if what the trustee has done is not a crime.
+- Trump's narcissism deadens any ability he might otherwise have had to carry out the duties of a president in the manner the Constitution requires. He's so self-obsessed, he can only act for himself, not for the nation. It's why he was impeached, and why he should have been removed from office.
+- If anything has cheapened or trivialized the process by which Trump was impeached, it was House Republicans' refusal to treat the proceedings with the seriousness the Constitution demands.
+- Trump's lawyers are right that if a president does what he honestly thinks is simultaneously in his personal electoral and the national interests, that's not impeachable, in the following sense: If a president cuts taxes because he thinks it will get him reelected and it will create jobs, that's fine. That's ordinary electoral politics.
+- Ever the blameless narcissist, Trump always insists that the buck stops wherever convenient - for him, personally.
+- The underlying crime in Watergate was a clumsy, third-rate burglary in an election campaign that turned out to be a landslide.
+- When Trump lied and claimed credit for 'the greatest economy in the history of our country,' even though it wasn't, and even though he inherited a strong economy, and goosed it up with trillions of dollars in debt, it didn't matter to most people.
+- Trump revels in issuing pardons, because that power is essentially absolute.
+- Trump's behavior is conscienceless, showing utter disregard for the safety of others, consistent irresponsibility, callousness, cynicism and disrespect of other human beings. Contempt for truth and honesty, and for norms, rules and laws. A complete inability to feel remorse, or guilt.
+- Extreme narcissists exaggerate their achievements and talents, and so Trump has spent his life building up a false image of himself - not just for others, but for himself, to protect his deeply fragile ego. He lies endlessly, not just in the way sociopaths do, which is to con others, but also to delude himself.
+- I call myself Mr. Kellyanne Conway.
+- I don't, frankly, want to be on television.
+- When he ran a private company, one he owned, Trump could command all its constituent parts to do his bidding and make the rules himself. You'd think by his fourth year in the White House, he would have learned that the presidency doesn't work that way. But obviously he hasn't.
+- Trump's attacks against the judiciary reflect his view that only he should be able to decide what he can and cannot do.
+- Donald Trump is like a practical joke that got out of hand.
+- Trump is not some random, embittered person in a parking lot - he's the president of the United States. By virtue of his office, he speaks for the country.
+- It's about the principles, it's about the rule of law. You don't have to stay silent when you see something that you don't like that is inconsistent of these timeless principles.
+- To criticize the attorney general for permitting justice to be done without regard to political party is very disturbing.
+- Trump took a solemn oath to preserve, protect and defend the Constitution of the United States. After his years in the job, he ought to know something about that document.
+- For Trump, it's always about Trump and only Trump.
+- The electoral calendar is set in stone, by law.
+- Just as crises can provide a test of anyone's character, they do so especially with presidents.
+- Mary Trump's 'Too Much and Never Enough: How My Family Created the World's Most Dangerous Man' tells a remarkable story, the broad strokes of which many already knew. Mary Trump offers a tale of what she calls 'malignant' family dysfunction, and how it produced a malignantly dysfunctional president.
+- Questions about Trump's psychological stability have mounted throughout his presidency.
+- I think the Republican Party has become something of a personality cult.
+- Trump's erratic behavior has long been the subject of political criticism, late-night-television jokes, and even speculation about whether it's part of some incomprehensible, multidimensional strategic game. But it's relevant to whether he's fit for the office he holds.
+- President Trump is treating the judiciary the way he treats the media. But the harm created by these attacks could be far greater.
+- For Trump, success always has a single father - himself. Failure has a hundred - everyone and anyone else. The media. The Democrats. The 'deep state.' Disloyal staffers. Prosecutors. Judges. Anyone who doesn't do his bidding or sufficiently sing his praises.
+- Any litigator will tell you that adding to your legal team on the eve of trial most likely will not produce better lawyering but, rather, chaos.
+- In a case involving his private conduct, a President should be treated like any private citizen. The rule of law requires no more - and no less.
+- Of course, Trump will always take credit for positive developments - even those he didn't cause, create or do - like the economy he inherited, an electoral 'landslide' that never happened and the Christmas holiday he didn't need to save.
+- It's also not true that 'abuse of power' is not impeachable, or that a statutory crime is necessary for impeachment.
+- Sometimes when you're defending people, you have to admit there was something that's not quite right, and that preserves some credibility.
+- The Framers of the Constitution expected the presidency to be occupied by special individuals, selfless people of the highest character and ability. They intended the Electoral College to be a truly deliberative body, not the largely ceremonial institution it has become today.
+- Particularly as a supposed 'conservative,' Trump ought to know something about the relationship between the federal government and the states.
+- The Constitution sets out no standards for granting pardons. They require no consent from Congress, and courts can't second-guess them.
+- By vesting in the House the 'sole Power of Impeachment,' the Constitution makes it wholly the House's business how to decide whether to impeach a president.
+- The president may have the raw constitutional power to, say, squelch an investigation or to pardon a close associate. But if he does so not to serve the public interest, but to serve his own, he surely could be removed from office, even if he has not committed a criminal act.
+- Charged with faithfully executing the laws, the president is, in effect, the nation's highest law enforcement officer.
+- The public has no interest in whether the President acts boldly or timidly in his personal affairs.
+- The president's duty to faithfully execute his office includes not only a duty of loyalty to the nation but also a duty of care - a duty to act with reasonable diligence and upon a reasonable basis.
+- America promised equality. Its constitution said so. My schoolbooks said so. The country wasn't perfect, to be sure. But its ideals were. And every day brought us closer to those ideals.
+- One of the bad things about bad behavior by politicians (particularly by Donald Trump, because he's president, but by others as well) is that it not only can encourage bad behavior by politicians of all ideological stripes but also can be cited to justify it.
+- Among Donald Trump's many flaws as president is one that's as fundamental as any: He simply doesn't understand his job.
+- As all presidents must, Trump swore an oath to preserve, protect and defend the Constitution, and to faithfully execute his office and the laws in accordance with the Constitution. That oath requires putting the national interests above his personal interests.
+- Trump simply can't dial down the lying, or turn it off - even, his own attorneys suggest, when false statements may be punished as crimes.
+- President Trump, whose businesses and now campaign have left a long trail of unpaid bills behind them, has never discriminated when it comes to stiffing people who work for him.

@@ -1,0 +1,48 @@
++++
+author = "Paul Broun"
+title = "Paul Broun Quotes"
+quotes_len = "42"
+description = "the best 42 Paul Broun Quotes"
++++
+- Obama believes in a big central government, where the federal government controls everything in our lives. That's socialism.
+- We should have a very limited federal government.
+- TSA needs to be totally changed. I would like them to be privatized.
+- When Barack Obama is right, then I'll support him. When he is wrong, I'll fight him.
+- Ignorance of the law is not a valid excuse for accused criminals, and it cannot be an excuse for members of Congress.
+- Truth be told, except for foreign policy, Ron Paul's voting record and mine are virtually identical and I wear it as a badge of honor.
+- It's absolutely critical that we audit the Fed so the American people can see what's going on over there. Do it from top to bottom so that we can have transparency in this entity called the Federal Reserve. Hopefully, the American people will see that we need to go back to the gold standard, which I've introduced, and get rid of the Fed.
+- I represent poor people, I represent working people. I represent senior citizens. I represent family businesses. I represent people who don't have the wherewithal to hire overpriced Washington lobbyists and lawyers. I want to send the powers back to the states and the people.
+- I'm a Christian but only me and the Lord know that for sure.
+- When the media's attacking me, when the establishment Republicans are attacking me and the Democrats are attacking me, that means I'm the 'We the People' person, and I'm on the right course as far as I'm concerned.
+- We have a tremendous lack of knowledge of how far we have gotten away from the Constitution of the United States. Democrats and Republicans alike have taken us away from the original intent. You see, I believe in this document as our founding fathers intended it.
+- They all want to be me. They do! What everybody else says they will do, I've already been doing. They all want to be me. It's become a joke in Congress how Dr. Gingrey and Mr. Kingston have been following my votes. They've even changed votes to what I voted, multiple times. Members of Congress are laughing about it.
+- There are more people killed with baseball bats and hammers than are killed with guns.
+- We know that when law abiding citizens who know how to utilize a firearm have one on their person, it helps prevent crime.
+- If 10 percent is good enough for the Lord, it ought to be good enough for Uncle Sam.
+- All that stuff I was taught about evolution, embryology, the Big Bang theory, all that is lies straight from the pit of Hell. And it's lies to try to keep me and all the folks who were taught that from understanding that they need a savior.
+- If I shoot it, I'm gonna eat it.
+- America has to stand up and decide if we want to be a socialist nation or if we're going to be a free nation.
+- It teaches us how to run our lives individually. How to run our families, how to run our churches. But it teaches us how to run all our public policy and everything in society. And that's the reason, as your congressman, I hold the Holy Bible as being the major directions to me of how I vote in Washington, D.C., and I'll continue to do that.
+- It's no secret that the Democrats and liberal media would love to take away our guns and mandate every aspect of our lives, but I refuse to let them get away with that.
+- These illegal aliens are criminals and we need to treat them as such. I'm not in favor of giving amnesty to anybody who has broken the law. I applaud what our Georgia legislature is doing in trying to crack down on this situation.
+- Georgians aren't interested in labels or affiliation, they're interested in solutions. And that begins by making Washington smaller and America bigger!
+- There's a lot of scientific data that I found out as a scientist that actually show that this is really a young Earth.
+- I don't want to fix Obamacare, I want to get rid of it.
+- I appeal to people all across the political spectrum.
+- I think the federal government should be doing only what the Constitution says it should be. We don't have authority under the federal Constitution to have a big federal criminal justice system.
+- The Second Amendment is the one that really protects all of our liberties that we are given by our Lord, and our God-given rights, and are protected under the Constitution.
+- As one of the most conservative members of Congress and a staunch supporter of the 2nd Amendment, I am constantly under attack for my values and beliefs.
+- I do go against my leadership all the time because I stand firm on the four questions that I ask about all legislation. The first, is it constitutional according to the original intent? The second, does it fit the Judeo-Christian Biblical principles that our nation is founded upon? Third, do we need it? Fourth, can we afford it?
+- I condemn all statements - made in sincerity or jest - that threaten or suggest the use of violence against the president of the United States or any other public official. Such rhetoric cannot and will not be tolerated.
+- The Constitution I uphold and defend is the one I carry in my pocket all the time, the U.S. Constitution. I don't know what Constitution that other members of Congress uphold, but it's not this one. I think the only Constitution that Barack Obama upholds is the Soviet constitution, not this one.
+- There are some in black robes sitting on federal benches all across this country. They're Democrats, Republicans, liberals, and even conservatives that pervert the Constitution.
+- As a physician, I know that human life begins with fertilization, and I remain committed to ending abortion in all stages of pregnancy. I will continue to fight this atrocity on behalf of the unborn, and I hope my colleagues will support me in doing so.
+- I'm very disappointed with the McCain campaign. In my opinion, it was inept.
+- We have got to cut the spending. We have got to fix Medicare and Social Security. And actually, if we don't cut spending, this country is already broke. We are going off the financial cliff: the big cliff that is going to cause a total economic collapse of America.
+- When I was sworn in the Marine Corps in 1964, when I was sworn into Congress, I swore to uphold the Constitution against enemies, both foreign and domestic. We have a lot of domestic enemies of - of the Constitution, those who want to pervert it, those who want to change it.
+- These gun-free areas are actually - they're free-shooting zones for people because they know that there won't be anybody there that can stop them.
+- As your congressman, I hold the Holy Bible as being the major directions to me of how I vote in Washington D.C.
+- I don't believe that the Earth's but about 9,000 years old. I believe it was created in six days as we know them. That's what the Bible says.
+- We have got to protect privacy rights. We have got to protect our God-given, constitutionally protected civil liberties, and we are not doing that in the federal government. The Department of Homeland Security, as well as the TSA, is a great culprit in being a Gestapo-type organization.
+- If passed by the U.N. and ratified by the U.S. Senate, the U.N. Small Arms Treaty would almost certainly force the United States to... create an international gun registry, setting the stage for full-scale gun confiscation.
+- Obamacare is going to destroy our economy and destroy our freedom.

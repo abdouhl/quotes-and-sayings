@@ -1,0 +1,44 @@
++++
+author = "Greg Mottola"
+title = "Greg Mottola Quotes"
+quotes_len = "38"
+description = "the best 38 Greg Mottola Quotes"
++++
+- The joke is that no matter how much we think we can evolve, we'll never escape our limitations.
+- For better or worse, I am as fascinated with human flaws as anything.
+- I'm the most awkward man alive.
+- Some scenes comes together really quickly, and some scenes are disasters that take forever. But it sort of works itself out over time.
+- I have scripts that I've only shown to animals... and they passed on them.
+- In indies, life is very dark and realistic, and in mainstream films, the edges are all rounded off and very sentimentalized.
+- The Holy Grail audience are young people and, at the end of the day, that's who gets courted.
+- I think I am attracted to that time in life when your worldview is still forming in small ways.
+- The truth is, good actors are always looking to do something different. They are dying to play slightly odder characters or work on movies that aren't straight down the middle.
+- I'm not someone who's gone to Comic Con as a devotee.
+- I don't like high concept movies very much, and the kind of scripts that I would occasionally get offered tended to be really high concept comedies or romantic comedies. I just don't like it. I like much more realistic movies with actual psychology and behavior in them.
+- I feel like I came from a generation where... We didn't have Vietnam. We didn't have World War II. Nothing cultural was thrust upon us to make men out of us, so you're kind of free to not grow up that way if you don't want to.
+- I certainly did work at an amusement park. In 1985. Wow - I'm in denial about the year. I was in college, and I had no skills.
+- Film school didn't prepare me for the fact that you have to manage so many different personalities at every stage, and I learned nothing about what to do when a movie was finished.
+- My first-ever job in the movie business, I was an art student at Carnegie Mellon, and they were shooting the movie 'Gung Ho' in Pittsburgh, and I worked as an extra for a few days. Michael Keaton bumped into me in one scene, and it's in the movie. And I worshipped him.
+- When I read a script, I always - the first question I ask myself is, 'Is there something that I could bring to it that maybe the next guy wouldn't?' Because I've read a lot of very good scripts and thought there are people who could do this better than I.
+- When you're a young person, the solace one can get from popular music is something I just have tremendous nostalgia for, affection for. I still have it.
+- When I first saw 'Fast Times at Ridgemont High,' I thought: That's what my life is like. That's my day-to-day.
+- The crazy thing about independent filmmaking is that you're so judged on your first film. It almost needs to be one of those groundbreaking 'I've-never-seen-that-before'-type movies.
+- My own personal geek culture years were when I was much younger. I collected comic books up until a certain age. I wanted to be a comic book artist when I was younger.
+- To me, it's important to try and make an emotional connection with the audience.
+- 'Sugarland Express' is a movie that I really loved and watched a lot.
+- I have a long love of fantasy and science-fiction.
+- I have some pride in the things I've done, but I'm pretty hard on myself. Part of looking at my old work is to motivate me to try harder.
+- It's like I'm thin skinned, I guess, but I thought I could never write about my youth for the longest time. It took getting to my forties before I could even look back on it.
+- I worked for seven years doing computer graphics to pay my way through graduate school - I have no romance with computer work. There's no amount of phony graphics and things making sound effects on the screen that can change that.
+- I like writing, but it really can be a struggle for me.
+- I specialize in movies that people say are underrated, with the exception of 'Superbad.'
+- Having grown up in a Catholic family, while I felt like I was never conscious of any blatant anti-Semitism, I was aware of a slightly insidious, us-versus-them mentality. A lot of my best friends and early girlfriends were Jewish, and I encountered what was more of a suburban small-mindedness, of people needing to defend their tribe.
+- 'Duel' is one of the greatest suspense films of all time.
+- I'd like to think I have a strange affinity for the embarrassing. Not sure what that says about me. But I like the awkward, uncomfortable comedy.
+- I worry that I would actually hurt my career doing something I didn't enjoy.
+- I kind of thought I would only work exclusively in the world of naturalistic comedy drama, but there is this side of me that also loves Hollywood, and I wanted to see what that felt like.
+- I have a little bit of a pet peeve about how the middle class is depicted in movies. I feel like they tend to be either depicted in a very sentimental way, where everybody has a heart of gold except for the villains you're supposed to hiss at, or there's a sort of indie-style version... When it's done well, it's brilliant, it's 'Blue Velvet.'
+- I have alopecia. My hair fell out when I was in college and I didn't take it so well.
+- I remember on my very first film, which Steven Soderberg executive-produced, he said, 'Try not to repeat yourself. Do things that scare you.' Even if it's a challenge, I want people to say that this guy tried this thing. Hopefully he learned from it.
+- I can't seem to escape comedy. Whenever I sit down and try to write something serious, it just doesn't work.
+- I had always thought my fantasy career would be making indie films and doing my own thing. But then 'Superbad' came along, and it totally changed everything. It was so hilarious and smart and extreme; you could probably do a psychoanalysis term paper on the male sexual psyche going on there.

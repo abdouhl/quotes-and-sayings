@@ -1,0 +1,20 @@
++++
+author = "Grace Meng"
+title = "Grace Meng Quotes"
+quotes_len = "14"
+description = "the best 14 Grace Meng Quotes"
++++
+- There are many Asian-Americans who are living in poverty, especially our senior citizens.
+- I've loved being in legislative office on a state level, and I think on a federal level there are so many more opportunities. I'm so excited to accomplish more.
+- Queens is famous throughout the world for diversity and tolerance. But really it's what we have in common that makes our neighborhoods work, our students succeed, and our families able to care for children and grandparents as they can.
+- Queens is so often treated as a stepchild and labeled as an outer borough. At the very least, if I could help bring more attention to what we need, and what the federal government needs to do to improve the quality of life of people right here in Queens - any way that I can do that, I'm very happy to do that.
+- I'm just going to let my record in Congress speak for itself.
+- I was raised as a Christian, where all you're taught is to be humble, even if you did something right. Politics is the complete opposite of: you do something a little nice, and you tell everyone.
+- I take the definition and title of my job - Representative - seriously. That's what I will be above and beyond everything else.
+- As the daughter of immigrants, growing up in New York City, you are either at the table or on the menu.
+- When people see Barack Obama, they don't necessarily see an African-American president. They see someone who is a child of immigrants. They see someone whose family has worked hard and struggled. And they see many similarities between themselves and Barack Obama.
+- Oftentimes, the only evidence left behind at the scene of a shooting are bullet shell casings.
+- It's nice to be a woman, and it's nice to be an Asian. But what's more important is what I can bring back to my district.
+- I want to see America thrive. I want to see all different families here succeed.
+- Being the only Asian-American in the State Legislature, I've had no choice but to reach across the aisle.
+- That's the one thing I probably don't like about politics - the focus on the individual. To me, it's more important to get it done, whether I get the credit for it or not.

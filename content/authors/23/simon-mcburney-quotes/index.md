@@ -1,0 +1,74 @@
++++
+author = "Simon Mcburney"
+title = "Simon Mcburney Quotes"
+quotes_len = "68"
+description = "the best 68 Simon Mcburney Quotes"
++++
+- I find all food irresistible. I have friends who live in the mountains in France. One of them sells vegetables, and to walk through her garden when everything is bursting out - it's impossible not to eat something.
+- For me, acting is like a holiday. When you're directing, you have a strong sense of responsibility for others. It's exciting but exhausting, especially when you're like me: always wanting to break the rules.
+- 'Mnemonic' is a play about memory.
+- As a child, acting just seemed like a natural extension of my love of play - and if you've forgotten how to play, you shouldn't be an actor.
+- Theatre is the art form of the present: it exists only in the present, and then it's gone.
+- In Japan, sometimes it's hard to know what you are looking at.
+- I don't recall making a conscious decision to become an actor. I just remember winning a prize at a theatre festival when I was 17 and saying: 'Oh, that's what I have to do.'
+- The only reality of the theater exists in the mind of the audience.
+- I don't have what German directors call 'a concept' - a solid, fixed sense of the pattern that you should impose on the given work. I always get the feeling that I am raking up the earth rather than laying down the concrete.
+- I might be like a conductor, or I collect the stuff together and I do a lot of my own writing. But what is a pleasure is the whole creative thing in which we're all excavating and trying to find something.
+- For years, I wasn't in the least bit interested in opera.
+- I've had various people close to me die, and I don't necessarily find the idea of death purely depressing.
+- My work is not generally in the commercial sector. However, I'm not worried by the commercial sector. I refuse to work in any other way except the way that I work.
+- I sometimes feel I would like to do crazy things with 'Endgame,' where someone says something, but the words, instead of being spoken, are written words projected out of their mouth.
+- The very beautiful and very touching thing about opera singers is they are very willing to do whatever you want. Unlike actors, who constantly want to know why they're doing something, opera singers will sort of follow you into the fires of hell.
+- Ultimately, theatre takes place in the minds of the audience: they all imagine the same thing at the same time.
+- If you're an actor, go out and act.
+- I was keen to stage 'Faust,' although I find Goethe's 'Faust' indigestible.
+- So you might say, 'Why do you end up making theatre in a world in which there is already too much of that? Creating layer upon layer of artifice?' Perhaps the function is to pierce through that cloud and show reality - so the function of art is to make things - to show: 'Hang on, this is real.'
+- I was very bad at mathematics in school, and I always had the feeling as a kid that when I worked on problems, that I would be wrong.
+- The repeated action of working and playing acts like a trowel that uncovers a hidden structure under the earth. It is an action that deepens and develops.
+- When my mother was dying, I cooked for her. One of the things I realised was that the smell and look of the food was key. I concentrated on how it looked on the plate. Even if the amount was small, it gave her a nourishment of a different kind.
+- I allow people to create, but I'm also marshalling everybody, which is difficult for my creativity, as I'm like a referee. Everybody else is kicking a ball. It is very messy. From the mess, though, you refine what is there.
+- I suppose I'm really interested in theatre that provides an intensity of experience on another level.
+- 'The Magic Flute,' I think, is fundamentally asking what is it to change people's consciousness.
+- In the theatre, because you're all looking at the same thing in the same space, consciousness is no longer individual. There is a unified consciousness. Until you look and project what is happening, it doesn't exist; the audience are the ones making the theatre, not the players.
+- I have always felt more at home in a culture that has nothing to do with the one I was born and brought up in.
+- In the theatre, we're all charlatans and liars and scavengers and fly-by-nights.
+- Everyone sees something different in 'Endgame': a biblical apocalypse, a portrait of painful co-dependency, a confession of guilt and dignity in the face of death, a night of baffling hopelessness, a meaningless babble. Each interpretation reveals an absurd truth - not about the play, but about the person watching it.
+- I don't tend to get cast in the theatre much. People assume I come with all this baggage. But they do cast me in films. In films, I'm a nobody.
+- I try to push a single idea to its absolute limit. So for all of those ideas that existed in the story, you attempt to find a physical realisation in the space.
+- The brain constantly assures us, reassures us, that we are in control. But the closer you look, the more questions you have about it.
+- 'Endgame' resists narrative and even thematic explanation. How you play it has to reflect this. If you decide something too much in advance, you forget the element that gives the play life - the audience.
+- I don't really think about a visual aspect to the work at all; I just think about making the piece. And everything that occurs visually comes out of the subject matter you are dealing with so that I find it difficult to treat the visual element as a separate entity.
+- When the brain gets lost, it doesn't stop working. It tries to makes sense of things. It begins to speculate and guess, and that's when things open up. That's exciting.
+- Mozart's seeming frothiness is just a light touch with very profound material. That's what I've found working on 'The Magic Flute.'
+- When I was an adolescent in England, at school we had to read 'Death of a Salesman.' I remember feeling incredibly moved by the portrayal of these people and the idea with which Miller broached the whole subject of failure or failed systems, or the way that people are crushed by a system in which they find themselves.
+- Any play that's making a point is less interesting than something that stays with you and suggests something further.
+- For some years, I've been very interested in the relationship between science and art.
+- Theatre is about the collective imagination... Everything I use on-stage is driven by the subject matter and what you might call the text - but that text can be anything, from a fragment of movement or music to something you see on a TV.
+- As an actor, it's much easier for me to get work in the movies because nobody knows who I am except for the work that I've done in another movie. I really enjoy that.
+- Living in France while the Falklands War was going on, I felt a profound sense of shame and betrayal, just as I did by the war in Iraq. People have asked why I don't talk about that directly in my plays. Well, politics needs to be articulated in many different ways.
+- Most people won't order tripe in a restaurant, but it can be fantastic.
+- My parents loved classical music. And my father adored Mozart. But for some reason, I always had a reaction against it.
+- I remember the fact that milk was delivered every day by a milkman. In summer, my mother would make what now seem in my middle-aged imagination the most delicious iced milkshakes.
+- I'm naturally attracted to something I don't understand because when you try to deal with something you don't understand, it opens a door into another world.
+- My proposition is that music is at the heart of what 'The Magic Flute' means: that it's Mozart's music, not the words, we should be attending to. Music expresses what can't be expressed otherwise.
+- In my opinion, there's nothing new in the theatre, ever. Theatre-makers are thieves, in the honourable tradition of charlatans. They fake it very, very well indeed for the entertainment of everybody else.
+- Mozart makes us care about people in flashes of lightning.
+- Shostakovich's final pieces, his quartets, are scratching the surface of another world.
+- When I was doing 'A Disappearing Number' in Plymouth, we had to go on an hour and a half late, and I still hadn't written an end, so we had to make one up, and then we had to go out literally with our pants round our ankles.
+- 'The Master and Margarita' is deeply to do with the unconscious. It is a story about a man who writes a story in a time when he's not supposed to write that story: the story of Pontius Pilate.
+- In 1600, Shakespeare's London was a city of 200,000 people. At the same time, there were already over a million in Tokyo.
+- When I met Miller, for me it wasn't a question of wanting to meet him because it was Arthur Miller; it was a kind of astonishment that I could meet someone who was so deeply embedded in the psyche of my artistic development.
+- I feel that if you can play on the streets or in a comedy club, then in a theatre it's a doddle because you've got an audience.
+- I constantly want to know - what is a table, or what is a cat?
+- I'm passionate about music, and I feel that theatre has an extraordinarily musical ability in the way it operates on the audience.
+- Haunted since the day its discovery was projected all over the world in 1994, I, like many others, have always wanted to see inside the Chauvet cave, site of the world's earliest known cave art. Quite rightly, we will never go. It is closed to the public.
+- There's something hopeful about 'Endgame.' Beckett strips everything away and asks what remains. There's this surgical dissection of the soul, but at the bottom, you find shafts of light.
+- We feel closer to the drawings on the walls of Chauvet than the painting of, say, an Egyptian mural. These artists are not remote ancestors; they are brothers. They saw like us; they drew like us. We wear essentially the same clothes against the cold.
+- Most of what we say about ourselves is a wonderful piece of storytelling.
+- My experience of my father's death was that it was still taboo; nobody would meet me after my father died because they didn't know what to say.
+- I spent the majority of time at school trying to break the rules. I would climb to the top of buildings; I even burned a building down once - not intentionally, just because I was interested in fire. I remember going through the rule book, ticking off the ones I had broken and looking for the ones I hadn't.
+- Our lives are a sequence of things. When we're alive, they're continuing, just as my words now are an improvisation. So the idea of 30 years is actually quite nebulous. It's impossible to encapsulate it. All you can do is go: 'what next?'
+- The way the mind decodes music is an individual mystery. But the physical circumstances can change the way you listen.
+- In France, they call the people who come to the theatre 'les spectateurs'; in Britain and Ireland, they are the audience, the people who listen. This does not mean the French are not interested in language. On the contrary. It actually says more about the undeveloped visual sense over here.
+- With the theatre, for God's sake, everything makes sense. You create a clear sequential reality for a specific audience at one particular time.
+- Infinity is a way to describe the incomprehensible to the human mind. In a way, it notates a mystery. That kind of mystery exists in relationships. A lifetime is not enough to know someone else. It provides a brief glimpse.

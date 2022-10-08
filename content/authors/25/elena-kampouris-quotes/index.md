@@ -1,0 +1,16 @@
++++
+author = "Elena Kampouris"
+title = "Elena Kampouris Quotes"
+quotes_len = "10"
+description = "the best 10 Elena Kampouris Quotes"
++++
+- Greeks are notorious for their potions. I wouldn't say I've used Windex, but there are so many tricks that have been handed down to me.
+- I've got my huge Greek family. I mean, I don't know how many cousins I have - I can't even keep track. There are just so many of us, and we love all Greek food - we have Greek night every Sunday night.
+- I have blonde hair and blue eyes, and whenever I tell people I'm Greek, they don't believe me.
+- If I'm lucky enough to have the chance to play a character, I'm going to give it my all. Play my position and give it 100%.
+- I can't tell you how lucky I feel. I've gotten to work Peter Facinelli 'American Odyssey,' and I got to do 'My Big Fat Greek Wedding 2' - which really gave me such a tremendous amount of pride and patriotism, and it was very close to my heart. I've really had such great support, so many great teachers, and so many wonderful people surrounding me.
+- There's no money in theater, but artistically speaking, it's so much more fulfilling! But, of course, there are still so many people left in film that I would love to work with as well - like Guy Ritchie! I'm a big fan of his work. He's at the top of my list of people I would love to collaborate with.
+- I was born into a Greek family, and it was instilled in me not only to be passionate about the culture but also to be freaky loyal.
+- I've watched my mom take a plain piece of paper and create something beautiful out of it, and I think that kind of manifested for me in taking a character from the page and bringing that to life.
+- Neither of my parents are involved in theater or acting, but they are very artistic. My mom is a painter; she's an artist. She went to school for fashion illustration. My father is into collecting antiques and fine wine, so they're both really creative people.
+- Greek blood courses through me.

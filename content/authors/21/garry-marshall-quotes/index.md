@@ -1,0 +1,30 @@
++++
+author = "Garry Marshall"
+title = "Garry Marshall Quotes"
+quotes_len = "24"
+description = "the best 24 Garry Marshall Quotes"
++++
+- I always wanted to be known as the Norman Rockwell of television, and 'Happy Days' represented the part of me that wanted to make mainstream America laugh.
+- I don't sit well. I like to move around as I talk.
+- I must confess that the original 'Pretty Woman' was terrific and a hit, but I always felt that creatively I didn't do justice to Richard Gere's character. So in the musical, we have some great new moments for Richard's character.
+- My first name, with the rare two-r spelling, came from a sportswriter named Garry Schumacher. My parents didn't know him personally, but my mother liked the spelling.
+- There is more to life than show business.
+- I didn't want to do movies with hundreds of camels crossing the desert followed by tanks and this and that.
+- My mother was funnier than anybody I ever worked for. My father was as funny as this coat. Not a laugh a minute, my father.
+- Some journalists are pestier than others, so I find out where the pests are. I am careful with my actors and actresses. I come back and tell them, 'Watch out for this one or that one.' People are surprised I do that. But I watch out for them even after the movie is over.
+- We can't compete with Mel Gibson, but we figured we could do our part.
+- When I was five years old, my parents gave me a drum set for Christmas. My mom played the piano, and Dad played the saxophone badly. But that Christmas morning, I remember we all played together, and I thought it was the greatest day ever.
+- My happiest moments of growing up in the Bronx were when my mom would bring home a new sports magazine from the candy store. I would jump out of bed and grab it from her. Then I'd rip the front cover right off and tape it to my bedroom wall.
+- It's a hard job. It means giving up some things, but on the other hand they keep saying you can have it all. You can't really have it all so easy. You can do a little of this and little of that.
+- I never got beaten up, because I was a wisecracking jokester. I could make a bully laugh before he delivered a punch.
+- Editing is the only process. The shooting is the pleasant work. The editing makes the movie, so I spend all my life in editing.
+- When in doubt, you bring in relatives. Nepotism is a part of my work.
+- In the education of the American people, I am Recess.
+- Religion has a good place and it has its good people.
+- You go to a theater now and you literally see parents watching the movie and they suddenly cover their kid's ears. I figured I'd make one movie where they didn't have to do this.
+- There's no better satisfaction than writing. I feel that writing is the best and everything else comes with it.
+- I was a journalist. I was a drummer. I was everything. I didn't know what the heck I was. But with Jack Paar, the job was very specific - no confusion. You came in each day. You wrote five pages of jokes. You handed the pages in... The pressure was to write five pages of jokes every day. I did it, and I thought, 'This is what I like to do.'
+- A lot of people come work with me because I keep an open set, and people can visit. Julia Roberts used to have friends visit on 'Pretty Woman.'
+- When I edit, I'm not from the school of Hello, I'm a genius, so everybody shut up. I'm from the school of Let's play it once in front of an audience, and then I'll tell you where it is going.
+- I try to find scripts of stories that kinda celebrate the human condition... let's talk about the tough world out there and the human spirit overcoming adversity.
+- I am a total believer of making the process a good time - make it memorable, have some fun, try to shoot high in your quality and then don't get crazy, see what happens.

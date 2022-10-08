@@ -1,0 +1,18 @@
++++
+author = "Ed Oxenbould"
+title = "Ed Oxenbould Quotes"
+quotes_len = "12"
+description = "the best 12 Ed Oxenbould Quotes"
++++
+- I love to watch low-budget indie artsy films, but I do also love the big blockbuster things. I would love to do that one day, do a Marvel film. That would be really great.
+- I listen to a lot of music, and I listen to some rap, and I do like listening to Biggie Smalls.
+- With every social media, there's hate and things like that.
+- I have made this one dish, a salted caramel chocolate ganache tart. It's so rich. You can only have a few bites!
+- I don't watch any horror films. I get scared very easily.
+- I never really grasped how big it was when I initially got 'Alexander'; I thought, 'Ooh, this is exciting,' but after I got home, I looked back and thought, 'That was an incredible experience.' I got to work with some massive names in Hollywood, and I learnt so much, and then it really kind of struck me how life-changing it was.
+- My friends and I often film videos when we get together and hang out, and they're usually just silly situational videos just for our own amusement.
+- I love reading; I really enjoy it. I read books quite fast, which kind of annoys me, but I like it at the same time because I can read a book in a day.
+- I have a real interest in baking. I'd love to go to culinary school. That's actually my plan: to graduate high school and go to culinary school.
+- I love working in America!
+- I've had horrible days where you wake up with a zit, and you have to film, and it's terrible.
+- Baking is my pastime. I just love creating things. But it's not what I want to do for a living. Acting is what I want to do.

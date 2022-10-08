@@ -1,0 +1,66 @@
++++
+author = "Gwen Ifill"
+title = "Gwen Ifill Quotes"
+quotes_len = "60"
+description = "the best 60 Gwen Ifill Quotes"
++++
+- If you start to catalog Hillary Clinton's positions between now and 2008, we're going to have a lot of conversations because there are a lot of places for her to go.
+- We can't expect the world to get better by itself. We have to create something we can leave the next generation.
+- Some years ago, I was fortunate enough to land a reporting job at 'The Washington Post,' which pretty much put me in a state of constant awe. Bob Woodward would dish up ice cream sundaes for anyone stuck working on the weekend.
+- Diversity is essential to the success of the news industry, and journalists must include diverse voices in their coverage in order to reach a broader audience. We have stories to tell, but many in our audience have stopped listening because they can tell that we're not talking about them.
+- If it were the Clinton people, they'd be sitting around figuring out how to pull themselves out. Instead the president is continuing to go around the country and peddling Social Security, which the needle is not moving on.
+- Because I have moderated two general election debates - in 2004 and 2008 - I know better than to carp from the sidelines. I am confident in my accomplishment of having had Queen Latifah portray me on 'Saturday Night Live' both years.
+- The common agenda both sides seem to share is: Whatever works.
+- One of the best features of my career is that I have gotten to meet and work with some of the most stellar people in the business. From Tim Russert and Jim Lehrer to Bryant Gumbel, Andrea Mitchell and Judy Woodruff, I have learned from the leading lights.
+- Hope springs eternal, even in politics.
+- If there is anything good to be said about my particular line of work, it's that we get to tell people the news they need to hear, and to put it in context. To get to that - for one hour every night on the 'PBS NewsHour,' and for an additional half-hour every Friday night on 'Washington Week,' we have to slog through a lot of tough stuff.
+- If Donald Trump has proved anything, it is that there is nothing more powerful than a candidate's voice.
+- Tony Blair - good thing there are not parliamentary elections in this country.
+- By nature, I am someone who hews to the middle. I need to hear all sides of a story. Unless I am engaged in a tough round of dominoes or Scrabble, I think of myself as unreasonably reasonable.
+- When population shifts - brought about by fair housing laws, affirmative action and landmark school desegregation rulings - political power is challenged as well.
+- We will wait to see if it is a doozy before we decide how to cover it, and what it all means.
+- The President has launched a very agressive campaign of self-defense, with the goal of getting Americans to buy into his vision of America on the world stage.
+- Journalists like to give themselves credit for being on the hunt for 'the truth.' But if we embrace this undoubtedly noble but somewhat haughty interpretation of a calling, we inevitably become susceptible to slam dunk answers.
+- To me, race is not all about grievance. It is also about pride and empathy and humanity and understanding the value of difference. But along with that, there are also expectations that we should set for ourselves and for others. We should expect to be treated as equal citizens.
+- Folks who are getting their strokes in the South are not as unhappy with Howard Dean. You don't see anybody starting any movement to get him out of office.
+- Authentic apology is a tricky thing to pull off in politics, which is why it so seldom occurs. Plausible deniability must be preserved. True contrition has to be displayed. Traitors to the cause must be immediately be jettisoned. Most of all, the goal is to stop the bleeding.
+- As someone who asks questions for a living, there are few things that annoy me more than people who won't ask for themselves. Social media is a great help, but so is something as simple as turning on your television or powering up your laptop to watch a smart news show.
+- Don't count out other amazing programming like Frontline. You will still find more hours of in-depth news programming, investigative journalism and analysis on PBS than on any other outlet.
+- Moderating a debate means spending more time with briefing books than with your children. It means writing and rewriting and rephrasing. It means finding a way to be alert enough to notice when your question goes unanswered and nimble enough to decide what you will do about that on the spot.
+- There seems to be more abiding interest in unearthing old memos abroad than there is here.
+- I make more money in a week than my father made in a year.
+- Americans don't mind rich politicians. History is full of them. What they do mind are people who ask for their vote but don't connect with them.
+- History shows that people often do cast their votes for amorphous reasons-the most powerful among them being the need for change. Just ask Bill Clinton.
+- A lot of Democrats are not that upset with Howard Dean. Howard Dean gets out here and he says these inflammatory things, and he doesn't apologize. He doesn't back down a little bit.
+- You would like me to say that the veil will be ripped from the voters' eyes sometime between now and November, thereby restoring the proper version of Democracy to the House and Senate. I won't say that, of course. The simple reason is, I don't know.
+- We're not paying attention to the fact that Hillary Clinton is running in 2006. Everyone is looking to her for the future. It's the same with anybody else who's positioning themselves.
+- Barack Obama's historic 2008 presidential campaign touched on all the themes I have covered throughout my career and all of the layers of meaning that run through black politics. Ambition. Aspiration. Fear. Folly. It was all on display as Obama boarded the roller coaster that ultimately led to the White House.
+- I was taught that the search for truth and the search for justice are not incompatible and are, in fact, essential.
+- Journalists are accused of being lapdogs when they don't ask the hard questions, but then accused of being rude when they do. Good thing we have tough hides.
+- Whatever their motivations, lawmakers on both side of the aisle have certainly discovered that immigration is one of those issues that resonate strongly with the public.
+- Is it unreasonable to have proof of citizenship when entering another country?
+- Truth is, in fact, an elusive concept. It depends almost entirely on where you are standing at the time. It is a human instinct to confuse belief with truth.
+- I wish more people read hard copies of the newspaper and watched the evening news from start to finish.
+- I'm a preacher's kid, and we were always told, Act right all the time, because someone's always watching.
+- Simply as an exercise in efficient politics, Obama '08 rewrote the textbook. His accomplishment was historic and one that transformed how race and politics intersect in our society. Obama is the leading edge of this change, but his success is merely the ripple in a pond that grows deeper every day.
+- On immigration, there are a lot of hurdles before anything arrives at the White House.
+- Can't disagree with the need for a grasp of history.
+- Once they have actually left office, we seem to grow fonder of our ex-presidents - and they of each other. That's why so many sighed in approval at Michelle Obama's public display of affection with George W. Bush at last month's dedication of the National Museum of African-American History and Culture.
+- I've spent so many years talking about lame ducks in the White House and Congress, and it's never occurred to me to find out what the heck it means. It turns out it's an old English hunting term - something about firing at a duck without quite killing it. In any case, the hobbled duck limps on, at a distinct disadvantage.
+- One of the things that Africa needs, everybody seems to agree, is some measure of debt relief.
+- I've been fortunate enough to write a book and travel the country to sign and sell it, so I can safely say that a five-second burst of conversation while you're scribbling your name, over and over, is not the most reliable way to bond with Americans.
+- I recognize that it often serves competitors best to talk past each other - especially when you are trying to claim the fleeting attentions of voters on a debate stage or on social media. But think how much more clarity we could get if the people who wanted to be president clearly explained why he or she is the better choice.
+- I learned how to cover race riots by telephone. They didn't pay me enough at my first newspaper job to venture onto the grounds of South Boston High School when bricks were being thrown. Instead, I would telephone the headmaster and ask him to relay to me the number of broken chairs in the cafeteria each day.
+- I wanted to be a journalist because I like to ask questions. And I like the idea that someone might feel responsible for answering them.
+- It's been years, decades, since a president has lost a major trade initiative. That would be bad headlines.
+- People do still cheer for the President. And some of the military audiences are more likely to cheer than others. I have seen him speak lately in front of groups like Freedom House, where the applause was a long time coming.
+- If someone is complaining about the question or the questioner rather than providing an answer, they're usually trying to change the subject.
+- I was very conscious of the world being this very crazed place that demanded explanation. I didn't see a whole lot of people who looked like me doing it on television.
+- I believe if we only are talking to people who agree with us, we are failing in some way to understand our world and our country.
+- I loved covering presidential politics - not so much because of the candidates but because of the people it allowed me to talk to.
+- Hyperbole is not easily dealt with. Usually, it collapses under its own weight.
+- I am in the bad news business. Seldom do I get to report on puppies, rainbows, or the sounds of children giggling. Well, never.
+- I got my first job by exceeding expectations.
+- My job as a reporter is not to know what I think.
+- Did I say that the President's entire job is image management? Of course not.
+- When the President was asked about global warming at a public appearance yesterday, he responded by talking about America's addiction to oil. You make the connection.

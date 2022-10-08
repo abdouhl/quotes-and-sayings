@@ -1,0 +1,93 @@
++++
+author = "Jeff Buckley"
+title = "Jeff Buckley Quotes"
+quotes_len = "87"
+description = "the best 87 Jeff Buckley Quotes"
++++
+- I just think too much sometimes.
+- Critics try to pin so many different inaccuracies on me and my music; they look at the complicated things and try to simplify them. They think they can nail your whole life down just by knowing the bare bones of your history in partaking in 10 minutes of conversation.
+- She's a tear that hangs inside my soul forever.
+- Critics... They're like traffic cops. They say what they have to say, then leave, and another guy moves in ,and he has his say - and it's often just the opposite. The result is either critical acclaim or critical murder, and neither has any bearing on my music or direction.
+- What I'm trying to do is just sing what comes to my body in the context of the song. And if you go by the emotion of the song, it's almost like stepping into a city. Cities have certain customs and rules and laws you can break, and that's what I was doing.
+- I'm sick of all these labels and these manufactured subdivisions of music that don't even exist. And even though I'm pierced myself, I'm sick of everyone equating body piercing with musical courage. If you ask me, it takes a lot more than that.
+- The music business is the most childish business in the world. Nobody knows what they're selling or why, but they sell it if it works.
+- All music industry places are the same, really. They have the same dynamics and the same concerns and the same needs.
+- The only goal is in the process. The process is in the thing with little flashes of light: those are the gigs, the live shows... it's the life in between. That's all I've got.
+- I do like structure, and I'd love to be better at it.
+- I don't see myself in an ivory tower.
+- I sacrificed my anonymity for my father, whereas he sacrificed me for his fame.
+- I'm convinced I got signed because of who I am. And it makes me sad.
+- Thinking so hard on her soft eyes and memories of the signs that it's over. It's over.
+- I've always felt that the quality of the voice is where the real content of a song lies. Words only suggest an experience, but the voice is that experience.
+- I'm lying in my bed, blanket is warm, this body will never keep me safe from harm. I still feel your hair, black ribbons of coal. Touch my skin to keep me whole. If only you'd come back to me. To feel you at my side, wouldn't need no Mojo Pin to keep me satisfied.
+- I once took a ride to the beach in L.A., and all along the shore there were all these so-called jazz places. And I saw these college guys and session players playing this fusion Muzak stuff. It was just a lot of notes, and the more notes they played, the more it kept them from expressing anything. So I came back home and got out my Zeppelin albums.
+- Life's too short and too complicated for people behind desks, people behind masks to be ruining other people's lives, initiating force against other people's lives on the basis of their income, their color, their class, their religious beliefs, whatever.
+- A song just doesn't have verse-chorus-verse. It could just be one line. There are Chinese love songs that you have to learn one melody for a three-minute thing, and nothing ever repeats. I like that.
+- If you're going to write, then write a novel with a Haitian woman in it and try and describe her accurately. When you can do that, you can write about people.
+- I've always liked the electric guitar better. Even though the acoustic can be a very sexy and mysterious instrument, I can go to way more places with an electric.
+- I made a statement all my own.
+- When I was a kid. I started writing when I was 13. I got my first electric guitar when I was 13, but I'd always been singing. I had my first little acoustic when I was six. But I started being in bands when I was 13. Crappy rock bands, avant-garde things where we'd, like, 'wanna go against the norm, man.'
+- They will accuse me of stealing from my father. They already stand in baited judgement, waiting for my first move, waiting to dump their loads of garbage on me.
+- On my record cover, you can barely see my face. I still think I look really geeky.
+- In my early shows, I wanted to put myself through a new childhood, disintegrating my whole identity to let the real one emerge. I became a human jukebox, learning all these songs I'd always known, discovering the basics of what I do. The cathartic part was in the essential act of singing.
+- Music was like my first real toy. I was an only child for a while, and I was alone a lot of the time - and I liked it. I still like being alone.
+- I'm actually the son of Mary Guibert. My mother was born in the Panama Canal zone and came to America when she was five with my grandmother and grandfather, and that was the family I knew. Everybody sang; everybody had songs all the time, and they loved music.
+- The Smiths hasn't been equaled. That goes for the composition of the songs, the lyrics, and the performance.
+- I once tried to sing jazz for real. But jazz didn't do it for me. You can't have jazz without a jazz world, which doesn't exist anymore.
+- Certain emotions just take you to the notes - being furious, heroic, sad, erotic, when rain comes.
+- I think that all people are many people. I think all people have many, many, many different souls inside, and they just shift from one to the other.
+- I figured if I played in the no-man's land of intimacy, I would learn to be a performer.
+- There are thousands of great artists that wouldn't be doing the same kind of work if there were no music business machine. The ones who are popular would be doing much different work, too. Michael Bolton would be pumping gas.
+- I don't know any artists that are really emotionally well adjusted. In fact, I think we're all pretty much insane.
+- Maybe I'm not a good enough artist that people just think of me. Maybe in the future, I'll bloom into something that will just make people look at me for what I am.
+- I don't really go on what people say so much; I go on their voice. I go on their energy at the time. I go on how close their arms are folded into their chest.
+- There are times when what you do will be mysterious to everyone... times when you have to change directions before people are ready. Just because someone does something that critics don't like or understand doesn't mean you're failing as a musician. It probably means you're growing.
+- I am very observant of people's character.
+- In my early shows, I wanted to put myself through a new childhood, disintegrating my whole identity to let the real one emerge.
+- I'm far from being a consummate artist. I mean, this is just my first album, and the work is very new. I'm just beginning, and I'm certainly not worthy of demigod status. There's absolutely no danger of me reaching that.
+- I dunno... I feel out of step. Musically. Just out of step, not even behind or ahead. Just sort of like... I dunno, sometimes I feel like I'm still... just not... in sync. I don't know how to explain it. I just am.
+- You can tell everything from the eyes.
+- I just want to be a guy with a guitar.
+- I want to be ripped apart by music. I want it to be something that feeds and replenishes, or that totally sucks the life out of you. I want to be dashed against the rocks.
+- The words come from here. From memories, from dreams, from people I've known. I'm always writing and reflecting on life. I want to suck it all in.
+- When I was 12, I decided to become a musician. 'Physical Graffiti' was the first album I ever owned.
+- Grace is a quality in people that I just enjoy. It's a very human quality.
+- Sensitivity isn't being wimpy. It's about being so painfully aware that a flea landing on a dog is like a sonic boom. I enjoy a lot of mystery.
+- I started writing when I was 13. I got my first electric guitar when I was 13, but I'd always been singing. I had my first little acoustic when I was six. But I started being in bands when I was 13.
+- The people who raised me musically are my mother, who is a classically trained pianist, and my stepfather.
+- You can't be, like, smashing guitars against Marshall stacks all the time. As a matter of fact, after a while, it just looks like posing - it never really gets down to any message or any real expression.
+- When I sing, my face changes shape. It feels like my skull changes shape... the bones bend.
+- People have a certain perfection about them, no matter who they are. Like when Janis Joplin sang. Gorgeous!
+- All flowers in time bend towards the sun, I know you say there's no one for you, But here is one.
+- I like a spirituality with a God that knows how to drive a car, that knows how to take his girl to the dance club, dance all night, have a little drink, kiss the kid when they come back in and go to sleep. God doesn't need a chauffeur - he needs to drive himself.
+- More than any other place, New York is where I felt I belonged. I prefer the Lower East Side to any place on the planet. I can be who I am there, and I couldn't do that anywhere I lived as a child. I never fit in when I lived in California, even though that's where my roots are.
+- I don't really need to be remembered. I hope the music's remembered.
+- To young to hold on and to old to just break free and run.
+- I don't want my reputation to take me over, I just want to be judged on my songs. I want people to come and see me because they want to, not because fashion dictates it.
+- My personal aesthetic is to be affected directly by everything about what you're seeing... I don't mind being dashed on the rocks... My most base act of defiance is to live a long time and still rock.
+- 'Grace' is basically a death prayer. Not something of sorrow, but of just casting away any fear of death. No relief will come - you really just have to stew in your life until it's time to go. But sometimes, somebody else's faith in you can do wonders.
+- There was a time when I stopped singing, between 16 and 19, but that was done on purpose, maybe as a punishment, maybe as a cure.
+- Grace is what matters in anything - especially life, especially growth, tragedy, pain, love, death. That's a quality that I admire very greatly. It keeps you from reaching out for the gun too quickly. It keeps you from destroying things too foolishly. It sort of keeps you alive.
+- I just let the emotion dictate what the arrangement is.
+- I don't choose the songs; the songs choose me.
+- The music comes from within and outside. Within is the big mystery of life; we've all got it.
+- I have a lot of my mother in me, but I was just born with the same parts as my father. I don't sound like him. I mean, I can do an impression of him right now, and I do not sound like him. I sound like me. My sense of rhythm I learned from my mother. My melodies, I think sometimes, I get from my mother.
+- Words are beautiful but restricted. They're very masculine, with a compact frame. But voice is over the dark, the place where there's nothing to hang on: it comes from a part of yourself that simply knows, expresses itself, and is.
+- A tune has to resonate with whatever is happening around it.
+- Kiss me out of desire, but not consolation.
+- The most audacious thing I could possibly state in this day and age is that life is worth living. It's worth being bashed against. It's worth getting scarred by. It's worth pouring yourself over every one of its coals.
+- Maybe I'm too young to keep good love from going wrong, but tonight you're on my mind, so you never know.
+- I'm convinced part of the reason I got signed is because of who I am, and it makes me sad.
+- I don't see people. I don't see men and women at all. When I see them, I see... their mothers and fathers. I see how old they are inside. Like when I look at the president, or anybody in a record company, or a store owner, I may see a little boy behind the counter with the face of an old man. And that's who I talk to.
+- I disoriented myself from everything about being a human being and just played and played and played and sang and sang and sang.
+- Words are really beautiful, but they're limited. Words are very male, very structured. But the voice is the netherworld, the darkness, where there's nothing to hang onto. The voice comes from a part of you that just knows and expresses and is.
+- All these people that want to make me out as part of Generation X had better watch out, or they're going to get X'd out themselves.
+- I'm concerned with the future. I'm concerned with my life, my present, my friends, people I love, people who love me. I have no intention of taking on a legacy that wasn't bestowed on me.
+- I'm not 'Grace.' That album is like a brick onto itself. It's like a coffin that I put certain feelings and observations in so that they can be capsulized forever. I wanted to put them there so I would be free to move on.
+- I resent the fact that a parental warning sticker has to be included on an album as cover art. To me that's censorship.
+- I've already created my own thing.
+- The thing about a music career is that it ain't over until the fat lady sings. Look at all the times people threw in the towel on Dylan - or Neil Young. Remember when Young was doing things in the '80s like 'Trans' and the rockabilly album and being completely lambasted by critics who now think he is wonderful again?
+- I don't want to do any more covers. It's good to learn to make things your own, but the education's over. 'Grace' is putting a lot of things to rest.
+- Maybe someday, I'll just make, like, a complete on-demand record that everybody wants to hear. But that would be impossible and, also, I just changed my mind. I don't think I'll ever do that.
+- I'm always writing and reflecting on life. I want to suck it all in.
+- I became a human jukebox, learning all these songs I'd always known, discovering the basics of what I do. The cathartic part was in the essential act of singing. When is it that the voice becomes an elixir? It's during flirting, courtship, sex. Music's all that.

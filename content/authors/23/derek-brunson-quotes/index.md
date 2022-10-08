@@ -1,0 +1,85 @@
++++
+author = "Derek Brunson"
+title = "Derek Brunson Quotes"
+quotes_len = "79"
+description = "the best 79 Derek Brunson Quotes"
++++
+- Guys lose. You learn from it and move on.
+- When I grab guys in the clinch, it's very tough for them to get away and I'm pretty good with my Greco takedown.
+- It's not an excuse, but I'd say I didn't perform well in the big fights because I wasn't prepared properly.
+- I know what I'm capable of when I'm prepared and dialed in.
+- I want to have a big year. A big year, big fights, big contract, big money, big everything. 2017 is definitely my year.
+- Middleweight is the best division in the UFC, in MMA in my opinion.
+- I've always been a clean fighter, always lifting weights.
+- Henri Hooft is a master on the feet when it comes to striking.
+- I've got good jiu-jitsu skills, good wrestling, good ground and pound, good power on my feet, good strikes.
+- My motto has always been hard work.
+- My striking is on a different level.
+- I'm a smart guy, I like to think of myself as a smart guy, but sometimes I go out there and do a lot of dumb stuff.
+- Sports are sometimes unforgiving, and it is what it is. Take my fight with Jacare. I had the flu and I went to the doctor and I had to get nursed back. I didn't train for like 10 days and I fought four or five days later.
+- I fell in love with the knockout. I was in a relationship with the knockout.
+- I've been through Strikeforce, UFC now, but I never leave fights busted up.
+- Anderson's been here the longest, he brought our sport to the forefront. He's been around, and yeah, I've always been a fan and I've always enjoyed his fighting style.
+- I'd say I just fell in love with trying to knock people out really quick instead of letting the fight develop.
+- If I hit anybody with that left hook, they're going down.
+- They want to lube their body up really good to make it hard to grab hold; Anderson did a great job defending my takedowns. It's because he was all greased up, so he was able to stop a lot of them.
+- There's no easy fights in the UFC.
+- I don't think Anderson Silva is less of a fighter.
+- Pass-rushers with boxing or kickboxing go hand-in-hand. You've got to have fast, sharp hands and be straight down the middle, because linemen are coming off and you have to be able to pop their hands down.
+- Jacare, he has power. We're two strong guys. He relies on being aggressive and coming forward. He looks to get the takedown. He's punching and he's shooting. I've never been taken down in a fight. Now, I'm not disregarding that I could be taken down, but I just know that I have a little bit more when it comes to giving up takedowns.
+- I've changed up my training over the years; I don't lift weights as much as I used to, so I'm built for the cardio now.
+- Fighting Anderson Silva was a signature and career-defining moment that was stolen from me.
+- I've got two little girls, I've gotta do my best by them.
+- I always watch Anderson Silva and I always watch his fighting style.
+- MMA in my opinion is the hardest sport in the world, no doubt.
+- I look at a lot of my fights and I'm like, 'man, that was too greedy.' I can even look back on my fights, even the good ones where I got the knockouts, and think, 'I should have probably toned it down a little bit.'
+- Every fight, I train for the opponent very hard and smart.
+- I'm a wrestler, a very polished wrestler and some of my best attributes in wrestling are my scrambling ability and my clinch.
+- Nobody has seen my jiu-jitsu, but I have really good jiu-jitsu. I submit black belts.
+- I expect the best Anderson Silva. I don't think he'll toy with me like he toyed with other guys, I can explode in and touch his chin, and all it takes is one shot.
+- I'm a straight animal.
+- The UFC is where the best in the world fight at. You got some of the best fighters all across the world. It's the top organization.
+- I like to be aggressive, I like to finish fights.
+- I'm a firm believer that I'll make fights happen, get the fights done.
+- The quick knockouts are nice, but going through a war now and again is a good experience to know I've done it.
+- The fans want to see more. They're there to see fights, they want to see more, they want to see people get put unconscious, whatever. But you can't get put in those spots.
+- There are a lot of guys getting popped for steroids and other PEDS, and I can honestly say I've never taken a PED in my life. I've never even thought about it.
+- Anderson knees people in the face from the clinch. That guy is a world class Muay Thai fighter.
+- Uriah Hall is just a dynamic striker. He mixes it up well on his feet, that's where I expect him to be good at.
+- I miss my family so much, my kids are everything to me.
+- I still wanna keep my aggressive ways and let my skills be on display.
+- I've been around. I've fought in the big fights.
+- I'm going out there as I do in every fight to put guys away but I'm going to do it in a smart fashion.
+- You have to be sharp, you have to be ready. You have to have guys that can push you in terms of these high-level fights or otherwise you're going to get out to these fights and your opponent has been pushed and they are ready to compete. If you have not been pushed and you're not ready, you can't just turn that switch on that night.
+- Obviously, you've got to go out there and focus on each fight before moving onto the next one.
+- I'm down to fight anybody that's going to move me up and help my career and get me closer to that title shot.
+- When you're talking mixed martial arts, to have a win over a guy who is by many considered the greatest of all time, is definitely going to take your career to the next level.
+- I messed up my eyes. It's funny, I was training and we thought I had a mild concussion. But you know, I was out in Albuquerque and I would train from 9:30 to 11:00 and then I would rest all day long until 5:00 and I'd be playing on my phone, so I was playing on my phone and it scrambled my fore-vision.
+- I match up against everybody well. I just have to stay consistent and keep going out there winning fights.
+- I haven't been given a lot of respect in the division. But you know what? I'm OK with earning it.
+- Romero, I was beating him two rounds to zero, I was dominating the whole fight. He was able to catch me with a punch with about a minute left. If I would have just danced around for a minute, I would have got that win.
+- I'm a dangerous guy.
+- I know, every fighter knows, you've got to pile up wins in a row. You can't lose two in a row, three in a row and then you hear mentions of losing your job.
+- Strikeforce let me take a fight on short notice outside the promotion and I got robbed on a split decision against Kendall Grove. I easily won that fight. So, I went from 9-0 to getting robbed and suffering my first loss.
+- I used to cheerlead back in high school.
+- Lyoto is never going to lose his skills. He might lose his timing, speed, cardio, but he'll never lose his skills.
+- This sport is growing. It's about patience, rather than getting caught up in five in a row, want a title shot, main event. The goal is to put on a great fight and be smart.
+- And honestly, I'm not being cocky, I'm not talking trash, but anybody who beat me would have to get lucky. Nobody is just going to out-technique me.
+- If you look at my career, it's been nothing but consistency.
+- Everybody wants to come out here and test my cardio but I'm one of the hardest working guys in the division.
+- No disrespect to Whittaker, I know I can beat him.
+- Uriah Hall is on the level of Anderson Silva's striking.
+- When you have a fighter who's been punched a lot and been knocked out a lot of times, they're not going to be able to recover. They're going to look like they were knocked out.
+- I came into MMA and I had a strong core and a lot flexibility. I could put myself in a lot of different positions when it comes to scrambling.
+- My fight against Chris Leben was a war, and I was fulfilled with that victory because that guy has a ton of experience fighting in the UFC.
+- Everybody at middleweight has been working hard to be a champion.
+- In MMA, you can literally cheat over and over again, and it's OK. The media will back you.
+- MMA is a sport. We go out here and we do battle. Everybody has family, friends, they train really hard.
+- I'm always looking for those knockouts but I'm looking to do it in a better fashion. Not rushing, not blitzing, not putting myself at risk. Not just being too greedy.
+- I don't think too many guys are raising their hands trying to fight me.
+- I don't know if anybody can sign a contract to fight me and feel confident that they can beat me.
+- I grew up watching Anderson. He was my favorite fighter.
+- So I've definitely had a crazy career, but I'm starting to put it together and starting to take my time and know that I can really do some damage if I just slow down just a little bit.
+- I'm not like hurting by any means, but I'm not really, you know, let me say, I'm not really cool with doing fighting just to break even.
+- Dream fights are just what fans are talking about. We need to see fights that people are actually supposed to see.
+- Greg Jones, you don't get any better than that when it comes to wrestling. I actually looked up to him when I was in college.

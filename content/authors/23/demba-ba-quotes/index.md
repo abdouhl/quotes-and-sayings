@@ -1,0 +1,105 @@
++++
+author = "Demba Ba"
+title = "Demba Ba Quotes"
+quotes_len = "99"
+description = "the best 99 Demba Ba Quotes"
++++
+- I was at my house in Paris, having a day off, when I got a phone call from Arsene Wenger - he asked if I'd come back to London for a medical. I woke up at 9 A.M. on transfer deadline day, jumped on a train, got to London, but then it never happened.
+- The more you watch yourself play, the more mistakes you put right.
+- I have no control over the coach's decision, I will only hurt myself by pulling my hair out or by feeling sorry for myself.
+- English people have a great sense of humour.
+- You never say, 'This white guy, that white guy.' But when it's a black guy, you have to say, 'This black guy.'
+- One thing I will keep doing for sure is fighting for everybody's rights behind the scenes.
+- I have always worked hard to deserve what I have.
+- The first time I spoke to Avram Grant, my first question was about his conception of football. He gave me his answer and it was a good point.
+- When you play good and people say that you have been terrific and you have been playing good football, that's something that stays and builds you and your confidence.
+- Everywhere you go, competition is there. It will always exist.
+- I do not have to whine about missing the chance to play in a World Cup.
+- I had no doubts I wanted to be a footballer because that was the only option.
+- I'm happy for the move to Chelsea from Newcastle and I did what I had to do with the time I was given.
+- My behaviour in the past wasn't too bad. But let's say it was not in keeping with the Islamic faith's demands. Nightclubs, for example. People tell me it's not a big deal if I go to them - but I don't do it any more.
+- I'd always loved English football.
+- It's really important to score for a new club early on; when you come in and score right away you feel much better.
+- I love playing football and being in teams that have the ball and play good football.
+- When you have the chance to play for Chelsea, you have to take it.
+- We believe in the people of San Diego.
+- For me, I am always hoping to play for the national team.
+- I am a good professional and I keep fighting for what I have.
+- I always back myself to do well.
+- Eden Hazard is one of my close friends and Branislav Ivanovic I like.
+- Where I am from, being able to play in the Champions League is an achievement in itself.
+- Alan Pardew is a very good coach and is doing very well at Newcastle. He is very thorough in his preparation for games and makes sure we all know our roles on the pitch.
+- My mum had the hardest work in the world, making sure her kids are following the right way, and she had a lot of kids.
+- I played in Belgium, in France and in Germany, which was very good - but England is very special.
+- I had to find a way of dealing with not starting matches, but when you don't play and you're surrounded by players who do, the negativity comes.
+- Arsenal are one of those teams who makes you dream.
+- I've played football since I was seven - but loved basketball. Cire, who is one of six brothers, always played in the top two divisions in France. At the age of 15, I started having football trials. And, when I compared myself to other players, I thought, 'why them and not me?'
+- You have some days when it doesn't go for you but you have to keep believing in yourself.
+- If a defender has the ball and turns, we start pressing the goalkeeper before he passes back because if they make a mistake, it is a chance.
+- It doesn't matter what you have, as long as you're happy with the people you are with.
+- I don't care what religion you are, you cannot say 'I accept certain things but I reject others.' That's not the right behaviour.
+- I just loved kicking a ball but I was determined to be a footballer and I wanted a professional contract, I would go to any professional club to get one. From 15, all I wanted was to be a footballer.
+- After playing for several European clubs including Chelsea I opted to come to Shanghai. I wanted to see new things here, to get to know the Chinese people.
+- Yes, I'm from a very big family but it's great. All my brothers are friends as well. We all grew up together and have great memories.
+- When the club who won the Champions League wants you, the decision is very easy.
+- The first image I have of club owners is that the club is one of their toys and they do what they want and they lose a lot of money and they just don't care about who's working in it.
+- Sometimes people have a Plan A and a Plan B. But, as far as I'm concerned, I have just had a Plan A.
+- My former agent introduced me to darts by saying it was a game that would be a lot of fun. He knew I had to concentrate on hitting three 20s or a double or a treble - as this is a target you must achieve. Your mind is focused on accuracy. And it's the same in football, where I must strike the ball just to the right or left of a post.
+- Being a Muslim is more important than me being a footballer. A good Muslim is a good person, so I try to be a good person. I just live the way I want to live.
+- I have faith in my ability to score, and also create goals for others too.
+- I know what I'm able to do and I've proved it at every club I've played for.
+- Standing behind your players is a sign of respect.
+- When are we going to see the rest of the world stand up for Muslims?
+- I'm not a Steven Gerrard supporter.
+- Chelsea is a club which should be in the Champions League every season, which should finish in the top four every season, should be in the title race.
+- When I joined Newcastle, at the beginning it was difficult. During pre-season, there was no Ramadan and I also didn't score then. So it's a myth. It was about getting into the team, knowing the players better and how they play. My team-mates also have to understand how I play and move.
+- People sometimes have a bad image of Islam but that is an image of what people are doing with Islam.
+- You know when you go to a club and you are a striker, that the people expect you to score some goals. That's what I'm trying to do, every game.
+- I was always excited by English football.
+- I am from the bottom, so if I go back to the bottom I haven't lost anything.
+- When I drink water, I put syrup in it.
+- If I play well, I'll deserve to play. If I don't perform, it will be my fault.
+- I'm not a Liverpool supporter.
+- At the end of the day, I have a lot of ideas. I cannot give them to clubs I play for because they have their own ideas - their own sporting directors, their own general managers - of what they want to do. When you have your own ideas, the only way you can execute them is to get a club yourself.
+- The most special goal of my career was the one that I scored against Cameroon in injury time to send Senegal into the Africa Cup of Nations back in the 2011-12 season. That was the most unforgettable moment of my career.
+- As long as I'm having fun, I'm happy.
+- Rennes wanted me at one point, but in France they have a problem - they don't like taking risks. But if you don't take risks, you don't get anywhere. You pass by the periphery of many things, like life and football.
+- It's rare to see Mourinho manage three years at the same team.
+- It is very important you have strikers who can run and defend.
+- You know, I love football and I like to represent my country.
+- We all have different causes that touch us emotionally and I believe anybody should fight for a cause they believe in. I'm a Muslim, I'm African, so certain causes will affect me more than they do other people.
+- I enjoyed my time at West ham, scored a few goals there but was bitterly disappointed when we were relegated.
+- When you retire, no-one remembers that you finished in the top four. They remember you won a trophy.
+- Sometimes I just like to be powerful.
+- I try to be strong mentally.
+- It was not a sacrifice leaving the house when I was young and travelling around Europe to find a club. It was the only way to get to where I am today, and I am proud of that.
+- Even if Sadio comes and tells me that he's better than Messi, I'd slap him in his face and tell him 'shut up boy, sit down!' But in 2019, in my perspective, he had a better season.
+- The thing I expect from myself, when I play, is to score, in every game. If I don't, then it happens. But when you start a game, if you are a striker, you need to score.
+- As soon as I step on the pitch in football my ambition is to get those three points.
+- If I enjoy myself on the pitch, then I'm going to have a good performance.
+- When I played in Belgium, Germany and England, their cultures were similar, more or less, because these clubs are all in Europe.
+- As sportspeople, we have a power we don't even know. If we get together and talk, things change. If we stand up, people stand up with us.
+- When you work, you always get to where you want to go.
+- Whenever you join a club you look at the schedule to see when you can play the team you left.
+- I had always worked to get to a club like Chelsea and start winning some trophies and doing what I have got to do.
+- I have never doubted that I would succeed from the moment I first began playing football.
+- The Black Lives Matter movement is stronger when non-black people step up for it.
+- It's important for a player to win a trophy.
+- He always told me I'd score goals; Alan Pardew gives me a lot of confidence.
+- Football can bring out the best and worst in people.
+- Something which is easy for me to give is money. I feel detached from it. I look after myself and my family but I won't forget people who struggle. My father lives in Senegal. They are from the smaller villages and know how to distribute money to people who need it.
+- There are over 1.5 billion Muslims throughout the world, starting from Mecca in the desert from one person. What made them successful? It's because they had guidelines that they followed.
+- There are always communicative problems when you play football. It is part of the game. It is a problem you need to solve.
+- Some people have many options but for me football was my only option, so I gave everything.
+- I won't let myself be pushed around.
+- I just want to have good performances and score goals - that's what makes me happy.
+- The only power I have, in reality, is to keep producing good performances.
+- I love syrup. Strawberry syrup.
+- When I go to the movie theater, I want to get emotion from the actors in the movie.
+- Being a young kid from the hood in Paris, growing up in poverty and then scoring the goal that took Chelsea to the Champions League semi-finals, that felt like a great achievement.
+- I know there are footballers who want to fight for justice, whether Muslim, Buddhist, Christian, any belief.
+- At West Ham there were a couple of French players and they helped me get used to the team and the club.
+- Sometimes when you come in a team where there are a lot of big names - how can I say this? - the name plays more than the statistics.
+- When you play, it's to win, to win trophies. That is what it is all about and what is in my mind.
+- I was like Patrick Vieira. I was technically good, natural, big and strong, but I didn't like a tackle.
+- I have never really liked defending, chasing people.

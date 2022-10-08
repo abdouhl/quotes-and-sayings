@@ -1,0 +1,72 @@
++++
+author = "Patti Davis"
+title = "Patti Davis Quotes"
+quotes_len = "66"
+description = "the best 66 Patti Davis Quotes"
++++
+- Christopher Reeve understood that... everything begins with hope. His vision of walking again, his belief that he would be able to in his lifetime, towered over his broken body.
+- It used to be a lot easier to get a book deal.
+- The memories that I have are mostly at our old ranch, out in Agoura. We used to go out there every Saturday. I can smell the oak trees. I can see it so clearly.
+- I think that my father would find it so confusing that people want to imitate him. Not because he didn't have confidence in who he was, but because he never imitated anybody. He was his own person.
+- No one ever saw all of him. It took me nearly four decades to allow my father his shadows, his reserve, to sit silently with him and not clamor for something more.
+- Texas governor Rick Perry's wife, Anita, has come out slugging in her glittering leopard-print jacket against what she sees as the unfair treatment of her husband. She tearfully said that he has been 'brutalized' for his faith.
+- Decades later I would look into my father's eyes and try to reach past the murkiness of Alzheimer's with my words, my apology, hoping that in his heart he heard me and understood.
+- The memories stayed with him for so long, and stayed vivid. And it didn't matter to me that he'd already repeated that before. I could hear it forever.
+- Of course, people say maybe there are some self-published books out there that shouldn't be out there. Well, it's the same with conventional publishing.
+- I think the earlier stages of Alzheimer's are the hardest. Particularly because the person knows that they are losing awareness. They're aware that they're losing awareness, and you see them struggling.
+- Just think: people decided one day that a day should be set aside for motherhood and fatherhood. What a great concept that is.
+- We do things in our past that we need to do at the time.
+- I think we can work through a lot of political and international problems, but what really frightens me is what's happening environmentally.
+- I knew people were independently publishing, and I buy books on Amazon. I began seriously considering it when Amanda Hocking was in the news about her self-publishing success.
+- And as far as false hope, there is no such thing. There is only hope or the absence of hope-nothing else.
+- I think people ultimately reveal themselves to everybody. I think that's the case with Sarah Palin's conduct, particularly after the Tucson shooting, I think she's sort of digging herself into a hole. I hope - I really hope.
+- My father started growing very quiet as Alzheimer's started claiming more of him. The early stages of Alzheimer's are the hardest because that person is aware that they're losing awareness. And I think that that's why my father started growing more and more quiet.
+- I can't even consider the prospect of grandchildren because I don't know if there will be anything left for them on Earth. That's how serious the problem is. We can't drink the water or breathe the air, and we're all dying from some sort of cancer. How many generations can sustain that? It frightens me terribly.
+- I did what most writers do when something happens that's overwhelming, fascinating, moving, all of that. I didn't know what else to do about it except write about it.
+- I would not call myself a veteran conspiracy theorist. Or an obsessed one. I pretty much peaked on the whole conspiracy theory thing in the '60s, with the grassy knoll, who really killed JFK, and who ordered the hit on Lee Harvey Oswald.
+- I was such a punk.
+- You have to separate yourself from your parents. You do. In order to find yourself.
+- I often imagine what it would be like if my father were still here to mark his 100th birthday, if Alzheimer's hadn't clawed away years, possibilities, hopes. What would he think of all the commemorations and celebrations?
+- I grew up in this era where your parents' friends were all called aunt and uncle. And then I had an aunt and an aunt. We saw them on holidays and other times. We never talked about it, but I just understood that they were a couple.
+- After September 11, I got to understand a little bit of his deep love for this country.
+- Loss teaches you to figure things out as they come along.
+- Politics isn't what defines a person, and it shouldn't define a relationship. I made the mistake of letting that intrude on my relationships.
+- I have a feeling of reverence about my father being in his 80s - a feeling that I want to whisper, take soft steps, not intrude too much. He's like a stately old cathedral to me now.
+- I think that nothing teaches you more about life than death and dying.
+- I really just sat down to write. I mean, I did what most writers do when something happens that's overwhelming, fascinating, moving, all of that.
+- When I was a child, our summer days were spent swimming; chlorine in my hair was like perfume to me.
+- The CIA created, armed and financed the Contras. My father backed them with everything he had. It was my father's war, and almost everyone in Nicaragua has lost somebody as a result of it. I couldn't go down there, being his daughter, and expect not to feel those people's wrath.
+- America had taken my father from me. And over most of the years of his illness, I gradually started feeling this support system from this country who-people grieving along with us.
+- Callista Gingrich has, I suspect, given Newt's advisers a giant headache. She's a constant presence at her husband's side - and a constant reminder of his acknowledged infidelity. Newt cheated on his second wife with Callista, a woman 23 years his junior.
+- When my father, Ronald Reagan, was running for president in 1980, my mother, Nancy, traveled with him on the campaign trail, but she did not give speeches or even many interviews. She never stood in front of a group of reporters and expounded on her views and opinions.
+- To me, Ann Romney sounds like a better candidate than her husband. She put her MS into remission through horseback riding, alternative therapies, and a healthy diet. She knows how to pace herself. She has a sense of humor and an innate honesty, and her hair moves in the wind. Maybe she should run.
+- You know, if you hang around this earth long enough you really see how things come full circle.
+- Puppies, like all babies, grow up fast. Before long, Gracie was no longer barking at her reflection, instead offering a blase look that seemed to say, 'I know what that is now. I know it's not another dog.'
+- I'm not the angry, rebellious child that I was. You can remain a child for a long time. I certainly did. I was a slow learner.
+- That is your legacy on this Earth when you leave this Earth: how many hearts you touched.
+- It's a tender and complicated dance, watching our parents age. We become protective in ways we never were before, and we study them with a mix of sadness and curiosity: Is this what we will be like when we are their age? We tell ourselves to be patient - just answer the same question again as if it wasn't answered a moment ago.
+- The thing about losing any loved one, I think, particularly in a long disease, is that you know that other people have gone through it and are going through it, but I think for every person it feels unique.
+- My father's body lies in a stone tomb high on a hill. People walk by, pause, think their own thoughts about him and move on, back to their own lives. I can never move on. He is everywhere.
+- I don't think it's an accident who our parents are; I believe we choose them. So maybe I chose my parents in order to effect change.
+- The house I grew up in had large plate-glass windows, which birds frequently crashed into headfirst. My father helped me assemble a bird hospital, consisting of a few shoe boxes, some old rags, and tiny dishes for water and food.
+- I'm part of the tribe who have said goodbye to one parent and are feeling a sense of responsibility for the one who remains - in my case, my mother. How do I make her time smoother, happier? How do I try to ease her, a widow, away from the dark well of grief without dishonoring the necessity of that grief?
+- Even if the Bush Administration had flung open the gates to stem-cell research years ago, we would not be at the point of offering treatment today. Christopher Reeve would still have been taken from us. But we would be closer.
+- Commerce is abusive. It's very hobbling to always be saying, 'Please let me put this out, this thing I've worked on for years.' It's like a nasty parent saying, 'No! Now go to your room.' As publishing companies got bigger, you felt even less significant.
+- I certainly support anyone's prerogative to hire or not hire whomever they choose, and I definitely don't want to work for someone who doesn't want me.
+- There is a point in the grieving process when you can run away from memories or walk straight toward them.
+- I don't know why Alzheimer's was allowed to steal so much of my father before releasing him into the arms of death. But I know that at his last moment, when he opened his eyes, eyes that had not opened for many, many days, and looked at my mother, he showed us that neither disease nor death can conquer love.
+- My father, for his part, was not a man to begrudge anyone a divergent opinion; he'd have been fine if I had written some articles disagreeing with his policies, or even given interviews, as long as I was respectful and civil.
+- Laura Bush went on national television during the week of my father's funeral and spoke out against embryonic stem cell research, pointing out that where Alzheimer's is concerned, we don't have proof that stem-cell treatment would be effective.
+- I'm very comfortable writing in the first person; it dives into the character in a way that's difficult if you're writing in the third person.
+- I had this odd sibling rivalry with America.
+- I needed to run away in order to come home.
+- There is a version of Alzheimer's which is early onset Alzheimer's. And it's - it's horrible, because people do get it in their 50s and 60s. And it's terrible.
+- My father started growing very quiet as Alzheimer's started claiming more of him. The early stages of Alzheimer's are the hardest because that person is aware that they're losing awareness. And I think that that's why my father started growing more and more quiet. I think he felt, 'I don't want to say something wrong.' That's my sense of it.
+- September 11 either made me love this country or it made me realize how much I already did. I think it's the latter. Seeing "Fahrenheit 9/11" made me think deeply about love of country - how it molds us, drives and emboldens us and how it can sometimes make us so angry, we want to shout out to the world: 'No, this is wrong.'
+- Some people, when they die, leave so much life behind that we wonder how they did it.
+- My father would never have said about any of his children you shouldn't express your opinions. But it's the way in which you express them. And for me to do - to speak at demonstrations and be as strident as I was now I see wasn't right. And it - there was a better way to do it. I could have written articles.
+- I felt that the best I could do for my father, and the best I could do for myself, and my mother and my family was to stay open to the experience, and learn whatever I could at every step of the way as it was going on.
+- It's one thing to show your love for someone when everything is going fine and life is smooth. But when the 'in sickness and in health' part kicks in and sickness does enter your lives, you're tested. Your resilience is tested.
+- The most ethical way to deal with an unethical situation would be to simply say: 'We did something wrong.' But nobody in a family like mine would ever respond like this.
+- I really just wanted to be a writer, but people tell you, 'You should have a backup career,' so I thought, 'OK, I'll act.' That was the foolishness of my vision for my life - that my backup career would be completely undependable.
+- It takes strength to make your way through grief, to grab hold of life and let it pull you forward.

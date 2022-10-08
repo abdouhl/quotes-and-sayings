@@ -1,0 +1,113 @@
++++
+author = "Eminem"
+title = "Eminem Quotes"
+quotes_len = "107"
+description = "the best 107 Eminem Quotes"
++++
+- Hip hop has always been braggin' and boasting and 'I'm better at you than this' and 'I'm better at you than that.'
+- Well, I'm working all the time to stay out of trouble!
+- I say what I want to say and do what I want to do. There's no in between. People will either love you for it or hate you for it.
+- A lot of the problems I had with fame I was bringing on myself. A lot of self-loathing, a lot of woe-is-me. Now I'm learning to see the positive side of things, instead of, like, 'I can't go to Kmart. I can't take my kids to the haunted house.'
+- As for my stuff, I'm just doing guest verses for other people's records. I try to stay recording, because if I don't, I get rusty.
+- There was certainly, like, a rebellious, like, youthful rage in me. And there was also the fact of no getting away from fact that I am white, and you know, this is predominantly black music, you know.
+- To the people I forgot, you weren't on my mind for some reason and you probably don't deserve any thanks anyway.
+- The writing process, the way I go about it is I do whatever the beat feels like, whatever the beat is telling me to do. Usually when the beat comes on, I think of a hook or the subject I want to rap about almost instantly. Within four, eight bars of it playing I'm just like, 'Oh, OK. This is what I wanna do'.
+- My father? I never knew him. Never even seen a picture of him.
+- Now that I understand that I'm an addict, I definitely have compassion for my mother. I get it.
+- Nothing on 'Relapse' and very little on 'Recovery' was produced by me.
+- It feels good to have your work respected again.
+- I come from Detroit where it's rough and I'm not a smooth talker.
+- Anything I've ever said, I certainly was feeling at the time.
+- It's just hard to meet new people, in my position.
+- I don't think I ever thought of myself as Superman. But there were people who thought of me that way, and maybe I believed them a little.
+- I want to keep making records as long as I can, but I don't know how long you can be taken seriously in rap.
+- I stopped watching TV because of 'The Wire.' Like, 'The Wire' ruined everything for me because I don't even want to watch anything else now.
+- I do say things that I think will shock people. But I don't do things to shock people. I'm not trying to be the next Tupac, but I don't know how long I'm going to be on this planet. So while I'm here, I might as well make the most of it.
+- Rap was my drug.
+- I'm not really book-smart.
+- I am who I am and I say what I think. I'm not putting a face on for the record.
+- You're not going to say anything about me that I'm not going to say about myself. There's so many things that I think about myself; if someone really wanted to get at me, they could say this and this and this. So I'm going to say it before they can. It's the best policy for me.
+- I was poor white trash, no glitter, no glamour, but I'm not ashamed of anything.
+- Why is it so hard for people to believe that white people are poor?! I wouldn't say I lived in a ghetto; I'd say I lived in the 'hood. The same friends I had back then are the same people on tour with me now.
+- I am whatever you say I am; if I wasn't, then why would you say I am.
+- I always felt that if I was going to do a movie, I wanted it to be authentic.
+- It's kind of like a challenge to myself to be able to hear somebody else's hook and kind of interpret the words. Because my own hooks, I already know what I mean when I write them.
+- Everybody has goals, aspirations or whatever, and everybody has been at a point in their life where nobody believed in them.
+- I didn't just invent saying offensive things.
+- Music is so therapeutic for me that if I can't get it out, I start feeling bad about myself - a lot of self-loathing.
+- I have a slight bit of OCD, I think. I'm not walking around flipping light switches. But when I say I'm going to do something, I have to do it.
+- Nobody likes to fail. I want to succeed in everything I do, which isn't much. But the things that I'm really passionate about, if I fail at those, if I'm not successful, what do I have?
+- I don't even know how to speak up for myself, because I don't really have a father who would give me the confidence or advice.
+- Hip-hop is ever changing but you'll always have the pack. And you'll always have those people who are separated from the pack.
+- It sometimes feels like a strange movie, you know, it's all so weird that sometimes I wonder if it is really happening.
+- It'd be stupid for me to sit here and say that there aren't kids who look up to me, but my responsibility is not to them. I'm not a baby sitter.
+- I love the attention but I don't like too much of it.
+- I want to solidify as an artist and show that as I grow as a person and make mistakes and learn from them, I'm going to grow artistically.
+- The truth is you don't know what is going to happen tomorrow. Life is a crazy ride, and nothing is guaranteed.
+- I need drama in my life to keep making music.
+- Somewhere deep down there's a decent man in me, he just can't be found.
+- Ultimately, who you choose to be in a relationship with and what you do in your bedroom is your business.
+- When you're a little kid, you don't see color, and the fact that my friends were black never crossed my mind. It never became an issue until I was a teenager and started trying to rap.
+- The kids are old enough now - I just want to let them be kids. I don't want to comment on them too much. They're at an age where I just want to let them be kids.
+- I'm very much a creature of habit.
+- I always say this about my music, and music in general: Music is like a time capsule. Each album reflects what I'm going through or what's going on in my life at that moment.
+- Dealing with backstabbers, there was one thing I learned. They're only powerful when you got your back turned.
+- Touring is hard on the body.
+- Fame hit me like a ton of bricks.
+- My family has never been there for me. They expect things because we're blood.
+- I don't think I've ever read poetry, ever.
+- I always wished for this, but it's almost turning into more of a nightmare than a dream.
+- I was a smart kid, but I hated school.
+- I'm stupid, I'm ugly, I'm dumb, I smell. Did I mention I'm stupid?
+- Personally, I just think rap music is the best thing out there, period. If you look at my deck in my car radio, you're always going to find a hip-hop tape; that's all I buy, that's all I live, that's all I listen to, that's all I love.
+- I realized, 'Yo, I can't do anything in moderation. I don't know how.'
+- When Bugs Bunny walks into rehab, people are going to turn and look. People at rehab were stealing my hats and pens and notebooks and asking for autographs. I couldn't concentrate on my problem.
+- It creeps me out sometimes to think of the person I was. I was a terrible person. I was mean to people.
+- These times are so hard, and they're getting even harder.
+- Hip-hop saved my life, man. It's the only thing I've ever been even decent at. I don't know how to do anything else.
+- I might talk about killing people, but that doesn't mean I do it.
+- Five or six songs leaked from the original version of 'Encore.' So I had to go in and make new songs to replace them.
+- If you're the parent, be a parent. You know what I mean? I'm a parent. I have daughters.
+- Yeah, I did see where the people dissing me were coming from. But, it's like, anything that happened in the past between black and white, I can't really speak on it, because I wasn't there. I don't feel like me being born the color I am makes me any less of a person.
+- I don't even know how to speak up for myself, because I don't really have a father who would give me the confidence or advice. And if you're always the new kid, you never get a chance to adapt, so your confidence is just zilch.
+- My thing is this; if I'm sick enough to think it, then I'm sick enough to say it.
+- There was a while when I was feeling like, 'Damn, if I'd just been born black, I would not have to go through all this'.
+- Sporadic thoughts will pop into my head and I'll have to go write something down, and the next thing you know I've written a whole song in an hour.
+- Honestly, I'd love to be remembered as one of the best to ever pick up a mic, but if I'm doing my part to lessen some racial tension I feel good about what I'm doing.
+- I feel like a spoilt rapper. I get to pick and choose everything.
+- Guns are bad, I tell you.
+- My only scheme was to be a rapper.
+- I need to keep working on myself for a while.
+- You know, not to sound corny or nuthin', but I felt like a fighter comin' up, man. I felt like, you know, I'm being attacked for this reason or that reason, and I gotta fight my way through this.
+- I've accomplished enough with the music that I haven't had to go out there and do other things to over-saturate.
+- I've been running a lot, taking care of myself.
+- If people take anything from my music, it should be motivation to know that anything is possible as long as you keep working at it and don't back down.
+- If there's not drama and negativity in my life, all my songs will be really wack and boring or something.
+- I try to treat all the money I'm making like it's the last time I'm going to make it.
+- Anybody with a sense of humor is going to put on my album and laugh from beginning to end.
+- Sometimes I feel like rap music is almost the key to stopping racism.
+- I felt like I had a really bad case of writer's block... Music is so therapeutic for me that if I can't get it out, I start feeling bad about myself - a lot of self-loathing.
+- I don't think I've ever read poetry, ever. I'm not really book-smart.
+- Throughout my career, I fed off the fuel of people not being able to understand me.
+- The album requires a certain focus of mine that I can't really explain - let's just say it's all I can really do while I'm doing it.
+- Before I was famous, when I was just working in Gilbert's Lodge, everything was moving in slow motion.
+- You know, fame is a funny thing, man, especially, you know, actors, musicians, rappers, rock singers, it's kind of a lifestyle and it's easy to get caught up in it - you go to bars, you go to clubs, everyone's doing a certain thing... It's tough.
+- A lot of truth is said in jest.
+- Certainly I'm not going to sit on the Internet all day and read what Sam from Iowa is saying about me. But I'm a sponge. I've always been a sponge.
+- I'd go to, like, six different schools in one year. We were on welfare, and my mom never ever worked.
+- I was going to McDonald's and Taco Bell every day. The kids behind the counter knew me - it wouldn't even faze them. Or I'd sit up at Denny's or Big Boy and just eat by myself. It was sad. I got so heavy that people started to not recognize me.
+- A lot of my rhymes are just to get chuckles out of people. Anybody with half a brain is going to be able to tell when I'm joking and when I'm serious.
+- The emotions in a song - the anger, aggression - have got to be legitimate.
+- The details surrounding both my marriage and subsequent filing for divorce are private, and I had hoped to keep them that way for the sake of my family.
+- Being a student of hip-hop in general, you take technical aspects from places. You may take a rhyme pattern or flow from Big Daddy Kane or Kool G Rap.
+- I don't know if I ever feel totally great about a record when I put it out. With every record that I put out, someone has literally got to come pry it from me because when I listen to my own music, I just hear flaws in it.
+- I don't hate women - they just sometimes make me mad.
+- I didn't have nothin' going for me... school, home... until I found something I loved, which was music, and that changed everything.
+- Say there's a white kid who lives in a nice home, goes to an all-white school, and is pretty much having everything handed to him on a platter - for him to pick up a rap tape is incredible to me, because what that's saying is that he's living a fantasy life of rebellion.
+- Honestly, I never really put the mic down.
+- My overall look on things is a lot more mature than it used to be.
+- I always try to be smart. I try to treat all the money I'm making like it's the last time I'm going to make it.
+- I think my first album opened a lot of doors for me to push the freedom of speech to the limit.
+- People can try to reinvent themselves. I don't think you can really change who you are, though, because who you are is pretty much where you came from and what you've done up to now.
+- When 'Paul's Boutique' came out, I was one of the fans that didn't get it.
+- Trust is hard to come by. That's why my circle is small and tight. I'm kind of funny about making new friends.

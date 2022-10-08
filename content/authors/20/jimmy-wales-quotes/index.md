@@ -1,0 +1,64 @@
++++
+author = "Jimmy Wales"
+title = "Jimmy Wales Quotes"
+quotes_len = "58"
+description = "the best 58 Jimmy Wales Quotes"
++++
+- It just didn't occur to me, sitting at my computer, that I would end up travelling all over the world.
+- If I had some information, the last thing I would ever do with it is send it to Wikileaks.
+- I have always liked the idea of going to print because a big part of what we are about is to disseminate knowledge throughout the world and not just to people who have broadband.
+- I have zero interest in sports of any kind - professional, college or international.
+- I think that reality exists and that it's knowable.
+- Love. It isn't very popular in technical circles to say a lot of mushy stuff about love, but frankly it's a very very important part of what holds our project together.
+- I'm a big advocate of freedom: freedom of speech, freedom of expression, freedom of thought.
+- I have no regular schedule. I get up whenever I can.
+- Almost anything is better than three network TV outlets completely controlling the national discourse with their nightly broadcasts. We've moved a long way from that, and that's important.
+- I still believe there is a need to open up search and it will come eventually. It is very important to challenge the current models.
+- A lot of people who work on open-source software don't mind making money elsewhere. They aren't anticommercial.
+- My being some kind of celebrity - not a real celebrity, isn't a welcome part of the job.
+- I don't worry. It's just not in my nature, really.
+- I don't come down on any simple place as a deletionist or a completionist.
+- I tend to eat things in fours. I'll eat four nuts, four grapes, four chips at a time. I don't know why. It's not really a superstition. I don't think anything bad will happen if I don't, but three potato chips doesn't seem right.
+- People who have achieved a public voice find it a mixed bag.
+- The Supreme Court has held that code is speech. And it doesn't matter that it's done on a computer or done face to face or done in a newspaper, reporting the facts of the world is protected speech.
+- We have to come together, worldwide, and 'think.' We have a tool - the internet - to let us do that. Let's use it wisely.
+- My original concept was to provide a free encyclopedia for every single person in the world.
+- We've seen how grassroots journalism by blogs has had an impact at various points politically, as ordinary people have amplified stories that were being ignored by the traditional press.
+- I just get up every day and do what seems like the most interesting, fun thing to do.
+- I think people have to recognise that the traditional modes of authority weren't that great.
+- I'm not real good at the administrative part of running a company.
+- Dialing down is not an option for me.
+- One of the ways that Microsoft beat Apple way back in the day was that they were a lot more open; today, in the world I come from, the free software and open-source world, Microsoft is not generally viewed as open; they're viewed as proprietary.
+- I'm very much an Enlightenment kind of guy.
+- What you don't get in the mainstream media is so much of the background material.
+- People do fun and interesting things because they're fun and interesting.
+- What can we put into the hands of people under oppressive regimes to help them? For me, a big part of it is information, knowledge - the ability to defeat propaganda by understanding it.
+- Mostly, I try to take a rational approach to life.
+- I can't do anything quietly anymore.
+- I have always viewed the mission of Wikipedia to be much bigger than just creating a killer website. We're doing that of course, and having a lot of fun doing it, but a big part of what motivates us is our larger mission to affect the world in a positive way.
+- People are not fundamentally bad. It only takes the smallest of correctives to take care of that tiny minority that wants to disrupt the community.
+- Free speech includes the right to not speak.
+- While I'm optimistic about the direction the world is headed, generally, I think there is a need for constant vigilance and pressure on repressive governments.
+- We don't need secrecy.
+- Our growth rate continues to be staggering.
+- There's kind of this real social pressure to not argue about things.
+- A huge amount of what goes on in the Middle East has to do with people being fed really bad information.
+- If it isn't on Google, it doesn't exist.
+- My view is that good community management is like having good municipal government: You should be able to have dissenting opinions and so on, freedom of speech, but your grandmother should also be able to walk down the street at night without having to worry about getting mugged.
+- The core of Wikipedia is something people really believe in. That is too valuable for the world to screw it up.
+- I think it's a mistake to treat different realms of knowledge as if they are some how fundamentally the same.
+- Massive numbers of people are going to come online from cultures we don't normally interact with.
+- People take issue with individual aspects of Wikipedia all the time. But it's kind of hard to hate the general idea of a free encyclopedia. It's like hating kittens.
+- Wikis and social networking are just tools.
+- Imagine a world in which every single person on the planet is given free access to the sum of all human knowledge. That's what we're doing.
+- Things work well when a group of people know each other, and things break down when it's a bunch of random people interacting.
+- The goal is to give people a free encyclopedia to every person in the world, in their own language. Not just in a 'free beer' kind of way, but also in the free speech kind of way.
+- We are still in the very beginnings of the Internet.
+- The mainland Chinese tend to take a Chinese mainland point of view on controversial issues, and the Taiwanese take another the Taiwanese viewpoint.
+- It's kind of surprising that you could just open up a site and let people work.
+- There's a big tendency to gravitate toward a closed and proprietary approach too easily.
+- I worry about censorship in many parts of the world.
+- I am really accessible.
+- To create and distribute a free encyclopedia of the highest possible quality to every single person on the planet in their own language - That's who I am. That's what I am doing. That's my life goal.
+- If you see a blatant error or misconception about yourself, you really want to set it straight.
+- You shouldn't use anything as the sole source for anything, in my view.

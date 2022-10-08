@@ -1,0 +1,88 @@
++++
+author = "Peter Maurer"
+title = "Peter Maurer Quotes"
+quotes_len = "82"
+description = "the best 82 Peter Maurer Quotes"
++++
+- Even in war, everyone deserves to be treated humanely.
+- The creative capacity of the private sector should be harnessed to develop new and more effective ways to deliver humanitarian solutions.
+- Fragility, violence, and conflict are complex. Fragility is influenced by a wide set of factors, many of which are deeply entrenched, such as high social and income inequality. The lines between criminal, inter-communal, and politically motivated violence are often blurred.
+- I have known Sepp Blatter, FIFA and football for a long time, and there are some fundamental values which FIFA and the ICRC share.
+- Suffering does not change its face.
+- Humanitarian assistance, once conceived as a short-term relief effort, is increasingly the only substitute for long-term development work in protracted armed conflicts.
+- Conflicts are not temporary interruptions: they are structural, socio-economic catastrophes, and funding must be allocated accordingly.
+- When millions of kids are missing out on school, delivering educational services becomes an issue that concerns the humanitarian system.
+- Each day that passes without kids being able to go to school is an enormous burden on the future.
+- People living through armed conflicts need infrastructure and services which will last, and the last thing on their mind is which budget line applies.
+- Very often, development agencies or even some of the humanitarian actors choose the... more comfortable type of work, where it is safe, while the more important work has to be done where it is profoundly unsafe.
+- As responsible politicians, you have to manage migration.
+- Short-termism is no longer an option. We have to envisage humanitarian action with a medium- and long-term perspective.
+- Urbanisation, poverty, youth unemployment are leading to violence-prone cities.
+- Ensuring the respect of international humanitarian law and principles is one of the key areas necessary to establish accountability chains.
+- Trust into leadership evaporates with communities when they see that their problems are not adequately addressed, neither at the national level nor at the international arena.
+- The fragility created by protracted conflicts, resulting in destroyed cities and dramatically insufficient services, is not something that humanitarian organizations can address comprehensively. Only political solutions can end armed conflicts.
+- It is very clear from the text of the Geneva Conventions that families have the right to know about the whereabouts of their missing and that belligerents have a duty to inform families if they have indication and if they are detaining people.
+- We cannot guarantee that a humanitarian catastrophe of the extent of the Holocaust will not happen again. On the contrary, we witness a catalogue of atrocities every day in wars across the globe.
+- We demonize our enemies at our own peril.
+- We need to continue to modernise current humanitarian work while at the same time drive a more systemic shift in how we envision the operation and financing of humanitarian solutions.
+- If you back out of a convention... you can't dodge your obligation. Torture is still not acceptable.
+- The International Committee of the Red Cross visits roughly half a million detainees in nearly 100 countries each year. It's our job to try to prevent and put an end to torture and ill-treatment.
+- Cities tend to be representations of societies: diversity and inequality find their extremes in urban settings. Yet, when war is added onto pre-existing inequalities, high levels of poverty, or even disaster, urban fragility increases exponentially, making it harder to absorb the shocks of warfare.
+- I think we are challenged in how we define humanitarian action today and how we relate to long-term needs. We are also confronted with legitimate expectations from the people who want us to respond far more thoroughly to their basic pleas than we would have done in a much more contained form of conflict.
+- We see a transformation of warfare from the big armies and battlefields in open spaces to a fragmentation of armed groups and smaller armies, which move into city centres, which increasingly become the theatre of warfare.
+- Torture can destroy the social fabric of communities, degrade a society's institutions, and undermine the integrity of its political systems.
+- The humanitarian ecosystem is diverse - not only is there a variety of traditional humanitarian actors, but the system should also embrace an increasing diversity of private sector actors.
+- We believe that settlement expansion policies pursued in recent decades by successive Israeli governments have facilitated the process of de-facto annexation. It has complicated the dialogue between the different communities.
+- Torture and other forms of cruel or humiliating treatment are an affront to humanity, and the physical and psychological scars can last a lifetime.
+- Not enough countries, not enough armies, not enough armed groups are abiding by the fundamental human values enshrined in the Geneva Conventions.
+- Not only does disability impact individual health and well-being, it also leads to social and economic exclusion.
+- You treat detainees humanely because you know the other side will also treat detainees humanely.
+- You can't expect humanitarian and development agencies to rebuild Syria. There is not enough money. There is not enough capacity. There are not enough skills.
+- Experience shows that the reliance on illegal, immoral, and inhumane interrogation techniques is universally a very poor choice.
+- The relatively unpredictable flow of funds to humanitarian organizations, and the bureaucratic strings often attached to them, can have a highly negative impact on an organization's ability to plan and execute programmes effectively. We need to be able to rely on predictable income flows to plan sustainable programmes.
+- We must understand the factors that cause fragility, violence, and conflict in order to develop solutions that will meaningfully reduce instability at its roots rather than merely addressing the symptoms.
+- Attacks on health facilities, health workers, ambulances, is now a reality that we observe on the ground - not on a monthly but on a daily or weekly scale in most of the conflicts in which we are engaged.
+- Local businesses and communities must be included from the very start in developing solutions to fragility, violence, and conflict.
+- The ICRC did not see Nazi Germany for what it was. Instead, the organization maintained the illusion that the Third Reich was a 'regular partner,' a state that occasionally violates laws, not unlike any army during World War II, occasionally using illegal means and methods of warfare.
+- Self-reliance is not always possible; we have to acknowledge that there are situations of dramatic crisis which will force us to substitute non-existing public delivery systems.
+- In our fibre-optic world of tweets and tablets, we are more conscious of the world around us. The technicolour violence and humanitarian abuses of today are just a flick of a switch away. In our homes, on the train, in our coffee shops, we see it, we feel it, we know about it. All of us. All of the time. Human suffering is visible, constantly.
+- To respond to people's needs, humanitarian action has evolved from a temporary fix to a long-term safety net.
+- Every year, we ask our donors to dig deeper. And every year, they gladly, generously comply. It is now up to us to find ways and means to forestall the day when they cannot - or will not. Or the consequences for people in war zones could be disastrous.
+- We still have a strong commitment to our original mission, which is to protect and assist people who are suffering from the impact of violence, but the violence has changed its character, format, and pattern so that we are now responding year after year.
+- If private-sector capital can be harnessed for social good, the potential to scale humanitarian solutions is vast.
+- We live in an environment in which connectivity and cyberspace are transforming all workplaces, including the humanitarian workplace.
+- We need to understand that the Geneva Conventions are not just some historical documents born of another time, created for another purpose.
+- Where you are born, your parent's beliefs, or your ethnic background should not make you a target.
+- While conflicts have expanded and deepened and transformed, actors have transformed, and humanitarian assistance is transforming. Protection work is transforming and taking on another character.
+- The issue of corruption in the humanitarian system is not an issue which is fundamentally different from dangers of corruption in other areas. One of the best ways to strengthen accountability is to engage in principled and law-based humanitarian action.
+- The whole essence of humanitarian work and the Geneva Convention is that neutral, impartial organisations can operate during war.
+- Since 1989, public alarm at the prospect of atomic Armageddon has quietened, but the number of nuclear-armed states has increased, arsenals are being modernized, and powerful states remain convinced that a nuclear security umbrella is vital to national defense, domestic prestige, and geopolitical clout.
+- As conflicts last longer, as the scale of needs increase, we are having to adapt. There is an increasing blurring between immediate humanitarian assistance and long-term development needs.
+- They say that truth is the first casualty of war. But there is another casualty as well: trust. As conflict escalates, trust between people and political leaders crumbles away as surely as night follows day.
+- There is great potential for investments that are built around improving social, environmental, and economic conditions.
+- Wars are getting longer, they are more complex, and the humanitarian need is great.
+- New technologies are rapidly giving rise to unprecedented methods of warfare. Innovations that yesterday were science fiction could cause catastrophe tomorrow, including nanotechnologies, combat robots, and laser weapons.
+- The principal cause of suffering during humanitarian crises is insufficient respect of applicable rules of international humanitarian law.
+- What the hell is happening to the world when those who were at the origin of... international humanitarian law start questioning in public debates whether it has any relevance or should be respected?
+- The discourse of sovereignty is a relative one when a crisis has become a global crisis.
+- It's one thing if a politician in a small country says a little bit of torturing is good to do. There is a qualitative difference... when it's a candidate to run a superpower.
+- Cities are drivers of growth and wealth, and at the same time, cities are becoming increasingly violent.
+- Every day, we hear of civilians being killed and wounded in violation of the basic rules of international humanitarian law and with total impunity. Instability is spreading. Suffering is growing. No country can remain untouched.
+- The disconnect between what people think and what the political leaders are actually doing is something that we really need to start raising.
+- While the nature of warfare is changing and wars are moving into cities, they are also becoming longer and their consequences more impactful.
+- Humanitarian action cannot be held hostage to political ends.
+- Although the ICRC and the World Economic Forum have separate missions, they both are centred on collaboration across sectors and between various actors in order to improve the state of the world.
+- The young, the old, women, the disabled, the sick and the wounded are entitled to protection under international law. Too often, the ICRC's calls for those laws to be respected are ignored.
+- The Fourth Industrial Revolution does not just entail risks: it also brings solutions to humanitarian problems.
+- Concrete steps are needed to reduce the role of nuclear weapons in military plans, doctrines, and policies.
+- Businesses operating in fragile or conflict-affected environments bear a responsibility to, at the very minimum, do no harm and avoid fuelling conflict or reinforcing fragility.
+- Until the last nuclear weapon is eliminated, more must also be done to reduce the risk of a detonation. Nuclear-armed states should reduce the number of warheads on high alert and be clearer about the actions they are taking to prevent accidents.
+- You don't torture people. You don't indiscriminately attack civilians. You protect as good as you can the impact of your warfare on women and children.
+- Economic activity can help repair war-torn societies, but if it's not conducted responsibly, it can also create or prolong violence. Companies and international organisations must help strengthen communities and overcome the trauma of violence.
+- The abuse of civilians and combatants has existed since the dawn of time.
+- The mess in the world is a strong driver because, at the end of the day, it's the increasing unacceptability of the divergences and rifts in the world economically, socially, politically, and culturally which lead everybody to say, 'We have to do something.'
+- There is a clear business case for building the resilience and capacity of local communities, businesses, and institutions because a peaceful, educated, and productive population will stimulate economic growth in the long term.
+- Conflicts are increasingly causing devastation in densely populated urban centres rather than open battlefields, creating a host of new problems through the cumulative impact from the destruction of vital services like water and electricity.
+- It has always been clear that any use of nuclear weapons would have catastrophic humanitarian consequences.
+- The sad fact is that horrendous human conflict is nothing new.
+- Can you really send back people to where they are fleeing from?

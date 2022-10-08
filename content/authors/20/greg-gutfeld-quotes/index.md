@@ -1,0 +1,111 @@
++++
+author = "Greg Gutfeld"
+title = "Greg Gutfeld Quotes"
+quotes_len = "105"
+description = "the best 105 Greg Gutfeld Quotes"
++++
+- The modern progressive movement believes that dissenting language is objectionable, which then removes the brakes between anger and violence.
+- The girls I dated liked or disliked me, whether I weighed 140 or 150; and six-pack abs had no relevance on their love or repulsion.
+- The truly persuasive must step out of themselves and see their own flaws first and admit they could be wrong. Then, when they correct for that, you can be truly persuasive.
+- There's always something heroic and romantic about taking a stand against the powers that be.
+- My first concert - maybe it was 1979 - was a blur. I'm not sure whether it was Blue Oyster Cult/Cheap Trick/Pat Travers at San Jose Civic Auditorium or The Police/The Knack/Robert Johnson at Berkeley's Zellerbach Auditorium.
+- Here is a fact: If Facebook were a religion, it will be the third largest behind Islam and Christianity. Its success is rooted and capitalizing on the human desire to bond.
+- 2017 may have been that year when identity politics hit a brick wall - and slumped limply on the pavement.
+- True, the country is divided, but it's not Right and Left. It's Left and Not Left. It is because, for liberals, politics is personal and therefore extremely loud. For the rest of us, we prefer community over calamity.
+- Social justice warriors want to return to the Dark Ages when you communicated with a club instead of joining one.
+- Back in the days of world wars, American companies didn't think twice about pitching in to help fight the enemy. Car companies helped bolster tanks, food companies created rations - sometimes they had to do it, but no one had to twist their arm.
+- We are all better served by objectively diagnosing trolls so they can change.
+- Youthful impatience obscures the endless potential for joy that's standing right in front of you.
+- If Obama was a sonnet, Trump is a limerick. And really, which ones do you enjoy more?
+- It's pointless to get all huffy about stuff.
+- 'Sol Invictus' works like your basic FNM record: the sequencing is an artful job, hustling you politely through all the gentle, harsh, weird surprises that follow - and then when it's over, you get back on the ride and start over, just like Space Mountain.
+- Trump has manufactured the first-ever Celebrity Immunity Bubble - rendering him incapable of offense, no matter whom he offends. It's brilliant.
+- ObamaCare was a lemon, but the media were his lemonheads.
+- Work together. Do not purge your allies because of purity.
+- Identity politics preaches a splintering of one large, collaborative group into competing vindictive ones - resulting in new, angry tribes whose central thesis is to not cooperate.
+- Here is the problem with legacy: You'll sacrifice stuff that is not even yours to get it. Take President Obama's Iran deal, when he gave the shirt off his back - and ours, too.
+- Language turned apes like us into civil creatures.
+- As the Left demean law-abiding gun owners, they turn flaccid when faced with the armed felon.
+- No one wants a lecture when you're getting a latte. So if you get one without asking, isn't that grounds for some discipline?
+- Now that President Trump is a reality, I happily have been giving him a chance to see how he does.
+- Obama's tenure had more dirty linen then Charlie Sheen's hamper.
+- The PC rebellion is about a reaction against the media academic complex, which tells us what to say - or else.
+- If you can have a skewed sense of your body, it stands to reason you could develop the same kind of thing about your relationships with others in a social network.
+- In the American 'melting pot,' identity politics wants to smash that pot - to bring us back to the Dark Ages, when collaboration was sparse.
+- Nothing is ever as bad as it seems. Nor does it ever last as long as you think.
+- Thanks to an immersive lifestyle that involves Twitter, Instagram, and Facebook, we've created a psychological three-sided mirror for our social impact on others.
+- It may feel good to think you're right. But it's better to allow the possibility that you're wrong.
+- Wherever socialism spread, misery followed - and still follows.
+- I don't care much for Hillary Clinton.
+- I don't think Trevor Noah got his job by being a conservative.
+- I've said it before: If Queen had died and reincarnated as one person, it would be Devin Townsend.
+- I know that, often, people in entertainment are surrounded by 'yes' men who tell you everything is 'go.' That's never been an issue for me.
+- I've interviewed everyone from Joe Strummer to Iggy Pop.
+- My best writing is often early in the morning and, sometimes, while working out.
+- Actors seem brave and unpredictable, but they're spontaneous as a tax return.
+- When I imagine my viewer - and it sounds saccharine - but it's a family thing. People in line for my books came as families.
+- The rise of ISIS, the orgy of identity politics, and the political changes they brought - how could Obama not see that coming? I blame the golf.
+- The frothing Trump-haters' extremism turns whatever criticism they have for the guy into mere parody.
+- In the absurd idiocy of identity regressive politics, looting is seen as protest, and protecting one's own property is seen as privilege.
+- I know that if I say something that's considered outrageous, a group will take it, create an email blast, and use me to raise money or to do whatever, to build their profile.
+- Listening to a FNM record is like a visit from a mysterious relative who knows more about your family than you did.
+- I think the reason why 'Red Eye' is popular is because we question the common assumptions that you find elsewhere.
+- As machines take over the decision-making that saves lives, we are left with fewer chances to save lives later.
+- Getting mad only leads to madness.
+- Trump says what he thinks at that moment. He's a totem pole of transparency.
+- As foreign attacks increase, it's easy to treat them like bad weather happening somewhere else. It's what we read over breakfast. But when that storm hits your shores, remember this: Wishful thinking never saved a single life. The truth, however, has.
+- The explosion of jihad and its desire to export its contagious madness to all areas of the world have changed the way we view immigration.
+- What a contrast, Trump is feisty but flexible. Obama, cool but rigid. But he had no reason to bend. The media already bought into his shtick. His giddy fan base ate up every white-coated lie.
+- Obama was never that bad or that great, and the same is probably going to go for Trump.
+- Trump represented a movement of dissatisfaction, the dissent, unhappiness, division cultivated by years of identity politics and the bullying of arrogant, insufferable, intolerant social justice warriors who used the last two terms to punish anyone who reminded them of Daddy.
+- I spent my teens in northern California listening to KALX, KUSF, and KFJC, finding people that changed my life.
+- It's not misogynistic to criticize a legendary female pop singer; it's misogynistic to think a legendary female pop singer can't handle it.
+- I guess coming out against actual evil takes guts.
+- Travel like a pro, not like a hobo. That's my motto.
+- Generally, I don't bother trying to keep up with prolific bands - but Thee Oh Sees demand it.
+- The people who whine about Fox News are hypocrites - they say they're totally tolerant, but when they run into someone who doesn't share their assumptions, they say, 'Fox News is evil, and it must be stopped.'
+- Before language, cavemen simply grunted, and then they used the club. Communication changed that. It's the mechanism that created civilization and prevents its own destruction.
+- What the media does to Trump is what they did the cops - say the police are really harmful, then later ask why people are so scared of the police.
+- Ideas are things that happen at any time because you're constantly thinking and evaluating life as if it were an eternally unsolvable math problem, which it is.
+- If America oppresses, why do so many people risk their lives coming here to be oppressed?
+- For years, we talked about how the only way to really win the political battles was to win the cultural ones. And rather than simply ignore pop culture, it would be far better to give it a big fat bear hug.
+- Something to keep in mind, whether you adore Obama or Trump: Drooling toadyism is not a good look on either side, and it paves the way for evil. Because while hate can drive people to do many things, love permits leaders to do all things - none of them good.
+- If pop culture is a pool, it never hurts to dive into the deep end once in a while.
+- As a New Yorker, this is what you do: you confront, jab, and slap, sometimes wrongly, then smile and forget about it.
+- The good and bad thing about online trolling: it's not on the street, and it's not on the street! The good: nothing physical erupts; the bad: there are no brakes to stop it.
+- I have to say that Adam Levine is truly a daring young man to go on Twitter to bash Fox News. He's so rebellious, so subversive. I mean, for a musician, seriously, could you find a more predictable stance than that? He's as edgy as a hacky sack, which also describes his music.
+- Most Americans don't shout their politics, much less blast it from their TVs while serving you fried pickles - that's the Left.
+- I always thought Jon Stewart was an extremely good surgeon with his scalpel. He would have Republicans on who, I guess, were unclear about what Stewart was up to, and while Jon Stewart was being nice, he was building a case for drowning them.
+- Imagine Earth as a crime-ridden town, and there is one safe house. How do you keep that safe house, America, always safe? It is called vigilance.
+- It's the great deception in modern culture: Bad things call for noble names to cloak their evil outcomes.
+- At a certain point, we need to figure out how to reward those who choose a path that offers, often, almost no reward.
+- Terror, married to technology and accommodated by progress in travel, has turned evil individuals into traveling ballistic missiles.
+- By silencing speech, the new Left makes life more dangerous by leaving violence as the only option. Maybe that's what they want.
+- Normally, 'Saturday Night Live' is about as entertaining as an ocular migraine.
+- I've done two shows every day for years, but I don't think I could work on just one show a week. I would go crazy, and I would drive everybody nuts. I've got to feel like I'm under pressure.
+- A troll's life is a no-physical-contact existence. You will die alone, as you die daily, online.
+- Sully's' upbeat message is that we still need humans. It was the heroically human Sully who saved those people, not some cold equation written on a chalkboard.
+- How odd that the proponents of free expression think 'free' only applies to them.
+- I actually hate lyrics, and I hate it when they're quoted in reviews. I don't think they matter that much; it's the sounds of words - not the words - that I look for.
+- An actual scientist embraces debate because it sharpens their research.
+- Ariel Pink would be a regular on the Mike Douglas Show. Both a master songwriter and a charismatic figure, he'd wander the set like a cherubic, more likable Jim Morrison. His songs would be all over KFRC - the way Boz Scaggs ruled for one summer with 'Silk Degrees.'
+- I realize Twitter can be good, providing a video game of creativity for your brain.
+- The federal government is enormous; it never shrinks. And the interest is killing us.
+- FNM didn't really become one of my favorite all-time bands until after I'd had all their records for a couple of years. And realized I was playing them every day.
+- I'm used to the Right being singled out by the entertainers.
+- There's a difference between being politically incorrect and boorish. And we've seen that line crossed a dozen times by smart people who've mistaken politics for punditry.
+- As liberals in charge and a media question the capabilities of police, they then limply ask why there is an anti-police atmosphere or why cops are holding back.
+- Creating a fan base of both fervent feelers and fanboys, Trump magnificently played off many fawning commentator's insecurities - using the deep desire to be liked or noticed by Trump as a method to keep their criticism of him tamped down.
+- The bands I like are not obscure at all. Far from it.
+- It takes a special, selfless person to make music that accommodates the universal need for mindless escapism - or what I call oblivion.
+- Islamists are nothing but guided missiles that pride themselves on taking out as many infidels as possible.
+- Human evolution relies on cooperation, which is why identity politics feels so backward.
+- For trance music to be good, it has to sneak up on you.
+- The joy of hate reflects people who get off pretending to hate something, or hate you, in order to score political points. I call them the 'tolerati' - you know, a group of people who claim to be tolerant, except when they run into someone who disagrees with them.
+- Before there was radical Islam, immigration and terror didn't mix.
+- Infected by political ideology, if you dare question climate models, your career is done.
+- Do you ever see a right-wing kid violently jumping lefty speakers? On campus, you either have silent appeasement or a bruise.
+- Trump's policies are a mix of fairly traditional things. Even his immigration stuff isn't really that new.
+- Hollywood is always about Hollywood.
+- President Obama's farewell speech soared, towered, dragged. True, it was longer than Reagan's, Clinton's and GWB's speeches combined. If it got any longer, it would have qualified as a third term.
+- I hate 'Rolling Stone' - because I loved it so much. I had the 'Cheap Tricks' cover and the Clash cover on my wall for years, and I just hate what happened to it. It just became the smarmy grad student that sits next to you on the bus.

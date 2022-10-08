@@ -1,0 +1,106 @@
++++
+author = "Paul Gilbert"
+title = "Paul Gilbert Quotes"
+quotes_len = "100"
+description = "the best 100 Paul Gilbert Quotes"
++++
+- I remember walking into a department store and you would hear an instrumental version of a Beatles song and it was usually kinda cheesy and very un-rock. Kenny G, for example, is a musician that I certainly dont want to sound like, but technically he is flawless but somehow the rock and roll aspect has been sucked out of it.
+- My life is a glorious tornado of musical projects!
+- Two words: Kasim Sulton. I've been a Utopia fan for a long, long time, and Kasim's a pop hero of mine. I have to hold myself back from asking him a million Utopia questions.
+- While I was writing the songs for 'Fuzz Universe,' I was immersing myself in Bulgarian Female Choir music, Baroque lute and violin pieces, Johnny Cash songs about trains, cows, mules, and mining coal, the Bee Gees, and Ronnie James Dio.
+- Tony MacAlpine not only plays guitar, but is a stunning classical piano player, so he can show how that influence molded his guitar playing.
+- I'm Not Afraid of the Police' is the first song I wrote and recorded since moving back to Los Angeles. It's a loud-pop, crazy-guitar, big-harmony song with all the police sirens created by guitars and ADA flangers.
+- Teaching is just something that has come naturally to me. I didn't set out to be a teacher. I wanted to be a Beatle! But there were only four of them, so the job openings were really limited.
+- It is the universe where all rock players live- we all use distortion, overdrive, gain and saturation. I call it 'fuzz.'
+- Being in a band is hard. Even if you like somebody, you start to argue over silly things.
+- Teaching the guitar is a constant source of inspiration. I sometimes think I get more out of the lessons than my students.
+- Writing is a chore.
+- I went from wanting to be a Beatle to becoming a 'widdly-widdly' guitar player.
+- Music and guitar are my favorite things, so it's fun to get together with other people who share the passion and talk about the details.
+- In my daily life, I tend to be very literal and unsuperstitious. But music gives me an outlet to be very emotional.
+- My basic setup is my Ibanez Fireman guitars and for pedals, the TC Electronic MojoMojo is the mainstay of my board, along with a Catalinbread Calissto Chorus.
+- I'll have a chorus pedal or a flanger or an echo, that kind of thing. But as far as specific pedals, the one that's really been a mainstay is the TC Electronic MojoMojo.
+- Blues is the first step to get to jazz.
+- As always, my influences are diverse and not what you might expect from a 'heavy metal' artist.
+- Everyone has to start somewhere! I certainly didn't sound great when I first started playing, and I remember all my guitar teachers, both good and bad, and what it felt like to struggle with even the simplest of things.
+- After playing for 40 years, I've been able to evolve the way I see the fretboard and how I hear the guitar in my head.
+- From the start, I held the pick in an unusual way. I used to bend my thumb way back in order to get a good angle for fast playing. I played that way for 10 years.
+- As far as pedals are concerned, the test for me is if I step on it, do I seem to be playing better?
+- The first song on my first album is not a song - it's a guitar solo! It's called 'Frenzy,' and it's pretty much nonstop maniacal guitar playing. I had just turned 19, and I had some serious muscle then.
+- To me, you had to have a least a couple of ugly guys in the band. That's why Saxon was great.
+- When you record an album in six days, you don't have time to work out a lot of stuff.
+- Sometimes a couple notes are worth a thousand words.
+- As human beings we're visual creatures, and it's so easy to play the guitar by looking at it. It's a real challenge to go from that visual way of perceiving the guitar to getting back to that pure sound connecting to the instrument.
+- I was driving home and thinking about what rock and roll should be about. 'Adventure and Trouble!' I thought. I sang the song first and then added the chords later.
+- There's nothing like sitting down and playing music with somebody. It breaks down all the barriers in life.
+- A scale is just the notes that are in a chord played one at a time instead of together. That's what has allowed me to go through the possible notes that work with a chord and make choices about which ones I like best. I go through by ear; you can do it by theory too, but the best way is to learn by ear.
+- It took me a long time to accept the idea that the guitar can take the place of a singer.
+- I prefer playing in songs where I have a tempo, groove and harmonic map to hang on to.
+- I've found that as I've learned to improvise melodically, it seems like I can come up with a bigger variety of stuff. I kind of selfishly enjoy it more, because I'm in the moment so much.
+- One of the things I like to do is to try to jam with everybody.
+- I've certainly enjoyed doing clinic tours for larger audiences, but the most valuable teaching experience has been the hundreds of lessons that I've given where I can hear the students play.
+- There's always more than one way to play the same notes because of the nature of guitar.
+- I especially like the songs Hurry Up and The Curse Of Castle Dragon, and I often include them in my live show.
+- On 'Fuzz Universe,' I think I've taken a giant step closer to the ultimate rock guitar sound and playing of my dreams.
+- At the time, it all seemed pretty normal. It was okay to have a pink guitar and glow-in-the-dark pants, and play with a drill. 1987, that was the worst year. I think that was the worst year for capes and for hair!
+- That's the nice thing about being in Mr. Big, is I'm not only the guitar player. I'm the background singer, and so I get to do both of those things. Sometimes we even switch instruments and I get to be the drummer.
+- When I look back at the span that Mr. Big lasted, we had some unbelievable times. But there were grueling times, too.
+- Of course, I'm a guitar player, so I'm thinking as a guitarist. I have to work within my physical limitations as to what my hands will do, and also the patterns I'm familiar with, and the places that my fingers are used to going.
+- I probably spent more time as a kid playing air guitar to Jimmy Page than any other guitar player.
+- I've realized that, as the years have gone on, I have become completely impatient with the demo process.
+- A Herd of Turtles' is the only song on 'Behold Electric Guitar' that is not strictly instrumental. But instead of singing, I am reciting a poem. My poem is about overcoming challenges.
+- I grew up in the '70s, so I even love the music that I didn't like from that era.
+- With Racer X, whenever we have time, we try to put a record together. And that's always fun because the guys in the band are great friends and I don't think I ever laugh as hard as I do when I'm with the Racer X guys.
+- It's amazing how a lot of the metal guys have never strummed! And it's not that challenging, but it really opens up a lot of doors in ways they might not have imagined.
+- I love my job as a musician, and I am filled with gratitude that good people support my endeavors.
+- To me, the secret of Eddie Van Halen was Alex Van Halen, because the way Alex played was so loose and the way the two of them locked together... Those two are connected so thoroughly they might as well be one person.
+- It's so easy to practice out of context. For example, if you're learning a scale, you take that scale and you sit in your room and you go up and down the fretboard, over and over. You've gotta do that, because you need to get that scale working. But you have to keep in mind that that's not the finished product. That's the starting point.
+- I think I had heard Al Di Meola on the radio when I was a kid, that acoustic record, 'Friday Night In San Francisco,' with Paco de Lucía and John McLaughlin. His picking was unbelievable. I thought it was incredible.
+- Teaching has made me realize that a lot of my fast playing is the musical equivalent of, 'Umm... umm... uhh...' - it's like when you're trying to think of the next thing to say that actually has meaning, you fill space. 'Umm' has about the same meaning as my fast playing.
+- Before I even became a guitar player, I wanted to be a Beatle. That was my first dream as a musician, was to be like a Beatle.
+- I really genuinely love 'To Be With You.' I don't get tired of playing it.
+- I was doing a lot of teaching on my online guitar school and I started to use vocal melodies as a way of teaching my students. To be able to do that, I had to learn them myself.
+- Recently, I had some powerful magnets glued into the lower horn of a few of my guitars. This holds a metal slide in place so I can easily get to it and put it back, even in the middle of a song.
+- Life's too short, you know? If you find something you love and that other people love, why not do it?
+- My guitar playing was born from playing in my teenage heavy rock bands.
+- Scotty Johnson is a guy who I've worked with on a lot of my tours and albums, and I'm always blown away by his musical knowledge and playing.
+- Yeah, my very first teacher when I was 6 was a big influence, because it was so boring that I quit guitar.
+- Just about every rock band and every guitar player from 1964 to 1984. To me, that's the golden period of rock. From the first Beatles album hitting America to the last Van Halen album with David Lee Roth. That's where all my favorite rock exists.
+- There is a basic language of music that I think is important for communicating with other musicians - just the kind of terminology that might make it easier to describe your ideas to the other guys in your band.
+- Being a fan of pop music and rock bands, I am a reluctant convert into the art of instrumental rock music.
+- I did take some cooking classes in high school. Boys weren't really supposed to take them. I had to risk being made fun of.
+- Mostly, I'm much more of a guitar player than I am a singer.
+- I use the volume control on my guitar, both for dynamics and as a manual noise gate.
+- It's so easy to make albums with overdubbing and editing these days, but I really prefer playing live and just getting the music to sound right because the musicians, the songs and the performances are good.
+- I waited until the end of the 'Behold Electric Guitar' recording sessions to record 'A Herd of Turtles,' as I knew the unusual arrangement might raise some eyebrows.
+- Mimi Fox is one of the most exciting contemporary jazz guitarists I've heard.
+- The Great Guitar Escape is built around world-class seminars, concerts and jam sessions. It's a chance to learn and be inspired by some truly amazing musicians. And it's just a great way for everyone to hang out together in a beautiful place.
+- When it comes to songwriting, I grew up in the Seventies listening to AM radio. So I've all these pop songs running through my head from Paul McCartney and Elton John, and a lot of stuff that was written on piano.
+- Every Mr. Big album is an event.
+- A rock band with vocals is what I always wanted to be a part of; in fact, it feels very natural for me.
+- I love all my guitar solos.
+- Andy Timmons is someone I've jammed with many times over the years, and we always have a great chemistry when playing together.
+- I think all of The Beatles were from an era when certainly playing was important to them, and they were cutting edge. But for all time, they're master composers.
+- My brain has been programmed to listen to music a certain way because of the Beatles.
+- Seriously, though, I think the only musical term that's ever put a bee in my bonnet is 'shred.' I tried to peddle the term 'Terrifying Guitar' to the world, but it just didn't stick. Now we've got 'shred.'
+- I worked out the keyboard parts on the progressive rock classic 'The Lamb Lies Down on Broadway' and somehow managed to play it all on acoustic guitar.
+- Philosophically, I think riffs that start with E repeating itself are almost guaranteed to be great.
+- The instrumental stuff is a good challenge, and it keeps my fingers athletically tuned, but I'm totally happy to bang away on some chords, sing some harmonies and play some wailing blues solos after the second chorus.
+- When it comes to vibrato, a lot of people look at their hands when they do it. Which is pretty much of no use. Because vibrato is one of those things you have to hear. There are some guitar things where the visual is really useful, like seeing chord shapes or scale patterns. But vibrato isn't one of those things.
+- It's so satisfying as a guitar player to play stuff that's related to the blues.
+- It took me years to get my hair right... after years of perms, conditioning... Nirvana came out and it wasn't cool to have big hair anymore. It was just a horrible injustice.
+- Rock shows are loud, so I try to use a sound that is warm on the high frequencies.
+- Gilbert Hotel' is my first all-acoustic record.
+- My initial ideas are just a starting place. As a record goes along, it becomes more about making discoveries and getting excited about new songs.
+- I'm not a reader myself, so I don't expect anyone else to be.
+- I turn complaining into music! I'm thinking I might have invented a new style. I call it 'cantankerous rock.'
+- In the morning, I know everyone has two things: an empty stomach and a fresh brain.
+- You could take any four people, no matter how wonderful they are, and if you make them live together on a tour bus for eight years and don't give them any time off, after a while everybody gonna start going crazy.
+- I am trying to build the biggest callus possible on my first finger so I can do one-finger bends and vibrato like B.B. King.
+- When I sing, there is an almost constant struggle with pitch and with reaching notes in the higher register.
+- My first official teaching job was at GIT, which was fantastic because I wanted to pay the rent and I got to stay in the building, which is an inspiring place to be - the vibe was there. My first gig was doing private lessons. It went great. Then they decided to promote me to a classroom teacher. I taught a class called Single String Technique.
+- The band that made me want to be a musician in the first place was the Beatles. And I think John Lennon used to say something like, 'We're just a singing group,' when he talked about the band. So that's what I say about Mr. Big - we're a singing group!
+- After 35 years of bone-crushing rock guitar playing, I'm finally starting to get my head out of the harmonic sand and learning how to play over chord changes.
+- I lived in Los Angeles for around 20 years. I love the place, but the driving can wear thin.
+- Normally, I can get through a whole show with one guitar pick.
+- On a more serious note, my challenges with hearing loss are certainly an interesting journey. The surprising upside is that my difficulties in hearing have motivated me to know my guitar fretboard better. My playing has become much more melodic and intentional as a result.

@@ -1,0 +1,89 @@
++++
+author = "Danica Mckellar"
+title = "Danica Mckellar Quotes"
+quotes_len = "83"
+description = "the best 83 Danica Mckellar Quotes"
++++
+- I used to love to go to the movies - I'd see two in a row. A few times I even snuck into the second movie after it started... now that I think about it, that's kind of like shoplifting! Needless to say, I still love going to the movies, but I don't sneak in anymore.
+- I am definitely a serial monogamist. I can count on one hand the number of guys I've been with.
+- The fun little proofs that you can do with algebra - they are sort of like crowd pleasers in a way. Like, the .9 repeating equaling one. It doesn't take a lot of algebra to prove that, and it's really fun. It kind of wows people. It's like they're watching magic happen right before their eyes.
+- I just love math and most people don't.
+- I tell students that even if they don't like math right now, they can use math as a brain-sharpening tool - a tool that not only builds the foundation for a great career, but that also builds self-confidence, no matter what they choose to do with their lives.
+- When I got to college, I was intending to study film. But I found that my brain was feeling mushy, so I took a few math classes. I started doing really well at them, and solving equations was this, like, drug rush.
+- People talk about 'getting rid of the old image', and I guess there's some merit in that. But the truth is that people loved 'The Wonder Years' - I can't turn my back on it.
+- I love acting. Acting is a true love of mine, acting and math. Although they are both creative, they use very different sides of your brain. And I love both. Acting is my first love, and that's my main career, it really is.
+- There's nothing unclassy about being naked, if it's appropriate.
+- Most of the time I liked school and got good grades. In junior high, though, I hit a stumbling block with math - I used to come home and cry because of how frustrated I was! But after a few good teachers and a lot of perseverance, I ended up loving math and even choosing it as a major when I got to college.
+- I just did a spread in 'Maxim', I'm 35 years old. I've had women and parents email me asking if I should really be doing that, since I'm still considered a role model.
+- The camera fails to capture the 'business' in show business! We typically will give 10 percent of our salary to the agent, 10 percent to the manager, and 5 percent to the lawyer, plus the publicist gets a flat fee, which needs to be budgeted for.
+- There is an epidemic right now of girls dumbing themselves down... in middle school because they think it makes them attractive.
+- One of the most amazing things about mathematics is the people who do math aren't usually interested in application, because mathematics itself is truly a beautiful art form. It's structures and patterns, and that's what we love, and that's what we get off on.
+- Find your self-respect now. Don't dumb yourselves down. Think of yourself as capable and worthy of finding a guy who is going to respect you, too. It's so important, I mean, and the confidence you get from feeling smart and tackling something like mathematics, which is a challenge, right? Math is hard.
+- Math proficiency is the gateway to a number of incredible careers that students may never have considered.
+- If a guy is skilled at anything, that's attractive. There's something very primal about that and, sure, it can be as simple as figuring out the tip quickly. It's really cool when a guy tips 20 percent quickly and effortlessly so that when the check comes, he opens it and signs his name and done.
+- I've been just eating very healthy, all organic, no sugar, white flour, nothing artificial. I'm being so incredibly strict... not a lot of meat!
+- It delights me that I don't fit the stereotype of an actress.
+- I went to about one frat party a year. A year seemed to be enough time for me to forget how much I didn't like frat parties, and my friends would eventually convince me to go to one. Cheap beer, guys looking for a quick hook-up, and girls playing 'dumb' to get in on the hook-up. I just never got into it.
+- Acting is my first love, and that's my main career, it really is.
+- I've done a little directing, but I love acting more.
+- I want girls to feel the confidence you get from being smart. They get so many messages that tell them the most important thing is to be beautiful.
+- When girls are asking themselves 'Who am I?' for the first time and they hear all this bad PR about math, they think, 'Well, whoever I am, I'm not somebody who likes math.'
+- A lot of girls think they have to choose between being the smart geeky type or the beautiful bimbo.
+- Girls think that being glamorous means making mistakes and being irresponsible. And that's just not true. The smarter you are, the better prepared you are to make decisions in your life, the more likely you are to lead a satisfying life and be glamorous and fun and anything you want to be.
+- If you're beautiful, you're led to believe that you can't also be smart.
+- There are stereotypes that have been out there for a long time that tell girls that their main asset, the main thing that they are valued for, is their appearance and also that it's to the exclusion of anything else.
+- I took a break from acting for four years to get a degree in mathematics at UCLA, and during that time I had the rare opportunity to actually do research as an undergraduate. And myself and two other people co-authored a new theorem: Percolation and Gibbs States Multiplicity for Ferromagnetic Ashkin-Teller Models on Two Dimensions, or Z2.
+- When I was little, we had a Golden Book that had all these Disney characters in one portrait on the first page. My dad used to read from it every night. We'd play this game of find Pluto or find Donald Duck. He'd read us stories and do all the voices. Those are great memories.
+- I never had little brothers, so I was totally not used to hearing a lot of cussing at a young age! I learned what 'pull my finger' meant the hard way.
+- You can be obsessed with makeup and hair products and, you know, your appearance and still be absolutely making smart life decisions and work on your smarts, develop your smarts by studying something like math. Then you'll make much better decisions on the brands of clothing that you buy or whatever it is that you want.
+- I feel blessed to be having a really easy pregnancy.
+- I love surprises - champagne and strawberries, all that pampering, romantic stuff. Guys ought to know how to pamper their women properly.
+- Confidence is one of the sexiest things in guys and girls.
+- I know we can't always know what medical surprises may happen during childbirth. But my hope is to go fully natural - no epidural, no interventions. Wish me luck.
+- A reciprocal of a fraction is found by flipping it upside down. If you want the reciprocal of a mixed number or a whole number, just convert it to an improper fraction, and then flip it!
+- My main concern with the condition of mathematics in high school is that there's a lot of fear involved! Math is not, generally speaking, presented in a fun way. The concepts, as I see them, are fun, and that's the way I'd like to convey them myself.
+- I've done a lot of surveys and interacted with a lot of students, and I was shocked to see that at 12 years old, girls are already talking about dumbing themselves down.
+- I noticed there were so many people, especially women, who would come up to me having recognized me from TV and say, 'I heard you were a math person, why math? Oh my gosh, I could never do math!' I could just see their self-esteem crumbling; I thought that was silly, so I wanted to make math more friendly and accessible.
+- I want to help middle-school girls stay interested in math and be good at it, and see it as friendly and accessible and not this scary thing. Everyone else in society tells them it's not for them. It's for nerdy white guys with pocket protectors.
+- It's really cool when a guy tips 20 per cent quickly and effortlessly so that when the check comes, he opens it and signs his name and done.
+- Students never think it can be the teacher's fault and so I thought I was stupid. I was frustrated and would come home and cry because I couldn't do it. Then we got a new teacher who made math accessible. That made all the difference and I learned that it's how you present it that makes it scary or friendly.
+- In high school, a teacher once suggested that I be a math major in college. I thought, 'Me? You've got to be joking!' I mean, in junior high, I used to come home and cry because I was so afraid of my math homework. Seriously, I was terrified of math.
+- I didn't think that college math was for me. I didn't think I'd be able to hack it. And that perception of math not being for girls, not being for girls who see themselves as socially well adjusted has got to change.
+- This much I'm sure of. Chances for winning = 1 - (# of math students playing)/ (# of math students cheering). That's a fraction.
+- I love teaching online at my website and soon I'll be writing a math book. I love to teach math. I just don't have time for a full-time teaching gig. Acting is way too time-consuming.
+- Let's face it; by and large math is not easy, but that's what makes it so rewarding when you conquer a problem, and reach new heights of understanding.
+- If anyone tells you it's impossible to be fabulous and smart and make a ton of money using math, well, they can just get in line behind you - and kiss your math.
+- When I was 15, I had a crush on this guy who was really good at magic, and so I learned to juggle, thinking it would impress him. I spent hours and hours practicing, planning to show him. And then I never even saw him again. But at least I learned how to juggle.
+- I'll admit that I do quite like drinks that come in coconut shells. So there's always that.
+- Look at Michelle Pfeiffer: My God, she's 50 years old, but she is still so sexy. If I were into women, I would be totally into her.
+- If I had caused any trouble worth mentioning, you would have read about it in 'Star' magazine, which is probably why I didn't cause any trouble worth mentioning.
+- There's no reason to stereotype yourself. Doing math is like going to the gym - it's a workout for your brain and it makes you smarter.
+- I recognize that I have a unique position to be a role model to young girls because I am doing something that they consider glamorous, which is acting, and yet I took a time to really get my education and study mathematics, and I think math is the cat's meow.
+- When you do a lot of acting your entire life, you see the entire set from one point of view. To have a chance to step back and pull it all together is really exciting. You want to do it all; you want to have a hand in everything.
+- My husband is a composer, so he plays piano all the time and I sit there and clap telling my unborn child, 'Hear me clap, hear the music.' I know music, in general, is supposed to be good for babies to hear.
+- I had done quite a bit of research about math education when I spoke before Congress in 2000 about the importance of women in mathematics. The session of Congress was all about raising more scholarships for girls in college. I told them I felt that it's too late by college.
+- Believe it or not, lots of people change their majors and abandon their dreams just to avoid a couple of math classes in college.
+- When you know that you can overcome challenges, you do gain that self-respect, and then you won't end up in a situation that you regret later on.
+- It's such a diversion to be constantly thinking of better ways I can teach people math that my hunger is for that really, for new ways of translating the beauty of it.
+- By the end of an intense four years at UCLA, I had co-authored a new math proof, which the media, in fact, loved. As it turned out, math itself blazed my entry back into the spotlight and consequently into wonderful acting jobs like 'The West Wing' and others. You just never know, do you?
+- When I originally entered UCLA, I had planned to go for a film major, but I kept finding myself taking math classes for fun, 'cause I missed them from high school!
+- Math has a lot of negative stereotypes, but it can actually be fun and incredibly empowering.
+- Let's make math fun and sexy and glamorous. Smart is sexy, that's one of my main messages.
+- So somebody told me that if I wasn't a coffee drinker yet, by the end of college I'd have to be, because a math major is so tough I would have to stay up very late. I was going to need coffee to do that. Well, merely because they said that, I never drank coffee in college, never got addicted to it, never needed it.
+- Math is like going to the gym for your brain. It sharpens your mind.
+- My message is: You don't have to give up being popular, fun, or fashionable in order to be smart; they can go hand and hand. Doing math is a great way to exercise your brain; being smart is going to make you more powerful in life.
+- At the risk of being forgotten completely by the media, I went to college and pursued a passion that had nothing to do with acting: mathematics.
+- What I got which was unusual, especially as a child actress, was parents who believed that Hollywood was not that important. They told us education, family, health, all come first and they meant it.
+- I've been eating tons of organic foods, staying away from processed sugars, white flours, and anything artificial. It's the same as my normal regime, but I'm being even stricter, because everything I put into my body is literally building this precious baby inside me.
+- When you do take the home pregnancy test, it doesn't quite seem real. But when you see the baby and the heartbeat on the ultrasound, it's so incredible.
+- I wasn't in school often enough to really belong to a 'clique,' but my friends all studied hard and got pretty good grades. They were good people with self-respect. I still like to be friends with people I admire something about; I really believe that we become like the people we're surrounded by, so I choose my friends carefully!
+- I'm the kind of person that responds strongly to a challenge.
+- If I'm teaching girls that do love to make cookies and do love fashion - that they can use math as a part of that - you think that's me saying, come on girls you belong in the kitchen, you belong shopping? Or, do you think it's me showing them how math is part of all their life, even the part they thought it had nothing to do with?
+- Keep an eye on what your kids are seeing online. Parents need to stay involved in what their children are being exposed to. It's so important.
+- I played Winnie Cooper on 'The Wonder Years' from ages 12-18, and did a few other movies during some of the summers.
+- I exercise at home - light cardio and yoga.
+- I learned my French through school. I was lucky in that the tutor on 'The Wonder Years' set spoke fluent French.
+- Teenage girls these days are more and more getting lured into thinking they should dumb themselves down, and that's going to attract the wrong kind of guy, and it's serious. It's serious business.
+- I've always been really cautious about guys who have a Winnie Cooper fantasy, and I'm so glad about that. I mean, I can count on one hand the guys I've been with. It was really challenging, but I never gave it up too soon, if you know what I mean.
+- I was born in San Diego, and we moved to Los Angeles when I was seven. A couple of years later, I started acting!
+- Look at Jessica Simpson. She's famous for being dumb. I guess it started with Marylyn Monroe, and she actually wasn't that dumb, but that's how she was perceived - and that's what got popular.

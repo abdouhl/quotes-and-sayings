@@ -1,0 +1,148 @@
++++
+author = "David Byrne"
+title = "David Byrne Quotes"
+quotes_len = "142"
+description = "the best 142 David Byrne Quotes"
++++
+- There's something about music that encourages people to want to know more about the person that made it, and where it was recorded, what year it was done, what they were listening to, and all this kind of stuff. There's something that invites all this obsessive behavior.
+- I've noticed that when I am selling a lot of records, certain things become easier. I'm not talking about getting a table in a restaurant.
+- There are plenty of people who are, I think, completely racist who love hip-hop.
+- We don't make music - it makes us.
+- I'm not suggesting people abandon musical instruments and start playing their cars and apartments, but I do think the reign of music as a commodity made only by professionals might be winding down.
+- Suburban houses and tin sheds are often the objects of ridicule.
+- The voting booth joint is a great leveler; the whole neighborhood - rich, poor, old, young, decrepit and spunky - they all turn out in one day.
+- I didn't have any agenda or plan when I started writing stuff.
+- I try to devote my afternoons to making music in my home studio, but it's a lot more fun hanging out with musicians and friends, and trying subtly to influence a band than making your own stuff.
+- I've been asking myself: 'Why put together these things - CDs, albums?' The answer I came up with is, well, sometimes it's artistically viable. It's not just a random collection of songs. Sometimes the songs have a common thread, even if it's not obvious or even conscious on the artists' part.
+- I encourage people not to be passive consumers of music and of culture in general. And feeling like, yeah, you can enjoy the products of professionals, but that doesn't mean you don't have to completely give up the reins and give up every connection to music or whatever it happens to be.
+- Music was an experience, intimately married to your life. You could pay to hear music, but after you did, it was over, gone - a memory.
+- I couldn't take pictures of green rolling hills.
+- Artists are notoriously snooty and suspicious of anything coming from the business community.
+- Yeah, anybody can go in with two turntables and a microphone or a home studio sampler and a little cassette deck or whatever and make records in their bedrooms.
+- Deep down, I know I have this intuition or instinct that a lot of creative people have, that their demons are also what make them create.
+- Everything's intentional. It's just filling in the dots.
+- When things get so absurd and so stupid and so ridiculous that you just can't bear it, you cannot help but turn everything into a joke.
+- The true face of smoking is disease, death and horror - not the glamour and sophistication the pushers in the tobacco industry try to portray.
+- I think sometimes - not always - I write songs that are accessible.
+- Domination and monopoly is the name of the game in the web marketplace.
+- One of the benefits of playing to small audiences in small clubs for a few years is that you're allowed to fail.
+- It seems almost backwards to me that my music seems the more emotional outlet, and the art stuff seems more about ideas.
+- I found music to be the therapy of choice. I guess it is for a lot of people.
+- Yeah, it's pretty hard not to be completely cynical these days.
+- There's a certain amount of freedom involved in cycling: you're self-propelled and decide exactly where to go. If you see something that catches your eye to the left, you can veer off there, which isn't so easy in a car, and you can't cover as much ground walking.
+- Before recording technology existed, you could not separate music from its social context.
+- Yeah, I like to keep myself interested - I'll kind of throw myself into some area that I don't completely know or understand, that I'm not adept at, so I'm forced to swim in order to stay afloat. There's a good feeling that comes from that.
+- Some folks believe that hardship breeds artistic creativity. I don't buy it. One can put up with poverty for a while when one is young, but it will inevitably wear a person down.
+- I love getting out of my comfort zone.
+- Physical contact is a human necessity.
+- The imminent demise of the large record companies as gatekeepers of the world's popular music is a good thing, for the most part.
+- I certainly agree that putting everything into little genres is counterproductive. You're not going to get too many surprises if you only focus on the stuff that fits inside the box that you know.
+- I came to New York to be a fine artist - that was my ambition.
+- Ninety percent of all music is always crap, and when too many people decide they're going to have guitar bands, then ninety percent of them are going to be crap. It's just a given law.
+- The making of music is profoundly affected by the market.
+- We tend to mistake music for the physical object.
+- Maybe every city has a unique sensibility, but we don't have names for what they are or haven't identified them all. We can't pinpoint exactly what makes each city's people unique yet.
+- I don't listen to the radio very much, but that could be because I don't have a car.
+- I have trouble imagining what I could do that's beyond the practicality of what I can do.
+- I meet young people who know me and are familiar with my stuff. They know the package. They might have cherry-picked five or six key tunes. That's how it seems to work. I sometimes wonder if they realise they are not getting the whole context.
+- Probably the reason it's a little hard to break away from the album format completely is, if you're getting a band together in the studio, it makes financial sense to do more than one song at a time. And it makes more sense, if you're going to all the effort of performing and doing whatever else, if there's a kind of bundle.
+- I've made money, and I've been ripped off. I've had creative freedom, and I've been pressured to make hits. I have dealt with diva behavior from crazy musicians, and I have seen genius records by wonderful artists get completely ignored. I love music. I always will.
+- Some artists and indie musicians see Spotify fairly positively - as a way of getting noticed, of getting your music out there where folks can hear it risk-free.
+- The arts don't exist in isolation.
+- In a certain way, it's the sound of the words, the inflection and the way the song is sung and the way it fits the melody and the way the syllables are on the tongue that has as much of the meaning as the actual, literal words.
+- I read the NY Times but I don't trust all of it.
+- Occasionally, I hanker for the time when I sold more records, but I don't sit and drool about it. When I do look at early footage of Talking Heads, I realise I was just a wreck.
+- Analysis is like a lobotomy. Who wants to have all their edges shaved off?
+- PowerPoint may not be of any use for you in a presentation, but it may liberate you in another way, an artistic way. Who knows.
+- I subscribe to the myth that an artist's creativity comes from torment. Once that's fixed, what do you draw on?
+- Punk was defined by an attitude rather than a musical style.
+- I don't think people are going to switch over to bikes because it's good for them or because it's politically correct. They're going to do it because it gets them from A to B faster.
+- You can know or not know how a car runs and still enjoy riding in a car.
+- People in Latin America... love America from afar and emulate America in some ways but also hate a lot of things that America does to them.
+- People hear about stuff from their friends or a magazine or a newspaper.
+- I use a stream-of-consciousness approach; if you don't censor yourself, you end up with what you're most concerned about, but you haven't filtered it through your conscious mind. Then you craft it.
+- My favorite time of day is to get up and eat leftovers from dinner, especially spicy food.
+- Cycling can be lonely, but in a good way. It gives you a moment to breathe and think, and get away from what you're working on.
+- Do I wear a helmet? Ugh. I do when I'm riding through a precarious part of town, meaning Midtown traffic. But when I'm riding on secure protected lanes or on the paths that run along the Hudson or through Central Park - no, I don't wear the dreaded helmet then.
+- I'm concerned that my technical skills have advanced to the point where I can get closer to what I'm aiming for, which is not such a good thing.
+- I think I had a mild case of Asperger's as a younger guy, but that typically just wears off after a while.
+- From what I've heard, Paris did a little bit more prep work as far as making bike lanes and all of that stuff. They really did it properly, which New York is getting to little by little.
+- Having unlimited choices can paralyze you creatively.
+- Technology has allowed people to make records really cheap. You can make a record on a laptop.
+- I've been in beautiful landscapes where one is tempted to whip out a camera and take a picture. I've learned to resist that.
+- Most of our lives aren't that exciting, but the drama is still going on in the small details.
+- We live in ugly times.
+- To some extent I happily don't know what I'm doing. I feel that it's an artist's responsibility to trust that.
+- I've rarely kept my distance from kind of - I don't know if we can call it politics, but kind of, civic engagement and that kind of thing, except I tended to think, 'Well, do it yourself before you start telling other people what they should be doing.'
+- You go to a festival, you know you're not going to play all new material at a festival. The audience is not there for that. I've made that mistake, but you find out pretty quickly.
+- It's a fundamental, social attitude that the 1% supports symphonies and operas and doesn't support Johnny learning to program hip-hop beats. When I put it like that, it sounds like, 'Well, yeah,' but you start to think, 'Why not, though?' What makes one more valuable than another?
+- I'm very much into making lists and breaking things apart into categories.
+- I'd like to be known for more than being the guy in the big suit.
+- One knew in advance that life in New York would not be easy, but there were cheap rents in cold-water lofts without heat, and the excitement of being here made up for those hardships. I didn't move to New York to make a fortune.
+- I try never to wear my own clothes, I pretend I'm someone else.
+- The city is a body and a mind - a physical structure as well as a repository of ideas and information.
+- Do creative, social, and civic attitudes change depending on where we live? Yes, I think so.
+- I've rarely seen video screens used well in a music concert.
+- I wanted to be a secret agent and an astronaut, preferably at the same time.
+- I couldn't talk to people face to face, so I got on stage and started screaming and squealing and twitching.
+- Frank Lloyd Wright... his things were beautiful but not very functional.
+- Doing the box set is one of those things where you get to rewrite your own history to some extent. We could take out some of the songs that we felt weren't as strong as some of the others, so you look better.
+- So there's no guarantee if you like the music you will empathize with the culture and the people who made it. It doesn't necessarily happen. I think it can, but it doesn't necessarily happen. Which is kind of a shame.
+- If anything, a lot of electronic music is music that no one listens to at home, hardly. It's really only to be heard when everyone's out enjoying it.
+- When we started, a lot of bands sounded really different from one another.
+- With pop music, the format dictates the form to a big degree. Just think of the pop single. It has endured as a form even in the download age because bands conform to a strict format, and work, often very productively, within the parameters.
+- Why not invest in the future of music, instead of building fortresses to preserve its past?
+- Sometimes it's a form of love just to talk to somebody that you have nothing in common with and still be fascinated by their presence.
+- I think I had a mild case of Asperger's as a younger guy, but that typically just wears off after a while. For some people, anyway.
+- That's the thing about pictures: they seduce you.
+- I've never had writer's block.
+- That's the one for my tombstone... Here lies David Byrne. Why the big suit?
+- I knew I wanted to have a doll of myself on the cover. I thought, I wanna see myself as a Ken doll.
+- You create a community with music, not just at concerts but by talking about it with your friends.
+- I do seem to like to combine the dramatic emotional warmth of strings with the grooves and body business of drums and bass.
+- There's more good music being made now than ever before.
+- The assumption is that your personal life has to be a mess to create, but how much chaos can you allow in before it takes over?
+- I don't like begging money from producers.
+- I resent the implication that I'm less of a musician and a worse person for not appreciating certain works.
+- The wage for most musicians is a modest amount, and that includes me some of the time.
+- Software constraints are only confining if you use them for what they're intended to be used for.
+- People are already finding ways to make their music and play it in front of people and have a life in music, I guess, and I think that's pretty much all you can ask.
+- Music has to be sort of ignorable sometimes.
+- I am an immigrant with a Green Card and, therefore, I am not eligible to vote in a federal election.
+- I always think the everyday is more relevant than anything too grand because we all have to deal with it.
+- I've noticed a lot of younger artists have less fear of doing different sorts of things, whether it's various types of music, or gallery artists moving between video and sculpture and drawing.
+- Life tends to be an accumulation of a lot of mundane decisions, which often gets ignored.
+- I find rebellion packaged by a major corporation a little hard to take seriously.
+- Well, Marx is having a comeback. I hear him mentioned a lot in terms of the global financial situation and the general sense of injustice out there. A lot of economic experts in America refer to him without actually using the M word, but he's around.
+- People use irony as a defense mechanism.
+- I like to combine the dramatic emotional warmth of strings with the grooves and body business of drums and bass.
+- I cycled when I was at high school, then reconnected with bikes in New York in the late '70s. It was a good way of getting around the clubs and galleries of the Lower East Side and Soho.
+- I ride my bike almost every day here in New York. It's getting safer to do so, but I do have to be fairly alert when riding on the streets as opposed to riding on the Hudson River bike path or similar protected lanes.
+- I never listen to the radio unless I rent a car.
+- Work aside, we come to New York for the possibility of interaction and inspiration.
+- Cycling is a joy and faster than many other modes of transport, depending on the time of day. It clears the head.
+- Television sounded really different than the Ramones sounded really different than us sounded really different than Blondie sounded really different than the Sex Pistols.
+- I'm guarded; I don't talk much.
+- On a bike, being just slightly above pedestrian and car eye level, one gets a perfect view of the goings-on in one's own town.
+- I'm afraid that everything will get homogenized and be the same.
+- Forces that you might think are utterly unrelated to creativity can have a big impact. Technology, obviously, but environment, too. Even financial structures can affect the actual content of a song. The making of music is profoundly affected by the market.
+- I remember talking with Arcade Fire after their first record, when they were getting all kinds of offers from major labels, and I don't think I gave them any advice. They survived that whole onslaught pretty well anyway without me.
+- I'm afraid that reason will triumph and that the world will become a place where anyone who doesn't fit that will become unnecessary.
+- Obviously, you go through a lot of emotional turmoil in a divorce.
+- I'm no Lance Armstrong, but I do use a bike to get from place to place in Manhattan, a little bit of Brooklyn.
+- When I was in high school, there were these British blues-rock-type bands with really good guitar players that would jam on one song for half an hour. And as much as I was amazed by some of those guitar players, seeing them prompted me to make a note that that's not something I could do.
+- The physical sensation of gliding with the wind in your face is exhilarating. That automatic activity of pedalling, when you have to be awake but not think too much, allows you to let subconscious thoughts bubble up, and things seem to just sort themselves out. And the adrenaline wakes you up if you weren't properly alert.
+- It didn't even occur to me that I'm the last person in the world who should play salsa or Brazilian music.
+- I've got nothing to say most of the time.
+- It's not always been a happy marriage. I guess I wanted a quick fix.
+- The Heads were the only band on that scene that had a groove.
+- Performing is a thing in itself, a distinct skill, different from making recordings. And for those who can do it, it's a way to make a living.
+- Sometimes I write stuff that strangely predicts what's going to happen in my life.
+- As everything becomes digitized, there's the idea that things that can't be digitized become more valuable.
+- All you needed was a couple of instruments and a few chords and you could be on an indie label.
+- To shake your rump is to be environmentally aware.
+- In retrospect, I can see I couldn't talk to people face to face, so I got on stage and started screaming and squealing and twitching about. Ha! Like, that sure made sense!
+- I'm proud of 'Stop Making Sense,' but it's a little bit of an albatross; I can't compete with it, but I can't ignore it either.
+- Real beauty knocks you a little bit off kilter.
+- I can't deny that label-support gave me a leg up - though not every successful artist needs it.
+- With music, you often don't have to translate it. It just affects you, and you don't know why.

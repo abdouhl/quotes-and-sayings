@@ -1,0 +1,150 @@
++++
+author = "Emmanuel Macron"
+title = "Emmanuel Macron Quotes"
+quotes_len = "144"
+description = "the best 144 Emmanuel Macron Quotes"
++++
+- France has to accelerate in terms of reform.
+- I make no concessions to conformism.
+- My responsibility will be to unite all the women and men ready to take on the tremendous challenges which are waiting for us, and to act.
+- Globalization can be a great opportunity.
+- Honesty compels me to say that I am not a socialist. But so what?
+- I am attached to a strict approach to Brexit: I respect the British vote, but the worst thing would be a sort of weak E.U. vis-a-vis the British.
+- I will lead a fight against Islamist terrorism at every level.
+- I know the divisions in our nation that led some to extreme votes. I respect them.
+- Through work, education, and culture, I will give hope to our country.
+- Democratic states must have access to content exchanged between terrorists on social media and instant messaging.
+- We need to restore democracy and sovereignty in Europe.
+- Our language, history, and civilization shine out across every continent.
+- What we need is a common goal for more Europe.
+- You have to learn to fight for things, to bear the burden and have a life which does not in any way correspond to other peoples' lives.
+- Believe in individual initiatives, in courage, in risk.
+- We ask our companies to restructure; we ask employees to work more for less money because there is overproduction, but then we're unable to defend them from cheaper Chinese imports. We are insane.
+- We have to accept the idea that Europe will be made on a two-speed basis, with a union based on solidarity and differentiation.
+- You need basically some accountability rules, which means democratic checks and balances at the euro zone level, and definitely, you have to increase convergence in terms of taxes, in terms of social affairs and so on.
+- We have to reconcile Europeans with Europe.
+- I don't believe that killing the French model in order to become the U.K. or the United States overnight is the solution. You have a big debate on inequality there, and for our society, a lot of inequality would not be bearable.
+- Brexit is the other face of the refugee crisis - tensions that lead to stasis, external risks that lead to asymmetric shocks.
+- I am proud of my immaturity and political inexperience.
+- The only way governments or would-be governments respond to ills these days is by seeking to lower the temperature... and that tends to mean public spending.
+- We have a great history; we have a great humanist face to put forward to the world.
+- You need a debate and a vote on the principles: Do you want more Europe or less Europe? Do you believe we are more efficient with defense and security with Europe, or not? Do you believe we are more efficient for our companies with or without Europe? Those are the questions we have to discuss and push our people to vote on it.
+- I don't have luxurious tastes or great needs, but my independence is worth a lot to me.
+- When politics is no longer a mission but a profession, politicians become more self-serving than public servants.
+- I think when people have pudding and jobs, they vote for you.
+- The French are consistent.
+- The best way to afford a suit is to work.
+- I learned the life of business, commerce - it's an art.
+- People find it difficult to accept something that is sincere and unique.
+- We can't have our industry progressively destroyed by cheap Chinese imports.
+- We have to be extremely strict on the implementation of Brexit so there is a common approach between member states. We must avoid a sector-by-sector or country-by-country approach, and ask the U.K. to be clear.
+- We have the force, the energy, and the determination, and we will not give in to fear.
+- We are a continent of refugees, and if you say we can't integrate refugees, that's not consistent with our values, even if borders cannot be wide open.
+- Our mission... it will be difficult, it will take time, it will be demanding for all men and women... will be to act in such a way that French people of the Muslim faith are always more proud of being French than of being Muslim.
+- The state has an offensive and defensive role to play as promoter of industrial policies, as regulator and as shareholder.
+- Europe and the world are waiting for us to defend the spirit of the enlightenment everywhere.
+- My priority is my economy minister mandate and to create momentum.
+- In a common project, we can bring together well-meaning people from the Left and the Right.
+- I want France to become the European hub for R&D.
+- To think that our political organisation is immutable is the best way to hand the country over to the extremes.
+- De facto, you have a multi-speed Europe. You look at the Schengen, you look at the euro zone, all this kind of cooperations, you have a multi-speed Europe.
+- I kept trying, proposing, pushing... If you want to succeed, you cannot leave work half done, and unfortunately, many things were left half done. The choice was made not to launch a second wave of economic reforms that I was proposing.
+- To create greater convergence, we need more intergration.
+- France has always succeeded because it is part of the world.
+- I don't want a tailor-made approach where the British have the best of two worlds. That will be too big an incentive for others to leave and kill the European idea, which is based on shared responsibilities.
+- The doctors, whether based in Brussels or Paris, draw the same conclusions and write the same prescriptions.
+- I'm not a movie star, and I don't want to become a movie star.
+- A Left that does nothing achieves nothing.
+- I am not a socialist.
+- The strategy we must follow is to defend the special relationship between Great Britain and Europe and, more specifically, between Europe and France.
+- Europe's younger generation has only experienced austerity.
+- Popularity isn't an objective in itself. I'm not in this game.
+- France was given up to fire and bloodshed, she experienced famine, she experienced the worst of things, she was nearly chopped up in pieces forever because of the decision... to exclude, to brand one party as guilty and annihilate them.
+- I want to become the president of all the people of France - the president of the patriots in the face of the threat from the nationalists.
+- We can't fix the real problems if we only cauterize and don't treat the roots of evil.
+- I want to help with Muslim integration. If you follow the line of Marine Le Pen, you create a civil war.
+- I'm a child of provincial France.
+- The functioning of our society is in a certain way sclerotic.
+- I realised how much the system did not want to change.
+- We need to go faster on structural reforms in France.
+- We back Hinkley Point project. It's very important for France; it's very important for the nuclear sector and EDF.
+- We have a lack of growth in Europe, in eurozone, and in France, and we are struggling hard to recover and restore this growth.
+- Modernity is disruptive, and I endorse that.
+- Long live the Republic, long live France.
+- If I were to reason like those who roll out red carpets, I would say we might have some repatriations from the City of London.
+- A romantic or classical view of the French approach would have been to say, 'It's a French company; let no one attack it. Let's block any merger. But the reality is Alcatel-Lucent is not a French company; it's a global company. Its main markets are China and the U.S. Its ownership is foreign; most of its managers aren't French.
+- We have a huge responsibility to make sure that Europe remains a prosperous and peaceful continent.
+- I touched the limits of our political system, which pushes one to last-minute compromises. Explanations are rarely given. It plays to people's fears because it hasn't built an ideological consensus. It produces flawed solutions and too often ignores reality.
+- We will open a new bunch of reforms regarding the labor market to make it simpler and adaptable, more flexible.
+- Don't leave criticism of the E.U. to those who hate it.
+- We're not isolated from the world. The world knocks on our door.
+- We have to shift the social model from a lot of formal protections toward loosening bottlenecks in the economy.
+- I don't want to create a too-big-to-fail player.
+- France has to reform, to recover, and get more competitiveness.
+- The financial passport is part of full access to the E.U. market, and a precondition for that is the contribution to the E.U. budget. That has been the case in Norway and in Switzerland. That is clear.
+- We need young Frenchmen who want to become billionaires.
+- There is no access to the market without budgetary contributions... and without respect for the four freedoms of the E.U.
+- We should not replicate the situation where one country is in a situation to hijack the rest of Europe because they organize a referendum.
+- The challenge is to open a new page in our political life and to take action so that everyone is able to find his or her place in France and in Europe.
+- To avoid the trap of Europe fragmenting on the economy, security, and identity, we have to return to the original promises of the European project: peace, prosperity and freedom. We should have a real, adult, democratic debate about the Europe we want.
+- You can suddenly have a series of countries waking up and saying, 'I want the same status as the Brits,' which will be, de facto, the dismantling of the rest of Europe.
+- We've created rigidities at the entrance point in artisanal occupations.
+- What we need is much more flexibility for the labour markets.
+- France will be on the front line in the fight against terrorism.
+- I am from the Left, but I am happy to work with people from the Right.
+- I have a vision of my country, and I cannot sit and watch things pass by.
+- I am not shy. I am for an open society. I am for a progressive world. I do not propose to reform France; I propose to transform it at its deepest level.
+- The refugee crisis shows we can't be isolated from the world's geopolitical troubles.
+- My key message is be innovative, be ambitious; think global and big on day one.
+- I want to be the president of all the people of France, for the patriots facing the threat of nationalism.
+- Even if the Brits decide to remain, we will have to avoid a contagion on other countries.
+- I bring the spirit of French conquest.
+- We have the eurozone. Could we accept to be cleared, regulated, and de facto have inflows and outflows from a country that has decided to leave the E.U.? For me, definitely not.
+- I will protect and defend France's vital interests. I will protect and defend Europe.
+- We need to deal with the economy and the moral weakness of the country.
+- The status quo leads to self-destruction.
+- I will defend Europe; it is our civilisation which is at stake... I will work to rebuild ties between Europe and its citizens.
+- I have decided to create a new political movement.
+- Under the French system, you have to take into consideration that every five years, the president is directly elected by the people. He's the one that has the legitimacy.
+- France is a strong, wealthy country.
+- As to the euro zone avant-garde, it must go towards more solidarity and integration: a common budget, a common borrowing capability, and fiscal convergence.
+- E.U. is the first global domestic market.
+- We are implementing an in-depth reform on labor market, not to reduce rights for workers but to provide more visibility and more efficiency to investors and employers because it's the key for job creation.
+- There are two projects facing each other. There's Marine Le Pen's project of a fractured, closed France. On the other hand, you have my project which is a republican, patriotic project aiming at... reconciling France.
+- I've taken my time. I've thought about it; I've consulted, and I've decided that we are going to create a new political movement, one that will be neither on the Right or the Left.
+- I come all wreathed in a reputation the press has made for me. Judge me on my actions. That's all that counts.
+- Leaving the E.U. would mean the 'Guernseyfication' of the U.K., which would then be a little country on the world scale. It would isolate itself and become a trading post and arbitration place at Europe's border.
+- Our interests lie in attracting added value and talent to France as a result of Brexit, but also in having a balanced relationship with Great Britain. We must not sacrifice the short term for our bilateral relationship.
+- Political experience is political inefficacy.
+- When the president and the prime minister decide to implement reforms, they have all the measures they need to pass them and enforce them.
+- Really, creation and innovation are part of the French DNA.
+- If I was British, I would vote resolutely 'remain' because it's in the U.K.'s interest.
+- I push reforms. I tell the truth to people, even when it's tough for the country.
+- Historically speaking, the French economy was largely driven by the demand side.
+- Sovereignty is not just at the national level; that's the mistake of Brexit that other people make.
+- You can block a marriage, but you cannot force a marriage.
+- We have to breathe new life into Europe.
+- No matter who you voted for, I do not hold anything against you.
+- France is back.
+- I'm in a left-wing government, unashamedly... but I also want to work with people from the Right who commit to the same values.
+- I am a newcomer. I want to remain a newcomer. That is my DNA.
+- Consolidation means less equipment, less networks, and less jobs.
+- When you discuss your steel industry with China you are credible because you are part of the E.U., not because you are just U.K. You will be completely killed otherwise. You will never be in the situation to negotiate face to face with the Chinese because your domestic market is not relevant for the Chinese in comparison with their domestic market.
+- If the U.K. wants a commercial access treaty to the European market, the British must contribute to the European budget like the Norwegians and the Swiss do. If London doesn't want that, then it must be a total exit.
+- I want to unite our people and our country. I will serve you with humility and force in the name of liberte, egalite, fraternite.
+- Never boo or hiss at my rallies. That is for people with no hope.
+- The refugee crisis is a challenge for the whole of Europe, and Europe - it's a very fair point to say it's not just a security issue. It's also an economic issue.
+- Without investment, you cannot have jobs.
+- We have to provide more visibility, more certainty to the investors and reduce the cost of failure.
+- Popularity isn't my compass. Unless it can help one to act, to be understood... that's what counts.
+- Europe and the world are waiting for us to defend the spirit of Enlightenment, threatened in so many places.
+- I am not just a liberal movement. I come from the progressive Left. I am trying to refresh and counter the system.
+- The 28-member Europe must be simpler, clearer, more efficient, and continue to advance on digital and energy issues.
+- What matters to me is to find rational solutions for those that are facing difficulties so that France preserves jobs and its ability to innovate.
+- I will do everything to make sure you never have reason again to vote for extremes.
+- If people do not believe in Europe and in the euro area, it must be dismantled.
+- I will fight with all my power against the divisions that undermine us and which are tearing us apart.
+- We have no choice but to reform this country.
+- If approval was a criterion in this country, nothing would ever get done.
+- It's about our ability precisely to integrate a people and offer jobs, and that, for me, is one of the key rationales of the reforms I'm pushing, and I'm a strong believer in that when you lift barriers, when you deregulate a lot of stuff, basically you improve the equality of opportunities.
+- We need people who dream impossible things, who maybe fail, sometimes succeed, but in any case who have that ambition.

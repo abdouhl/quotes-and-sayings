@@ -1,0 +1,20 @@
++++
+author = "Julian Cope"
+title = "Julian Cope Quotes"
+quotes_len = "14"
+description = "the best 14 Julian Cope Quotes"
++++
+- The way people see you is the way you really are.
+- Maybe rock 'n' roll isn't music. Maybe people just need to be reminded that the world ain't the way they think it is.
+- My mission was always intended to be slightly outside the public eye, because that makes me appear more interesting than I really am. A lot of people don't realise that merely by staying away, you can create a myth.
+- I realize myself that hate wastes a lot of time and energy and I would rather re-direct any energy that I have to good and positive use.
+- To rally every black sheep is my goal.
+- I'd spent my childhood thinking bad things, bad things every day. It had made me sick, but it had made me determined.
+- I signed contracts I didn't think were a good idea but people around me said it was the way forward. It saddens me that I'll never own my first album ever, which sucks.
+- The people who make history are not the people who make it who are there but the people who make it and then write about it.
+- I think you can have the greatest lyrics in the world and if it doesn't have the best tune in the world it will suck. I mean if the music wasn't important it would just be a poem.
+- I get twitchy if I don't pick up a guitar or sit at the piano every now and then... I have to do it; I don't have a choice.
+- Use it or lose it is a cliche because it's true.
+- Yeah. I do get incredibly anxious. Almost borderline panic attacks.
+- I'm trying to do it my way. For me to be happy in the business means I have to do it myself.
+- I'm going to become the best-remembered artist of my generation by staying away from the party as often as possible. That way, people will remember me, not because I was great, but because I didn't cause them any later embarrassment.

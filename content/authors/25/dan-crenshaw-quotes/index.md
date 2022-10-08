@@ -1,0 +1,99 @@
++++
+author = "Dan Crenshaw"
+title = "Dan Crenshaw Quotes"
+quotes_len = "93"
+description = "the best 93 Dan Crenshaw Quotes"
++++
+- I will attack ideas very hard. I am not shy about that one bit. So I don't want people to think that because I had a call for civility that that means I shy away from debate and that I'm agreeable. That's not the case. What is the case is that I will not question who you are as a person.
+- We are not anti-immigration. We are against chain migration, except for the nuclear family. We want a merit-based system that is really based on economic needs.
+- It's OK to criticize Israeli policy.
+- Even if we were able to agree on an ideal set of immigration laws, enforcing such laws in the face of hundreds of thousands of cases is impossible in practice.
+- Veterans tend to want to be ultra-prepared. They want to know everything they possibly can before running for Congress. That's great... but don't undersell yourself.
+- Because of a massive backlog of asylum cases and an inability to quickly adjudicate and enforce them, more migrants are making the journey to our border.
+- You know you don't want to see somebody in that kind of position to the point where they're actually putting out a cry for help on social media. That's not a good place to be in.
+- Every country has the right to manage who comes in and out of those borders.
+- I mean, the idea of a government shutdown, it's a consequence of our system.
+- When you label them, when one of the most powerful social media companies in the world labels people as Nazis, you could make the argument that's inciting violence.
+- Rebuilding the civic fabric of Central American countries is the only long-term solution to stemming the flow of illegal migration, and without Mexico as a willing partner, the U.S. will continue to fight an impossibly uphill battle.
+- We have to bring back that Reagan optimism.
+- We can prove to the American people that fixing the crisis at our border is more important than scoring political points.
+- When you say 'never forget' to a veteran, you are implying that, as an American, you are in it with them.
+- If you get your teeth cleaned on Instagram live, it shows that you're just out of touch. That doesn't make you relatable or cool. It just makes you weird.
+- In Afghanistan and Iraq we would often get cowardly fire and rounds hitting us from the sides but we just hunker down and keep going, we don't turn the mission around.
+- Well-intentioned liberalism always leads to progressivism. There's no choice there. Once that action is taken the only thing you can run on is totalitarianism - you have no choice.
+- Each day I wake up and check the news. Nearly every day it's merely to make sure I did not miss anything wildly controversial. Who said what, what are the implications of that comment, what was the context of what was said? Some days are slow, which is great. We can focus on a particular policy issue or piece of legislation.
+- We actually all care about the environment, and most people believe in climate change and believe that mankind has something to do with that - how much is scientifically debatable, but there is some effect and we all have an interest in reducing carbon emissions, just having cleaner air, cleaner oceans. It's something we can get behind.
+- We can prove that we are in the business of governing responsibly, upholding our rule of law, and giving priority to those immigrants willing to apply legally versus those who leverage our system's loopholes.
+- We've got to think long-term too because I don't think Trump speaks to a lot of young people.
+- As Americans, we have to be honest and ask ourselves a question: Do we really want to tone down politics? I always hear a resounding 'yes,' and I think most people mean that genuinely. But do our practices ever change?
+- Making sure that due process could not be abused is at the heart of any conservative solution to the supposed red flag laws.
+- It's OK to say whatever you want. It's a free country. And it's also OK for the rest of us to say 'We don't like what you're saying.' That's actually our job as members of Congress.
+- If you think winning means a porous border with 400,000 people apprehended illegally every year, then your definition of winning is different than mine.
+- This life, this purpose, this American spirit that we hold dear - we are not alone. We do it together.
+- The allies we formerly relied on - the Kurds and the Syrian Democratic Forces - will have little interest in helping us after we abandon them to Syrian President Bashar al-Assad and Turkish President Recep Tayyip Erdogan.
+- AOC understands how to be famous. It's got to be natural. It's genuine.
+- We just need leaders in Congress who are honest with the American people.
+- Labeling someone as an '-ist' who believes in an '-ism' because of the person's policy preference is just a shortcut to playground-style name-calling, cloaked in political terminology.
+- We bring the fight to the enemy so that they don't bring it to us.
+- Whether it's military resources or whatever it is doesn't matter. We need more detention facilities, more immigration judges, we need the ability to adjudicate these claims right on the spot without releasing people. If they don't have a credible claim of persecution and the vast majority do not, they get deported immediately.
+- I know from my experience as a Navy SEAL that barriers work.
+- There's bipartisan efforts to change how FEMA works or, more importantly, change how relief funding trickles down to us down here.
+- When you call somebody a Nazi, you can make the argument that you're inciting violence and here's how: As a country, we all agree that Nazis are bad. We actually invaded an entire continent to defeat the Nazis.
+- I have a thick skin.
+- I need the VA to be flexible enough to send me outside for care.
+- Voters have consistently brought up the topic of 'endless wars' and demands to 'bring the troops home' to me since I ran for office. It's not a left-right issue, either: Both sides question our military presence abroad.
+- Every country has the right to own its own sovereignty.
+- In 2012, I got hit by an IED in Afghanistan.
+- This is the way that I like to phrase it: we want to focus on 100% of the problem, and you can only focus on 100% of global emissions if you have technology that is exportable, clean, reliable, and cheap.
+- I retired in 2016 as a Lieutenant Commander and immediately went to the Harvard Kennedy School of Government.
+- You can say that your ideas are bad for America, and frankly un-American, but don't say the person is a traitor.
+- There are many ideas that we will never agree on. The left and the right have different ways of approaching governance, based on contrasting philosophies. But many of the ultimate goals - economic prosperity, better health care and education, etc. - are the same. We just don't share the same vision of how to achieve them.
+- You have to tackle the real drivers of debt - that's mandatory spending, not discretionary.
+- The president is under no obligation to sign the spending bills that Congress gives to him. And once that happens, once he says no, then you're supposed to negotiate.
+- The judicial system is really taking an activist role in preventing Trump from implementing his agenda.
+- The Turks have not been historically good about keeping pressure on ISIS.
+- When we come up upon a wall, it matters. We have to plan around it. It's a mitigating factor if you're trying to enter or cross from point A to point B.
+- As a country, we still have a lot of work to do. We need to agree on some basic rules for civil discourse.
+- The Green New Deal fundamentally destroys our economy and does a lot of other weird stuff, too.
+- I want you to say 'Never Forget' because when you say 'Never Forget' you're thanking that veteran in a different way. You're allowing them to be thankful for the idea for the fact that as an American you're in it with them. We're in it together and we don't forget together.
+- I spent a whole career infiltrating places.
+- The need for physical border security is a very real one. But equally important is the need to focus on the source of the problem: mass emigration from Central America.
+- It's so easy to trigger everyone these days, especially if you mention President Donald Trump.
+- There are a lot of veterans out there who would not think their wounds would be the source of poor jokes in bad taste to a hysterically laughing audience.
+- There's a knee jerk reaction in Washington when something isn't perfect to just add more money, add more personnel, it'll all be OK. That's not true, especially with complex issues like veterans health care.
+- Give the benefit of the doubt to your opponents if they walk back a controversial statement.
+- I started in SEAL Team 3 in 2008.
+- Our good intentions have gotten in our own way and it's bad for immigrants.
+- You should absolutely get involved, especially those local politics like school board seats. That's really where America happens.
+- Everybody says 'Thank you for your service' and I'll tell you what, veterans really appreciate that.
+- Anybody who questions the validity of the Constitution, whether it works in the modern era, should never be president.
+- Destroying an entire energy industry, that hurts the working class.
+- Red flag law is a general concept. There could be good ones and there can be bad ones. You should be against the bad ones, as I am.
+- The role of government is to tax the people to the least extent possible while still taxing them enough to cover the basic needs for government.
+- We can remember what brings us together as a country.
+- For those of us living in Texas and other border states, the reality of an open and unsecured border is a part of everyday life.
+- The asylum process is being completely taken advantage of.
+- As a long-time supporter of Israel, I will ensure that our alliance does not waver, and that America continues to support Israeli security, advocate for her on the international stage, and contain the threat from Iran and terrorism across the region.
+- The Green New Deal is for elitists who live in their high rises in New York City and see a dirty world around them because they're in New York City. I said New York City can pass a Green New Deal... Why not try it? Why not try it?
+- If you think my idea is awful, you should say as much. But there is a difference between attacking an idea and attacking the person behind that idea.
+- We have to make conservatism cool and exciting again.
+- Politicians should aim for higher discourse, the media should report context instead of seeking to inflame the public, and the public should not reward bad behavior nor engage in it on social media.
+- Houston's been getting flooded for a very long time. We always have to prepare for disasters and we have to do this in a very bipartisan way.
+- I dreamed even after I laid down my rifle I would continue to uphold my oath to defend the Constitution.
+- As veterans we should be smarter about how we talk about things.
+- People are realizing if they jump across our border and they have a child with them they can raise their hand and claim asylum and they will be caught and released into the homeland.
+- I have always disliked it when politicians start pandering to veterans and telling us how bad we have it and that if we just vote for them that they will fix all of our problems.
+- When Democrats are proposing things like a Green New Deal and Medicare for all and proposing that they take away your private insurance... it's very obvious to people that they've gone in a radical direction that will not work.
+- Everybody has a purpose in this world.
+- One must be deliberately ignoring reality to pretend that our asylum process is not being abused.
+- We utilize social media, we try to connect with voters in a way that's not only about politics. Letting people into your lives.
+- You know they've come to this point where they want to blame climate change for quite literally everything now, and sorry, but the Green New Deal is not going to solve that.
+- The left is really good at selling bad ideas and the right is really bad at selling good ideas.
+- If you're criticizing Israel, but you're doing it in a way that implies that the Jewish people in America have a dual loyalty, that's anti-Semitism. It's more than just criticizing Israeli policy.
+- Why can't we give the American people a break and separate humor from politics?
+- Victory looks like no more September 11ths.
+- We should get young people to be more concerned about our debt and point out to them that promising them more all the time is a completely unsustainable way of being and that it's a lie to say that the top one percent are going to pay for it.
+- I believe that the role of government is for the government to protect the God-given rights we have and to ensure that we live as free as possible.
+- Flooding is the most urgent issue that Houstonians are facing.
+- It is a miracle that I can see at all and continue serving the American people.
+- Americans can forgive one another.

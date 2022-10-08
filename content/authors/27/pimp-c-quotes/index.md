@@ -1,0 +1,31 @@
++++
+author = "Pimp C"
+title = "Pimp C Quotes"
+quotes_len = "25"
+description = "the best 25 Pimp C Quotes"
++++
+- I'm trying to resurrect old school rappers from N.Y.
+- Atlanta is not the South.
+- I'm from the old school, so I was wearing button-up polo shirts way back, with the sweater to match.
+- I used to spend summers with my Granma in Louisiana; Crowley, LA.
+- Wasn't nobody wearing diamond necklaces until Jay-Z jumped out there with them.
+- I'm down with Jim Jones.
+- I couldn't get on a 'Source' cover 'til I went to prison.
+- I was a fan of DMC but I was captivated by Run's style, I wanted to be the man. As a kid, when somebody got that kinda influence over a child... you know how strong that can be.
+- If you ask me my opinion, if you're a rapper in this game, you oughta have a license to be able to carry a weapon.
+- Music don't have no color or no face. It's a universal language.
+- I'll ride for Atlanta in a war before anybody else gon' have a chance to do it.
+- I don't consider myself to be bigger than nobody else in this game, so I'm not here to tell people what to rap about.
+- If you've gotta tell on your own people to get yourself out of trouble, you're a snitch.
+- I'm not a gay-basher, because gay people buy my records. Why would I be offended by your sexual preference, unless I'm in the closet? If ya like boys, go get all the boys ya want.
+- We took an oath back when we were teenagers that this is UGK for life. We've actually got tattoos on our arms in the same place that says 'UGK for life.'
+- I gotta answer the hard questions in a hard-type manner. Anything else would be uncivilized.
+- What's wrong with the 'Laffy Taffys' and the Soulja Boys? We need fun records. We gotta have dance music. We gotta have club music. We gotta have kids' music.
+- I'm doing pretty good on my own, when I can control my tongue.
+- A lot of times when you see Bun you don't see me; that's because we have to go our separate directions to promote on our own. When we're separate, we can cover more ground than we can together. That doesn't mean that it's not still UGK for life; we've just figured out ways to promote and cover more ground.
+- I remember going to L.A. and doing shows, and people would just stand there with their arms folded.
+- I did four years of an eight year sentence and I'm on parole.
+- Early on I did all the production for UGK, like on 'Southern Way.' Yeah, 90 percent of the production and not for any other reason then I couldn't find anybody that would give me what I needed, so I had to make it myself.
+- At an early age I was listening to BB King, what have you. Ray Charles, Jimmy Smith, Jimmy Mcgriff, you dig? With the obvious Marvin Gayes and the Motown records.
+- When we're rapping on these records, we're either rapping about our past lives or things our people are going through right now in the struggle. It's not necessarily what we're going through ourselves.
+- A lot of people attack music like the Soulja Boy music, but hey man, my kids love that.

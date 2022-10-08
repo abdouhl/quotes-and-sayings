@@ -1,0 +1,106 @@
++++
+author = "Ezra Furman"
+title = "Ezra Furman Quotes"
+quotes_len = "100"
+description = "the best 100 Ezra Furman Quotes"
++++
+- I'm interested in God. I'm not interested in religion for religion's sake.
+- One of my goals in making music is to make the world seem bigger, and life seem larger.
+- I think I'm gradually becoming a more politically aware person.
+- I'm trying to be an activist, and I think of that as separate from my work as an artist. But it isn't.
+- Some part of me hopes for a guardian angel to protect me and other people who need protection.
+- I think there's a large worry in queer communities about imitating straight people, when queerness has its own identity and maybe can be a radical force that should be dismantling stuff that locks people into structures.
+- If you get into really learning about the roots of monotheism, it was utterly a radical cultural moment. The Bible was so revolutionary and against all that came before it.
+- I wear what I want to wear and appear on stage as myself.
+- I really don't care about what anyone says unless they are also gender-nonconforming. Then I really listen. I love the solidarity felt between us gender failures.
+- Far from being a showbiz gimmick, for me dressing as I please has signalled the end of a lifelong performance of straightforward masculinity.
+- If I can see the sunrise - and I usually don't - I like to. I'm a big fan of the sun.
+- I just don't care that much about the band name. I'm not so precious about it. The Harpoons were different people, but The Boy-Friends were and are the same people as The Visions. I changed it to The Visions when we made 'Transangelic Exodus' because I guess we didn't feel so friendly and boyish anymore.
+- Lou Reed was an ideal figure to me. He was bisexual, like me, and seemed to inhabit an ambiguous middle place on the masculine-feminine spectrum.
+- I don't really believe in trying to erase every Woody Allen movie from history. For one thing, that's kind of unfair to all the people who worked on those movies or albums or whatever it is. What did they do wrong to have their work erased from culture?
+- Sometimes there's a day where I don't feel good being out in the world, and I feel unsafe in the world in general. And an anxiety about just showing up in the world. It's kind of irrational, but people do say things to me out in the street about how I'm dressed.
+- In terms of keeping kosher, I've basically just been vegetarian. I want to be fully vegetarian anyway, though sometimes my mom makes chicken soup and I have to eat it. I just love it.
+- I think of myself as someone who's trying to be a great songwriter and a great performer. And I mean really great.
+- I heard the Velvet Underground and that changed things when I was like, 15.
+- I'm going to make the music I wish someone else was making.
+- I believe an authentic Judaism would legislate total equality for queer people.
+- Part of what you hear when somebody says something awful to you is like, 'They're right, I look ridiculous, why am I dressed this way, I should go home and change.' For me that voice is always in my head, right around the corner.
+- I don't think I'll ever be able to fully explain the way that the Velvet Underground's records opened a door in my head. But it has something to do with Lou Reed as a mythic figure: a person who fitted no category, who defied limits and trends and definitions.
+- I'm just grateful to people who are willing to admit how bad things feel for them.
+- I'm not an actor.
+- More visibility is more power, but more vulnerability.
+- Judaism is a way of thinking, more than anything else, that I think is entirely distinct, and the more you know of it, the more you can enter into that kind of thinking.
+- My bassist Jorgen Jorgensen opened up my life to a lot of great, obscure old soul records.
+- I think most of the work of songwriting is thinking of great phrases - I'm addicted, always on the hunt for a really great phrase.
+- I always felt like I had a punk album waiting to be made.
+- We need a lot more visibility of queer people in public life. People gotta get used to it.
+- I was rather obsessed with angels.
+- Ezra Furman And The Boy-Friends was a band with a specific mission - to be a really good rock'n'roll band. And we achieved it.
+- You have to be an anti-racist to not be racist. Because it's just a cultural tide that will pull you into it if you're not swimming against it.
+- I grew up attending a Conservative day school, Solomon Schechter, until I was about 14, and going to a Reconstructionist synagogue.
+- I'm not so adept at social media. It's not my forte.
+- Learning that someone is gay, queer, trans, doesn't tell you much by itself. They could be any kind of person aside from that particular slice of identity.
+- I don't really worship the album 'Transformer.' It's not the best thing that Lou Reed has done.
+- Just being gender non-conforming opens you to trouble from strangers. And violence.
+- I get stage fright really bad sometimes, so touring has been hard on me in a lot of ways. But despite that, I love performing.
+- I think I'm becoming a climate activist.
+- I'm in this effort to unify my life and to live day to day in a disciplined way, to be real at all times, not just in front of people, or not just in a synagogue.
+- I'm a big fan of Louis CK - I think he's a master of standup.
+- I take it hard whenever anything happens that makes, I guess, queer people feel less safe and less welcome in the world.
+- I am frustrated at misconceptions of me, and being cast in a role.
+- I see a skill developing of writing about not just feelings that I'm feeling, but things that I deeply care about as well.
+- I've been writing songs since I was a teenager, so one kind of song I've written a lot is about, I don't know, teen angst feelings - feeling unsure of yourself and immature.
+- Once you admit how bad it feels to live in a broken society, you can start to resist it, and imagine a better one.
+- As children my grandparents were refugees. Eventually they got to the U.S. - in 1950 or something. They grew up as refugees. Their earliest memories are of living in a home with their family. It's in my blood, I guess, to have a fear about encouraging fascism.
+- We spent a lot of time making 'Transangelic Exodus' and toward the end of it, my ability and my love for music - that is, just garage music, direct and immediate - started to feel neglected.
+- My main theme as a songwriter seems to be a feeling of homelessness, of being in motion. The feeling of being somehow unmoored, a radical internal freedom that is very painful and also joyful.
+- It's one of the guiding philosophies of my life - not fearing any authority on earth.
+- I think of myself as a tomgirl. A boy who's girly in every presentational aspect. And I play guitar and write good songs.
+- The first music I loved on my own was punk.
+- I'm a shy person whose very presence has become a confrontation. I think that's true of a lot of queer people.
+- There is something embarrassing about asking for money, but if I hadn't done that, I would have not continued to be a professional musician.
+- My Jewishness and queerness are very interwoven, and, although they sometimes conflict culturally, intellectually and spiritually they deepen one another for me.
+- A lot of bands break through with their third record: the White Stripes, the Clash, the Replacements.
+- I write all the time and I try to think of ideas all the time.
+- I honestly feel like I've been mostly toiling in obscurity until a little bit after 'Day Of the Dog' came out.
+- I feel like my consignment and fear from people pushed me to become a performer.
+- I feel like one thing that messed me up was living in a homophobic and transphobic society, and just being the object of mockery and disgust in your average sitcom or movie or person at school.
+- Just being a normal person and having a social life involves a lot of dishonesty for me.
+- I was a suburban kid who fancied myself somehow intellectual. I was into punk rock but I couldn't get into the subcultural signifiers of dyed hair, safety pins and torn denim. Being a punk seemed like a new set of rules that I wasn't interested in having to follow.
+- To have knowledge of Judaism and to be a religious Jew or an interested Jew, is to have a doorway into a worldview that is entirely alien to the rest of the world's worldview.
+- God is close to the brokenhearted, and God lifts up the lonely. That was a message that was explicitly quoted to me and was part of my upbringing: Brokenhearted people and poor people and people who are in trouble should be your focus, and you should be on their team.
+- I guess I just do being a man different than some.
+- Chuck Berry invented rock 'n' roll. He was one of the best songwriters of the 20th century.
+- People get stigmatised for their bodies and for their differences. Then those people become very vulnerable.
+- Not only am I a shy person, I take a little while to say what I mean, especially in a social situation, and usually those move too fast for me to say anything at all.
+- We punk fans have so much energy to give to the fight against injustice, i.e. the abuse of the poor by the rich, i.e. climate change.
+- I first got into music when I heard punk, and it was saying maybe it's OK if you don't live up to the expectations various authorities have for you.
+- I love obsessive fandom because I'm an obsessive fan who flips out over music.
+- My focus is matters of the heart and matters of the spirit, emotion and passion and stuff like that. But I think I've been getting better at being more specific about what it is I care about. Such as the welfare of refugees and solidarity between threatened populations.
+- A repressed person overcoming their repression always makes good music.
+- I write good songs out of fear... fear of failure. Because if they're not good enough, you feel yourself starting to fall.
+- The Velvet Underground is probably the best band that's ever existed, assuredly the best American one.
+- You know, a lot of people have an instinct to downplay the fact that they are performing and be, like, 'There is no theatre here. This is just me playing the songs.' At some point I just realised how much better it could be if you weren't shy about being a performer.
+- I want to be a force that tries to revive the human spirit rather than crush it, to open possibilities rather than close them down. Sometimes a passionate negativity is the best way to do that.
+- Desperate times make for desperate songs.
+- I've always been drawn to ambiguity in pop music.
+- I was thinking very carefully about going into education, becoming a teacher, maybe becoming a rabbi.
+- I always maintain that artists do not have any responsibility to do anything except cause no harm and do whatever we want to do as artists.
+- If you're trying to deal with being a marginalized person and trying to confront a larger population that isn't the same as you, you can be friendly about it, and invite everybody in, or you can be angry about it and be hostile and attack the systems that you want to destabilize.
+- You have to make a character of yourself if you're going to be known to strangers.
+- We music fans go to shows for transcendence; it's like being called to prayer.
+- My favourite artists are the ones who are human, and you know they're not in a failure-proof environment.
+- I don't like the notion that artists have a responsibility to be political.
+- Listening to songs is like eating and writing songs is like vomiting. You're putting a ton of stuff in, it combines in unpredictable ways, and comes back out in a big mess.
+- We take a lot of inspiration from punk rock and early rock 'n' roll from the '50s and early '60s.
+- I was pretty much into punk rock and that's all I cared about. I was into Green Day and the Ramones. I wanted to get a guitar so I could play punk songs because this kid taught me power chords at summer camp.
+- My two most fervent interests are pop music and traditional Judaism. Hell of a pair of fervent interests.
+- I love it when people write rapturously about music they love.
+- I wrote 'My Teeth Hurt' in April 2018 when my teeth hurt and I didn't have dental insurance.
+- I want to make the greatest record ever made. It's the only thing I can think about.
+- It's a good feeling to not tell people what's going on.
+- Being in a rock n' roll group, or being a musician, it is in conflict in some serious cultural ways with being an observant Jew, but in a conceptual way, for me, they go together real well.
+- I could write a joke song really easily, but I think something that might be true for my generation is that there's a certain irony or detachedness expected of us, even though we really feel sincere. So the only way to sincerity is through a joke.
+- I like going to bed early and getting up early, but that doesn't happen on tour.
+- Jews like to write and sing. In America, a lot of us have been eager to show that we're part of American culture. But it all goes back to King David writing Psalms.
+- It's always about staying competitive with myself... Popularity is something that may happen from time to time, and I don't trust it and I don't think it means too much. I'm going for greatness.

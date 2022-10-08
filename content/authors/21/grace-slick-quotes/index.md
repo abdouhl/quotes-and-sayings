@@ -1,0 +1,70 @@
++++
+author = "Grace Slick"
+title = "Grace Slick Quotes"
+quotes_len = "64"
+description = "the best 64 Grace Slick Quotes"
++++
+- I do what I love to do, what I choose to do.
+- I didn't want to write a book. They made me do it.
+- There is an attitude that we should be able to have everything. No, you shouldn't be able to have anything. I'd like a helicopter, but I can't afford a helicopter, so I don't buy one. People are buying stuff they can't afford on credit. I bought my Ford hybrid with cash.
+- You don't have to wear fur. They make such great fakes. There's no reason to kill an animal.
+- Jerry Garcia used to take his paints on the road. I don't do that. Either I'm a singer or a painter. I'm not good at multi-tasking.
+- No matter how big or soft or warm your bed is, you still have to get out of it.
+- The problem with hanging on to the '60s is that everyone thought they would go on forever.
+- Applause is interesting, but I'm a monster with or without it. Something is either well written or it isn't. 'White Rabbit' is not well written, and no amount of applause or royalties can convince me it is. I could have done a better job with those lyrics. They didn't say what I wanted.
+- Old people should be heard but not seen. Young people should be seen, not heard.
+- Some of us don't want to be a housewife. When you live alone, you can do anything you want to do anytime you want. I really like it.
+- Through literacy you can begin to see the universe. Through music you can reach anybody. Between the two there is you, unstoppable.
+- Jon Stewart, Bill Maher, Stephen Colbert. Those are the guys I look at who are telling me pretty much the truth. And they throw humor into it which makes it much more interesting to listen to.
+- Too many people try to please their parents. My parents were Republicans, which is too bad, but they allowed me to be who I wanted to be.
+- The way I paint is similar to rock in that you don't stand around and say, 'Gee, what are they talking about?' Rock is simple, blunt, colorful. Same with my paintings. You don't stand back and wonder what it is. That's Jim Morrison, that's a panda, that's a scene on the West Coast. It's not abstract.
+- If I were gay, life would be a lot simpler. I'm kind of annoyed that I'm not.
+- Woodstock - I didn't see anybody play, except when I was standing backstage waiting to go on, because it was so muddy. And the weather was so horrible, you literally couldn't get there except by helicopter.
+- I was a floor model at I. Magnin. I'm 5 feet 7, but my legs weren't long enough to be a big-time model. From the knees up, everything is long, but from ankle to knee, if I was in proportion, I'd be 5 feet 9.
+- I don't imagine my parents are too excited about my kind of life. The surrounding weirdness bothers them. Still, I think they're pretty good. Their lives are based on what their friends think, just like ours are.
+- It takes a little work to be a vegan, but now it's really possible to have tasty stuff and it's better for you. I say the best test is go as far as you can and see how you feel. Personally, I feel great.
+- I'm very fond of drugs.
+- 'White Rabbit' was mostly done in about two days, the music in about half an hour. The music is a 'Bolero' rip-off and the lyrics a rearrangement of 'Alice in Wonderland.' You take two spectacular hits and throw them together, and it's hard to miss.
+- I collect stuffed animals, and toy stores make me happy.
+- People say Altamont was the 'end of the '60s.' It was unfortunate, but at the time we didn't think of it as signaling anything. The fact that nobody got killed at Woodstock is amazing because that was half a million people. We only had 300,000 at Altamont.
+- I think of myself as a positive agnostic. I don't know, therefore I'm open. I don't know, therefore I'm interested.
+- I think old people are scary. They remind you of your own death. People don't like to tell you that.
+- When I was between the ages of five and nine, the soldiers of the Second World War wanted to have Betty Grable, but I wanted to be Betty Grable. She was the epitome of an alluring woman; she had it all as far as I was concerned.
+- When you get older, it's not about what you did that you regret, it's what you didn't do.
+- I find it amusing on one level, poignant on another, when people try to get recognition from an outside source. It's sad.
+- Death is like taking an intermission when you can't come back. I like living and being around.
+- I like being in a recording studio. I like watching a song go from the simplicity of the original music.
+- I am not strict vegan, because I'm a hedonist pig. If I see a big chocolate cake that is made with eggs, I'll have it.
+- The word 'success' - who's defining it? It's about whether or not it makes me feel good. Four billion people don't have to see or hear it. If I've enjoyed the process of creation and I'm at peace, then what happens next is just entertainment. If mass appeal were actually something, Marilyn Monroe wouldn't be dead.
+- Rock & roll is not obscure, it's really easy to understand. So is my painting.
+- It's really a drag to sit around when you're old, and think, 'Ah, gee, I never went to France.' Go to France. Life is very short; you've got to pack it all in there.
+- If you don't own the stage, you shouldn't be in rock n' roll.
+- 'Feminist comedy,' practically an oxymoron, had a couple of good years after WWII. Chalk it up to the forced female autonomy that occurred during wartime, when Rosie the Riveter went to work in the factories, constructing the Allies' war machines while taking charge of the finances, the home, and the children.
+- Anyone who's 71 years old would look ridiculous singing rock.
+- Mainly I make music, and you can do that until you drop dead.
+- My parents were very open about what kind of talent I had. They never pushed me to become an accountant because they knew that would be just absolutely ridiculous. So they were encouraging in what I am able to do with some success.
+- If you were to say to me that I couldn't paint, I would write. If I couldn't write, I would be a set designer. As long as I'm creating something, I'm happy.
+- I don't want to see old people doing rap or rock and roll. It makes me cringe.
+- God is all over the place. And even if He isn't, if it makes me feel good, why not?
+- Starship was a whole different thing. It was pop rock. It made more money and had more hit songs than Airplane. There was no cultural or social ethic behind it. For me, it was like selling out. I was the only one selling out. The rest enjoyed doing what they were doing.
+- Woodstock is well known because this country is so hyped on amount. It was big. Half a million people doesn't necessarily mean something is good. It just means it's big.
+- I'm not very good at multi-tasking. Most people aren't, but they think they are. The mind is really better when you're really focused on one thing.
+- You can do any number of things in the music business aside from trying to look like you're 25. To me it's embarrassing.
+- I like Daughtry, I like Nickelback, I like Dave Matthews. I like Beyonce - she's a really good entertainer.
+- I fall down all the time because I'm such a klutz, but I have never broken a bone, and I don't eat milk or cheese ever. I like tofu cheese and soymilk in my coffee and cereal.
+- When you learn that a truth is a lie, anger follows.
+- The main point for me is moral; animals are sentient beings. I know for some this is a hard argument to accept, but we're not built to eat a lot of meat.
+- Prancing around on stage is not the entire purpose of my life.
+- I left rock and roll professionally at about 49. That's too long as far as I'm concerned. Some people can do it; it depends on what you were.
+- Being in a rock n' roll band was like being in a Sherman tank. Nothing got to you. You were surrounded and protected by men.
+- 'Vegetarian' is a slippery word. I don't eat cheese, I don't eat duck - the point is I'm vegan.
+- In school, I learned about artists and how they were free to express themselves. I was allergic to conformity, and the lifestyle attracted me. I wanted to express myself in a way that slammed people up against the wall.
+- Through your life, most people peel away the junk that's not useful, that's superfluous. You are determined to peel that away. I do one thing at a time. One man at a time. One car. One house. One child. One job.
+- People ask me why I don't paint oils. It takes too long. Cleaning brushes in linseed oil, and it takes six months to really dry, and all this. I don't have that kind of time. I work with acrylic. It's water based. You can clean it under water. If you spill it on yourself, you just throw it in the washing machine.
+- You either evolve or you don't. I don't like old people on a rock n' roll stage. I think they look pathetic, me included. And the fact that I represent an era means I can't just go out there and do all new stuff. They would all say, 'Sing 'White Rabbit,' and I'd say no? That's rude.
+- I don't miss anything about the 1960s, not really. I did it. It's like asking, 'Do you miss the fourth grade?' I loved the fourth grade when I was in it, but I don't want to do it again.
+- My deal is that I pay more attention to whatever job I have than the relationships I have. Now, if I had considered my job to be a wife and mother, then I would have been pretty good at it. But I didn't consider it a job. I thought it was like brushing your teeth - it's not fun, it's just something you do to keep your teeth from falling out.
+- Things change so fast, you can't use 1971 ethics on someone born in 1971.
+- I'm a commercial artist, both in music and art.
+- You can't make people change, but the organizers of WorldFest hope that people consider being vegetarian for both moral and health reasons.
+- One good thing about television is that you have a lot of people with money who have real good cameras going around to all these countries. You haven't been there? Great. Turn on The History Channel or The Discovery Channel. So, we're lucky in that way.

@@ -1,0 +1,28 @@
++++
+author = "Susumu Tonegawa"
+title = "Susumu Tonegawa Quotes"
+quotes_len = "22"
+description = "the best 22 Susumu Tonegawa Quotes"
++++
+- When General Motors builds a car, they want to meet the specific needs of many customers. But if they custom-make each car, then it will not be economical.
+- The brain is probably the most mysterious subject there is.
+- I decided to pursue graduate study in molecular biology and was accepted by Professor Itaru Watanabe's laboratory at the Institute for Virus Research at the University of Kyoto, one of a few laboratories in Japan where U.S.-trained molecular biologists were actively engaged in research.
+- My father was an engineer working for a textile company that had several factories scattered in rural towns in the southern part of Japan.
+- Humans are very imaginative animals.
+- Immunologists agreed that an individual vertebrate synthesizes many millions of structurally different forms of antibody molecules even before it encounters an antigen.
+- The brain is hugely complicated, and because it is so complicated, it requires multidisciplinary research.
+- I commuted to the prestigious Hibiya High School from my uncle's home in Tokyo. During the high school years, I developed an interest in chemistry, so upon graduation, I chose to take an entrance examination for the Department of Chemistry of the University of Kyoto, the old capital of Japan.
+- At the suggestion of Professor Itaru Watanabe, and with his help, I left Japan at the age of twenty-three to pursue graduate study at the University of California at San Diego.
+- Our study showed that the false memory and the genuine memory are based on very similar, almost identical, brain mechanisms. It is difficult for the false memory bearer to distinguish between them.
+- My scientific career has developed on three continents: Asia, Europe and North America.
+- It doesn't matter whether it is chemistry or immunology or neuroscience: I just do research on what I find interesting.
+- Recalling a memory is not like playing a tape recorder. It's a creative process.
+- We found out that, contrary to what many people thought, in the immune system, genes can change during the life cycle of the individual.
+- Even under normal conditions, how we can distinguish various events, various experiences, and be able to reproduce it later is, of course, a very interesting question and, I think, one that we face in day to day life.
+- After I arrived in Basel, I initially attempted to continue the project of my days in Dulbecco's laboratory, namely, the transcriptional control of the simian virus 40 genes.
+- In the early Seventies, the technology for purifying a specific eukaryotic mRNA was just becoming available.
+- Although we often discussed the idea of research on the nature of antigen recognition by T cells in the laboratory in the late Seventies while I was still in Basel, the real work did not start until the early Eighties in my new laboratory at M.I.T.
+- I see myself as a scientist who is interested in what's going on inside of us.
+- In 1981, after ten years in Basel, I returned to the United States to continue my research on the immune system at the Center for Cancer Research of the Massachusetts Institute of Technology where Director Salvador E. Luria provided me with an excellent laboratory.
+- I became fascinated by the then-blossoming science of molecular biology when, in my senior year, I happened to read the papers by Francois Jacob and Jacques Monod on the operon theory.
+- Independent of what is happening around you in the outside world, humans constantly have internal activity in the brain.

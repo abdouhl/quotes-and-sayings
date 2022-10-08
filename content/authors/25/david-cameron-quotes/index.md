@@ -1,0 +1,107 @@
++++
+author = "David Cameron"
+title = "David Cameron Quotes"
+quotes_len = "101"
+description = "the best 101 David Cameron Quotes"
++++
+- I was the future once.
+- I know the British people and they are not passengers - they are drivers.
+- We cannot go on as we are with 2.6 million people on incapacity benefit, 500,000 of them are under 35. Are we really saying there are half a million people in this country under 35 who are simply too ill to work? I don't think that's right.
+- Before people break the law, they need strong families - adult authority figures and the love of the family. When they step over the line, I'm a Tory. I believe in tough responses, in the law coming down on people like a ton of bricks.
+- One of the pleas you get when you're talking to the tourist industry or the energy industry or the whoever is, 'Please, can we just have the same minister for longer than five minutes?'
+- I do think 'Gogglebox' is extraordinarily insightful, and I think if politicians want to understand how we are viewed at home, it's quite recommended viewing.
+- Elections aren't about records, they're about plans and choices.
+- We need the Chinese to - you know, spend more, save less - consume more and not be so focused on exports. There are big changes we need in the world.
+- I believe something very deeply. That Britain's national interest is best served in a flexible, adaptable and open European Union and that such a European Union is best with Britain in it.
+- I mean, I'm a conservative. I believe that, you know, if you borrow too much, you just build up debts for your children to pay off. You put pressure on interest rates. You put at risk your economy. That's the case in Britain. We're not a reserve currency, so we need to get on and deal with this issue.
+- I am not a British isolationist. I don't just want a better deal for Britain. I want a better deal for Europe too.
+- Today, hundreds of millions dwell in freedom, from the Baltic to the Adriatic, from the Western Approaches to the Aegean. And while we must never take this for granted, the first purpose of the European Union - to secure peace - has been achieved and we should pay tribute to all those in the EU, alongside Nato, who made that happen.
+- I believe that in life, you have to give things your best shot, do your best. You have to focus on what needs to be done, do the right thing, not the popular thing.
+- If you lose control of your debt and deficit, you get massive cuts in things such as health and education. You get appalling insecurity, jobs lost, firms going overseas.
+- But we will say something else. That for far too long in this country, people who can work, people who are able to work, and people who choose not to work: you cannot go on claiming welfare like you are now.
+- You do not have to be an economist to know that putting up the cost of employing someone is a pretty barking thing to do when you're trying to get out of a recession.
+- More of the same will just produce more of the same: less competitiveness, less growth, fewer jobs.
+- It does not seem to me that the steps which would be needed to make Britain - and others - more comfortable in their relationship in the European Union are inherently so outlandish or unreasonable.
+- We will say to people that if you can work, and if you want to work, we will do everything we can to help you. We will give you the training, we will give you the support, we will give you the advice to get you going and get you back at work.
+- Terms are like shredded wheat - two are wonderful, but three might just be too many.
+- I think it true that, you know, sometimes things start to change even before a government changes and, actually, I think you can begin to see even the Labour machine beginning to understand that it has become over-reliant on targets and processes, that local governments have been over-bossed and bullied.
+- When you're taking the country through difficult times and difficult decisions you've got to take the country with you. That means permanently trying to make the argument that what you're doing is fair and seen to be fair.
+- I would be heartbroken if I ever thought that people in the Jewish community thought that Britain was no longer a safe place for them.
+- It is vital that we get these policies right as we take forward our plans to drive down the deficit and transform our economy.
+- On the one hand we have got to ask, are there some areas of universal benefits that are no longer affordable? But on the other hand let us look at the issue of dependency where we have trapped people in poverty through the extent of welfare that they have.
+- Britain is not in the single currency, and we're not going to be. But we all need the eurozone to have the right governance and structures to secure a successful currency for the long term.
+- You will feel the full force of the law and if you are old enough to commit these crimes you are old enough to face the punishments. And to these people I would say this: you are not only wrecking the lives of others, you are potentially wrecking your own life too.
+- The economy is the start and end of everything. You can't have successful education reform or any other reform if you don't have a strong economy.
+- Edward Heath and Richard Nixon took personal awkwardness with each other to new and excruciating levels.
+- I think the country requires fresh leadership. I do not think I can be the captain to take the country to its next destination.
+- At a time when we're having to take such difficult decisions about how to cut back without damaging the things that matter the most, we should strain every sinew to cut error, waste and fraud.
+- Competitiveness demands flexibility, choice and openness - or Europe will fetch up in a no-man's land between the rising economies of Asia and market-driven North America.
+- I've said I'll stand for a full second term, but I think after that it will be time for new leadership. Terms are like Shredded Wheat - two are wonderful but three might just be too many.
+- I believe very strongly that staying in is the right answer for Britain. And I haven't pulled my punches, I've fought this campaign the only way I know how, which is to lead from the front, to be clear about what I believe, to be clear about what the consequences are.
+- Our participation in the single market, and our ability to help set its rules is the principal reason for our membership of the EU. So it is a vital interest for us to protect the integrity and fairness of the single market for all its members.
+- Taken as a whole, Europe's share of world output is projected to fall by almost a third in the next two decades. This is the competitiveness challenge - and much of our weakness in meeting it is self-inflicted. Complex rules restricting our labour markets are not some naturally occurring phenomenon.
+- I'm a classic Church of England member, but part of its strength is the fact that it doesn't ask us to sign up to too much of a canon... but I've always found the teachings of Jesus and the Bible quite useful as a sort of handy guide.
+- It is so important for European countries, post-Second World War, to prove that they can be successful multiethnic and multiracial democracies. I think we in Britain have had great success in avoiding the hatreds and prejudices of the past.
+- I watched, for the 17th and hopefully the last time, The 'Guns of Navarone' on New Year's Eve. I always watch just in case the explosives don't go off in the end. You have to watch the end, just to make sure it's OK.
+- I believe in the family. I believe in marriage, and I think it's such a great institution. I think men should be able to marry each other, and women should be able to marry each other.
+- My fear is turnout. I think a lot of people might think: 'Well, in the end, it's the rational thing to stay, but I'll let other people make that choice for me.' Don't. This is very close, no doubt about it.
+- 2012 has been an extraordinary year for our country. We cheered our Queen to the rafters with the Jubilee, showed the world what we're made of by staging the most spectacular Olympic and Paralympic Games ever and - let's not forget - punched way above our weight in the medals table.
+- Half a century ago, the amazing courage of Rosa Parks, the visionary leadership of Martin Luther King, and the inspirational actions of the civil rights movement led politicians to write equality into the law and make real the promise of America for all her citizens.
+- After the Berlin Wall came down I visited that city and I will never forget it. The abandoned checkpoints. The sense of excitement about the future. The knowledge that a great continent was coming together. Healing those wounds of our history is the central story of the European Union.
+- For me, and I suspect for lots of other people too, bad things actually sometimes make you think more about faith and the fact that you're not facing these things on your own.
+- The benefits cap is right in principle because people don't pay their taxes so that families who could work don't work. People pay their taxes so we support people who really need to be supported.
+- In a global race, can we really justify the huge number of expensive peripheral European institutions? Can we justify a commission that gets ever larger? Can we carry on with an organisation that has a multibillion pound budget but not enough focus on controlling spending and shutting down programmes that haven't worked?
+- There definitely comes a time where a fresh pair of eyes and fresh leadership would be good, and the Conservative Party has got some great people coming up - the Theresa Mays, and the George Osbornes, and the Boris Johnsons.
+- If we are going to try to get across to the poorest people in the world that we care about their plight and we want them to join one world with the rest of us, we have got to make promises and keep promises.
+- The political system is broken, the economy is broken and so is society. That is why people are so depressed about the state of our country.
+- Let me completely condemn these sickening scenes; scenes of looting, scenes of vandalism, scenes of thieving, scenes of people attacking police, of people even attacking firefighters. This is criminality pure and simple and it has to be confronted.
+- Countries are different. They make different choices. We cannot harmonise everything.
+- I went to a very posh school, I had a very privileged upbringing with parents who were incredibly loving and brilliant. I've never tried to hide that; I'm not going to change my accent or talk in a different way.
+- The biggest danger to the European Union comes not from those who advocate change, but from those who denounce new thinking as heresy. In its long history Europe has experience of heretics who turned out to have a point.
+- I am very proud to have kept my commitment to introduce the married couples' tax allowance. I think it will prove very popular. I think it's absolutely right that we recognise marriage in the tax system properly, and I would like to see that expanded.
+- Any government I lead will continue with the equality of gay and lesbian people.
+- I'm not really interested in clothes. Mainly, I like wearing clothes that don't make me stand out - I tend to go for Marks & Spencer and Gap - and I do get put in the changing room at Gap, and clothes are passed to me under the changing room door.
+- If you can work and if you're offered a job and you don't take it, you cannot continue to claim benefits. It will be extremely tough.
+- Yes, America must do the right thing, but to provide moral leadership, America must do it in the right way, too.
+- We are the reformers. Reform ends if we leave, not just for us but also our friends in Europe who want our voice heard in Europe.
+- The best route out of poverty, to avoid food bank usage, is to make sure more people get a job.
+- Because with courage and conviction I believe we can deliver a more flexible, adaptable and open European Union in which the interests and ambitions of all its members can be met.
+- The saddest moment as Prime Minister is writing letters to families who have lost loved ones in Afghanistan or those who we have tried to help in hostage situations but it hasn't worked out.
+- If we left the European Union, it would be a one-way ticket, not a return. So we will have time for a proper, reasoned debate. At the end of that debate you, the British people, will decide.
+- There's another way we are getting behind business - by sorting out the banks. Taxpayers bailed you out. Now it's time for you to repay the favour and start lending to Britain's small businesses.
+- From Caesar's legions to the Napoleonic wars. From the Reformation, the Enlightenment and the industrial revolution to the defeat of nazism. We have helped to write European history, and Europe has helped write ours.
+- I want completing the single market to be our driving mission. I want us to be at the forefront of transformative trade deals with the US, Japan and India as part of the drive towards global free trade. And I want us to be pushing to exempt Europe's smallest entrepreneurial companies from more EU directives.
+- I think us leaving would have an enormous and bad effect on the rest of the EU. The EU would respond by deepening integration and becoming more of a 'political project'. It would not only be damaging ourselves but also the kind of Europe we want.
+- If I've learnt anything over the last six years it's that the most important thing is the strength of our economy. That is how we pay for our NHS, how we build schools, how we provide opportunities for people. And I'm in absolutely no doubt that our economy will be stronger if we stay in and will be weaker and at risk if we leave.
+- As far as I am concerned this referendum should settle the matter. I believe it will one way or another be decisive. Britain will not want to go through this again. On the other hand if we vote to leave, this really is irreversible.
+- Whether you either passionately think we should stay in, or on balance think we should stay in, or on a balance of risks think we should stay in - for heaven's sake get out and vote in, because you might wake up and find out you're out.
+- For me, there is no greater sunshine in politics or in life than to have a job, security for your family, a good school place where you know your child is going, and the sense that if I put in, there will be a decent, secure retirement at the end of it all.
+- You don't have to be a brilliant historian to know that in Europe, messing with countries' borders, messing with their self-determination, their ability to choose their own futures, this is extremely dangerous, and that's why I think it is important to stand up to Putin.
+- We have the character of an island nation: independent, forthright, passionate in defence of our sovereignty. We can no more change this British sensibility than we can drain the English Channel. And because of this sensibility, we come to the European Union with a frame of mind that is more practical than emotional.
+- We spend billions of pounds on welfare, yet millions are trapped on welfare. It's not worth their while going into work.
+- As PM, you have got to do everything from chairing the Cabinet to ceremonial things. You have also got to do the nitty gritty. I do get stuck into the detail.
+- Cap the well, yes. Clear up the mess, yes. Make compensation - yes, absolutely. But would it be right to have legislation that independently targets BP rather than other companies? I don't think that - would be right.
+- People are increasingly frustrated that decisions taken further and further away from them mean their living standards are slashed through enforced austerity or their taxes are used to bail out governments on the other side of the continent.
+- I don't want to be Prime Minister of England, I want to be Prime Minister of the whole of the United Kingdom.
+- I am a country boy at heart.
+- It's everyone's dread to lose a child. You lose someone you love so much, so young. It does hit you like nothing else, and there is a bit of you that thinks, well, if you can face that sort of challenge in your life, then it puts everything else into perspective.
+- I'm a simple small 'c' conservative who believes in public service, serving others, and doing a good job for my country.
+- Britain is characterized not just by its independence but, above all, by its openness.
+- You have to be ready for anything. It's a good reminder about democracy. Voters can tell you to carry on, or chuck you out. You've got to be ready for both.
+- People feel that the EU is heading in a direction that they never signed up to. They resent the interference in our national life by what they see as unnecessary rules and regulation. And they wonder what the point of it all is. Put simply, many ask 'why can't we just have what we voted to join - a common market?'
+- I have no time for those who say there is no way Scotland could go it alone. I know first-hand the contribution Scotland and Scots make to Britain's success - so for me there's no question about whether Scotland could be an independent nation.
+- Christmas gives us the opportunity to pause and reflect on the important things around us - a time when we can look back on the year that has passed and prepare for the year ahead.
+- I am a very instinctive Conservative. I have created a welfare system where it pays to work. I have created independent schools within the state sector bringing excellence to children wherever they are.
+- I will do everything I can in future to help this great country succeed.
+- My view is, the most important thing as prime minister is trying to make the right judgments. In order to make good judgments, you need good advice; you need good principles, and you need a clear head, and you need to have a sense of equilibrium.
+- What Churchill described as the twin marauders of war and tyranny have been almost entirely banished from our continent. Today, hundreds of millions dwell in freedom, from the Baltic to the Adriatic, from the Western Approaches to the Aegean.
+- I don't just want a better deal for Britain. I want a better deal for Europe too. So I speak as British prime minister with a positive vision for the future of the European Union. A future in which Britain wants, and should want, to play a committed and active part.
+- I love cooking; it's a very good way to get your mind off things.
+- What we have seen with Islamist extremism, whether it is in Mali or Somalia or Afghanistan, is that the disease is not necessarily the individual country. The disease is the Islamist extremism, and that's what we have to fight; that's the narrative that we have to beat.
+- There is not, in my view, a single European demos.
+- I have a very clear view, which is that if you disagree with the policies of Israel, fine, say so, but that is never a reason to take that out on Jewish communities.
+- I think we need to just be very clear about what we're trying to do in Afghanistan. Frankly, we're not trying to create the perfect democracy. We're never going to create some ideal society. We are simply there for our own national security.
+- The EU must be able to act with the speed and flexibility of a network, not the cumbersome rigidity of a bloc. We must not be weighed down by an insistence on a one size fits all approach which implies that all countries want the same level of integration. The fact is that they don't and we shouldn't assert that they do.
+- One of the things I most admire about America is they have created a genuine melting pot society, a country of opportunity; you can be of any religion, colour, ethnicity, persuasion and make it to the top of your chosen field. And that's something I admire about America and hope they continue with.
+- There is a growing frustration that the EU is seen as something that is done to people rather than acting on their behalf. And this is being intensified by the very solutions required to resolve the economic problems.
+- What we're putting forward is the most radical reform of the welfare state... for 60 years. I think it will have a transformative effect in making sure that everyone is better off in work and better off working rather than on benefits.

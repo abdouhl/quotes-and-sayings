@@ -1,0 +1,104 @@
++++
+author = "Sal Khan"
+title = "Sal Khan Quotes"
+quotes_len = "98"
+description = "the best 98 Sal Khan Quotes"
++++
+- Our goal with Khan Academy Kids is to inspire a life-long love of learning.
+- One cannot be dogmatic about the right solution.
+- Suffice it to say that our over-reliance on testing is based largely on habit, wishful thinking, and leaps of faith.
+- As my kids grow up, I think a lot about the lessons and values I want to impart to them. More than any particular skill or even financial support, I believe perseverance and resilience will serve them best, regardless of what curveball life inevitably throws them.
+- Education should be a fundamental human right.
+- I'm actually a bit of a technophobe, which surprises people. I like to stay unplugged as much as possible.
+- Education is not an end to itself. You need to know algebra but also how to navigate the world.
+- I'd like to see a reality where, if someone wants to work when they turn 18 to help support their family, and they learn at their own pace on something like the Khan Academy or other things, that they can just, on their own, get a bunch of the credits they need just by testing out of things.
+- Can watching video lessons or using interactive software make people smart? No. But I would argue that it can do something even better: create a context in which people can give free rein to their curiosity and natural love of learning so that they realize they're already smart.
+- Every school is different and serves different populations.
+- You only have so much time in the day, and you only have so many working years. Where do you want to invest that life?
+- A good traditional conceptual instruction is what I got from my better professors at MIT. They would be at a chalkboard, and they would literally be explaining something and working through a problem, but it wasn't rote. They were explaining the underlying theory and processes and intuition behind it.
+- Being a billionaire is sort of passe.
+- Later in life, when my kids struggle to understand a tricky concept or master a new skill, I want them to have the strength and experience to tell themselves, 'I don't know how to do this... yet!' I want them to be confident that, even if something seems challenging today, they have what it takes to figure it out.
+- As technology plays a major role inside and outside the classroom, we want to make sure education innovation is accessible.
+- Formal education must change. It needs to be brought into closer alignment with the world as it actually is, into closer harmony with the way human beings actually learn and thrive.
+- Our mission at Khan Academy is a free, world-class education for anyone, anywhere, and college readiness is a crucial part of that. We want to help as many students as possible prepare for college and for life, and since the SAT measures preparedness for college, our partnership with the College Board is a natural fit.
+- A lot of times, when kids have problems with algebra or trigonometry, it has nothing to do with the subject matter, has nothing to do with their innate intelligence. It's just they that they had some gaps in elementary school that they never got to fill in.
+- The answer is pretty clear that your intelligence can actually be changed.
+- I'm the 'Dear Abby' of math problems. But if you understand something, shouldn't you be able to explain it? Isn't that the whole point?
+- If high-quality content can be effectively delivered via technology, teachers can devote more time to creating innovative experiences, leading Socratic dialogs, or coaching students one-on-one in more targeted and focused interventions.
+- I've already got a beautiful wife, a great son, and a house. What else do you need?
+- I learned from my peers, and I learned from doing projects, and I learned from mentors, but I learned very little from lectures, and I've talked about how little I attended them.
+- I am personally an idealist. I was lucky enough to follow my dreams in my own life, so you should definitely follow your dreams.
+- I'd set up the Khan Academy as a not-for-profit in 2008, but I was doing well in my job and initially thought I could fund the Academy myself. But by 2009, I was getting so much good feedback that I told my wife that I wanted to do this full time. We had some funds to fall back on, and I knew doing this made me happy.
+- Louisiana was as close to South Asia as the United States could get: it had spicy food, humidity, giant cockroaches, and a corrupt government.
+- I realized that there are many people who are very good students, but they think of themselves as bad students. At the end of the day, what they are really missing is way to understand where their gaps are and a way to address those gaps.
+- A one-size-fits-all lecture is not the way to go about education.
+- One of the biggest ways to level the playing field is to give all young people the same context on what opportunities are out there. And that means touching on some of the questions that are a little taboo in society: How much money do you make? What are your stresses? What would you do differently if you could?
+- You have all this education theory, and people try to make larger statements than maybe what their data would back up, because they've done these small experiments that are tied to a very particular case with a very particular implementation... theory definitely matters, but I think dogma matters less.
+- Some kids grasp a subject faster and race ahead to the next level, while others continue to struggle with the first. The great thing we've seen is that if you let a student take his time to master a concept, he will probably race ahead on the next one.
+- The whole reason why we have this kind of assembly line model of education that we inherited from the Prussians, is they were the first people - it's a very egalitarian motive - to say how do we educate everyone.
+- I think history shows us that there is not one credible credential that has come from the for-profit reality, and that is because the for-profit reality is inherently motivated to maximize the level of people that take it.
+- At a lot of college graduations, you'll hear people say, 'Follow your passions,' and that is important, but no one talks about the stress of not having enough money, the issues of debt, and the issues of work stress.
+- I've learned that certain things are much harder than when you write about them in a book.
+- What you have in most education software is that they're catering to the decision-maker who makes the budget allocations, and that decision-maker has a lot of check boxes. Does it do this? Check. Does it do that? Check. They could care less about the end user experience.
+- Something happens in school sometimes where you're like, 'Oh, I'm not an expert, and I have to defer to people who are.' And it happens not just in school: it happens in religion, too. Defer to the experts. A printing press is a big deal - they got the Bible, and all of a sudden they could read it for themselves.
+- No one goes on a direct path, even though it sometimes feels like your peers might be racing ahead. Everyone's trying to figure it out. But if you just put yourself out there, step out of your comfort zone, establish yourself in terms of skills, mentorship, but leave space for your passions, then you're going to turn out pretty well.
+- We want to make access to a world-class education like clean drinking water or electricity.
+- We don't believe that you should ever replace physical education. Even in a thousand years, a computer will never be able to do so.
+- I see no reason why there still are large lectures in universities throughout the world. When people gather, they should be interactive, problem-solving, and experimenting; not passively listening.
+- I do believe that education should become as close to free as possible.
+- I've been surprised at how motivated a lot of people are that you wouldn't traditionally think would be that kind of a motivated student.
+- One's perception of themselves has a much bigger role than has been acknowledged to determine who succeeds and who does not.
+- Rather than saying, 'I can't do this,' 'Sesame Street' encourages us to say, 'I can't do this... yet!' That one word changes everything. It emphasizes that your capability isn't fixed. It highlights the reality that our brain is like a muscle.
+- My parents separated when I was two, and then my father passed away, so I never really knew that side of the family.
+- To be clear, people are the most important part of any classroom. If given the choice between a great teacher and the world's most advanced education technology, I'd pick the teacher any day for my own children.
+- My personal narrative - I was lucky early on in my career to have some really strong mentors. I didn't realize it at the time, but that's what really built me up.
+- By early 2009, tens of thousands of students were watching tutorials on the Khan Academy every day. The software I wrote for my cousins had become so popular, it was making my $50-a-month web host crash. The possibilities surrounding the academy were so exciting that I had trouble doing my day job properly. And soon, I quit.
+- Many of the best teachers I know are being laid off because their unions value seniority over intellect, passion, creativity, and drive.
+- If you're going to charge someone for something, you have to show them value for it.
+- Free educational materials will, at minimum, prepare more people for college and allow them to be more successful once they get there. Most students want credentials that employers respect, and free educational materials alone will not do this.
+- I'm big fan of soulful music - classic rock with a folk-ish twist.
+- Education has to be more than tests and formulas.
+- The reason the gifted students of the world like Khan Academy is because we don't say, 'Memorize this formula,' but say, 'Let's try to derive it from core principles,' or, 'I forgot my trig identity, so I'm going to just try to prove this to you.'
+- We're so used to the tests telling me if I'm smart or not. It's telling me if I know the material or not.
+- I always wanted to start a school. I talked about it in college - but I didn't do anything about it.
+- The ideal direction is using something like Khan Academy for every student to work at their own pace, to master concepts before moving on, and then the teacher using Khan Academy as a tool so that you can have a room of 20 or 30 kids all working on different things, but you can still kind of administrate that chaos.
+- I'm not the kind to hang out on Facebook or Twitter or even talk on the cellphone, really.
+- There is too much acceptance of people saying, 'I am a math person, or I am an artsy person.' It makes me cringe.
+- Great people are attracted to great people and great visions.
+- Teachers' unions don't act in the interest of most teachers.
+- Some of the beauty of a university is that every professor is given a lot of autonomy over what he or she does. That's also what makes it very hard for even a very forward-thinking president to change courses.
+- India, with one of the largest education systems in the world, has always been a priority for Khan Academy.
+- I'm a fan of hard science fiction, which is science fiction that is possible.
+- I never viewed technology as a replacement for the human experience. I viewed it as something that could liberate the human experience.
+- I went to a fairly normal, middle-of-the-road public school in a suburb of New Orleans, but it gave me huge opportunities.
+- Creating a clear and engaging video explanation of a complex concept is a great way to demonstrate mastery and to help others understand and love the subject, too.
+- At the end of the day, what matters is whether your product works and whether people like it.
+- The math you need for most of finance is ninth-grade algebra, and most people feel reasonably comfortable with that. But I think the financial world there has been - I don't know if it's by design, or this is how it's evolved - there are bad actors who have wanted to obfuscate because you can benefit from the lack of transparency.
+- All too often, technology is treated as a silver bullet for perceived problems in education. This sometimes leads to knee-jerk investments, using scarce resources to invest in software or hardware without a clear notion of how either might actually empower learning.
+- I was always asking people about their work. How do you do a job like that? Do you love it? What does it pay? I was lucky to have access to people who could answer my questions. Otherwise, my life could have turned out very differently.
+- I love Victorian novels, the way they capture the nuances of the human condition.
+- It's definitely important to have a vision, to have kind of a sense of what might be possible, but not to be dogmatic about your beliefs about the way something has to be done.
+- I'm starting a virtual school for the world, teaching things the way I wanted to be taught.
+- After my parents' divorce in the early seventies, I grew up with my mother, who wasn't super educated herself. But there were a lot of kids from the subcontinent in the neighbourhood, many of whom were academic achievers. So my sister and I grew up around them, and both of us did well in school.
+- Teachers can use technology-based assessments to inform their instruction. These assessments can quickly produce data and surface patterns that help teachers identify where students are faltering and intervene with targeted coaching immediately, before the student falls too far behind.
+- Education has helped me a lot.
+- It's an old idea. It's arguably the first way that people learn, that, hey, if you need to learn something, if you're having trouble with it, keep working on it until you master it and then you go to a more advanced concept. But in the education systems that all of us grew up in, we all learned at a fixed pace.
+- I am infamously bad at asking for money.
+- I hope I could spend the rest of my life learning and communicating.
+- Just as computer science is missing from our school system, so is science fiction.
+- What I did by virtue of skipping a lot of classes was get two undergraduate degrees and a master's in four years. It wasn't slacking. There were much more productive ways of learning everything than sitting in lectures.
+- In Idaho, we hope to see educators using Khan Academy to individualize their instruction. Instead of a one-size-fits-all lesson, teachers will be able to focus their attention on specific students who are struggling while the rest of the class engages with material appropriate for them.
+- I grew up with plenty of smart people. They would beat me at chess; they could solve brain teasers before I could, but then they would struggle in algebra. These were incredibly smart people who simply did not have the foundation in math that I had.
+- Our goal is for Khan Academy's software and content to be the best possible learning experience and for it to be for everyone, for free, forever. This is why we are a non-profit, and it's also what drives our small team and supporters.
+- The ancient universities was not as based on how many credit hours you're taking and whether you've completed your credit hours. The ancient universities were much more interested in customized, personalized learning... Where you have a mentor and where you're learning at your own pace.
+- The single most important personal finance decision you make is your career.
+- I was a good but not super serious student until about 10th grade, until I was about 14 or 15. Then I started to realise how competitive the world is. I started to meet kids who were more high-performing.
+- When I used to try and describe what the Khan Academy was, I would tell people that if it were a for-profit, I would be on the cover of 'Forbes.'
+- Sometimes I think people confuse rote learning with traditional conceptual instruction.
+- People who are looked up to in America will often say, 'I don't get math.' And they'll often say it like they're being humble, but they seem almost proud of it because it's acceptable to act this way.
+- My father's side of the family was very active in education.
+- Far too many bright, motivated kids are being badly served by their educational experiences - ones at elite, wealthy schools as well as underfunded ones.
+- There are things you can get in that physical experience you cannot get virtually.
+- If a student has access to a great school, Khan Academy can supercharge it. It should help a well-resourced school, and if you don't have that, then Khan Academy can have even a bigger impact. But I don't see it as replacing the actual schools... we want to empower teachers and fill in the gaps.
+- People in the media and press often say they've never been good at math. It might be that people that consider themselves creative didn't consider themselves good at math or didn't find math interesting at those early stages. And those creative people are disproportionately represented in those influential roles.
+- Kids and adults alike are having their curiosity drained away by boredom in class or the workplace, and by the unremitting background noise of a dumbed-down pop culture.

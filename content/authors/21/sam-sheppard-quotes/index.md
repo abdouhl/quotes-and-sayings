@@ -1,0 +1,20 @@
++++
+author = "Sam Sheppard"
+title = "Sam Sheppard Quotes"
+quotes_len = "14"
+description = "the best 14 Sam Sheppard Quotes"
++++
+- Certainly, my father would not want to see me destroy myself in this business, as so many people in our family have been destroyed. I try to take good care of myself, but we are fighting the good fight, and the truth is powerful.
+- Hour after hour, they shouted at me, accused me, insulted me and members of my family.
+- I therefore believe that our system does not have a word for failed trial, and that is where the American public does not realize that our criminal justice system sometimes makes mistakes.
+- I was in love with my wife and she was in love with me. We got along wonderfully.
+- I have never refused to talk to any authorities or give them any information I had.
+- The second trial was a fair trial. I do not call it a second trial. I call it a fair trial, as opposed to the first trial, which was an unfair trial, a Roman holiday.
+- I do not believe in censorship, but I believe we already have censorship in what is called marketing theory, namely the only information we get in mainstream media is for profit.
+- Each time I told them I didn't kill my wife.
+- I believed or thought I was disoriented and the victim of a bizarre dream and I believe I paced in and out of the room and possibly into one of the other rooms. I may have re-examined her, finally believing that this was true.
+- Our family, from day one, has only sought the simple truth in this matter.
+- I visited my father for the full ten years that he was in prison, so we already had a deep and loving relationship, and remembered our mother at those times.
+- I believe the question now is: who murdered my mother?
+- Upon the death of my father, our family and myself were emotionally and financially exhausted.
+- Our family had been shattered, but we now are more united, and the remains of my family and the majority of my mother's family are glad to know the truth about a horrible crime.

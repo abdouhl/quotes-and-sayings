@@ -1,0 +1,51 @@
++++
+author = "Shane Filan"
+title = "Shane Filan Quotes"
+quotes_len = "45"
+description = "the best 45 Shane Filan Quotes"
++++
+- I'd like to keep singing - whether that's small or big. To stop singing for a living would break my heart.
+- I can say 100% that Westlife is not breaking up.
+- When you realise that money doesn't actually make you happy, it's a quick fix to have things you've always wanted, but then when you have it, you realise that's not what actually makes you happy. It's more about having a great marriage and happy children; that's what life's all about.
+- I'm more of a debit card person, and I live in the 'now'. I don't like credit cards anymore. I try to live with whatever I can afford and don't try to put myself in an awkward position. I've done that before.
+- I love Ireland. I'll always be 100pc Irish. I get really excited when I go to Sligo; it's my home.
+- I will definitely start in small venues, as I want to find my feet as a performer; the first shows that Westlife did was ten dates at Wembley, which was just crazy. We didn't have a clue what we were doing because it was so big.
+- The adrenaline of performing on stage to a crowd - there's nothing like it.
+- It's amazing how lucky Westlife were and what we achieved. It's very rare to have seven number ones in a row. Ridiculous in fact.
+- I knew I was going to lose my house in Ireland and all the other properties. It's all gone. But my house was the one material thing that was very important to me.
+- After Westlife, I was in a scared place, you know; you've three children, and I worry about providing for them, and I had no guarantees going forward about the future.
+- Every year, we couldn't believe it, and even when I look back on it now, to sell 14 million singles, 50 million albums and sell out arenas and stadiums, what Westlife achieved was crazy. It's like One Direction probably don't realise how big they are. They'll look back one day and think, 'Holy God, that was pretty amazing.'
+- My kids are Irish; I want them to grow up playing Gaelic football and learning Irish.
+- I think Westlife is very unique: we have a certain sound; we do our thing our way, and we don't try to change too much. I think that's what the fans love about us. We keep giving the fans what they want every year. The style of music never really changes too much.
+- I've been a solo artist for a year now, and I think I should start thinking about the future now. Every spare time I get, I want to be in the studio and work on music for 2015. It's a lot of work.
+- 'Everything To Me' is about everything that's important. It's about my wife, my kids, it's about life, about being happy. It's about life in general, you know, about not knowing what's going to be around the corner, but you've got to enjoy it and enjoy the things you have. My wife, my kids, my health, and stuff like that.
+- You shouldn't end a band like Westlife and not be financially secure to some extent, but I wasn't at all - it was the complete opposite. But you look at stuff then, 'Well, what do I have? I don't have money but I have a great marriage, three healthy kids, and I have my voice. I'll just start again.'
+- My mum and dad ran a family cafe in Sligo for 35 years and worked long hours. We grew up in a very hard-working family and had a lovely atmosphere, as we lived above the restaurant. It definitely made me want to work hard, whatever I chose to do. As the baby of seven kids, I was definitely a bit spoilt.
+- I have worked long and hard to try to reduce my debts, and I am devastated that it came to this conclusion. I now intend to focus on the remaining dates of the Westlife tour and my commitments to the band before looking to rebuild a future for my wife, my three children and myself.
+- I have three children to take care; I have a wife. My job is to take care of them, and I can say it's a pretty cool job to have.
+- It's a big deal to bring your family on the road, you know? I'd love to do it sometime, but you have to work out schools and all that.
+- I didn't really like 'You Raise Me Up' at the time we recorded it; now it's my favourite Westlife song.
+- I didn't want to be a solo Westlife - covers and ballads - and the reason I signed with Capitol Records was because they wanted me to write songs myself. It was pretty scary, but they put me in a studio in Nashville with some new songwriters, and the results were pretty good.
+- You know One Direction do a lot of up tempo songs, but when they did that Ed Sheeran song 'Little Things,' that was probably their biggest song off their last album, so it shows you that a ballad never goes out of fashion.
+- I don't think about success to be famous, because I've done that at the highest level, but it's all about my children.
+- Together with a team of financial and legal experts I have spent months exploring all possible alternatives to bankruptcy but to no avail.
+- I think that lyrically, 'Safe' is a very positive song: it's very strong; it's about keeping somebody safe and protecting people. I think everybody anywhere in the world can relate to it. I think everybody wants to feel safe; everybody wants to feel protected.
+- Capitol Records were very keen for me to write and see how I got on; I think that is what defined my sound. The first session I had was with two young up-and-coming writers, Nick Atkinson and Tom Wilding, and I went into a session a bit nervous because I hadn't written that many songs before.
+- I think that as a band, we find joy, and we love what we are doing. We are very good friends, so we get on very well, and we have a lot of respect for each other. We have a lot of respect for what Westlife is. We have a very, very solid and strong fan base all over the world.
+- For me, it's never been about being famous. I just want to be a successful singer. I wanna work hard... If I'm in the papers, grace, but I want to be there for the right reasons - for my music.
+- I put all my eggs in one basket and invested in property. I didn't do anything internationally - it was all in Ireland.
+- When I had money, I felt pressure, whether it was to invest it or do good with it, and I couldn't let it fizzle out. It was like I needed to prove to myself that I could look after it, only I did the opposite, but you have to take a chance in life.
+- You're only as good as your last album.
+- I worry about putting food on the table, paying for my kids needs, their college fees in years to come. It's about earning enough to have a living to be able to look after your children.
+- Working on solo material is something I had always dreamed of doing, and I'm incredibly happy with the results. 'Everything To Me' is a very personal song to me lyrically; it is such an upbeat and optimistic record, perfect for the summer. I can't wait for people to hear it!
+- You've got to go down the road you naturally go down, and for me it was pop, folk country, just feel-good music. I suppose most of my songs are very up-tempo.
+- For Westlife, the music will never stop as long as our fans are around inspiring us to keep on making beautiful music together.
+- Yes, it's true, I have bought a helicopter. I really like it. I can't fly it, but I plan to get a licence one day.
+- The couple of years before I was declared bankrupt were the roughest. The bank letters, the pressure, the stress was awful. You're in this twilight zone of not knowing where your life is going, and yet you're in Westlife. Everything was great with the band. I was earning money, and it looked good.
+- When you look at bands like Take That, who have come back bigger than ever, you can see there will always be a market for good pop bands.
+- If I'm honest, I thought Westlife would keep going for longer than it did - we all did - but it sort of came to a natural end. When we decided we were going to split, I thought, 'If I'm going to sing, I'm going to have to do it solo.' Also, financially I was broke, so the decision was ultimately made for me.
+- When I finished Westlife, we had - Louie Walsh is still managing me - I was lucky to have options from different labels such as Sony and Universal. When we met Capitol and Nick Raphael, I just believed in them the most, and it looked like they believed in me the most.
+- Everybody, every tradesman that worked for Shafin or built my house got fully paid, well paid. Everybody got paid. I would like that to be said if I could because I haven't said it before, and it's important. People kind of think we left all these plumbers or electricians without getting paid.
+- Westlife earnt millions. We were on the 'Irish Times' Rich List. And then... I'm not!
+- When your child is looking up at you, and you are putting them to bed at night, and they are just lying there, you have to remind yourself that's what it's all about.
+- Why me? Why did this happen? How could I be in Westlife and then have nothing to show for it financially at the end of it? But it's like, why not me? That's just life. It's tough. There's a lot more problems in the world. There are a lot of people who would wish to God they had my problem instead of having a sick child.

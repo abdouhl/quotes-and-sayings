@@ -1,0 +1,38 @@
++++
+author = "Donald Mccaig"
+title = "Donald Mccaig Quotes"
+quotes_len = "32"
+description = "the best 32 Donald Mccaig Quotes"
++++
+- If you get a dog that goes out there and bumps the sheep, comes on too hard, the sheep don't trust him.
+- I am no historian but have tried to stick tight to the facts.
+- Believe in your work.
+- I don't care to read about Garrison Keillor. We cover the same sort of territory, and I don't need to know anything more about him.
+- You have to train a dog to think.
+- If you don't have work for a border collie or time to train it properly, your bright young border collie will invent his own work, and chances are you won't like it.
+- What we didn't realize then - and one of the many things Timothy Leary was wrong about - is that when you drop out, you inevitably also drop in.
+- I had been saying to myself for a good many years that I was really a writer and that I was in advertising temporarily.
+- When people say what is 'Gone With the Wind' about, they say it's a love story between Rhett Butler and Scarlett O'Hara. But Mammy is almost a third party.
+- Rhett Butler is very mysterious. He disappears, he reappears, God knows where he goes. We know nothing about his family to speak of.
+- Had we settled in Pennsylvania, there's no way I would have written a Confederate novel.
+- Border collies predate the British Kennel Club. They've been bred consistently for 100 years. They're the last working dogs in the world, with some minor exceptions. Bench shows, dog shows have ruined the other breeds, like the hunting dogs. Border collies are peasant dogs, and that's protected them.
+- I'd rather talk about dogs than about me.
+- Though each trainer believes his or her method is best, I don't think it matters which method the pet owner adopts so long as that owner finds a capable mentor and sticks with the training. Eventually you will learn to see your dog, and when that happens, the richness of your and your dog's lives will tell you what to do next.
+- In life, sometimes it pays off when you really don't give a damn.
+- I do not believe you can work with animals - certainly you cannot train them - without deciding that if humans have souls, dogs do, too.
+- That we have altered the dog genetically is well understood; it is hardly known how they changed us.
+- Research is the historical novelist's map, constraint, and purest energy.
+- Driving alone, you can make 800 miles a day.
+- The Civil War has a tremendous moral and emotional force.
+- It is the job of the dog trainer to summon the dog's genetics, not to impose man's will over dog's.
+- A young dog's faith is absolute... Dogs are notorious for hope. Dogs believe that this morning, this very morning, may begin a day of fascination, easily grander than any day in the past.
+- I'm a workaday writer.
+- I am built funny. Picture Mark Twain's head on Ichabod Crane's body. Now hold your mental picture to the light and crumple it.
+- Since dogs could hear and smell better than men, we could concentrate on sight. Since courage is commonplace in dogs, men's adrenal glands could shrink. Dogs, by making us more efficient predators, gave us time to think. In short, dogs civilized us.
+- The events of the Civil War are so odd, ferocious, and poignant that fictional characters do well simply to inhabit them.
+- A sheepdog trial is the most difficult test of a man and dog ever devised.
+- Sheep may not be brilliant, but they know that sheep in pen is stage number one of lamb chops.
+- Once they become AKC registered, the newspapers will become flooded with ads for them. And you'll see Border collies in pet stores and animal shelters.
+- The majority of border collie owners and breeders don't want to have anything to do with the show ring.
+- I'm out of the terse Hemingway school.
+- Border collies were trained in Scotland. They have the Scots' commands in their genes. At the dog trials, the owners wear those three-piece western suits, cowboy boots and 10-gallon hats, but they carry Scots shepherd's crooks over their arms and talk to their dogs in Scots accents.

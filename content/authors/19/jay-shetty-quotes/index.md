@@ -1,0 +1,81 @@
++++
+author = "Jay Shetty"
+title = "Jay Shetty Quotes"
+quotes_len = "75"
+description = "the best 75 Jay Shetty Quotes"
++++
+- We often refer to loneliness as something negative. And we look at it as a weakness.
+- I'm really fortunate that I get to work with amazing partners that thankfully want to work with me because of what I stand for.
+- I find that reading is a super important habit. It's one of the best ways to get centered, to find a new tool to play with, or to experiment with a new idea.
+- I feel that most of our pain from the loss of a loved one is things we never said or expressed.
+- If you're at a company, look at the person who is 20 years ahead of you and ask yourself, 'Is that where I want to be?' If the answer is no, then you need to find a new path.
+- Real love is figuring out how someone wants to be loved and loving them in that way.
+- When you can produce measurable, replicable results, it builds confidence and motivates you to keep pushing forward.
+- Don't fall in love too fast. You think you know their dreams, but you just know their plans. Plans come from the head, but dreams come from the heart.
+- If you know what you need, you will find the answers when you read.
+- Giving yourself space and time can actually lead to the birth of more creativity, better creativity, and some of your best work.
+- The quicker we can transfer our online connections to offline ones, the more meaningful social media becomes; rather than just leaving them there and chatting to people. So I really believe in the transfer of online to offline and I think that can make a huge impact.
+- When it comes to time management, I talk a lot more about energy management. I try to give people 100% of my energy even if I'm giving them very little of my time.
+- Doing one thing by yourself, for yourself, that creates joy is such an important habit.
+- When it comes to procrastination and overthinking, we have to overcome our self-doubt.
+- Anyone who is humble but still super accomplished, super recognized, renowned, has status, and has every reason to not have to be humble if they don't want to, but they still choose to be humble because they value that humanity is connected - that we're all on the same level as humans - that humility is what wins my heart.
+- When you are looking to be validated by others, you are living according to their values, not yours.
+- The power of love far outweighs the power of will.
+- Expectations are not based on reality. They are observations, expected realities, or beliefs of what you think will happen. Expectations of others stop us from acting as our highest selves and reaching our full potential.
+- If there's something you really love, something that you're excited to learn, something that you're energized when you hear about, speak about, or read about, that's where you want to throw your energy.
+- I was at business school doing pretty well for myself, had a few offers from some great companies. But when I traveled across the world, I was shocked by just how much pain, struggle, and anguish people had to go through to have basic necessities.
+- I think millennials have really made it their vision and commitment into life to really find themselves, to focus on what matters.
+- As a Millennial and Gen Z expert at Accenture I had the opportunity to host and lead several workshops and panels with key clients at industry events. The topics ranged from virtual reality to blockchain; artificial intelligence to machine learning.
+- I really believe that if you come across something in life that could improve the life of someone else, you should pass it on.
+- If I wanted to learn how to race a speed car, I'm not going to go and race with Formula One drivers. I'm going to go to a beginner's class.
+- What you smell has a big impact on how you feel.
+- The interesting thing about overthinking and procrastination is sometimes they can actually evolve into innovation and creativity in the short term. Letting an idea grow in your mind in the short term with a deadline and a plan can actually lead to innovation and creativity.
+- Your phone needs to recharge every night. Your laptop needs to recharge. Everything needs to recharge. Are you giving yourself space, time and effort to recharge?
+- Many of us actually feel the most loved when we're hugged, when we're embraced, and when we're cared for physically.
+- I see my whole 20s as a massive experiment. So were my teens. I think the problem is that we're not encouraged to experiment; we're encouraged to decide and choose, be singular and focused. You can't be that until you experiment. You don't know what's going to work until you try it.
+- Whatever that big procrastination overthinking thing is, I want you to dive into it. When I say dive into, I mean, clear your whole weekend and spend your whole weekend thinking about this.
+- When it comes to people I love and care about, I may condense the time, but I'm giving them every ounce of my energy. When it comes to creation, I block create and block focus on business.
+- Often, we think of change as being raising a million dollars or helping 100,000 people. But true change, real change could be just calling one person who you know is lonely every single day.
+- By looking at the suffering when I went out to India, I saw how people had nothing and were still trying to be happy.
+- Becoming a monk was a hard decision. Leaving being a monk was harder, but it's given me so much faith in my ability to transition, and that what I learned as a monk can still serve me.
+- We have a tendency to assume or believe saying I love you means we are ready for love, or that hearing it from someone else means they are ready. We just assume that we are on the same page about what it means. We don't know what someone else is thinking, projecting, assuming, expecting when they say that.
+- But when I lived as a monk, solitude is often spoken of as a strength. And so the first thing I'd recommend is finding one thing that you can do every single day that brings you joy. It may be reading a book you love. It may be looking at a beautiful piece of art.
+- My favorite way to learn is to speak to people who are already doing I want to do.
+- For me, it's always about using my platform to give people an alternative narrative, because we all need to upgrade our mindsets.
+- Instead of trying to get work, focus on your network. People will play a huge part in directing your growth and investing in relationships is critical no matter what you want to do.
+- If we could choose, we'd always want to be in flow and thriving, but that's not realistic. Growth has levels, and learning how to navigate them is important.
+- Social media is not going away and we're not all going to leave our phones for good. But we can make sure we don't look at our phones in the morning and the evening, which is better for our lifestyle.
+- If we don't choose to intentionally and consciously slow down and stop being in a rush, your body and mind will force you to do it anyway.
+- One of the most incredible things I believe that social media has done, is that it genuinely just amplifies what's inside us already.
+- Grow with people you love... Don't just spend time with them, grow with them, and you'll see your relationship grows at the same time.
+- Wealth can be used to make a huge difference in the world; social media can be used to have a positive impact on people, or it can be used for exactly the opposite.
+- I make ancient wisdom relevant, but through modern research and science.
+- We think we have to become something else to be satisfied, not realizing that being ourselves is the only thing that can satisfy us.
+- I got fascinated with all of this work in terms of spirituality, philosophy, behavioral science when I was around 18 years old. I've been doing this for 14 years, and I've been doing it online for three years.
+- When I became a monk, it didn't feel like I was giving up that much. I actually felt like I had made the best decision, because anyone who hadn't focused on building themselves up was the one losing out.
+- You don't want to make big decisions in a rush.
+- I remember being in India one time where I saw people who were struggling to find food at the bottom of a trash can, and then I walked into my hotel and saw people arguing over how the quality of food at the buffet wasn't good enough.
+- We get bored because we don't want to sit with our fears. We don't want to sit with our anxiety. We don't want to sit with our stress because it's uncomfortable.
+- Our past can be an opportunity to learn to feel happy, to feel joy, to feel power, to feel passion in your life.
+- I absolutely love Dubai. I have such a great community of fans out there, who always show me so much love.
+- Solitude is the strength of being alone. It's where we become our best company.
+- To me an influencer must embody 2 critical skills, continuous learning and storytelling. Accenture enabled me to accelerate my learning about exponential technologies and how they were impacting businesses, the economy and the world.
+- Aristotle was talking about happiness 2,000 years ago. Every area of our life has been disrupted and innovated apart from personal growth and self-awareness.
+- We often choose knowing over goodness. We'd rather know what's going to happen than expect to be treated with respect and worth.
+- We say yes to every invite, and then we feel tired and anxious and stressed and overworked and burnt out.
+- I think being still and being silent and finding your own space is so important in this hectic world.
+- If you can build a muscle, you can build a mindset.
+- You can't be what you can't see. Expose yourself to more role models and diverse experience to broaden your perspectives and ideas.
+- I create a lot of my content in one or two days for the next month because I can get really creatively inspired and then I can spend the rest of the couple of months thinking about other creative ideas but focusing on business, logistics, being effective, practical, and productive.
+- How do we merge entertainment and education? We live in a world where entertainment wins, but if entertainment can have an educational heart, then we can really change people's lives.
+- The people that you see winning in life are just knocking on more doors. They're just sending more messages. They're just sending more resumes. They're just calling more people. That is what makes you win.
+- Whatever you think someone else should give to you, you need to be able to give yourself first.
+- You start projecting hurt and pain onto yourself when you don't find closure. Be honest with the situation and yourself, clean the wound, and move on.
+- When I look at all of that and I look at the type of content I've created, every time I've gone wrong is when I've tried to create a piece of content where I want someone to learn something or know something.
+- Learning to love in the way someone wants to be loved is far more the definition of love than just loving in any way.
+- I shaved my hair. I wore robes. I slept on the floor. We meditated for four to eight hours a day.
+- So many of our love languages are based on how our parents loved us or didn't love us. What our parents gave us either has become our priority or what they didn't give us has become our priority.
+- But if you're doing something and you don't know why you're doing it, then it's good to reflect on the intentionality behind it.
+- I really want you to recognize that if you're taking care of your physical and mental health, you can take on any challenge.
+- Knowledge is power, and it can help you overcome any fear of the unexpected. When you learn, you gain more awareness through the process, and you know what pitfalls to look for as you get ready to transition to the next level.
+- I trained myself out of the habit of relying on notifications to make me feel good so that I could dedicate my time to my personal two-hour meditation practice every morning.

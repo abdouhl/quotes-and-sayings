@@ -1,0 +1,105 @@
++++
+author = "Sylvie Guillem"
+title = "Sylvie Guillem Quotes"
+quotes_len = "99"
+description = "the best 99 Sylvie Guillem Quotes"
++++
+- Dancers, you know, they have pain everywhere: ankles in the morning, or back or neck or ribs or knees or the muscles. You are never free of pain, you know.
+- Dancers are trained to be disciplined to do what they are told, but I knew that time goes by, and I didn't want to make the mistakes of the others.
+- When you do one more 'Cinderella' or whatever, what is there to learn? Every part in the repertoire has a good side and a bad side, and the more often you do the same ballet, the more often the bad side comes out. If you want to give dance life, you must give it fresh food, not keep going back to the garbage to look for old scraps.
+- Everything I do, I try to make it the best I can. So I go my own way and give it all I have.
+- I just don't like authority. I do like authority when I respect it.
+- I am only interested in being famous for my dancing. For me, the concept of the sacred monster is only about the stage - it is not about image.
+- If I do not feel comfortable, I will not look comfortable.
+- I am not nice. That has gotten me into a lot of trouble.
+- One has to learn to say, 'Wait, there is a pain that is not logical. I will do a scan, and if there is something serious, I will stop immediately.' If the body sends a message, you have to listen to it.
+- My father had the curved feet, my mother the legs, so I am a bit of both.
+- The Palais Garnier was part of my childhood, my pseudo-adolescence, my life.
+- If you start dancing too young, it can be torture. The bone is too soft, and it is going everywhere.
+- For someone like me, who as a kid could not have two people in front of me without wanting to hide, to end up on stage with a lot of people in front of me, feeling good, it has to be a strange and special place.
+- When you are young, you can do anything, everything, and nothing at the same time. You don't have that kind of judgment; you just eat... like teenagers that need to feed. After a while, you know exactly what you are looking for, that sense of analysis comes to you when you start to use your brain.
+- I have a strong sense of injustice and not admitting things just because that is the way someone says it should be. I need to understand. I need to agree.
+- To be free on stage, you need to have been disciplined.
+- I'm not the kind of person who is on television and in magazines every five minutes selling clothes or washing machines.
+- I had no sense of having reached some goal because I was an etoile at the Paris Opera. My ambition, if you can call it that, was to discover and learn and be excited by what I was doing. If I didn't have that, I would find it elsewhere.
+- As a professional ballet dancer, I have to accept that weekends are about work. The notion of a leisurely break with all the buzz and excitement of a Friday night simply doesn't exist for me.
+- I like creation even if it is a bit difficult. It is always very exciting.
+- When I was 25, it was painful. I was getting out of bed in the morning and couldn't walk. But when you are young, you don't care; it will pass. But one year after another, it's like, 'Come on, give me a break!'
+- I am very interested in nature.
+- My reputation precedes me all the time, but I'm not the monster people think I am.
+- I've learned to listen to what's going on with my body.
+- Terrorism is not a small problem.
+- Dancers should realise that they are really lucky. Dancing is not a job. It's people who are chosen. And you must realise that you are chosen. Sometimes I see a performance that makes me really angry - I think, 'Those people are lucky, and they don't realise it.'
+- As a child, I was afraid of everything. My parents were shy, the kind of people for whom it is an ordeal to go and buy some bread or whatever.
+- I would have loved to work with Cranko. I love stories. Even though I like a lot of style - Forsythe, Maliphant - I have this childish side that likes stories.
+- Choreographers tend to treat ballet dancers like kids they can manipulate.
+- Dancing pleases me. I hope I transmit that to others.
+- When I was doing gymnastics, I was playing. It was fun. The ballet was not fun at all. Yes, I agree you must have discipline, but you don't need to be a witch. You can't teach a child like that. Three times a week, I went back to train as a gymnast. Then I was happy.
+- I had never a thought of training to be a ballerina. I was a normal child. I never dreamed of the tutu.
+- Dancers are not like movie actresses. People look at our bodies, not our faces. They only recognise me when I sign my name on something and they say, 'Ah yes, Sylvie.'
+- I'm not a social animal, and I had a reputation that came before me of being very difficult, of screaming at everybody, so people tended to keep their distance.
+- If an idea comes and I am attracted to it, I will do it.
+- When I watch dance, most of the time I just see a potential that is not there at all. I just see they missed the point. They just give us a tiny bit of what it could be.
+- It would be nice to wake up and be able to walk to the bathroom. But even when I was 20 and at the Paris Opera, I had to crawl down the stairs; it is only when I start to work and stretch that my body begins to recover again.
+- The first time I took a plane to dance in front of an audience outside France was when I was in the Paris Opera Ballet School, and we flew to Japan.
+- At the Paris Opera Ballet, they were always making choices for me.
+- Some choreographers have been cautious about working with me.
+- I don't think you can ever leave the stage easily.
+- I have learned a great deal from the theatrical side of Covent Garden. The Paris Opera Ballet is more concerned with technique. It's perfect. It's beautiful. It's well done. But it lacks the theatrical tradition that is so important in England. At the Royal Ballet, absolutely everyone on stage seems to be caught up in the plot.
+- I am stronger as a vegan than I ever was with meat and dairy.
+- You don't start by saying, 'Well, am I better than her?' Because that goes nowhere. Instead, all your work, your passion, your will has to go into what you do. And then if there is a result, if people like you, if you are a bit different, then fine.
+- I can't have friends in every port. I have to work very hard and be very clear about what I want to do. I cannot just swallow everything I am told. I have to decide what I want to become part of my luggage - and what I don't.
+- It is in my nature to be a little shy. It takes time for me to talk to people and trust them.
+- Things that make me angry and sad, I cannot hide. It's not because I want to be a rebel; it's my instinct. When something touches me deeply, I really have to react.
+- There are things I cannot do, costumes I cannot wear. When I have taken stands on things, it is because I have thought carefully about them.
+- I cannot stand unfairness.
+- Ballet is hard enough when you go with it; when you have to force your body to do things, it is so much harder.
+- I like creation even if the process is always a bit difficult.
+- When I am on stage, I feel completely free and just want to let go.
+- There's a picture of me as a little girl, and I'm waiting to go onstage, and I am biting the last bit of nail I have left on my finger.
+- When a real artist creates something, it has to be a necessity, the only way he can say something.
+- The problems I had with the Paris Opera Ballet are a thing of the past.
+- 'Swan Lake' can be a nightmare. To make a 'Swan Lake' that is worth it, every single movement and breath has to be perfect. When you have an idea of 'Swan Lake' that is as high as that, it's almost impossible.
+- I judge myself severely.
+- Fate is like a train. When it flies past, you can choose if you want to get on it or not, to say no or say yes.
+- I could have done a lot of things on TV, but I don't want to be recognised in the street. I'm not ready to feel that sort of embarrassment.
+- I work hard to make a gift to the audience.
+- I am a bit of a boss, even when it's about the composting. This goes here! This goes there! Don't do that! Maybe for the sake of others, I should let go a bit.
+- I was born with a different physical capacity to other people.
+- A performance is like a boat. You really want it to arrive at port. So when something goes wrong and it doesn't get there, that touches me a lot.
+- I never dreamt of becoming a ballerina. I was just curious about it, it was something to explore.
+- There are some ballets you can do for a long time. With others, you have to know when to stop. Some are very destructive. Forsythe's choreography pushes dancers to the extreme. That's why it's best to vary. That way, you break your body a little bit in different places, but not a lot in one place.
+- A drop of water can't stop a fire alone. But a drop of water, plus another one, plus another one, then you have the rain, and the rain can stop the fire.
+- Walking in the mountains helps me unwind, but it also reminds me in a painful way that the real beauty in life is nature and animals, and that the human race, in all its arrogance, is intent on destroying it.
+- Dance should touch people.
+- Between what I know I can do and want to achieve and what the audience expects, it's a lot of pressure, and it's always adding up.
+- If I am out in the street or buying bread or taking a taxi, no one knows who I am.
+- 'Romeo and Juliet,' 'Manon,' 'Giselle' - they are not stupid stories. They have fantastic characters. They have a big package of emotion.
+- People thought I had no feelings, that I was hard. But really, I was extremely sensitive to everything.
+- When you start, you have no brain; you are a kid. It's fine. But then I started to be scared. I was scared of judgment - not as a dancer, but as a person - and I was really uncomfortable with people. And it lasted for a very long time.
+- Oh, I could have done more. I refused a lot of ballets. I said, 'No way, no way I'm going to do that.'
+- I loved being at the Royal Ballet. Those choreographers, MacMillan and Ashton, they knew how to translate complicated life into choreography.
+- There is a false idea that I am stubborn and do only what I want, but really, I am like a sponge.
+- If you are afraid of losing something, then you are dependent on it. If you are not afraid, then you are free.
+- Working with a new style of choreography is always a period of adaptation.
+- I do not want an animal to die for me.
+- When you improvise alone, you don't risk a lot, but doing an improvisation when you are two is even more difficult because you need to listen exactly to understand what is going to happen.
+- While I enjoy it, I will continue to go onstage. While I contribute something, fine. I don't want to be dragging my feet. I don't want to become pathetic, but I think I will be lucid enough. I'll know when to stop.
+- I think it's going to be the most difficult thing to do, to leave the stage. But if you have no lucidity about it, it's even worse because you don't see the negative side of you still being onstage.
+- I am not a completely stubborn person. But I have views.
+- My mother really pushed me when I was young. I didn't want to go to dance classes, but for some reason, when I was there, I didn't want to come back.
+- On stage, you can bring all those strong emotions that you don't have the opportunity to live. You don't want to die for love every day, but on stage, you can.
+- It is strange: I love to be in front of the audience, but I have this opposite side that is afraid of meeting people, that doesn't want to talk. I feel it's like having a little hard stone inside me of problems, doubts, and shyness.
+- Animals feel pain and love and joy, just as humans. But in the industrialised meat, dairy, and egg industries, animals are denied everything that's natural and important to them. Some of them don't even feel the fresh air. They don't see the light.
+- If we keep on destroying fish, there won't be any left. If the oceans die, we all die. It's as simple as that.
+- It's true I have a side of me that isn't very adult. I can get very emotional about things. I can become crazy, act the clown.
+- The stage is like a magnifier of thoughts and emotion and vibration; that's what the stage is incredible for because it makes you live other lives. It makes you experience other emotions. It makes you feel more beautiful or more alone or more angry. It makes you feel much more, more, more.
+- I love nature like nothing else. Before I moved to Switzerland, my home was a flat in London with a garden. In those snatched moments away from dance, I did typical weekend things like pruning, planting, and weeding. I planted fruit trees and even had a vegetable garden, but I wasn't around enough, so it was a disaster.
+- I was not happy with myself as a human being when I was very young - I was afraid of people; I was afraid of talking, I didn't know how to express myself other than by being on stage.
+- At school, either gymnastics or dance, it was the same. It gave me pleasure to move. And then, when I worked to achieve something new and out of the ordinary, it made me feel good. I felt I had surpassed myself.
+- No one person can change the world, but one and one and one add up.
+- I was afraid when I came to the Royal Ballet that it would be easy to have everyone walking all over me if I didn't stick up for myself.
+- Most producers who want you to dance are not looking at the long term. They see their evenings, the box office, whom they have to repay, whatever.
+- I think the only regret I have is not to have opened my eyes sooner to aspects of life like the relationship of man with nature and animals.
+- As much as I love my work, I do appreciate my rare days off. Even then, I can't afford to let the dancing go. I need at least an hour just to keep in shape, so wherever I am in the world, I'll grab the door or the furniture and do some serious exercise.
+- The best times are when the time on stage becomes much slower and the movement much bigger - in that case, everything seems to flow. This state does not happen very often, but when it does, it is a magic kind of pleasure.

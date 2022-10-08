@@ -1,0 +1,65 @@
++++
+author = "Gina Raimondo"
+title = "Gina Raimondo Quotes"
+quotes_len = "59"
+description = "the best 59 Gina Raimondo Quotes"
++++
+- People deserve to see a governor who is hustling every day.
+- People talk about Social Security. There is no parallel between Rhode Island's pension and Social Security.
+- It's all about the choices we make as a society. We can choose to have poor schools and parks and higher tuition at Rhode Island's colleges. But we should make an active choice.
+- I've been told I'm a workaholic.
+- I want to show two things. One, that Democrats can solve big problems and get things done. And two, that as a public official, you can make tough choices, do the right things for the right reasons, and upset some people. And still get elected.
+- I respect public employees and school teachers. They deserve a secure retirement.
+- If I'm a CEO, I want to be in a place where the government works.
+- We can just keep doing it the way we're doing it. We can attack everybody for small-minded things and crush everybody with a new idea. And where are we going to be? Where we are now - behind. Or we can embrace new things and try to be positive and let everybody play a role.
+- The public bus is how I got to school every day.
+- Budgets that don't balance, public programs that aren't funded, pension funds that are running out of money, schools that aren't funded - How does that help anyone?
+- If we could find a way to totally empower half of the brains in America, imagine how much more productive we could be.
+- Fixing the pension system was one of the biggest problems Rhode Island faced.
+- I guess whenever I'm in the paper, it's dealing with bridges falling apart, budget problems, pension crises - and saying we have to tackle these problems.
+- There's lots of people driving on the roads who don't have licenses. They're still going to work, still going to school. I want them to get a license and insurance so they're driving safely.
+- Programs like ACE's Bootstrap Summer Camp teach our kids important computer coding skills that will allow them to design their own futures.
+- The single greatest under-utilized resource we have as a nation is women and girls.
+- Let's make the SAT and PSAT free so everyone has a chance to succeed.
+- I am a mother with kids in the public schools. People should know that. I'm not just some policy maker who's totally detached from the rest of the community.
+- The combination of funding for our ports, airports, and highways is a really significant investment in our infrastructure.
+- I think the Founding Fathers probably knew what they were doing in setting up the government to have a healthy tension between the executive branch and the legislative branch.
+- What we have to do is support business, but also support our workers with job training programs and with reasonable wages.
+- I'll bring colleges and industry together to develop new products in marine science, green technology, and medical devices, and to train our workers to fill those jobs... We need to get Rhode Islanders back to work.
+- In business, we use certain principles to measure performance, and I envision applying those principles in the public sector.
+- The governor's not allowed to drive. That's part of the life you accept.
+- We need a collective moment where we commit ourselves to long-term solutions.
+- I want to hold government accountable and help create a more efficient and effective government.
+- Every single day I've been governor, I hear from a little girl who thinks it's the greatest thing ever that we have a woman governor.
+- I fall into the camp that income inequality is the biggest problem we face.
+- Almost every day, people will say to me some version of, 'You're so much nicer in real life.' I guess I come across as not nice.
+- A government that doesn't work is in no one's interest.
+- You can't be a progressive and be opposed to pension reform.
+- People deserve to see progress.
+- I'm committed to structural changes.
+- I want to be able to look my daughter's teacher in the eye and say, 'Your pension will be there.' I need to know that her pension will match up with a promise we can keep.
+- I care about buses and libraries and schools and roads and education.
+- Maybe you think, 'I'm not college material.' Maybe you worry that you don't have the money. Then you take the SAT. You see that colleges are getting in touch with you. You begin to think maybe you are ready for college.
+- I've done a lot of deals, and I'm skilled at negotiating, managing personalities, and getting parties to the table.
+- Businesses want to be in places where there is a deep talent pool.
+- You can raise taxes on the rich in America! We should raise taxes on the rich in America. But we can't do that in Rhode Island.
+- We have to get past this persistent negativity. The negativity has held Rhode Island back for a long time.
+- I don't really care if you're a Republican or Democrat or you want to fight about the size of government. How about a government that just works? Put your tax dollar in and get a return out the other end.
+- If you want to have a big impact, government is the way to do it. Just think of the number of people you can touch.
+- During my four years as treasurer, we restructured our pension system, cutting the state's unfunded liability almost by half and putting our retirement system on stronger footing.
+- My vision for a better Rhode Island starts with a simple idea - we are all in this together.
+- In many cases, Rhode Island is just not on the radar of a lot of companies. But once companies or people take the time to look at our high quality of life, low cost of living, great talent, good business environment, often people see it's an excellent place, and they want to take a harder look.
+- I am a proponent of investing in infrastructure... and, if we can use state resources to make ProvPort more prosperous and successful, then that will benefit the whole state.
+- Those diplomas on my wall would not be there without the GI Bill that educated my father, without the public library, without the RIPTA bus.
+- My own rhetoric is not so 'us versus them.' I don't like fighting.
+- We've just got to keep going. More. More work, more action, more results.
+- We know businesses can't compete without reliable infrastructure.
+- I still believe in the power of government to make lives better, and I believe that if someone is willing to take a stand, other people will follow.
+- The public library is where I studied. It's where my grandfather taught himself English.
+- I'm going to ask one question for everything that comes across my desk, which is, 'How is this going to create jobs?'
+- Don't ignore big problems, and don't try to pretend that problems are smaller than they are.
+- We have to slowly, carefully, and thoughtfully align all of our interests.
+- The difference between a dream and a goal is a deadline.
+- Democrats and all public servants just need to be honest. If we have schools that aren't working ... we need to face the facts and fix them.
+- If you have the talent, you should have the opportunity.
+- Before I was State Treasurer, my Rhode Island business helped create over 1,000 jobs, including here at Nabsys, a biomedical company. As governor, I'll use this as a model for how we create manufacturing jobs.

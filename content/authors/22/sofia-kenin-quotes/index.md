@@ -1,0 +1,87 @@
++++
+author = "Sofia Kenin"
+title = "Sofia Kenin Quotes"
+quotes_len = "81"
+description = "the best 81 Sofia Kenin Quotes"
++++
+- I've been there, done that. I know what the emotions are getting into your first Grand Slam final.
+- I knew I needed to establish myself to get to where I am.
+- I want to show who I am, show my best tennis, show why I'm there, why I belong.
+- When I wasn't playing with Barbie dolls, I was always playing with different kinds of balls, and my dad said, let's try tennis.
+- It's really great, winning some tournaments and leading the American group. It gives me a boost and a ton of confidence.
+- I try to do everything I can to win.
+- Immigrant stories are good stories for everyone to know.
+- I know she's a true champion, and she's the best among the best. She's obviously Serena for a reason. I've always watched her, so it will be a little different to be actually playing against her.
+- Obviously I had great hand-eye coordination. I saw I was really different than other players.
+- I love all this attention and this media!
+- Obviously, I want to do well in all tournaments, but if I had to pick, for sure Paris.
+- Serena is such a tough player.
+- I've looked up to Maria Sharapova, Anna Kournikova. I followed their matches when I was little.
+- I'm fierce. I'm very determined, and always had that in me. I didn't have to train myself to be the way I am.
+- Match play has really helped me. All the confidence that I'm getting is because of that.
+- Just playing against Serena, you've really got to fight for every point.
+- Believe it or not, I used to really hate clay.
+- I don't feel like I'm ever getting overpowered.
+- I wanted to go pro, but having the option to go to college was important for me.
+- Losing I really hate, and I love winning.
+- Of course, I believed in myself.
+- I feel like I'm doing some great things for American tennis.
+- Dreams come true. If you have a dream, go for it and it's gonna come true.
+- I've always wanted to be No. 1 in the world.
+- It's not easy to focus in practice when you don't have any matches coming up.
+- I feel like mental toughness has been a huge part.
+- During the match I just try to put the emotions aside. I don't have time to think about my emotions. I have to play one point at a time.
+- In tennis, it's usually you by yourself, so getting to be part of a team is really special.
+- It's not easy playing a fellow American. I obviously want all of us to do well.
+- I was never the biggest, so I had to take the ball early and control the points in order to not be overpowered.
+- Me, I'm a rising star for American tennis. I'm really proud to represent my country and hopefully I can keep going higher.
+- I wasn't the tallest kid when I was little.
+- I get involved when it comes to style and pretty looks on the court.
+- I'm just going to also focus on what I need to do, focus on my game.
+- My dad plays every point with me. He sees the game so well, and knows exactly what to say to make me play better.
+- I'm not a player that's going to grind at the baseline - I like to dictate and control the point and try to use my drop shot as a weapon.
+- I guess maybe it doesn't matter how you serve, as long as you get it in. Yeah, that's worked for me.
+- As I started developing, as I started playing more tournaments and getting higher in the rankings, I saw I had massive potential.
+- Well, obviously it's clay. It's slower. You have to grind more. You move a lot more. You have to slide.
+- I feel like I'm doing a really good job with keeping my ground and staying focused, starting off strong in the third set, because obviously I don't want to go too down.
+- I'm not a good actress.
+- I'm a bit hard on myself.
+- People said, 'What are you talking about? She's so small. What are you doing? This is a joke.' We didn't have the best things said about me, but my dad's been there and he believed in me, didn't listen to that.
+- You've really got to, first of all, love the game, you got to love the competition, you got to love to compete.
+- I think it's just a matter of matches and then confidence will come with matches.
+- Playing matches is definitely going to help me get ready for the U.S. Open.
+- It's not easy when you were so close to win the title and you lost it.
+- Obviously I'm missing the city life.
+- I'm so proud of myself, my dad, my team, everyone that has been around me.
+- But it's always good to see youngsters taking over and playing great tennis. We have to get ready and prepare because they're going to play better against us.
+- No matter what the score is, I'm still going to be there fighting and doing my best to turn the match around, and I've done it a few times.
+- I'm going to try my best and do everything I can to compete and do everything I can to win.
+- I'm definitely happy that I get to experience being a defending champion. That's quite special.
+- The fight in me - I feel like that's something you can't teach. I feel like you've got to have that. You've got to have that belief and the passion.
+- I know what to expect now with the mask and the social distancing and no crowds. But honestly, I feel like this is something I can never get used to, because this is completely not normal, and I obviously want it to be back to normal how it used to be.
+- I love all the slams.
+- I would love to be a fashion designer, so we'll see how that goes.
+- I didn't want to overthink things because you can start overdoing it and get anxiety.
+- It's not easy to get respect. It's really easy to lose it.
+- I literally practiced every day except on the weekends.
+- I love representing the US. I just love it.
+- I can't go on the court crying because then it's a big advantage for my opponent, so I have to wipe my tears, have a good warm-up, feel the ball and then start grooving in the game.
+- I've watched Serena. I've been following her, all the slams she's been winning. It's a special feeling just to be ahead of her.
+- I love winning more than anything, so, yeah, winning.
+- Yeah, I obviously do get nervous before the matches. I obviously have butterflies. I obviously want to do well.
+- Thank you to my parents for giving me the American dream.
+- I feel like I'm playing some of my best tennis on clay. I'm sliding a lot, moving a lot. I know how to adjust to the surface, so I'm loving the clay.
+- It's not easy getting to a Grand Slam final.
+- I have part of Russian stuff inside me, fight and fierce that I have.
+- Serena is such a great player and a true champion.
+- Grand Slams are four tournaments a year, so of course those are the big ones, those are the ones that people and us players want to do our best at. It's just high level quality of tennis.
+- I'm always with my dad, and he's my coach, and he just kept telling me, 'You have to keep motivated, try to keep motivated.'
+- I know people haven't really paid attention much to me in the past. I had to establish myself, and I have. Of course, now I'm getting the attention, which I like it. Not going to lie.
+- I just want to have an aggressive mind-set, try to take the ball out of the air and just come in.
+- If you want to beat me, you have to really beat me. You have to finish it.
+- Some players lose motivation, but going to the court every day helped me.
+- Definitely I feel with more matches, I'm the type of player I win a match or few matches, then I get confidence right away and then I play better and better.
+- I feel like the fans are the best at the slams. Everyone is coming, they're supporting you. It's really special, makes it really special for us to play in front of them.
+- I tried not to focus on the fact that I'm playing Venus Williams and tried to focus on myself. To show that I'm Sofia Kenin is obviously the cherry on top.
+- I wasn't into any other toys. I always liked to play with balls and with a racket.
+- I usually don't play really good on clay.

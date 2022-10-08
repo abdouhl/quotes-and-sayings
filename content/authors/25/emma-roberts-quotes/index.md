@@ -1,0 +1,76 @@
++++
+author = "Emma Roberts"
+title = "Emma Roberts Quotes"
+quotes_len = "70"
+description = "the best 70 Emma Roberts Quotes"
++++
+- I think I'm relatable.
+- Studio films are really fun. You have months and months to shoot. With the smaller films you get to be on a much more intimate set and have to get things done quickly.
+- You don't realize how hard it is to live on your own. But there's no mom to do your laundry, and make you dinner and to do things for you, and you don't think about little things like buying paper towels and salt.
+- What is Twitter?! I don't know what Twitter is! Everyone keeps inviting me to Twitter and everyone's going on about twittering and tweeting and this whole thing, and I just don't understand it.
+- I don't think I'd be a very good talk show host. I mean, I'm very talkative but I don't know if I could do that all the time.
+- I think it's important to have as many experiences as possible in life because one day you won't be able to do it anymore.
+- I would like to be recognized for my style, because I love clothes.
+- I love to just work with new people in general. It's always really fun.
+- If I'm having a really bad day, I always have a girlfriend - or even a guy friend - who I can call. They'll listen to me wallow for a minute and then be like, 'Okay, let's stop. Everything's great. Let's figure out how to fix whatever's bothering you.'
+- My favorite book is 'The Perks of Being a Wallflower' by Stephen Chbosky.
+- I love dark chocolate. I love it.
+- I love vintage shopping, I think it's really fun. And I love the feeling of finding the most amazing piece for less.
+- I'd love to work with Rachel McAdams, because she's a great actress.
+- I really like Gwyneth Paltrow a lot, as far as her career, because I think she's done a lot of small movies but she's also done great, big movies, and she's a really great actress.
+- New York is a fun place to shoot, but it's definitely hectic.
+- I'd love to do a comedy like 'Bridesmaids;' I think that would be so fun. I would play the Kristen Wiig character.
+- I like to go to parties if I know who's going to be there, and if it's people I want to be with. I don't just go to go. And I always drive myself, because I hate being stuck places - there's nothing worse that going out and then being stuck!
+- I don't really have a type of guy I like. It's just like nice guys, cute boys I mean, ones that are funny.
+- I love dressing up. It's the best part of being a girl, I think.
+- I read all the books for 'Twilight.'
+- Jennifer Aniston is a genius.
+- Because I'm very petite, I try not to wear things that have a heavy pattern because I feel like they overtake you.
+- I have really crooked teeth - they give me character!
+- I just feel like with independent movies... they're really free to do whatever they want. They're not afraid to make a statement about anything, and there's not a huge studio behind them making sure that everything is wholesome and politically correct and all that.
+- I don't like vegetables and most fruit.
+- For me, when I read a book, I'm very much about detail.
+- I want to constantly be surprising people with different roles.
+- I just never have really been the kind of person that's out in public being inappropriate, I guess. I like to have fun as much as the next person but I tend to do it in private and just hang out with close friends. If I'm going to go out, I'll just do it with my really good friends.
+- There's not a lot of original ways to get attention in the press.
+- I never ask boys' opinions on clothes, ever. I really think, unless you think the guy has style, don't ask. So I only ask my girl friends. I don't trust guys' opinions on style!
+- I'm impatient.
+- I'm obsessed with Nicholas Sparks. I've literally read every single book, because every time I travel, at the airport, I always buy a new Nicholas Sparks book.
+- I'm a huge Wes Anderson fan; I would faint if I met him, let alone got to work with him.
+- I think as you get older, you tend to think of teenagers as really young.
+- I think it's important to not always wear pants and not always wear dresses. You should and mix that up.
+- I grew up with just my mom. She and I were like best friends. She's a very independent woman and I admire that about her. In my life, I've tried to be like that. To be okay with being on my own and being independent.
+- I would love to study photography.
+- You can't trust actors.
+- I'm my own person, and am trying to carve out a career on my own.
+- I'm surrounded by great friends and family. I don't know what I would do without them.
+- I only like food without color, like potatoes, bread, and pasta.
+- I'm a really picky eater.
+- I read a book a week. I try to keep my mind working.
+- London is my favorite place in the world. I love London. I think it has the best of L.A. and New York in one, and I have a really great friend there.
+- I'm really inspired by British style, like Kate Moss and Sienna Miller.
+- It's funny, having the same name as someone. Me, Emma Watson and Emma Stone, the amount of times I've been called Emma Watson or Emma Stone is so funny. It's just 'cause we're all named Emma. None of us look alike.
+- If there wasn't mystery, people wouldn't have anything to ponder. If you already knew everything, you wouldn't have anything to think about and life would just be really boring.
+- I'm very outgoing and social.
+- Stuffing is my favorite food in the world! I actually have been known to go buy stuffing and make it in the middle of summer.
+- I'm obsessed with sushi.
+- I'd love to maybe try writing. I don't know if I'd publish anything, but as a hobby, it's really nice. I bought a typewriter, and I really like to write on the typewriter sometimes. It's a fun little hobby.
+- Being in the business and growing up in L.A., I think I turned out pretty OK.
+- I've only been to high school on TV and in movies. I've never actually been to high school.
+- I'm obsessed with heels.
+- I loved being on set when I was younger.
+- I am definitely not like the hottest young actress, the most beautiful or whatever. I have my own thing going.
+- I'm scared of scary movies.
+- We Robertses have too many teeth for our mouths.
+- It's always great when a director is just supportive of what you're doing. They're not so much critiquing you but giving you more ideas, giving you tons of things to work with, making you question your character and making you think about it... and making it seem like everything is limitless. That usually helps a lot.
+- I've always wanted to get into acting, ever since I was younger. I'd put on shows for my family and run around play dress-up all the time. I think I was 4 when I told them I wanted to do movies.
+- Sometimes when I'm going to sleep, I think, 'Oh God, my future husband is out there somewhere and I might know him, or I might not, and I wonder what he's doing and I wonder if he knows me.' I just always think that's so fascinating, that even when you were two years old, your future husband was out there somewhere.
+- I think once you're in the friend zone, I'm not sure how you get out. Well, actually, I do know how you get out. You act like the friend back. That's how you get out.
+- I just don't like talking about my relationships or anything like that, in any reference.
+- I'm 5 foot 2. I wish I were 5' 6. Everyone who meets me says, 'Oh my God. You look so much taller in person.'
+- When I'm not working, I don't do lots of glamorous things.
+- I love doing kind of more kiddish-oriented movies, but I also love doing adult things. And I think it's fun to do a mix.
+- Well, there's nothing more touching than putting a smile on a kid's face when you can.
+- I love summer, but my legs are so pale I can never wear shorts or a bikini.
+- I would die if Woody Allen ever called and said, 'Emma, I have a role for you.'
+- When I was homeschooled, I fell so behind - months behind at school - because I'm not good at keeping up. And so I had to sit down for literally three weeks to a month and just do all of it. And it was not fun, and I didn't want to do it, but I had to.

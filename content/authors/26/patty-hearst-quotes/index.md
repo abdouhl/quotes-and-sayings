@@ -1,0 +1,36 @@
++++
+author = "Patty Hearst"
+title = "Patty Hearst Quotes"
+quotes_len = "30"
+description = "the best 30 Patty Hearst Quotes"
++++
+- I had been, you know, held in the closet for two months and, you know, abused in all manner of ways. I was very good at doing what I was told.
+- You know, my daughters have been through their entire lives and knowing about my case.
+- I finally figured out what my crime was. I lived. Big mistake.
+- You know, sitting in the car when they got back in and - first of all, it was relief. I was not - there were two get away cars or switch cars they were called. And, you know, the group tended to include everyone.
+- Through my mind, is just the horror of these people. I had been held by them, I knew how violent they were.
+- And, you know, like I said, I'm not looking forward to a trial.
+- I mean, they call it Stockholm Syndrome and post traumatic stress disorder. And, you know, I had no free will. I had virtually no free will until I was separated from them for about two weeks.
+- But even before that, in 1980 I went so far as to write a book about what had happened. And I wrote all about the bank robbery, I went ahead and printed it even though I had no use immunity for it.
+- I think Charles Manson was a hair's breath away from just being a terrorist. He wanted to start a war, too.
+- There are two other SLA members who have been granted immunity and then also, one of the SLA members had confessed to two other people, and those people, I'm sure, will be called as witnesses, as they were at the grand jury.
+- I was not inside the bank. But I am still not the only witness.
+- Well, you know, one lawyer says I'm the only witness and I'm not credible. Another lawyer says this witness - there's tons of evidence that's been available for years.
+- They called themselves an army. They were planning on recruiting more armies. They were planning on splitting up and forming smaller cells and going into different areas, recruiting more members and just growing until they had started a full scale war in this country.
+- Well, you know, it's really been, you know, quite a trip for me.
+- The son of the victim, you know, has been virtually forgotten until recently.
+- I had not seen that until - and when it first came out I was told. I had not seen or been aware of all of that physical evidence. And when I saw it, I was horrified. It was so astounding to me to see that there was that much evidence.
+- I mean, Emily Harris was his wife. And she seemed to resent his leadership, but on the other hand, she felt like a good soldier, that he had to be the leader.
+- My daughters have grown up knowing all about my kidnapping and the case and what happened.
+- There is - you know, there's receipts for rented cars and license plates and guns and hand prints and palm prints and fingerprints. You know, I want to wait until I'm in a court.
+- It's hard to know what to say about somebody like that, except there are people who look for trouble. And trouble is very easy to find when you go looking for it.
+- And for any victim of a violent crime, when you actually get to go in and realize and see their faces and know that they can't hurt you any more, there is no feeling like that. It finally frees you from a lot of demons.
+- And you probably remember all of those papers and documents that they had published in the newspapers. And, you know, when you look at that, it really was their own little jihad that they had going. It just wasn't taken very seriously then.
+- For me, my awakening came when I was kidnapped.
+- Even to me, as I was trying to tell the government what had happened, it just didn't seem to matter.
+- Well, you know, they were - they were a terrorist group. They - when I was kidnapped they published all of their statements about their war that they declared on the United States.
+- I frankly don't think it's going to be a successful war on terrorism until law enforcement agencies like the FBI are willing to share with other law enforcement agencies. If they can't share information, there's no way this war can be won.
+- And here in Los Angeles, once again, I'm going to go down and be a witness. There's a guilty plea. I don't mind being on the witness stand, but I think they mind it a lot.
+- And, quite frankly, I fully expected to be charged with murder, because they weren't charging anybody. I did it in terms of, I felt like I was throwing down the gauntlet saying look, this is what happened. There's a family out there that needed to know what happened.
+- But now Americans, they felt a sense of peace and protection because they've been separated by so many thousands of miles of ocean. And you know, the fact that it's come to the U.S. like this is so sad, and yet you know, what can you do? It's here.
+- I do remember that I was very relieved that I did not have to go into a bank with them. I had, as you recall, I had already been brought into a bank before and it was better to be sitting outside.

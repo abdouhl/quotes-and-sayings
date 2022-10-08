@@ -1,0 +1,25 @@
++++
+author = "Dan Colen"
+title = "Dan Colen Quotes"
+quotes_len = "19"
+description = "the best 19 Dan Colen Quotes"
++++
+- Art class was my thing, but not any other class.
+- I try very hard to handle things equally: ideas, materials, and images.
+- The different bodies of my work end themselves when there's no more discovery to be had.
+- It's such a weird self-confidence that an artist has - to conceive of this thing that serves no function and say, 'I'm going to really work hard for it and give it and it's just going to matter to people.' You really have to believe it all on your own.
+- A lot of my work involves instilling objects with the power of touch - a transference of soul, spirit, energy through actions.
+- As opposed to putting too much confidence in myself, or in an image or a scene or a set of brushes, I really want to allow the oil paint to perform, to show me the things that it wants to do, beyond my imagination.
+- I used to kind of go for it, right? Like, I'd be the one who would say, 'All right, there's Kate Moss. I'm going to try to make out with her.'
+- All of these mechanisms we have for celebrating are so double-edged. So much sorrow comes out of joy.
+- I think that artworks are like these spiritual objects: I think that they have energies and powers beyond what the eye can see.
+- A lot of my work is about what's abstract and what's pictorial. Is it bubblegum, or is it an abstract painting using bubblegum? The energy comes from walking that line and watching things dip this way and that.
+- It takes a lot of help - nature, friends, family, craftsmen - for me to make what I make.
+- It's such a paradox. You come from this place where you want fame; you don't want to be bourgeois, but you want to be successful. You want to be accepted, but you also want to be going against the grain. You want to be on the outside, but you want to be on the inside.
+- I've always been interested in moments of disbelief... I don't know if they possess any magic, but they do have something.
+- At the end of the day, you can't have a vision; you have to have a hope. This is where the miracle comes in.
+- I'm trying to equalise the world to say there is no high and low.
+- A lot of my work is about equalizing things and kind of destroying any barrier between what's high and low, or what's deep or what's shallow, complex or simple. I hope I'm ever-changing.
+- Art is kind of the lens through which I think about God.
+- For all the drama we all have with our families and all the tension and hostility, I couldn't have done this without my family. Being the people that they are - they're crazy - made it possible for me to be crazy and to live a lifestyle of my own design.
+- Love is important. I didn't have the energy to be giving it to somebody else in a way that they deserved, and I knew that. So I've always been scared to go too far with somebody I care for because I knew there would come a day when I'd need to pick up and finish a painting for the next three months. That day is inevitable.

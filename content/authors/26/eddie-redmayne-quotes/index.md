@@ -1,0 +1,86 @@
++++
+author = "Eddie Redmayne"
+title = "Eddie Redmayne Quotes"
+quotes_len = "80"
+description = "the best 80 Eddie Redmayne Quotes"
++++
+- As someone who gets nervous in silences, I spill words rather than really think.
+- Two years ago, I shot 'Pillars of the Earth' in Budapest - it was a big part, but I had a lot of time to sit around and visit cafes.
+- I never really committed to being an actor. It never felt like it would be possible, I guess.
+- There is a certain amount of commerce in the film industry in as much as you have value, and for a moment, your value goes up, then it all disappears again.
+- For 'The Theory of Everything,' I was quite low down on a list of actors for the role, and I got the opportunity as a consequence of people saying no to it. So I have been very, very lucky.
+- I draw and play the piano badly. But when I'm doing those things, I'm concentrating so hard there's no room for worry. I find that onstage, too.
+- If gender is on a spectrum, where one finds oneself is completely unique.
+- If you are playing someone living, it is a different type of judgment. However much work you do, it is not a documentary. There will be things you can't get right, and ultimately, you have to take a leap because - you weren't there.
+- The percentage of actors employed is pretty small, and if you're lucky enough to have a good run at it, you do have a sense of responsibility.
+- What's really interesting about actors, is that we all have opinions on how people's careers look, but I think you never have any idea of your own, or what other people think of you.
+- Filming is about continuing to be alert and to think, and I find it quite exhausting.
+- I'm quite ignorant about fashion and I'm colourblind, so it's all a tad tricky. My only knowledge of that world comes through Christopher Bailey, whom I first met in 2008 when I did a campaign for Burberry that featured musicians, artists, actors and sportsmen.
+- I am fascinated by Omega's history. Particularly the First World War stuff, when they made watches for the flying corps, and the NASA side of it.
+- That's the reality of my life - I do normal things and then get to go to film festivals and wear borrowed clothes and turn up at premieres and talk about things I am passionate about. But then you click back to normality and your family and friends.
+- I suffer from a more complex, persistent fear. It manifests itself in nerves, and on film the camera sees even the tiniest evidence of this. So you have to learn that when the director calls 'Action,' you don't go to this place of tension, but somehow you become free.
+- Most actors hate watching their own films because all you can see is the glaring mistakes, your own tricks and ticks.
+- I've never been someone that was sort of blessed with an innate talent of just being able to do things. I had to work at it and learn from mistakes.
+- 'Animal Ark', was when I was fourteen years old, and it was an ITV children's program, and I did an episode called, 'Bunnies in the Bathroom.' And I'm not sure if it was my finest hour.
+- On so many levels, acting in film and TV is so much the sum of its parts, and somewhere in there, there's an alchemical thing that makes something happen or not - that makes something connect or not. Now, of course you want to make work that people see, but the enjoyment I get out of acting is playing characters.
+- Listen, acting is not surgery, it's entertainment. You're doing something to hopefully move people, to make them laugh, to transport them. But actors are vulnerable, and the reason we're vulnerable is that we're always trying to recreate human behaviour.
+- As an actor there's a lot of scrutiny and, even when you've had success, it becomes about sustaining that success. A friend of mine described it as a peakless mountain. Even for De Niro there's Pacino and for Pacino there's De Niro.
+- I'll always find the things that make a role complicated!
+- A lot of people think theatre must be much harder work than film, but anything histrionic or superfluous gets seen on camera so you have to work to distil it into a complete sense of what's true.
+- There's always been a relationship between the film world and fashion.
+- Our dream as actors is to tell interesting stories about interesting people.
+- I wish I could describe anything I do as conscious or strategized. To be honest, in acting, you have so little control. The only control you have is if you're lucky enough to be in a position, which is not very often, in which you have choice. It's about what choices you make, and for me, it's entirely instinctive.
+- There's been a huge history of cisgender success on the back of trans stories, which is something I'm deeply aware of. My take on it, I suppose, was that I do think actors should be able to play anything.
+- They're such hierarchical things, film sets, they're sort of mini societies. Often they're incredibly political places.
+- Everything about filmmaking is incredibly weird, and there's nothing natural about watching yourself on the big screen or hearing your voice. It's that same thing that you feel when you watch yourself on a video camera and you hate the sound of your voice - it's that times 800.
+- I come home from trying to pretend to know about astronomy and physics all day and turn on 'The Real Housewives'.
+- I've worked with some actors who have such thick skins and think they are so extraordinary. I'll think, 'Have you stopped learning?' They stop listening to directors or other actors and do the same thing again and again.
+- That's a lovely starting point for me as an actor: the question of what will we - or can we - do with this lot of years with which we're blessed? More than my other films, 'The Danish Girl' is about the gigantic risks involved in being true to one's self.
+- I think all actors have a similar deal. You want some people who understand. Although it looks great - and is great - there are also shoddy moments when you feel really rotten, and when it's going well, you're not allowed to complain.
+- Actors who perhaps are super-confident and have absolute belief in themselves I always admire, because I can't really be like that. Because you never know what's right: what you feel inside versus what is portrayed.
+- What I love about acting is trying things and screwing up, then trying again, all in this protected little bubble. That's living the dream.
+- I'm trying to buy a house and set some sense of roots because otherwise you're constantly chasing one job after another, and you look back and you've had all these very extraordinary experiences with extraordinary people, but there's not a line of continuity to it.
+- A movie star is someone who has to open a film to gazillions of dollars. I'm just trying to pay my mortgage.
+- My dad works in finance, so he kept giving me the stats: only one in a hundred actors makes it. He'd ask, 'Have you thought about producing?'
+- In England, we have this saying about Marmite: people either love it or hate it. That's like a lot of the movie work I've done. People either find it repulsive or find it really interesting and get engaged in it.
+- When I was living in New York, I had this slightly wannabe bohemian existence and took up painting, at which I'm appalling. I also bought several guitars.
+- I've played women since I was a kid and I've always enjoyed it.
+- There's something scary about acting always, because basically you do all this work in a vacuum, and then suddenly there's a lot of money spent making a film, and there's suddenly a camera here, going, 'Right? What are you gonna do?'
+- As a runner on a film, you are the lowest of the low, and yet you have incredible access to everyone. I can totally imagine that for actors in the middle of a Hollywood bubble, all they really want is a sense of normality, and that gopher can be a tap for that.
+- Ladies and babies, and mortgages, for that matter, can all wait. Acting has done a strange thing to me, though. I often sit there, thinking, 'I love this, but I wouldn't put my daughter on the stage.'
+- What an extraordinary thing it can be, love, how it will not defined by gender, by sexuality, by race, by religion, by anything. It's something else. It's something other.
+- If I do a film and have to get naked, that tends to dictate how often I go to the gym. Acting in 'Richard II' on stage was a huge physical workout, so I ended up more toned than I normally am.
+- When you're doing a film that has so many effects, you do a lot of it on green screen, and you can't see what that world is.
+- Going to the Oscars is always the most sensory overload and a huge amount of fun.
+- What is important is for me to do my best work on camera. The camera is inches away from you and sees every micromovement of every muscle of your eye. And if you're not relaxed, the camera sees it.
+- When you start out acting, you dream of getting an agent and getting a job. For years, you audition and you get what you can. Choice isn't something that you have much of.
+- Actors are actors, and there should be a complete fluidity for anyone to play anything.
+- If you're an English actor and turn up in America, they don't have an opinion about where you sit. They have no idea what auditions to send you to, so they send you to everything.
+- I walk around talking to myself in accents. Usually people look at me like I'm a complete fruit loop.
+- My favorite film is probably the finale - 'Deathly Hallows: Part 2'.
+- I hope, then, that every one who sees 'The Danish Girl' might be galvanized themselves to lead more authentic lives. How much lovelier would the world be then?
+- My first film, 'Like Minds,' was with Toni Colette, who was extraordinary. I mean it was basically a mini-masterclass for acting on film at a time when all you could probably see were my eyebrows bouncing up and down on screen.
+- It feels like a simple human right to be able to be yourself, and yet, what trans people have to go through in order to get to there, it can be so complicated.
+- When I read 'Fantastic Beasts,' the world that J. K. Rowling has created is so wonderful.
+- I always try to describe making movies like summer camp, or some holiday where you spend all day, every day with a new group of people whom you kind of love and then never see again.
+- I had never been to a fashion show before going to the Burberry show last month. It was an extraordinary spectacle. I was incredibly green and had no idea what an undertaking it is. I also have a new respect for models because they are so close to the front row and must be so self-conscious.
+- It can be a miserable profession, acting, because you always want what you can't have.
+- I feel like J. K. Rowling's world is one that is owned by everyone in some ways. People have grown up with it and have such a sense of that universe that there's something kind of wonderful seeing everyone get involved.
+- It's the weird thing Eton does - you're at school next to lords and earls and, in my case, Prince William, so you end up being used to dealing with those sorts of people.
+- I'm by nature someone that quite likes to understand how things are working, likes some sense of structure, and I've fallen into the worst possible trade for that.
+- I find in film acting that however many years you have done it for, you can feel totally relaxed and at ease with the people around you, absolutely wonderful, then roll camera and a little part of you goes, 'Ugh'. It is learning how to manage that.
+- If your dream is to tell stories, interesting stories, play interesting people, that's the bottom line. The people that I play have to be extraordinary.
+- I've been a closet lover of faux-reality TV since 'The Hills'. It's bad.
+- The problem with motor neurone disease is they don't know when it starts. People go into hospital having fallen but get wrapped up and sent away, unless they're seen by an incredibly astute doctor. It is only when several things begin to go wrong that it'll be diagnosed.
+- The thing about motor neuron disease, once a muscle stops working, it doesn't start again.
+- I do get stopped a bit now and then, but I can go to the supermarket and on the Tube without being noticed. It's usually me that gets starstruck, especially by TV stars.
+- For a year after I left Cambridge, I had an agent, and I was working in a pub and doing waitering. But I could stay at home rent-free.
+- I'm one of those people, when I see a film, I believe it to be true. You know, sort of the authenticity of the camera and seeing things on a screen.
+- I have this horrific thing where I'm really bad with names and faces. I have an appalling memory. Someone will come up to me in the street and go, 'Eddie!', and I'll try and give myself time by going into overdrive, 'Hey, hi! Nice to see you!' and start a whole conversation because I can't distinguish between who I know and who I don't.
+- Velvet is great. It's warm as well. And it's snug.
+- Making a film or doing a play are completely different experiences and entirely fulfilling, but completely unique. I also think one complements the other. People often say that theater is about flexing your muscles, and is actually real acting, whereas I sort of disagree.
+- And you can't complain about kissing Emma Watson. Isn't that what everyone in the world wants to do? I've known Emma for a few years. She's this amazing capacity of young and vibrant and brilliant, but also a bright, intelligent old soul.
+- The question of what it is to live an 'authentic life', that's a complicated one.
+- Making 'Birdsong,' on the one hand you have how prestigious it is and the reputation of the book, which is something that's an extraordinary piece of work. Sebastian Faulkes is a genius. So you feel that responsibility when you're portraying that character that he's imagined and millions of readers have pictured.
+- I try genuinely, when I'm playing a character, to not judge them and just to inhabit someone as how one sees them. That being said, you also want to make sure that you don't blur the edges of people too much because humans are naughty and complicated beings.
+- I did an interview once where I was asked who I found attractive and I went on about cartoons and Nala from 'The Lion King' - and it's a bit weird but various of my ex-girlfriends actually did look like Nala.

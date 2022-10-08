@@ -1,0 +1,105 @@
++++
+author = "Siri Hustvedt"
+title = "Siri Hustvedt Quotes"
+quotes_len = "99"
+description = "the best 99 Siri Hustvedt Quotes"
++++
+- Although sometimes the morbid is also the transcendent, the transcendent cannot be reduced to the morbid.
+- Hysteria is something that I've been interested for a very long time. I thought I might have it, but it seems that it's unlikely.
+- My parents were gigantic influences on me. I had a deep hunger to impress my father, who was a professor and an intellectual. I wanted his approval.
+- The idea that skiing might not be fun, might not be for everyone, had never occurred to me. Where I come from, the sport signified pleasure, nature, family happiness.
+- I garden. It's very relaxing to me.
+- Far more women read fiction than men, and because of this, novels have become marginalised as serious texts.
+- All human states are organic brain states - happiness, sadness, fear, lust, dreaming, doing math problems and writing novels - and our brains are not static.
+- It's thought that about 96% of us have visual imagery, and there's a very tiny minority in the population, some of whom are normal, some of whom have brain lesions, who cannot produce visual imagery.
+- I've come to understand that migraine is a part of the personality. I have migraine troughs. These often follow high productivity. I have a hypo-manic phase, then I'll crash.
+- Every time I finish a book, I say to an imaginary god that I do not believe in, 'Please let me live to write another one.'
+- In sleep, we leave behind the sensory stimulation of the outside world.
+- I'd been writing poems for many years, but most of them I didn't like. Then, when I was 23, I wrote one I did like, sent it to 'The Paris Review' - the highest publication I could think of - and they accepted it. No other moment in my literary life has quite come close to that.
+- I have a longstanding fascination with visual art. I do, in fact, draw as well, as I did in 'The Summer without Men.' I also write essays about visual art.
+- I have suffered from migraines since childhood and have long been curious about my own aching head, my dizziness, my divine lifting feelings, my sparklers and black holes, and my single visual hallucination of a little pink man and a pink ox on the floor of my bedroom.
+- Having children is one of the most passionate and involving bits of business in human life.
+- Children are not in a position to assess risk and safety; it must be done for them, and it must be done carefully.
+- Most of us accept that although we may believe our dreams to be real events, upon waking, we can tell the difference between nocturnal hallucinations and reality.
+- The computer model will be replaced by an organic model, in which the brain-mind is embodied - part of a whole, dynamic, living organism: one driven by emotional forces, not only cognitive ones.
+- The mind-brain is lived only from a first-person perspective, and it is a dynamic, plastic organ that changes in relation to the environment.
+- I continue to write essays about art. The visual is always part of my work, and it gives me immense pleasure to make up the words of art and create them verbally rather than build them.
+- When I taught writing classes to psychiatric patients, I met people whose stories of manic highs and immobilizing lows appeared to be textbook descriptions of classic bipolar disorder. I met other patients who had been diagnosed with myriad disorders. No doctor seemed to agree about what they actually suffered from.
+- Each person does see the world in a different way. There is not a single, unifying, objective truth. We're all limited by our perspective.
+- It is tempting to think of this form of insomnia, the inability to fall asleep, as a disease of agency and control: the inability to relinquish high self-reflexive consciousness for the vulnerable, ignorant regions of slumber in which we know not what we do.
+- There was a film class in my high school in Northfield, Minnesota, which was very unusual. I saw my first Buster Keaton film there, aged about 15. It made a gigantic impression on me.
+- Sleep resistance, bouts of insomnia, nightmares, night terrors, crawling into bed with parents in the middle of the night - all these are so common among children, it seems fair to call them 'normal.'
+- It's hard to penetrate characters who are very cut off and lack empathy and to do it with sympathy. It's so easy to make a damaged character repugnant.
+- When I don't get enough sleep, I am cranky, vulnerable to headaches, and my concentration is poor.
+- I am not a physician, but I am deeply interested in diagnostic categories and have read extensively in the history of the subject.
+- Being a mother is complicated because it's not just a paternal culture making demands on you; it's those internal demands and expectations that women have and are self-generated.
+- I watched 'Holiday' in college, and that was when I had my first fantasy of being Katharine Hepburn, standing at the top of the staircase in a huge Hollywood mansion.
+- We all live in a culture that is continually isolating feminine and masculine aspects, even when they're not related to people.
+- The English expression 'to fall asleep' is apt because the transition between waking and sleeping is a gradual drop from one state of being into another: a giving up of full self-consciousness for unconsciousness or for the altered consciousness of dreams.
+- Novelists embody plural selves all the time. What are characters, after all, if not other selves?
+- The history of fiction is about family - an inexhaustible subject for literature. We are creatures driven by emotions that are on high display in intimate relations - inside the family.
+- Every mental state is also physical.
+- As one of four daughters, I grew up with an imaginary brother - wondering what it would have been like if one of us had been a boy. There's no question that there was a phantom boy child in my imagination when I was young.
+- Henry Miller is a famous writer whose work has fallen out of fashion, but I strongly recommend that readers who don't know his work pick up a book and experience this writer's zealous, crazy, inventive, funny, sexy, often delirious prose.
+- If I have open time, and I'm in Manhattan, I'll just walk to wherever I'm going, even if I could get there faster on the subway. I just love walking the streets of New York.
+- Creativity has always depended on openness and flexibility, so let us hope for more of both in the future.
+- I have found that all of my memories seem to need a place and that a good part of what we think of as explicit memory has to do with location.
+- When I was an impoverished graduate student, I would sometimes spend $20 or $30 on a T-shirt or accessory I didn't need or even particularly want. What I craved was the purchase, not the thing itself. Of course, a sense of not being deprived may fill an emotional void without ruinous consequences.
+- In August of 2002, I survived a car accident. Although I can still see the van speeding toward us, I cannot bring to mind the crash itself - only its aftermath.
+- Nobody knows what either sleep or waking consciousness is, even though these two have long been seen as the two sides of being: part of life's unvarying diurnal rhythm.
+- Even in fiction, I feel rigorous honesty applies. It doesn't apply to facts; it applies to what I think of as not telling emotional lies, which is a funny business.
+- There is no reason we should expect young children to enter the nocturnal darkness of sleep and dreams without help.
+- I have a tendency to face my bad fantasies in my books.
+- Both depression and anxiety disorders, for example, are repeatedly described in the media as 'chemical imbalances in the brain,' as if spontaneous neural events with no relation to anything outside a person's brain cause depression and anxiety.
+- I found myself fascinated by neuroscience, attended a monthly lecture on brain science at the New York Psychoanalytic Institute, and was invited to become a member of a discussion group devoted to a new field: neuropsychoanalysis.
+- Our great cultural error is to assume that 'truth' arrives only through reductive theories.
+- Perception plays a vital role in the diagnosis of bipolar illness. Symptoms are perceived through the categories of psychiatric medicine at a given moment in history, categories which are continually shifting and being named or renamed.
+- I was 13 when I had my first bout of insomnia. My family was in Reykjavik, Iceland, for the summer, and day never really became night.
+- The relationship between the imagined and the real is more complicated than people imagine.
+- With almost no exceptions, art by men is much more expensive than art by women. Even great women artists, like Louise Bourgeois and Lee Krasner, are only fully embraced very late in their career.
+- There are no rules in art.
+- Bedtime rituals for children ease the way to the elsewhere of slumber - teeth brushing and pajamas, the voice of a parent reading, the feel and smell of the old blanket or toy, the nightlight glowing in a corner.
+- We live in a culture that is much happier talking about organic brain disease than about psychic illness because the former suggests that something that is physically wrong in a brain is wholly unrelated to that person's upbringing or experiences in the world, but that is not necessarily true.
+- I enjoy domestic life. Cooking gives me great pleasure, especially if I can chop vegetables slowly and think about what I'm doing and dream a little about this and that.
+- That's one of the great lies of intimacy, to pretend you know everything - you cannot. No matter how close you've been, over however many years, there remain secrets. I think we all know that - that you don't tell everybody everything.
+- Years ago, when I was in Siena for the first time, I saw the works of Duccio, whose deeply emotional painting from the thirteenth century has never left me.
+- I saw Joseph Cornell's lyrical work for the first time at the Museum of Modern Art in the late seventies and have internalized many of his boxes.
+- I have not been diagnosed with epilepsy. I did have an MRI of the brain, and they found no abnormalities in my brain. Now, there are people with epilepsy who have completely normal MRI's, too. I just think also, you know, epileptic seizures can be triggered by emotional stress, by all kinds of things, lights.
+- I am married to a writer, and this - writing - is an odd enterprise. It's something we both support very strongly.
+- We sometimes imagine we want what we don't really want.
+- It's not as if I've been unlucky. My books have been published and reviewed. I haven't lived through terrible literary suffering!
+- The third-person or 'objective,' static, reductive models used in most science are important and yield significant results, but they have their limitations.
+- Scientists have a tendency to believe in absolutes, in studies and the repeating of them. Psychoanalysis is firmly based in subjective accounts. We need both.
+- Many scholars working in the humanities have already shown interest in brain research. For years, contemporary theory in the humanities has left the body and biology out of their discussions.
+- Neurobiological research has shown that in people with chronic PTSD, both stress hormone secretion and areas of the brain connected to memory function, such as the hippocampus, appear to be affected, although exactly how and why remains controversial.
+- I like 'nerves'! I like the word 'migraineur'. I like the word 'madness'. These are OK words. The 19th century had a very handy term: 'neurasthenic'. I think that's a very useful word. We all know what that means: it means extra-sensitive.
+- None of us is immune to suggestion. We are social beings and live in a social world.
+- Ego, id, and superego are terms familiar to all, but for many years, Freud's psychoanalytic theory has thrived in English departments around the country as a tool for interpreting literary texts but has rarely, if ever, been discussed in science departments.
+- I love the little garden in the back of my family's brownstone in Brooklyn. Digging out there in the dirt is a joy for me, although by the time August rolls around and my roses have black spot, I need the break winter provides.
+- I love making up visual works of art in language. I get to be an artist without actually being an artist in that sense.
+- I published my first poem in 'The Paris Review' in 1980.
+- I bought myself a rubber brain, familiarized myself with its many parts, listened intently, and read more. In fact, I read obsessively, as my husband has told me repeatedly. He has even suggested that my rapacious reading resembles an addiction.
+- Writing isn't a job so much as a compulsion. I've been writing since I was very young because for some strange reason, I must write, and also because when I write, I feel more alive and closer to the world than when I'm not writing.
+- I am an American, but a sense of otherness was part of my growing up. I spoke Norwegian before I spoke English. My mother is Norwegian.
+- American mass media culture, with its celebrities, shopping hysteria, sound bites, formulaic plots, received ideas, and nauseating repetitions, depresses me.
+- I am convinced that during bouts of insomnia, I have sometimes slept without knowing it.
+- Every time the DSM prepares for a new edition, there are countless groups lobbying to get their particular mental illness recognized by the diagnostic manual. Surely, this is a social and cultural phenomenon.
+- My greatest pleasure is spending time with my family: my husband and daughter, but also my mother, my three sisters, and their families.
+- The brain-mind is not a computer, and regarding it as one has led to a variety of theoretical dead ends.
+- Sigmund Freud makes people irritable. Whenever someone mentions Freud, say, at a dinner party, I see eyes roll and listen to the nasty remarks that follow.
+- While reading 'David Copperfield' in the middle of the night - probably because of the light, I had insomnia for the first time - I looked out of the window and thought, 'If this is what books can do, this is what I want to do.'
+- Writers are in control of editing processes - making a sentence better, cutting out a paragraph. But the initial outpouring has very little to do with conscious control or manipulation.
+- I am always suspicious of those who impose 'rules' on child rearing. Every child is different in terms of temperament and learning, and every parent responds to a particular child, not some generalized infant or youngster.
+- Rage has such focus. It can't go on forever, but it's invigorating.
+- If something's not working, it's wonderful to have a reader you can trust to say, 'Actually, you've gone off the deep end here'.
+- I knew I wanted to be a writer at 13. Before that, I told everyone I was going to be an artist.
+- Flashbacks rarely involve language. Mine certainly didn't. They were visual, motor, and sensory, and they took place in a relentless, horrifying present.
+- My feeling is, when you are writing an essay, you don't make anything up. This may be a very Protestant notion, and I'm aware of the fact that memory is fallible, that if I had access to films or some absolute documentary evidence of what happened, it might look different; we get confused and fuzzy.
+- The future is, of course, imaginary - an unreal place that I create from my expectations, which are made from my remembered experiences, especially repeated experiences.
+- Intellectual curiosity about one's own illness is certainly born of a desire for mastery. If I couldn't cure myself, perhaps I could at least begin to understand myself.
+- Sigmund Freud was very much a creature of his time. He did not 'invent' the unconscious.
+- There is this assumption that much of what I write is about my life, and that simply is not true.
+- The brain is an immensely complex organ, and many mysteries remain. Exactly how brain and mind or soma and psyche are related is one of them.
+- There is a difference between using a made-up name and using real people as pseudonyms. People are not costumes you can wear. They are flesh and blood.
+- Only time will tell in what ways Freud was prescient and in what ways he failed to understand how the mind functions. For example, no scientist and very few psychoanalysts still embrace Freud's death instinct.
+- People who grow up with two or more languages understand that each can express certain aspects of reality better than the other.

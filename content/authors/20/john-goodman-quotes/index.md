@@ -1,0 +1,31 @@
++++
+author = "John Goodman"
+title = "John Goodman Quotes"
+quotes_len = "25"
+description = "the best 25 John Goodman Quotes"
++++
+- Then I started checking out blues albums from the library and playing the harp along with them.
+- Kids are at my level. I like goofing around with them.
+- It was a fight for a very long time. After the end of the first season, all that was done.
+- Believe me, nobody likes to loaf more than me.
+- As far as I know, the guys at Pixar are opposed to a Monsters, Inc. sequel.
+- Pardon me for loitering in front of an orchestra.
+- I hated Woody Woodpecker and Scooby-Doo, but I was a cartoon freak.
+- If you want to direct, you've got to work.
+- Yeah, the material's been good so far, although I'm sure there's got to be a drought coming someday.
+- It was cool for a couple of weeks, but how much bad golf can you play?
+- People in Medicaid ought to have access to the same insurance as the rest of the population. If they are segregated, it will be a poor plan for poor people.
+- Basically, though, I'm just lucky to love what I do for a living.
+- But I'm not as bad as Al Pacino - he doesn't even know what month it is half the time when he's working.
+- When I was a kid, I loved Popeye, but the old ones, the real old ones.
+- I'm just a lazy boy. I'd rather sit in my recliner and act.
+- I'd like to come back because I really miss doing situation comedy.
+- I'm really getting to appreciate traditional jazz now - the New Orleans stuff - a lot more than I did before.
+- Like, every couple of months you read, they rewrite, you come back in, they've animated more stuff - they usually videotape you while you're reading it - so they'll incorporate some gestures and some facial expressions into it.
+- Social Security's future has gotten worse, and each year we delay reform adds to the cost we are pushing off onto our children.
+- This happens to be that the power of laughter and love would beat out the power of fear every time. You know, I hate to sound corny about it but it's true, and I think that's what this movie is about.
+- TV is the best babysitter.
+- I don't need the bread, but it's nice to do something creative.
+- I flew into New York for the Raising Arizona audition, and we just started joking around.
+- I'd bowled a lot, but I never really had proper lessons.
+- That was all Rose, and Rose knew what she was doing. Her main thing was story.

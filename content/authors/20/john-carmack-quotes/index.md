@@ -1,0 +1,64 @@
++++
+author = "John Carmack"
+title = "John Carmack Quotes"
+quotes_len = "58"
+description = "the best 58 John Carmack Quotes"
++++
+- The cost of adding a feature isn't just the time it takes to code it. The cost also includes the addition of an obstacle to future expansion. The trick is to pick the features that don't fight each other.
+- With ZeniMax, they have a lot to be proud of. 'Fallout 3' is one of the favorite games of so many of our people. But they had zero overlap with the things we do. We do the best shooters in the world. It's a perfect hand and glove fit. We started talking about this before they rolled out 'Fallout 3'. We watch them roll it out worldwide.
+- The core of what I do is solve problems, whether that's in graphic engine flow or rockets. I like working on things that are going to have an impact one way or the other.
+- The Xbox 360 is the first console that I've ever worked with that actually has development tools that are better for games than what we've had on PC.
+- I have fond memories of the development work that led to a lot of great things in modern gaming - the intensity of the first person experience, LAN and Internet play, game mods, and so on.
+- It is clearly a bad idea to try to just move games from other platforms directly over, but I'm sure we will see a lot of it, especially as the handsets surpass the hardware capabilities of previous generation consoles.
+- It was great for me to go through all of my crazy Ferraris in my twenties. I think it was an inoculation against any kind of a midlife crisis.
+- We were happy with funding 'Rage' on our own nickel for years. We intended to do the same with 'Doom 4'. We had offers early on for 'Rage'. People offered us X million dollars. But we carried the risk, and when we finally signed a deal, it was X plus $10 million.
+- Obviously, virtual reality is where I've placed my bet about the future and where the excitement is going. At this point, I could say it's almost a lock. It's going to be magical - it is magical - and great things are coming from that. Along the way, I was focused on the first-person shooters. I said we should go do something on mobile.
+- One of the things we joke about in the FPS development is it's so hard to get the player to actually bother to look at all the cool stuff you've been doing. You spend a lot of time making really cool things, and usually the player isn't looking where you want them to.
+- A strong team can take any crazy vision and turn it into reality.
+- Developing games for the PC and consoles is all about everything and the kitchen sink. In many ways, you don't have design decisions to make. You do it all. So I enjoy going back to making decisions about what's important as I'm working on a game.
+- It is true that the gameplay for 'Orcs&Elves' was designed around the limitations of mobile phones, and that if we were starting completely from scratch for the DS, we would probably do things a bit differently, but the bottom line is that when we sit a random DS player down with the game, they have a lot of fun.
+- It's nice to be able to, you know, for me to be able to personally do whatever the heck I feel like, whether I think that I can justify it exactly in business concerns or not.
+- Being able to work on a more constrained project now and then is rewarding in a lot of ways, and of the available small platforms, I think that the iOS platform is clearly the best.
+- The great games are the space sims and driving sims and these experiences where you're basically sitting at a table with nothing happening in front of you. A lot of interesting things are evolving there. There are great games that can be made.
+- Focused, hard work is the real key to success. Keep your eyes on the goal, and just keep taking the next step towards completing it. If you aren't sure which way to do something, do it both ways and see which works better.
+- Because of the nature of Moore's law, anything that an extremely clever graphics programmer can do at one point can be replicated by a merely competent programmer some number of years later.
+- When people heard id Software's being acquired, everybody just assumed it would be Activision or EA. Why would we even consider going with a publisher that wasn't of that same size?
+- At its very core, virtual reality is about being freed from the limitations of actual reality. Carrying your virtual reality with you, and being able to jump into it whenever and wherever you want, qualitatively changes the experience for the better. Experiencing mobile VR is like when you first tried a decent desktop VR experience.
+- The speed of light sucks.
+- To this day, I run into people all the time that say, whether it was 'Doom', or maybe even more so 'Quake' later on, that that openness and that ability to get into the guts of things was what got them into the industry or into technology.
+- I've said before that I'm a remarkably unsentimental person.
+- I'd rather have a search engine or a compiler on a deserted island than a game.
+- I did take some value out of looking at the extreme simplicity of implementation that the tight resource limits required. I do feel that modern games are often abstracted a lot more than is really necessary, and it leads to robustness issues.
+- We were doing mobile games before the iPhone. We were doing free-to-play with 'Quake Live.' We wanted to do massively multiplayer stuff in the early days but didn't have the resources to do it.
+- Oculus really started popularizing a new approach using cellphone screen technology, a wide field of view, and super-low-latency sensor tracking. It's not crappy stuff that doesn't work and makes everybody sick. When you experience Oculus technology, it's like getting religion on contact. People that try it walk out a believer.
+- The cornerstone of our Tech 5 development platform is this uniquely textured map or world, where every surface doesn't have a repeating texture on it. It can all be stamped and modified due to the work done on it. The core technical question to be resolved on this was how do we get that media set to be playable on the iPhone.
+- I think 'World of Warcraft' shows that people today still like a good fantasy hack and slash game. I always thought that a lot of computer fantasy games leapt into complex party-based play somewhat prematurely.
+- Low-level programming is good for the programmer's soul.
+- To the game code, the world is still just a tile map, but for rendering, each map was exported as a general-purpose 3D model, and the artists could then go through it and spend the polygons any way they liked, without the limits of line-of-constant-z software rasterization that we lived with on the mobile phones.
+- I consider myself a remarkably unsentimental person. I don't look back on the good old days.
+- Oculus version three or five or whatever it ends up being is something that can be used unplugged - we'd have our own Android stuff and all that - but you could plug it into the PC and use that.
+- After the acquisition of id by Zenimax, we had sort of taken the mobile platform team down to a skeleton crew. We were left with about two people who were finishing up the previous obligations on that. The rest had just been dispersed and absorbed by the other teams in the company.
+- High-end BREW phones aren't nearly as limited a gaming platform as you might think - they are a lot more powerful than an original Play Station, for example. Java phones, however, are saddled with a huge disadvantage for gaming.
+- It is a shame that homebrew development can't be officially sanctioned and supported, because it would be a wonderful platform for a modern generation of programmers to be able to get a real feel for low level design work, to be contrasted with the high level web and application work that so many entry level people start with.
+- Focus is a matter of deciding what things you're not going to do.
+- The stereoscopic panoramic videos that we're showing on Samsung VR are getting a lot of positive traction. It's exciting when you see creative types - whether from the music, film, or video industries - look at this stuff. The gears are turning in their head almost immediately about how they can use it as a new medium.
+- A lot of the work at Oculus has gone into working out better position tracking.
+- There is absolutely zero doubt that you can technically do an excellent full-featured FPS game, because these devices are more powerful now than, like, a previous generation Xbox.
+- It really feels like VR has the possibility to be something really huge.
+- When it became clear that I wasn't going to have the opportunity to do any work on VR while at id software, I decided to not renew my contract.
+- I think that first-person shooter is a stable genre that's going to be here forever, just like there are going to be driving games forever. There's something just intrinsically rewarding about turning around a corner and shooting at something.
+- I really do think VR is now one of the most exciting things that can be done in this whole sector of consumer electronic entertainment stuff.
+- It's nice to have a game that sells a million copies.
+- I don't think anyone is going to say great things about being a native developer on Android.
+- I've never been one of those programmers that works effectively on short amounts of sleep. I've always needed eight hours.
+- With 'Rage,' it was a little bit different because this was going to be the public's first interaction with the 'Rage' IP. Early on, right after the tech demo, there was some marked concern internally how much of a bad thing it would be if the game went out and it wasn't well released and people got a bad taste off it.
+- It's been great that every title that we've done internally has been a huge success, but when you've got 50 or 100 people on there, all their families and everyone counting on you there, the idea of 'What if you screw up once?' or 'What if the market changes?'
+- One of the reasons microcomputers progressed so fast is people are willing to accept crashes. It's faster to build something and try it, even if it means you'll have to rebuild later... If you spent too much time building and massaging one vehicle, you don't learn anything.
+- If it weren't for Moore's law changing the playing field continuously, I would have been long gone. The rapid pace of hardware evolution still keeps things fresh for me.
+- There are some things that are exciting for distributors. I love Apple's AppStore and the things people can do with digital distribution.
+- Rocket science has been mythologized all out of proportion to its true difficulty.
+- We had staffed up to do 'Doom 4' internally in parallel with 'Rage'. We also had our mobile and 'Quake Live' departments. We were taking a lot of steps to kind of provide a little bit more scope and protection for ourselves. And we certainly were listening to offers from all the majors about acquisition.
+- I am greatly proud of the fact that 'Doom' is one of those things where everything that has a 32-bit processor has had 'Doom' run on it, and I think that's been one of the great aspects of having it be open source: having everything out there means that people have maintained that and kept it up to date.
+- At its best, entertainment is going to be a subjective thing that can't win for everyone, while at worst, a particular game just becomes a random symbol for petty tribal behavior.
+- Programming is not a zero-sum game. Teaching something to a fellow programmer doesn't take it away from you. I'm happy to share what I can, because I'm in it for the love of programming.
+- Everybody's saturated with the marketing hype of next-generation consoles. They are wonderful, but the truth is that they are as powerful as a high end PC is right now.

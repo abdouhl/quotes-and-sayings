@@ -1,0 +1,106 @@
++++
+author = "Joe Buck"
+title = "Joe Buck Quotes"
+quotes_len = "100"
+description = "the best 100 Joe Buck Quotes"
++++
+- If you deal in hair loss, you constantly check the hairline of anyone who walks up to you. It's the first thing I look at.
+- People would ask, 'Why is your vocal cord paralyzed?' I said it was a virus. I didn't say it was an elective procedure to add hair to the front of my head. It was embarrassing. There's an embarrassing element to that.
+- If you're confident in what you do, the compliment doesn't matter.
+- If Jim Nantz is tweeting at me, 'Go back to baseball, you suck at golf,' then I've got problems. If it's somebody else who's just a voice out there, well, that just comes with the job.
+- I love the St. Louis Blues, it's the only team I openly root for.
+- I would rather be in San Francisco than just about anywhere on Earth.
+- No matter how it started, I grew up with a great American love story. Two parents who didn't fight, enjoyed having parties and being together, and it was a great way to grow up.
+- Most of the time, if someone gives me trouble at a bar or something, saying, 'Why do you hate the Red Sox or Patriots?' they end up buying you a drink or whatever. They like to be heard, say their piece, and then talk about the team.
+- I mean, I've done college basketball, a horse race, a bunch of different things and they'd blow by but golf has a frenetic pace of bouncing around from shot to shot and green to green and, in essence, acre to acre over this huge plot of land with over 150 players who are their own team.
+- I'm close with Paul Rudd.
+- Procrastination is in my genetic code.
+- People know Troy Aikman as a Super Bowl-winning quarterback. That carries tremendous weight. Because he really guards against overexposure, or just saying stuff for effect. When he really says something that's critical, people notice.
+- To declare the Cubs champions after 108 years was the highlight of my career.
+- I'm as much my mom as my dad.
+- You always want to do games for fans that seem to really care. That is the Boston fan. They're passionate.
+- Being a stepparent is knowing when to step in, when to step back, when to step up, when to step out.
+- I mean the home run king, to me, is Hank Aaron, but statistically, it's Barry Bonds.
+- You can't interview Pete Rose and not ask about betting on the Reds and being banned from baseball.
+- I have to live with what I say, or don't say, tens of thousands of times a game.
+- I love sharing my experience with others, especially students who are eager to learn the business.
+- I think people bend the truth all the time, unfortunately.
+- I'm clearly not an international man of mystery.
+- I don't know who had a more tiresome, wall-to-wall schedule than my father, and I know what it's like to be a kid in that situation. He was gone a lot. He needed to be. I understood it. So did my mom.
+- I'm lucky that I was born to these parents. I'm lucky that my dad wanted to be around me, that he took me to all these National League cities by the time I was 12.
+- We do scales, vocal exercises every day. I run the voice up and down, get as high as I can and as low as I can. I work on breathing, too.
+- I just consider Boston and New England incredible sports fans. If they give me trouble, think I'm rooting for other side, it's mainly because they're living and dying with every pitch and every play and think I'm rooting for the other side. I'd much rather that than apathy.
+- If that had been my only purpose in life - to call home runs and touchdowns - I'd lead a pretty shallow life.
+- Whenever Elway was on the field, you never counted the Broncos out.
+- The best lesson I learned from my dad, Jack, is that nobody is tuning in to a game to hear you broadcast. They want to watch the game, so don't get in the way.
+- I'm a die-hard NHL fan. I can't get enough.
+- If I had a walk-up song in 2019, it would be 'Baby Shark.' It's haunting. It's mesmerizing. It's catchy.
+- Jack Buck fought through Europe during World War II.
+- Any surgery done to improve one's looks is not really something someone wants to talk about.
+- My dad worked so hard. He slept in his own bed maybe half the nights of the year because of road assignments, but even when he was home, he was covering games. It put a lot of pressure on my mom. She brought in her parents to help out, and it took a village to raise us. I was lucky.
+- I come from a city like St. Louis, where they consider themselves great baseball fans.
+- I think guilt can be good to a small degree, keep you on the right path.
+- You can let the size of the crowd, when you do Super Bowl, overwhelm you if you want, and that opening on camera is one of the most intense, awkward feelings you can ever have.
+- In 1999, when Ted Williams came out and saluted the fans at the All Star Game at Fenway, I had a huge lump in my throat, and the producer is yelling in my ear to talk, and I couldn't, thankfully, and it was much better.
+- I got a chance to host the 'Late Late Show' for two nights before they hired Craig Ferguson. I enjoyed it, but nothing can replace the thrill of calling an NFC championship game or a Super Bowl or a World Series.
+- I try to make what I say count.
+- I never thought I would get remarried, I love golf too much. I wanted the freedom to play whenever I'm not broadcasting. Then I met a woman I couldn't live without.
+- If you're going to scream and yell and pull a groin when calling a catch, you have to really make sure what you're seeing is actually what's happening.
+- I'm out there to be real, and I think people respond to that. If you have some image that you're protecting, eventually people get sick of it, and I can't imagine living that way for an entire lifetime. I'd rather just be who I am, and that's good enough.
+- To me, baseball is, in some ways, other than my family and wife, my life, and it always will be.
+- I kind of feel like curling combines this weird vision of people sliding down a lane, and it looks like it combines bowling and every bar game I've ever played. But I still don't understand what the hell it is.
+- We live in a world where a lot of people are dissatisfied and can't wait, in 140 characters or less, to tell you how dissatisfied they are.
+- Jeter was no choir boy, Jeter has lived a life. But it's always stayed separate from what happened when he showed up at Yankee Stadium. And that's really to his credit.
+- Broadcasting golf is not like broadcasting baseball or football. You see the ball and the action through your own eyes. The story is unfolding in front of you. In golf, the story is unfolding here and there and everywhere. As the guy in the broadcast tower, you're getting it all on screens and from reporters in the field. It's a tricky business.
+- My dad did call a lot of football, and in my opinion, he was the best football announcer on radio ever.
+- I do have feelings.
+- I was not broadcasting St. Louis Cardinals baseball because I was accomplished. I was broadcasting baseball at 21 years old because I was Jack Buck's son. I had a billion advantages.
+- I started in radio.
+- My dad used to get to the nastiest letters. But somebody had to take the time to type it, stamp it, send it to him, send it to the radio station. And I mean nasty stuff. It's not like nasty people with nasty opinions just popped up out of nowhere.
+- I don't think we know who a lot of these athletes are. We think we do, but they're never allowed to be themselves. Because the minute they try, people are saying, What's wrong with him? Why is he drawing attention to himself?
+- I've heard, 'You're not your father.' Well, you're right. I'm not. We've had two different careers.
+- My dad was the nicest, most egoless person that you could meet.
+- As far as sitting down and watching a sports event, that's just not part of my day or part of my night.
+- I'm a flawed, hard-working, hard-trying person.
+- Timing in my life has been fortuitous.
+- I learned as my dad's kid that unless you physically can't get there, unless you physically can't do it, you need to show up for work.
+- I think people have a warped sense of who I am.
+- Great as my dad was - I would never have gotten my first job announcing if I didn't have the last name Buck - it's my mom, Carole, who has made the biggest difference. She was on Broadway back in the 1960s. She understands entertainment, has incredible instincts.
+- You're open to minute-by-minute criticism which comes via Twitter, that starts seeping its way into your head, and it's easy to let that affect how you do the game... it was a nice moment when I got to take that off my phone.
+- Never bite off so much in your job that you can't spend a lot of time with your family.
+- Broadcasting is a brutal, often unfair business, where looks are valued more than skill.
+- I am obsessed with golf.
+- I always try to shine the spotlight on what's happening on the field and not what's coming out of my mouth.
+- I don't think men like losing their hair, I don't think that's a newsflash. When you see people, start from Donald Trump and go down, you realize people will do anything to have some coverage up there.
+- Nobody's tuning in - let's check the TV Guide listings and see what game Joe Buck is calling. Nobody cares. They want to see the Cubs. They want to see the Packers. They want to see the Cowboys. They don't care who's calling the game.
+- I, Joseph Francis Buck, became a hair-plug addict.
+- I was broadcasting Cardinal baseball in the major leagues at the age of 21, and that only happened because my last name was Buck.
+- I'm in awe of what it takes to run a nation, especially our great nation.
+- I live in a puddle of guilt, an ocean of guilt that you want your own time.
+- In football, for some reason, I was a Houston Oilers fan.
+- Only one time have I had Twitter open when I was doing a game, and after that I took it off my phone. I said, 'This is so counterproductive. I'm actually reacting to people reacting to what I'm saying, and it can't work that way.'
+- I enjoy the mental gymnastics that go along with matching voice to picture and vice versa and trying to accent the action as opposed to provide all of the action through my words. And that's really what play-by-play is.
+- NBC Sports does a great job with golf.
+- I'd be willing to do anything once. I did live bass fishing on TV. I've done horse jumping... so clearly I'm not very picky.
+- Troy Aikman is one of my best friends.
+- Pat Summerall personified less is more. His play-by-play was so bare bones but so great because he had a great, deep-toned voice.
+- My dad was not good at saying no. I'm trying to be better at saying no.
+- OK, I will never say anything degrading or bad about Tom Brady. He is a god in cleats.
+- I know what baldness can do to a man. When you see guys with a toupee that should come with a chinstrap, or somebody whose been through hair replacement surgery and tapped out early because it's too painful, you realize guys will do anything to maintain their sense of virility. They don't want to give up looking young.
+- I watched how happy broadcasting made him. And if you're close with your parent and you see they're happy doing something, it's only natural you want to follow in their footsteps.
+- I'm not an outdoorsman. I'd rather go see a movie. I don't want to hunt anything.
+- I don't want to keep doing the same thing over and over for the rest of my life.
+- I'm my dad's kid, and I'm still, right or wrong, fighting that uphill battle, and I'm not saying that makes sense. I mean my dad didn't hire me at Fox... but it certainly gave me my start, and I think I'm always kind of fighting that.
+- I live for baseball. That's how I grew up.
+- I don't know that I've ever looked at baseball like a purely casual fan. That's just realistic when you grow up with it putting food on your table, and with it taking your dad out of town.
+- I live like a normal human being!
+- You can't let criticism stop you from learning new things.
+- When you've done it long enough - I've done something like 21 World Series - just about every fan base has turned off the TV when their team lost and I was screaming and yelling for the other side.
+- There are a lot of people across the country, for as silly as this sounds, who obsess about hair loss.
+- The point that I would make is it's easy for somebody like me to be critical of Colin Kaepernick, but I haven't suffered some of the same issues that Colin Kaepernick has. On some level, it's like, how dare I weigh in on what Kaepernick is doing or feeling?
+- I was worried that if I lost my hair, I would lose my job.
+- I have a casual interest in the NBA.
+- I am an extremely lucky and blessed person, but I'm pretty self-aware.
+- I'd rather work than not work.
+- I do watch sports. How could I not? Just for self-preservation.
+- You'd be a masochist or a lunatic to be addicted to getting live hair follicles ripped out of the back of your head and surgically implanted into the front of your head.

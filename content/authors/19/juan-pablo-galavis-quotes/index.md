@@ -1,0 +1,35 @@
++++
+author = "Juan Pablo Galavis"
+title = "Juan Pablo Galavis Quotes"
+quotes_len = "29"
+description = "the best 29 Juan Pablo Galavis Quotes"
++++
+- Marlins Park is what I call my office in Miami, because I work for the Venezuelan Museum of Baseball and Hall of Fame. My job is to go to all the MLB stadiums and to talk to and collect articles from all the Venezuelan players in the big leagues and those Americans that played in Venezuela.
+- I've learned that 'love' is used a lot in the States for everything: 'I love that burger,' 'I love my shoes,' 'I love a friend.' To me, if it's overused, it loses meaning.
+- Gay and lesbian people, and the children they are raising, wrongfully face discrimination, and I want them to know that I'm on their side.
+- In life, you have to take the pace that love goes. You don't force it. You just don't force love, you don't force falling in love, you don't force being in love - you just become. I don't know how to say that in English, but you just feel it.
+- There are people who love on weekends to go out when the sun comes out. I just want to lie in bed and watch sports and relax.
+- I'm responsible for what I say, but I'm not responsible about how people interpret my situation.
+- Obviously, my daughter's my priority, so if you want to have plans with me and then my daughter calls, then I'm going to have to go with her.
+- We were created to be woman and man and make kids.
+- I'm very happy. I'm a happy guy; I'm always happy.
+- I can be a little bit stubborn.
+- I'm not a bad guy. People who know me know who I am.
+- Lake Taupo is on the north island of New Zealand and in the countryside. I absolutely fell in love with it.
+- Different people have different opinions, and it's okay to respect all of them.
+- I can be sarcastic.
+- I'm a crybaby.
+- I would want to know if, at 15, if my daughter loves me the way she does right now. And if she's proud of me, just because I want to be a good example for her, and seeing her grow and how much she loves Daddy saying 'Daddy, te quiero mucho,' which means 'I like you a lot,' those are the things that melt my heart.
+- I am a father, and I know the feel of being a father. Why wouldn't I want my gay friends to also be happy parents?
+- Everyone knows English is my second language and my vocabulary is not as broad as it is in Spanish, and because of this, sometimes I use the wrong words to express myself.
+- I would never disrespect anyone.
+- If you ask me, 'Are you for or against gay parents?' for example, having kids - it's hard for me to say, 'Yes.'
+- You can meet somebody at a club. You can meet somebody at a restaurant. But maybe that person is not on the same page. Maybe that person is like, 'I'm starting out, I don't want to get married now.' Or, 'I don't want to have kids.'
+- I love dancing.
+- I know gay parents, and I support them and their families. They are good parents and loving families.
+- In Venezuela, which doesn't have thousands of prestige universities like the U.S., people usually stay at home while attending to college. After they graduate, they move for a job or get married.
+- There's a stigma on the word 'therapy.' People relate it to big problems. That's something we have to change. Going to therapy can be very healthy. It can change the way you see things and treat others.
+- I don't like Miami that much. I don't like the weather. My base is Miami, but I travel a lot.
+- I respect every gay man and woman. They're that way, and they just want to be happy.
+- I don't walk barefoot. When I see a girl barefoot in the street... I'm like, 'Really?' But obviously, I can't judge someone for that first impression.
+- You have to respect everybody's desires and way of living.

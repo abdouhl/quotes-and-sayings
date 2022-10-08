@@ -1,0 +1,47 @@
++++
+author = "Josh Mcdowell"
+title = "Josh Mcdowell Quotes"
+quotes_len = "41"
+description = "the best 41 Josh Mcdowell Quotes"
++++
+- My joy in life is not because I have not had any problems. I have joy because I have learned there is nothing too great for God's power to deal with, nor anything too small or insignificant for His love to be concerned about.
+- If Jesus Christ was who He claimed to be, and He did die on a cross at a point of time in history, then, for all history past and all history future it is relevant because that is the very focal point for forgiveness and redemption.
+- Christ appeared alive on several occasions after the cataclysmic events of that first Easter.
+- Both Jewish and Roman sources and traditions admit an empty tomb.
+- Why don't the names of Buddha, Mohammed, Confucius offend people? The reason is that these others didn't claim to be God, but Jesus did.
+- Anyone with sincere religious beliefs cannot say that all religions are true. That is so illogical it is pathetic. All religion cannot be true because some of them are so diametrically opposed to each other.
+- If there were more than one path to salvation then it would totally negate Jesus' sacrifice on the cross, his life, his teachings.
+- Every pastor, youth pastor, and every parent is in competition with the Internet and the information it is spreading. Most young people don't get their news from CNN or CBS; they get it from bloggers.
+- Jesus claimed He had the power to raise himself from the dead and His followers would be raised from the dead. That's a unique claim in the literature of religion.
+- My greatest platform is not with all my degrees, everything else, it's not all my books, everything. It's that I'm known as a man who loves his wife and spends time with his children. That opens more; I speak as a daddy.
+- My greatest asset now is my focus.
+- For centuries many of the world's distinguished philosophers have assaulted Christianity as being irrational, superstitious and absurd.
+- When it comes to my salvation, all I need is Jesus; after my salvation, everything is Jesus plus the church... When people preach that all you need is Jesus, they cut you and I off from one of the greatest sources of healing, which is the body of Christ. Don't go it alone - you won't make it.
+- Where I once believed people were there to be used, I started thinking of other people first.
+- While the resurrection promises us a new and perfect life in the future, God loves us too much to leave us alone to contend with the pain, guilt and loneliness of our present life.
+- I thought Christians were walking idiots.
+- Every kid needs to say, 'I want what my mom and dad have.'
+- Paul the apostle recounted that Jesus appeared to more than 500 of His followers at one time, the majority of whom were still alive and who could confirm what Paul wrote.
+- The New Testament witnesses were fully aware of the background against which the resurrection took place.
+- I would say 90 percent of Christians do not have a worldview, in other words a view of the world, based on the Scripture and a relationship with God.
+- The first thing that stuck in the minds of the disciples was not the empty tomb, but rather the empty grave clothes - undisturbed in form and position.
+- No matter how devastating our struggles, disappointments, and troubles are, they are only temporary.
+- Prayer is talking with God. God knows your heart and is not so concerned with your words as He is with the attitude of your heart.
+- After I set out to refute Christianity intellectually and couldn't, I came to the conclusion the Bible was true and Jesus Christ was God's Son.
+- When I was a crusade director in British Columbia, all of our meetings were at 9:03. Somebody said 'That's ridiculous. Why did you do that?' It's because you remember it. You've never been to another 9:03 meeting.
+- No matter how devastating our struggles, disappointments, and troubles are, they are only temporary. No matter what happens to you, no matter the depth of tragedy or pain you face, no matter how death stalks you and your loved ones, the Resurrection promises you a future of immeasurable good.
+- You better arm yourselves to answer your children's and grandchildren's questions... no matter what the question is... without being judgmental.
+- The downfall of the church will not come from a lack of apologetic teaching; it will come from disintegration of the families in the church.
+- Where I once constantly lost my temper, I found myself arriving at a crisis and experiencing peace.
+- As a reward for their efforts, however, those early Christians were beaten, stoned to death, thrown to the lions, tortured and crucified. Every conceivable method was used to stop them from talking.
+- The Internet has given atheists, agnostics, skeptics, the people who like to destroy everything that you and I believe, the almost equal access to your kids as your youth pastor and you have... whether you like it or not.
+- I once had a lot of hatred, mainly toward my father, an alcoholic.
+- I am not a Christian because God changed my life; I am a Christian because of my convictions about who Jesus Christ is.
+- We've had a major shift in what truth is and where it comes from. We've gone from being God-centered to self-centered, from being objective to being subjective, and from being internal to external.
+- I've never had anyone define purity. You probably can't define purity. Purity is to live according to original design.
+- Now, whenever you read any historical document, you always evaluate it in light of the historical context.
+- Few people seem to realize that the resurrection of Jesus is the cornerstone to a worldview that provides the perspective to all of life.
+- Here's the simplest answer: Within weeks, the disciples proclaimed the resurrection of Jesus Christ, that He had been bodily raised from the dead and appeared to them.
+- Because the New Testament provides the primary historical source for information on the resurrection, many critics during the 19th century attacked the reliability of these biblical documents.
+- On that Sunday morning the first thing that impressed the people who approached the tomb was the unusual position of the one and a half to two ton stone that had been lodged in front of the doorway.
+- If they had connived a scheme, and Christ had not been raised from the dead, where would have been the hardest place on the face of the earth to convince anyone? In Jerusalem.

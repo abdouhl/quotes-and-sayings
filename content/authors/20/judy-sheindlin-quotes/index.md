@@ -1,0 +1,103 @@
++++
+author = "Judy Sheindlin"
+title = "Judy Sheindlin Quotes"
+quotes_len = "97"
+description = "the best 97 Judy Sheindlin Quotes"
++++
+- While I sat in family court, I probably heard 20 or 25,000 cases. And I am sure, during the course of those cases, there were cases that I probably would've decided differently had I had either more time or been able to explore more. But all you can do as a judge is really give a case your best effort.
+- A combination of tenacity and luck brought me here today.
+- I knew where people were sleeping in the hallways, you know, instead of doing their job. I knew what systems weren't working.
+- I can't stand stupid, and I can't stand slow.
+- When I go on vacation, I leave my house in total order: bills paid, garbage out, no milk in the refrigerator, mail done so that I can better negotiate what will await me.
+- Long before I was Judge Judy, when I was an unknown worker bee, I usually got what I wanted.
+- I always say that when I see that needle start to go in the other direction, when people have had enough of me, I'm going to be smart enough to say goodbye. It's such a joyous ride to be on top, and it takes away from that ride if you sort of ride it down.
+- I eat liars for breakfast.
+- I'm a law-and-order girl: I like people who do the right thing.
+- When I was a practising lawyer in the family court, there were too many judges who, when you left their courtroom, you didn't know whether you'd won or whether you'd lost.
+- When states and cities and our country say we're going to tax the rich - and that word 'rich' or 'wealthy' doesn't sound like it comes from success of hard work, but from something negative - I resent it.
+- Number one - and I want you to emblaze this on your brain - you only have one chance to make a first impression.
+- I don't know where, or by whom, Judge Wapner was raised, but my parents taught me, when you don't have something nice to say about someone, say nothing.
+- Working parents bring a certain amount of guilt to their relationship with their children.
+- I don't read bad mail. I don't save mail. I'm too old to read negative things.
+- If you take control over those things you can, you are better able to negotiate the unexpected.
+- I don't feel as if anything that has happened to me in my life was sidetracked because I was a woman.
+- It's nice to leave on top.
+- Remember, a Trojan is more than a horse.
+- I still love working. I still love being in the mix of things.
+- Who is interested in that? Who is interested in the warm and fuzzy? There's enough warm and fuzzy on television.
+- I still think an Egg McMuffin is the best breakfast.
+- TV was not in my future, not in my mind's eye.
+- I'm realistic. I'm not becoming Farrah Fawcett here. If you stay beyond your welcome, it's for ego or money or because you can't exist without the limelight. I'm fine without it.
+- I don't mind getting my hands dirty, and I don't mind getting to the truth of a situation and saying, 'You're right, you're wrong, next case.'
+- Being a nurturer isn't being a moron.
+- They will find somebody younger, somebody funnier, somebody more engaged. As long as the court genre is viable, people are going to be looking for someone to knock me off of my perch.
+- I was a sitting judge in Manhattan. I was a supervising judge in Manhattan, and they said to me, 'Did you ever think of doing what you do on television?'
+- A period of detention in a chilly upstate facility can be a great attitude adjuster.
+- I set realistic goals consistent with my talents. I never, for instance, wanted to sit on an appellate court. I'm not an academic. Truth be told, I hate to do research. I have a practical mind, and I was well suited for the trial court bench, not the appellate.
+- If you commit a crime, you maybe have to be haunted.
+- I don't have two different personalities. I am what I am.
+- Not everything has to be a money-making operation. You do things sometimes because it makes you feel good.
+- Being a TV star is a great gift. Everyone treats you royally.
+- They want to do the right thing, most people. For that little core that doesn't want to do the right thing and gets away with it routinely, most people want to see them get a good whupping. And I am your girl.
+- People in the U.S. pay a great deal of money to support their judiciary, and they have an actual right to see how it functions.
+- People from Brooklyn grow up with a certain common sense. If it doesn't ring true, it's not true.
+- Cameras should be the norm everywhere. It should be in every courtroom so that the proceedings are taken down and recorded just like stenography.
+- I exercise, and I eat reasonably, and I don't want to look at myself being out of shape. That would depress me.
+- All those good people huddling behind bars in gated communities - it's the wrong way round. The others should have the bars.
+- I don't like to watch train wrecks.
+- The reason that you have statutes of limitations is because evidence goes stale sometimes.
+- So we want to free the women of America? You know what would free the women of America? Make men accept responsibility for birth control.
+- I never don't have a good time. Even when I go to work with a cold or a sore throat, as soon as I hit the mark and walk out that door, everything else is gone, and I'm up.
+- People are supposed to be responsible.
+- I was an unremarkable student with passable looks and a direct personality.
+- Teach your daughters, teach your granddaughters, everybody has to have something that they're good at where they can earn a living.
+- I deal with conflicts that irritate people and give them stress, like the dispute over a car payment. I can resolve those cases in a moment.
+- I think the fundamentals of America are strong.
+- I resent it when any part of the government refers to people who have money in the pejorative.
+- I just think I'm direct.
+- You don't teach morals and ethics and empathy and kindness in the schools. You teach that at home, and children learn by example.
+- I want first-time offenders to think of their appearance in my courtroom as the second-worst experience of their lives - circumcision being the first.
+- Women watch and say, 'I like watching you control your own space. It's motivated me to do better, to go back to college, to even try law school. My daughter's been watching you since she's 10 - I love the fact that she's watching a strong woman who's in control.' All of those things are good, positive things.
+- If you're going to spend your time, spend your time getting smarter.
+- Because of the world we live in, we lock the doors in our house when we go to sleep. If you live in an apartment, if you can, you get a building that has a doorman or security.
+- I think that there is a difference between men and women as a warrior and a nurturer... It's innate.
+- I go down to the gym unwashed, like something dragged in from behind a truck.
+- What keeps me going is those cases, maybe ten a year, where I can make a difference.
+- My first husband is a lovely, lovely man, but he always viewed my job as a hobby, and there came a time where I resented that.
+- To be considered presidential timber, there has to be a measure in the way you present your argument.
+- If you can share with the people who've been good to you, do it.
+- All the judges watched Judge Wapner. All America, at one point or another, watched Judge Wapner.
+- Never let anyone or anything define your value or limit your dream.
+- You should want to give something back.
+- I'm not a good interviewer.
+- Little things happen to us during the course of our lives when we were children that stay with us.
+- This country has a wonderful spirit.
+- A judge is supposed to be able to make a decision, and when you make a decision, very often one party - and very often both - are a little disappointed.
+- I try to have the right thing happen at the end of the case, try to have the case have a moral compass to it, try to do a little teaching while I'm at it because that's the, you know, that's the preacher in me.
+- I don't like to rule by committee. I like sort of an autocratic way of dealing with things.
+- I left family court for the vagaries of TV and said to myself, 'Judy, what the hell are you thinking?' It seems like only yesterday.
+- I was a grown-up when 'celebrity' happened. So I knew exactly what it was like to be in line at a restaurant and watch someone famous walk in and get a table immediately. I knew I didn't like that; I don't want to make somebody else feel the way I felt.
+- I never had an issue with gender.
+- You lock your windows before you leave. You put on an alarm if you live in the country because you know that there are bad people out there. Well, in this Internet age, you know that there are bad people out there. And no matter what you do, those bad people are going to get into your house.
+- Incarceration is supposed to keep the community safe from your behavior.
+- Megyn Kelly is one of those rare women who seamlessly combines professional excellence and family. She doesn't need a catch phrase to define what she instinctively has accomplished. She just 'does it.'
+- I would never interrogate a child or a spouse the way I would a litigant. People wouldn't want to be around you. You'd wind up all alone on an island.
+- Don't try to teach a pig to sing. It doesn't work, and it annoys the pig.
+- In too many ways, political correctness has been a bully.
+- Nothing in my early childhood suggested to anyone - except maybe my father - that one day I would be standing here and be known simply as Judge Judy.
+- I was in the family court for 25 years. And having started a second career, having a second act when you were 52 was something that I never thought would happen to me.
+- I've had an absolutely magical run.
+- Uh' is not an answer.
+- I really believe if you give people a product that couples entertainment with a little bit of education, a soft glove and sense of humor - especially about a subject people have begun to feel very frustrated about, which is the legal system - then you have a formula for success.
+- My viewers are smart. They know I have a contract with a TV show and that I make a lot of money.
+- I think I'm a good fact finder.
+- I'm an entertainer, and I'm paid as an entertainer.
+- We don't take Sweet'n Lows from restaurants anymore. I don't stuff dinner rolls into my pocketbook.
+- It took them 13 years to get O. J. Simpson, but they got him. What goes around comes around.
+- The President of the United State is the leader of the free world, and the world has to be able to rely on his or her word, to feel that they have a good moral compass.
+- Women make a terrible mistake because they usually are so desperate to nest that they pick on schlubs and worthless pieces of trash that they pick up in a bar.
+- Don't pee on my leg and tell me it's raining.
+- I'm not sure whether it's going to be the downfall of Rome - social media. There are too many secrets.
+- I started out in a two-room apartment in Brooklyn and thought, 'Never again.'
+- I knew that if I worked hard, I could have both - I could have a family, because that was important to me, and I could have a career.
+- I think that you're supposed to know when it's time to say goodbye.

@@ -1,0 +1,47 @@
++++
+author = "Jamie Hince"
+title = "Jamie Hince Quotes"
+quotes_len = "41"
+description = "the best 41 Jamie Hince Quotes"
++++
+- When I see my picture in the papers, I imagine that people think I'm a lot more serious than I am. They probably think I'm pretty miserable.
+- When I like something, I wear it into the ground, then really regret it.
+- A freshly pressed suit is a miracle when you're travelling. When your suitcase has turned all your clothes into creased rags, and you've crossed so many time zones that you can't tell a Monday from a Thursday, putting on a freshly pressed suit for breakfast is like spending a week in a spa.
+- Privacy has become the most precious thing. Things have got more cryptic in my writing.
+- 'The Tin Drum' is one of my favourite books of all time - I've probably got 12 or 15 copies with different covers, different translations - but it's also just about my favourite film.
+- I don't feel like the album format is sacred anymore, and things have got to change. I don't listen to music in terms of albums anymore. I've got a short attention span.
+- I start the day off with a pot of coffee, and I read all the newspapers online, then I delve around for new music.
+- I used to take 'Visions of Cody' by Jack Kerouac on tour all the time. I don't really love Kerouac, but that book, you could just open at any page and find something incredible for that day.
+- Being in a band is not about reality - it's a bit of a fantasy. I can't go on stage as my ordinary self and just play - I've got to become my 'superhuman self.'
+- There are plenty of cities that have given me the time of my life for a week or two - including Sao Paulo, Paris, and New York - but London has an enduring appeal that keeps on unfolding.
+- Never wear a hat and sunglasses at the same time, because it looks like you're wearing a disguise.
+- I squatted for most of my adult life. I'm not condoning squatting; it was just the only way I could do what I wanted to do. I didn't have, you know, a trust fund or parents that could help out.
+- The best part of touring has to be playing shows.
+- Photography is a big part of my life: taking photographs, being around photographers.
+- There are a lot of things about Russian culture, art, music, photography and literature that I'm love with.
+- I'm probably quite practical when I'm on stage. I start off with a leather jacket, and then get too hot and take it off. I don't think too much about it.
+- I do believe in ghosts, but I haven't seen one. I can imagine that you cross over to the other side, some different dimension or whatever, but how do your clothes get there? Ghosts are always wearing clothes.
+- It feels like being in a band is a luxury now: like you can only do it if you're signed really early or you come from a wealthy family.
+- I try not to be too realistic. It's better to be over-positive.
+- I saw a picture of a girl using an eyelash curler when I was a kid, and I thought it was some sort of torture device, the eye guillotine.
+- In high school, I listened to The Jam, stuff like that, a lot of English bands, really. And then I got into anarcho-punk bands that nobody had heard of.
+- I've got no problem being on my own. I like the way my imagination works.
+- I get excited by being in the studio and could never get burnt out in there.
+- I was vegan for about 20 years.
+- It's a beautiful thing how happy you can be with a few friends, some beaten up guitars, a fire, and a couple of fields.
+- I love when a song is conceived as a jigsaw puzzle in the studio, and then it's a natural to play live. That's my gauge of success for a song.
+- I panic when we're on tour and feel the world can leave you behind. When we finish touring, I feel like I'm running to catch up and find out what's been happening.
+- Generally, my life is absolute chaos, but when I'm writing songs, it's very thought out and regimented.
+- Did groupies ever interest me? No. I'm a pleasure seeker, and I like going bananas, but that's never appealed to me. I always thought it was a little bit naff.
+- I love all board games, actually, apart from backgammon. I can never remember the rules.
+- One of the things I discovered about myself is I'm just really positive.
+- I admire a lot of photographers, but I feel very disconnected from them at the same time. I don't feel I employ any technique like these people in my work. I guess if there's any influence from any of these photographers, it's this: They were concerned only with beauty. Not with 'cool.' I hope I'm doing the same.
+- Rock music was the death of jazz in a way. I know there's a bunch of people who say jazz isn't dead, but I mean, rock 'n roll, you play three chords to 20,000 people; jazz, you play 20,000 chords to three people.
+- I'm a guitar player. I've carved out my own style of guitar music, so I don't look for inspiration with playing guitar.
+- Sometimes not playing music for a day is much more beneficial than playing every day for ten hours.
+- I've carved a different path which is not that affected by what happens in the bad side of politics. I've always surrounded myself with music and art and love and all those things - pleasures that are sort of immune from all that.
+- After spending so much time in America, I started travelling with 'In Defence of English Cooking' by George Orwell. It's archaic and old-fashioned in its Englishness and reminds me of home.
+- I've started to fall for New Orleans recently. There's real life there, if you know what I mean.
+- I loved all that riot-grrl scene and Nation of Ulysses and Bikini Kill and Huggy Bear. I loved it. It was the moment sort of first growing up where bands had stopped looking like roadies.
+- I feel some allegiance to pushing electric-guitar music into a different realm, somewhere that isn't retrospective. There's a lot of guitar bands that are a tribute to the 1970s or the Nineties. I want to experiment with guitar music more.
+- When I was a kid growing up, I lived in a little rural village called Woolton Hill, and the nearest town was Newbury. No bands played anywhere near us, so as much as I wanted to be on the grid and in the loop, I never was.

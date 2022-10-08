@@ -1,0 +1,16 @@
++++
+author = "George Kotsiopoulos"
+title = "George Kotsiopoulos Quotes"
+quotes_len = "10"
+description = "the best 10 George Kotsiopoulos Quotes"
++++
+- For slaves to fashion, the rules are made to be broken.
+- The weight of a fabric is inconsequential, since seasonal dressing is all about layering.
+- For many years I've been using Swarovski accessories when styling editorial photo shoots and also for red carpet appearances.
+- I learned everything about fashion during my time at the 'NY Times.'
+- It's better if you have a strong opinion on any talk show.
+- I like to spend Christmas with family and friends, pigging out, exchanging gifts and basically doing nothing.
+- Winter dressing is all about having chic outerwear.
+- Photos convey a point in time, so for casual snapshots I say wear the trends so you have fun images to look back at.
+- For proper family portraits it's best to stick with classic, timeless looks that will not only be beautiful now but also in 20 years, and keep the wardrobe color palette similar so it looks like the group shot was well planned.
+- You know what I've kind of come to realize is that I'm a huge Drew Barrymore rom-com fan. There are so many of her movies that I love.

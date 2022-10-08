@@ -1,0 +1,28 @@
++++
+author = "Daniel Schwartz"
+title = "Daniel Schwartz Quotes"
+quotes_len = "22"
+description = "the best 22 Daniel Schwartz Quotes"
++++
+- As Popeyes becomes part of the RBI family, we believe we can deliver growth and opportunities for all of our stakeholders, including our valued employees and franchisees.
+- For the life of me, I could not make a good-looking ice-cream cone.
+- Everything isn't about synergy.
+- Humility is important.
+- I literally live on American Airlines' 737 commercial airplane.
+- Popeyes is a powerful brand with a rich Louisiana heritage that resonates with guests around the world.
+- My parents were willing to spend time and invest time in my hobbies, no matter how odd they seemed. When I was really young, I collected rocks and minerals. But mostly I would hang out with friends, playing basketball. It was not the most eventful childhood, but I think that's good.
+- I am not smarter than anyone else.
+- I kind of work on an airplane. The Burger King brand headquarters is in Miami. The Tim's headquarters and our head office is in Toronto. And we have international offices for the brands in Switzerland and Singapore, so I kind of bop back and forth around all the offices. And I try to spend most of my time visiting our restaurant owners.
+- You can't run a multinational business from your desk.
+- We're looking for people who want to be part of something bigger. We don't want people who see us as a stepping stone.
+- I think most young professionals would be surprised to learn how accommodating employers can be to inquisitive potential candidates.
+- You want hard workers. You'd be surprised how many people tell me, 'I don't need to work hard. I'm smart.' Really?
+- My mom's a lawyer. She was part of the group that wrote the bar exam. My father is a dentist. They've always worked.
+- I like people who genuinely are looking for a project and not a job.
+- I believe in MWA - management by walking around - so I spend as much time as possible traveling and visiting franchise partners. You only learn by walking around and meeting people.
+- In the office, you kind of lose sight. You have to go to the restaurants to see what's really happening.
+- Your first job can set the trajectory for the rest of your career.
+- I joined 3G when I was 24, but I didn't really have much of a management role there. I became C.F.O. when we acquired Burger King, so that was my first time managing people. I had just turned 30.
+- I like people who are passionate, who have persevered, and who are clearly humble and not arrogant.
+- The world's a small place, life's short, and so you should only be nice to people. I don't raise my voice at work. I don't have tantrums.
+- It's okay to be confident, but not arrogant.

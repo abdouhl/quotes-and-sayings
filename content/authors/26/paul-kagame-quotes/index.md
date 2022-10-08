@@ -1,0 +1,38 @@
++++
+author = "Paul Kagame"
+title = "Paul Kagame Quotes"
+quotes_len = "32"
+description = "the best 32 Paul Kagame Quotes"
++++
+- I have no regrets about being who I am and being what I am in my country for my people. No regrets at all.
+- Our world faces difficult challenges, but no more so than in the past. Working together in a constructive spirit, we can assure our children the future they deserve.
+- I'm not British. I'm not American. I'm not French. Whatever thing they practise, that is their business. I am an African. I am Rwandese.
+- I try to look at problems very clearly and think, 'How do we get out of this? What will work? What will be the consequences for the people involved?'
+- There is a need to take advantage of the change that has taken place in the Congo, however tragic that has been in its coming.
+- You can be up there, talked about, appreciated all over the world, with people singing a lot of songs about you. But if you don't measure up and you are not really connected with your people... it will explode in your face, no question about it.
+- I've told Rwandans it's not just what you think of for yourselves, but what others think of us.
+- The political, the economic, the social are tied together like the strands of a rope. The social and economic, if they are firm, tend to strengthen the other.
+- In a state of poverty, illiteracy, people just remain exposed to all kinds of manipulation. That's what we have lived. It's easier to tell a poor person, 'You know what, you are poor, you're hungry because the other one has taken away your rights.'
+- The U.N. must be a good steward of the funds entrusted to it. Abuse and waste are therefore not a mere public relations problem. Institutional reform is not a one-off event, like applying a fresh coat of paint.
+- I would be very happy for a woman to succeed me.
+- We cannot turn the clock back nor can we undo the harm caused, but we have the power to determine the future and to ensure that what happened never happens again.
+- We want to develop this can-do mentality.
+- You kept quiet... When these victims wanted your help to survive, you kept quiet.
+- I don't think that what we need is an eternal leader.
+- Let no one think that flexibility and a predisposition to compromise is a sign of weakness or a sell-out.
+- To be effective at delivering a decent life for all, the U.N. must treat all the people it serves with impartiality and respect.
+- Nothing would catch me off guard, because I understand the world I live in. I understand it very well. And the world I live in is not necessarily a fair or just world. I have dealt with these injustices for the bigger part of my life.
+- I get newspapers from Britain and other countries twice a week and read them almost page to page. Sometimes I find I'm reading things I don't even need to read, because my mind is still hungry.
+- I don't think anybody out there in the media, U.N., human rights organisations, has any moral right whatsoever to level any accusations against me or against Rwanda. Because, when it came to the problems facing Rwanda, and the Congo, they were all useless.
+- In Africa today, we recognise that trade and investment, and not aid, are pillars of development.
+- Some are short, others are tall, others are thin, others are stocky. But we are all human beings. Can we not live together and happily within one border?
+- Sometimes our partners from other countries ask us why we have not got further with our reconciliation, as if we possess a magic to just get rid of this tragic history of ours.
+- You requested me to lead the country again after 2017. Given the importance and consideration you attach to this, I can only accept.
+- I said, maybe you need to take a risk with someone else. But they kept saying no, we want you to stay.
+- I grew up in a refugee camp. Thirty years. This so-called human-rights world didn't ask me what was happening for me to be there 30 years.
+- Africa should not just wait to be exploited or influenced. No. We should be part of the conversation. We should raise ourselves to a level where there are certain terms we dictate in the conversation because we have a lot to offer.
+- The judicial system of Rwanda is not subordinate to France or France's interests.
+- There are some who are scared by unity and by building a country on the basis of ideas.
+- We cannot just be a corridor to smuggle minerals out.
+- Such problems are not solved in one day but there is a great step toward peace and security in the region.
+- We must create economic opportunity, build a culture of entrepreneurship, get people to take responsibility for improving their lives, rather than putting them in a position where they sit back in their poverty and blame others for it.

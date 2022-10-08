@@ -1,0 +1,78 @@
++++
+author = "Guy Standing"
+title = "Guy Standing Quotes"
+quotes_len = "72"
+description = "the best 72 Guy Standing Quotes"
++++
+- The precariat consists of a growing proportion of our total society. It is being habituated to accept a life of unstable labour and unstable living. Often they're unable to say what their occupation is, because what they're doing now might be quite different from what they were doing three months ago.
+- People want to work, but they don't want to necessarily want to do labour.
+- The precariat faces chronic uncertainty about what to do, about what incomes to expect, about state benefits that might be their due, about their relationships, their homes, and about the occupations they can realistically expect.
+- Most existing national capital funds have been built up from royalties from oil and other minerals. They need not be limited that way. Most are anything but democratic. That could be changed.
+- Globalisation, technological change, and the move to flexible labour markets has channelled more and more income to rentiers - those owning financial, physical, or so-called intellectual property - while real wages stagnate.
+- People in the precariat find themselves in the situation where the level of their education and qualifications is almost always higher than the sort of labour that they're going to be able to obtain.
+- Globalisation began what should be called the Great Convergence, creating a globalising labour market in which wages in emerging market economies slowly converge with wages in rich economies, generating a steady drop in real wages across Europe.
+- Retraining for the precariat is stressful and demoralising; often, they learn new tricks only to find them obsolescent or unwanted.
+- Collective action remains the best way of renewing the march towards the great trinity of liberty, equality, and solidarity.
+- Think how modern economics presents work. Only labour that contributes to growth counts.
+- The IP system is an artificial construct that excessively rewards owners of intellectual property, granting them monopolies over inventions and ideas that, in many cases, are the product of generations of thinkers and/or publicly funded research.
+- In 1936, John Maynard Keynes predicted the 'euthanasia of the rentier' before the end of the 20th century. It did not happen.
+- Sanctions and workfare make it easier for employers to impose insecure practices on desperate people.
+- Growth in village economies is often ignored. It should not be.
+- The precariatised mind is one without anchors, flitting from subject to subject, in the extreme suffering from attention deficit disorder. But it is also nomadic in its dealings with other people.
+- Although the precariat does not consist simply of victims, since many in it challenge their parents' labouring ethic, its growth has been accelerated by the neoliberalism of globalisation, which put faith in labour market flexibility, the commodification of everything, and the restructuring of social protection.
+- A rich and diverse commons lowers the cost of living for those who use it. And throughout history, it has been those on low incomes who gain most from the commons.
+- Since the crash of 2008 and during the neoliberal retrenchment known as austerity, many commentators have muttered that the left is dead, watching social democrats in their timidity lose elections and respond by becoming ever more timid and neoliberal. They deserve their defeats.
+- Across Europe, not just in the U.K., the old Beveridge and Bismarckian variants of the welfare state have been dismantled. In their place has been erected a mish-mash of means-tested, behaviour-tested social assistance, with a growing tendency to force young unemployed into workfare schemes, which are helping to depress real wages.
+- Many low-income people in the U.S.A. charged with a crime opt to plead guilty to a lesser offence because they cannot afford to go to trial.
+- I don't see basic income as a panacea, but we must have a new income distribution system. The old one has broken down irretrievably.
+- What distinguishes a commons is that it is not private property, does not have a price, and is oriented towards 'use value' rather than 'exchange value.' It does not exist to generate profits.
+- The precariat is the first class in history to be losing acquired rights - cultural, civil, social, economic, and political.
+- Nobody should be allowed to fund political parties unless they pay at least 30% tax on all income above the median wage. If that rule applied, the Tory party would be bankrupted overnight.
+- Means-tested benefits have one incredible feature in that they impose huge poverty traps.
+- Chronic insecurity will not be overcome by minimum wage laws, tax credits, means-tested benefits, or workfare.
+- The primary value of a basic income would be its emancipatory effect.
+- The Latin root of 'precariousness' is 'to obtain by prayer.' The precariat must ask for favours, for charity, to show obsequiousness, to plead with figures of authority. It is degrading and stigmatizing.
+- What we can say with confidence is that the technological revolution is worsening inequality, due mostly to mechanisms that limit free markets. It is also bringing about disruptive change that is intensifying insecurity and may indeed lead to large-scale labor displacement.
+- If the scale of gas is anything like the claims made by its advocates, it has major implications for the economy and British society. Besides its worrying environmental aspects, it could have adverse effects on income distribution.
+- In financial affairs and dealings with the state, those in the precariat are disadvantaged since they are usually less well-informed and have to do much more to satisfy demands made on them if they want to gain meagre state benefits.
+- Workfare will merely accentuate the growth of the low-paying, insecure labour market.
+- Every progressive movement has been built on the anger, needs, and aspirations of the emerging major class.
+- Think of a public library, worth more for those who cannot afford numerous books. Think of a public waterway or fishing ground. All types of commons have imputed monetary value that together comprise a source of social income. As such, the commons reduces economic inequality and insecurity in society.
+- We need a new model of social protection. Let us accept that jobs are not the magic solution - and that in a globalised market, job guarantees are a false promise. Let us accept flexible labour, too. But in return, let us have a society in which everybody has a right to basic security and a more equal access to other insurance-based schemes.
+- The World Bank and others have been converted to conditional cash transfers (CCT). These provide poor people with cash on condition they send their children to school and for medical treatment.
+- The precariat has been losing cultural rights in that those in it feel they cannot and do not belong to any community that gives them secure identity or a sense of solidarity and reciprocity, of mutual support.
+- Twentieth-century welfare state capitalism was historically unique in that national income was split between wages and profits, labour and capital.
+- If you're healthier, you tend to have a lower demand for health services.
+- Magna Carta only came into being in 1217, when the wording had been changed and parts of the original were extended in the Charter of the Forests. This complementary charter covered liberties granted to the common man, including rights to the commons, grazing, fishing, water, and firewood, and was perhaps the first ecological charter in history.
+- Capital is taxed much less than labour; subsidies going to capital, the rich, and middle-income earners greatly exceed the benefits going to the precariat and underclass.
+- What we need is a slow time movement to gain control over time and an overhaul of work statistics to give a better perspective on all the work being done and how much of it is undesirable, unnecessary, and demeaning.
+- We are in an era of chronic insecurity and growing inequalities. In that context, we need to have new mechanisms for income distribution which give people a sense of security.
+- Every time a government minister or spokesman lauds Magna Carta, let us boo or hiss. Shame them. And let us celebrate what it really means to our history: the ability of an emerging class to make demands against the state for new liberties and rights.
+- Using political power, the elite can induce local authorities to facilitate enclosure and privatisation of land, water, and other hitherto public amenities. And they can pressurise public administrations to cut taxes, reducing financial resources for maintaining the remaining commons.
+- If I care for an elderly relative without payment, it is not work, is not counted in national income, and, as it is not labour, is not counted as work. Should my neighbour pay me to do precisely the same tasks, it would contribute to economic growth.
+- A person looking after a frail former lover is not working and not contributing to economic growth. But if he or she stopped, the state would probably have to take over, thereby adding to growth. So, to increase growth, we should stop looking after our loved ones. Could anybody explain to a passing Martian how this makes sense?
+- People in the precariat rely very heavily on money wages.
+- Successive governments in the U.K. have worked to create a more flexible labour market, which also meant labour insecurity. They allowed wages to drop and non-wage benefits to shrivel, creating worse inequality than statistics reveal.
+- The precariat can be divided into three further groups - atavists, who look back to a lost past; nostalgics, who look forlornly for a present, a home; and progressives, who look for a lost future.
+- Many in the precariat know they have to spend considerable time just waiting for opportunities to arise.
+- Think of how much time is spent looking and applying for jobs. Some of those who have read my book on the precariat have told me they have applied for thousands of jobs. This is scarcely leisure; it is work.
+- A multi-tier social protection system must be based on a modest basic income so as to enable the precariat to build lives involving a balance of different types of work, not just labour in jobs.
+- Politicians should reflect on the well-documented fact that fearful, insecure people lose their sense of tolerance and altruism.
+- The precariat is today's mass class, which is both dangerous, in rejecting old political party agendas, and transformative, in wanting to become strong enough to be able to abolish itself, to abolish the conditions of insecurity and inequality that define it.
+- The Magna Carta was the first class-based charter, enforced on the monarchy by the rising class.
+- Chronically insecure people easily lose their altruism, tolerance, and respect for non-conformity. If they have no alternative on offer, they can be led to attribute their plight to strangers in their midst.
+- In the interests of competitiveness in a globalizing world economy, governments of all complexions introduced labour-market reforms that promoted flexibility but accentuated the precariat's insecurities.
+- The claim that if people had a basic income they would become lazy is prejudiced and has been refuted many times in many places.
+- Public social services, infrastructural policies, and so on are vital. But a basic income should be part of a package of reforms.
+- The income distribution system constructed in the 20th century has broken down, and it will not come back.
+- If schooling becomes little more than preparation for the job market and consumption, it cannot produce socially responsible and altruistic citizens.
+- Corporations and financiers have used their growing influence to induce governments and international organizations to construct a global framework of institutions and regulations that enable elites to maximize their rental income.
+- If you had a basic income, it would mean that everybody would have a base on top of which their earned income would be taxed at the standard rate of tax. That would increase the incentive to take low-wage jobs.
+- People, in general, want to improve their lives and the lives of their children and other loved ones.
+- A primary justification for a basic income is social justice.
+- Millions of people in many so-called democratic countries have lost the right to vote, or never obtain it. And millions clearly feel that the political mainstream is not articulating a vocabulary or policies oriented to their needs and aspirations.
+- In the old 20th-century income distribution system, the shares of income going to capital, mainly in profits, and labor, in wages and non-wage benefits, were roughly stable. But that system is no more.
+- A democratically governed national fracking fund should be set up, perhaps similar to what Norway and Alaska have. Areas of drilling should be rented to companies through public tender, with or without subsidies, and a rising share of profits beyond a negotiated upper limit should be deposited in the national capital fund.
+- The evidence shows if you give people security, they become better people. They develop their talents. They become better citizens.
+- Since all political parties blame the others for the economic mess, it is unfair to attribute unemployment to individual behaviour.
+- Politicians seem desperate to appeal to their respective versions of the so called 'middle class,' unable to empathise with the precariat and eager to dream up fresh and tougher sanctions against society's wounded.

@@ -1,0 +1,72 @@
++++
+author = "Denis Waitley"
+title = "Denis Waitley Quotes"
+quotes_len = "66"
+description = "the best 66 Denis Waitley Quotes"
++++
+- Courage means to keep working a relationship, to continue seeking solutions to difficult problems, and to stay focused during stressful periods.
+- Personal satisfaction is the most important ingredient of success.
+- Success in life comes not from holding a good hand, but in playing a poor hand well.
+- Forget about the consequences of failure. Failure is only a temporary change in direction to set you straight for your next success.
+- Everything is something you decide to do, and there is nothing you have to do.
+- Don't dwell on what went wrong. Instead, focus on what to do next. Spend your energies on moving forward toward finding the answer.
+- Never become so much of an expert that you stop gaining expertise. View life as a continuous learning experience.
+- The most splendid achievement of all is the constant striving to surpass yourself and to be worthy of your own approval.
+- The winner's edge is not in a gifted birth, a high IQ, or in talent. The winner's edge is all in the attitude, not aptitude. Attitude is the criterion for success.
+- Time is the most precious element of human existence. The successful person knows how to put energy into time and how to draw success from time.
+- Winners are people with definite purpose in life.
+- There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them.
+- Winners have the ability to step back from the canvas of their lives like an artist gaining perspective. They make their lives a work of art - an individual masterpiece.
+- You must be worthy of the best, but not more worthy than the rest.
+- No man or woman is an island. To exist just for yourself is meaningless. You can achieve the most satisfaction when you feel related to some greater purpose in life, something greater than yourself.
+- Out of need springs desire, and out of desire springs the energy and the will to win.
+- Life is inherently risky. There is only one big risk you should avoid at all costs, and that is the risk of doing nothing.
+- I had the blues because I had no shoes until upon the street, I met a man who had no feet.
+- Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.
+- A life lived with integrity - even if it lacks the trappings of fame and fortune is a shining star in whose light others may follow in the years to come.
+- You must understand that seeing is believing, but also know that believing is seeing.
+- Our limitations and success will be based, most often, on your own expectations for ourselves. What the mind dwells upon, the body acts upon.
+- That which you create in beauty and goodness and truth lives on for all time to come. Don't spend your life accumulating material objects that will only turn to dust and ashes.
+- You must continue to gain expertise, but avoid thinking like an expert.
+- When you are in the valley, keep your goal firmly in view and you will get the renewed energy to continue the climb.
+- The winners in life think constantly in terms of I can, I will, and I am. Losers, on the other hand, concentrate their waking thoughts on what they should have or would have done, or what they can't do.
+- Failure should be our teacher, not our undertaker. Failure is delay, not defeat. It is a temporary detour, not a dead end. Failure is something we can avoid only by saying nothing, doing nothing, and being nothing.
+- Time and health are two precious assets that we don't recognize and appreciate until they have been depleted.
+- Determination gives you the resolve to keep going in spite of the roadblocks that lay before you.
+- Chase your passion, not your pension.
+- Don't be a time manager, be a priority manager. Cut your major goals into bite-sized pieces. Each small priority or requirement on the way to ultimate goal become a mini goal in itself.
+- If you believe you can, you probably can. If you believe you won't, you most assuredly won't. Belief is the ignition switch that gets you off the launching pad.
+- To establish true self-esteem we must concentrate on our successes and forget about the failures and the negatives in our lives.
+- Losers live in the past. Winners learn from the past and enjoy working in the present toward the future.
+- You must consider the bottom line, but make it integrity before profits.
+- It is not in the pursuit of happiness that we find fulfillment, it is in the happiness of pursuit.
+- The results you achieve will be in direct proportion to the effort you apply.
+- The winners in life treat their body as if it were a magnificent spacecraft that gives them the finest transportation and endurance for their lives.
+- Winners take time to relish their work, knowing that scaling the mountain is what makes the view from the top so exhilarating.
+- A smile is the light in your window that tells others that there is a caring, sharing person inside.
+- Mistakes are painful when they happen, but years later a collection of mistakes is what is called experience.
+- You must learn from your past mistakes, but not lean on your past successes.
+- Listen to the desires of your children. Encourage them and then give them the autonomy to make their own decision.
+- Expect the best, plan for the worst, and prepare to be surprised.
+- Relentless, repetitive self talk is what changes our self-image.
+- Losers make promises they often break. Winners make commitments they always keep.
+- There are no mistakes or failures, only lessons.
+- Life is not accountable to us. We are accountable to life.
+- Happiness cannot be traveled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace, and gratitude.
+- One characteristic of winners is they always look upon themselves as a do it yourself project.
+- Life is the movie you see through your own eyes. It makes little difference what's happening out there. It's how you take it that counts.
+- Success is almost totally dependent upon drive and persistence. The extra energy required to make another effort or try another approach is the secret of winning.
+- Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.
+- You must look within for value, but must look beyond for perspective.
+- The essence of life is finding something you really love and then making the daily experience worthwhile.
+- You must accept responsibility for your actions, but not the credit for your achievements.
+- The greatest gifts you can give your children are the roots of responsibility and the wings of independence.
+- Get excited and enthusiastic about you own dream. This excitement is like a forest fire - you can smell it, taste it, and see it from a mile away.
+- Don't ever let economic alone determine your career or how you spend the majority of your time.
+- You must stick to your conviction, but be ready to abandon your assumptions.
+- A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.
+- You have all the reason in the world to achieve your grandest dreams. Imagination plus innovation equals realization.
+- Goals provide the energy source that powers our lives. One of the best ways we can get the most from the energy we have is to focus it. That is what goals can do for us; concentrate our energy.
+- As long as we are persistence in our pursuit of our deepest destiny, we will continue to grow. We cannot choose the day or time when we will fully bloom. It happens in its own time.
+- We've got to have a dream if we are going to make a dream come true.
+- You must welcome change as the rule but not as your ruler.

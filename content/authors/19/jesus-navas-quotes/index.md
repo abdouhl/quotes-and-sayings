@@ -1,0 +1,81 @@
++++
+author = "Jesus Navas"
+title = "Jesus Navas Quotes"
+quotes_len = "75"
+description = "the best 75 Jesus Navas Quotes"
++++
+- Things are never easy against whoever you play, which is why every game you have to be totally at it, on your mettle, and totally focused and concentrated.
+- United were always our great rivals when I was at City, and we played some really important games against them.
+- Anything like having a good season at home for the club, or going as far as you can and having a great Champions League, has its repercussions when it comes to the Balon D'Or winner.
+- Mourinho's teams work especially hard, all the players. He has a special, winning mentality, so it is always difficult to face teams that Mourinho manages.
+- Pellegrini is a coach who has given a lot in every place he has been, with very nice football.
+- It's good to have different ways to break opponents down, and speed is a big part of my game.
+- Winning the title in my first season at City was a dream come true, but the downside was not being selected for Spain's World Cup squad.
+- At the start of every game, you are focussed on the game you are playing, so you don't look back at previous games.
+- The truth is it's like a dream for me to play for a club like Manchester City and fight for titles and everything that comes with that.
+- Sevilla, in general, usually show up well against Madrid, both at the Pizjuan and the Bernabeu. Normally, they are very attractive matches with a lot of goals.
+- I can only have international success if I am a big player for my club.
+- Like every player, I want to start more matches.
+- Germany are a tough opponent. They are quick and break on the counter at speed, and they are bursting with confidence.
+- I've done well against Madrid and scored against them several times.
+- Football is a team game, and I just want to function as part of the team.
+- I like the way football is played in England: the speed, the style of play, the high rhythm.
+- In my first year, I won the Premier League, and two cups after that, so I learned a lot from my experience in England, and I think it was all positive.
+- I spend time with my little baby and my wife. We like the water place at the Trafford Centre.
+- I still speak with David Silva. We have a personal relationship, and we talk about personal things, but we've not got into football that much.
+- At City, it's our obligation to be fighting on all fronts for all trophies, and the Premier League is one of them.
+- I hope that one day I will be able to play with City at the Sanchez Pizjuan in a Champions League game; it would be an incredible experience.
+- Cristiano Ronaldo is big and strong, but Messi's technique is pure class.
+- I have a wife and young baby, and having them with me in England will help me settle.
+- I love playing football, and ultimately, that helped me get over my anxiety problems.
+- When you are a tricky wide player, you are always used to tackles and challenges.
+- Like every player, I want to start more matches rather than be used as a substitute.
+- I don't need to speak with my colleagues in the national side to know what kind of player Messi is. He's one of the best players in the history of football and very difficult to stop.
+- The Premier League is a competition with very quick football.
+- I don't like to get involved in controversial things.
+- I like making other people happy; that's why I've always been known for assists, but if I score more, then it helps.
+- I am really happy here in England.
+- It was incredible to play in the Premier League, somewhere I always wanted to go because of the speed and the pace of the game.
+- You always want all good players at your team.
+- I always want to play and even more so against Sevilla because of all that it means to me.
+- I believe my main quality is my speed, and that can help to open games up.
+- Wembley's got a tremendous image around the world. Everybody has heard of it.
+- I am open to anything, and I want to win titles.
+- Going to the World Cup and being in the national team would be the ultimate.
+- I never thought of a career in athletics.
+- I love what I do, which is to play football.
+- I did wreck a running machine once at Seville. I was only supposed to be doing 12 minutes, but I went on for 15, and it suddenly packed in. I had to hang on to the side to make sure I didn't fall.
+- Even the best teams have their weaknesses, and Barcelona struggle at set-pieces and counter-attacks when they lose the ball in attacking positions.
+- We just have to be in the mindset that we are going to be winning games.
+- I'm always trying to win my place back in the national team.
+- I like the life in Manchester a lot.
+- How many times have I beaten Barcelona? I don't know, three times at least.
+- Stoke are a team who are very well organised and very disciplined.
+- It will be very nice to meet Jordi Alba. We both play with spee,d and it will be a very challenging mini-game. Who would win in a 100 metres race? I don't know.
+- I can't remember what times I used to do in training because I always loved football and didn't have any interest in an athletics career. But I was always the quickest.
+- I think pressure is great; it can make the game more exciting and force us to play our best.
+- When you play at City with top players, you don't have a guaranteed place in the starting eleven.
+- I feel very well at City.
+- I'm very focused and working really hard in training every day.
+- It's always difficult to face Barcelona. They always have top-quality players.
+- It's good to be competitive when everyone wants to be in the starting line-up.
+- You have to fight till the last minute of the last game if you want to win it.
+- I dream of winning the Premier League, of course.
+- The way I play is the way I have always played.
+- Any opponent can make life tough for you.
+- I have to be calm and go slowly, and above all, keep working hard.
+- Individually, City have such good players, and the idea of playing there with such amazing players and fighting for a title - because I feel we have the team to do that - is amazing.
+- My objective is always to play for the national team. For me, it's the best feeling in the world to represent my country.
+- Your rivals study the way you play and find a tactic to counteract your strengths.
+- The only opponent who has been able to keep up with me was Roberto Carlos.
+- The initial two or three wins that you get really give you a surge in confidence. That helps for the following games.
+- I've always been known more for giving assists than scoring - but of course, I enjoy scoring goals, too.
+- The Barcelona players have reached an amazing mutual understanding that they can play with their eyes closed.
+- Sterling is a player that did very well at Liverpool. He is very fast, too, and he is able to create good chances and is always ready to attack and help the team with his speed.
+- I'm going to a great club in England, and I want to continue developing my game there. The club has put a lot of faith in me, and I want to repay them out on the pitch.
+- I chose City because of the huge interest in me. Sevilla hadn't won a trophy for a couple of years, so it was a good moment to leave.
+- All players want to better themselves and keep improving.
+- I've won some important titles, but the Champions League is something you always have in mind.
+- I really like Manchester City. They have put everything into trying to sign me so that I can be there and that is welcome.
+- Defenders are always tough, whether you play in Spain or England.
+- To play with the national team is the ultimate goal for any player.

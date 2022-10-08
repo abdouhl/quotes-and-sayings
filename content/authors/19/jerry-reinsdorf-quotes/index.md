@@ -1,0 +1,83 @@
++++
+author = "Jerry Reinsdorf"
+title = "Jerry Reinsdorf Quotes"
+quotes_len = "77"
+description = "the best 77 Jerry Reinsdorf Quotes"
++++
+- The best thing for the fans is having a team with a chance to win. That's what everyone wants.
+- One of my friends, picture of health, worked out his whole life, never had a weight problem. Calls me up one day and says, 'I have pancreatic cancer.' Gone. I've lost too many friends.
+- I've enjoyed being a baseball owner more because I've enjoyed owners being allowed to participate.
+- It is a very humbling honor to be selected as a member of the Basketball Hall of Fame.
+- I operated a business where I let someone steal three-quarters of a million dollars.
+- A team is supported by the community, and a team must support its community.
+- We completely support Commissioner Silver's decision today regarding Clippers owner Donald Sterling, and praise him for his prompt investigation and action.
+- When I think about how I grew up sleeping on a cot in the hallway in a one-bedroom apartment in Flatbush, it's been a great life. I can't complain.
+- I coasted through high school. I was 203rd in a class of 987.
+- A Bar Mitzvah is the time in his life when a Jewish boy realizes he has a better chance of owning a team than playing for one.
+- Baseball is a poorly run business.
+- Don't write us off. Nobody thought we'd win the World Series in 2005, but we did. There are years when we think we're great, and we're bad. I mean, the funny thing about this game is that you can't figure it out.
+- Discrimination and prejudice of any kind have no place in sports or in our society.
+- If you're doing something wrong, you deserve to be caught.
+- You can't make a manager have a coach he doesn't want. I can't make the head of the accounting department work with someone he doesn't want.
+- If we kept all the players I liked personally, we'd be a lot worse team over the years.
+- When I gave up law to go into real estate, my mother said, 'How can you give up the law?' But she lived long enough to see the Bulls win all six championships. She would wear all six pendants at the same time. She could barely stand up.
+- I just put people together. I just identified jobs that have to be filled. And then I have to go out and find the right people and make sure they talk to each other. So I'm the beneficiary of good things that other people do. I get credit for that. If they don't do a good job, I get the blame for it.
+- The small-market teams should know I've always been with them.
+- When I got started, the Bulls weren't even that popular in Chicago. The Chicago Sting, the indoor soccer team, was outdrawing the Bulls. Now you can travel all over the world - Europe, Far East, Africa, wherever - and you see people with Bulls memorabilia or merchandise. It's incredible and the one thing I never could imagined accomplishing.
+- I don't think people realize how much I love basketball. A lot of people think because of this idiotic comment I made that I love baseball and don't like basketball. Baseball came first because if you grew up in Brooklyn in the 1940s, that was the No. 1 thing. But if you have more than one kid, you love them both.
+- You get into sports with the idea that you want to win. If you aren't trying to win, what's the point in being involved?
+- It's bad for baseball to have owners who can benefit another business by losing money in baseball.
+- It's not uncommon for a big free agent to come to a new club with a big contract and not perform up to his standards.
+- I never heard of anyone saying they want to deploy their capital wisely and go buy a sports franchise. What you want to do is just not lose money. You see, I don't have to work anymore. I tell people I don't have a real job. On the other hand, I learned long ago that you can't go broke if you turn a profit.
+- The only thing about sports is making sure you don't read the papers too often.
+- Perhaps the most satisfying thing occurred when Michael Jordan became a team owner and said to me, 'I owe you a lot of apologies. It's a lot harder to run a team than I thought.'
+- I only had one player in my 33 years of sports that couldn't be traded. He wore No. 23 - and 45 when he played baseball.
+- Chicago seems to follow New York, and coming from New York and being in real estate, I worry about things happening in Chicago that have happened in New York. I've seen a great city like New York go downhill. It has a wonderful financial downtown, but the rest of the city is not very nice.
+- I had been a basketball fan growing up, and I felt that if we brought in the proper coach, and we played basketball the old fashioned way - where defense is paramount and offense involved movement off the ball and movement of the ball - we could build a winning team, and Chicago would respond to that.
+- My liking for a team isn't based on just how good it was, but how good was it in relation to how good it should have been.
+- Don't tell people you're smart; let them find out on their own.
+- Teams that consistently perform at the highest levels are able to come together and be unified across the organization - staff, players, coaches, management, and ownership. When everyone is on the same page, trust develops, and teams can grow and succeed together.
+- I'm a boring guy. I don't play golf. I read, but how many books can I read?
+- The only real goal I had was, I wanted to own a car. Because my father, most of the time, he couldn't afford a car. Once in a while he would have a car, but it would be 10 or 15 years old, an old jalopy.
+- There must be free and open interdepartmental discussion and consideration of everyone's ideas and opinions. These internal discussions must not be considered an invasion of turf, and must remain private... When everyone is on the same page, trust develops, and teams can grow and succeed together.
+- I have been blessed with a bunch of great kids, grandchildren, and daughters-in-law. It's been a great life. I know I am probably in the fourth quarter, but I am hoping for triple overtime.
+- I think every parent takes more pleasure in seeing their child succeed than seeing themselves succeed.
+- I was a Knicks fan until the day I bought the Bulls.
+- Making the Hall of Fame has long been considered the top individual honor that one can achieve in any sport, but for me, I feel it is a culmination of all the input and effort afforded me from so many other people over the years that put me in this position today.
+- Baseball and its teams are proud of the sport's long-standing role as a change agent in American culture and society.
+- I haven't said anything bad about Fay Vincent publicly, and I won't. I like him personally.
+- I thought that the Bulls were an undermanaged, under-operated team and that it could be a very successful franchise if run properly.
+- They'd have to force me to take the All-Star Game. They take over the building, your season-ticket holders have to be in a lottery to see if they get tickets, and then they don't get a good ticket. Really, no good can come out of it, and all it can do is upset your fans.
+- The team was supported by the fans, and the city was committed to a new building. But that wasn't good enough for Walter O'Malley. He had a better deal, and he passed up a good deal for a better one. I don't think that was right, because ownership of a ballclub is at least a semi-public trust.
+- Live every day like it's you're last because one day you'll be right.
+- If I hadn't been fair, I would never have made the $6 billion in real estate deals that I did. I mean, if you're not fair, people don't want to deal with you.
+- When I bought the team, I wasn't thinking about a new arena. But obviously I'm very proud of the contributions that the Bulls franchise has made to the community between Chicago Bulls Charities and the re-development of the West Side with the United Center being the catalyst.
+- I thought I would spend the rest of my life being a good tax lawyer. The interesting thing about being a tax lawyer is, none of your clients are poor. I had clients come to me and say, 'Can you help us make investments?' That led to me getting into the real estate business.
+- Sometimes you pay a premium to get what you want.
+- I've said this over the years publicly - this is not a lucrative business. My goal every year is to break even with the White Sox.
+- The Commissioner was correct to ban Mr. Sterling from all official NBA business, to levy the stiffest allowable fine, and we will support his recommendation to press for Mr. Sterling to relinquish his ownership of the Los Angeles Clippers franchise.
+- O'Malley wanted to move the Dodgers out of Brooklyn because he saw the promised land. He was right about that, but to this day I think he was wrong to take the Dodgers out of Brooklyn.
+- I love Mark Buehrle. He's just a fun guy.
+- Any other business, you want your competitors to go out of business. In sports, you just don't want them to have as good a record as you do.
+- People say you make your own luck; I don't think that's the case, but maybe you contribute to your luck by recognizing it and taking advantage of it.
+- When I look back, I did what I had to do for business and then fit family life into it.
+- We strongly believe that children should not be exposed to smokeless tobacco or see such products being used by their on-field sports heroes.
+- I am constantly the butt of jokes.
+- Losing is not fun. I know the fans don't like it, but they don't have to watch it every day. I have to watch it every day. I don't like watching bad teams.
+- I had a vision of how basketball should be played. And the vision was the Knicks teams that won the championship in 1970 and 1973. I wanted a team that emphasized defense. I wanted a team that on offense had a system where players moved off the ball, and the ball moved.
+- I have to let the general manager do what makes the most sense, or I can't hold him accountable.
+- I don't see any baseball expansion right now. If it were up to me, I would contract two teams. But I certainly don't think expansion on the horizon.
+- I've always believed certain things: You treat everybody nicely because, more than anything, it's the right thing to do. And then you also never know when someone will be in position to help you or hurt you. I know I've gotten help from a lot of people who said good things about me because I treated them well.
+- We can't make a decision based on PR value. We have to do what we think is right.
+- Players alone don't win championships. It takes an entire organization. Someone has to acquire the players. Someone has to coach them. Someone has to generate revenue to pay them. But at the end of the day, the players are the ones who put their minds and bodies on the line to win.
+- I never believed in pushing my kids. My dad was very unhappy I wasn't going to be a doctor, but I couldn't stand to see the sight of blood. And I wanted to be a lawyer since I was in seventh or eighth grade.
+- I admire honesty more than any other trait.
+- I know I could have a better public image if I were less open, if I ducked more issues and didn't speak out. But it's not my nature.
+- I do sincerely hope the Cubs win a World Series. After I die.
+- My greatest moment as a jock occurred when I was 14 and playing punch ball in front of my house on Albemarle Road near East 17th Street in Brooklyn. I ran back, back for a ball, and it fell in my hands. I didn't even see it. Everyone congratulated me on the catch, and I never told them how it really happened.
+- I've always been a leader in the push for revenue sharing.
+- I'm proud of the fact I was able to surround myself with great people who did great things, and it resulted in the Bulls being a global brand and winning championships and a factor in the community.
+- I have tremendous confidence in John Paxson.
+- I always felt if something bad happens, it can be your best opportunity. The times I was most depressed turned out to be the best things.
+- Everyone loved my father. He was so nice that people took advantage of him. We were lower middle class. I slept in the hallway on a cot that rolled away during the day, and my younger brother and sister slept in my parents' room. My goal as a kid was to someday have my own room and to own a car - and I wanted to be able to take care of my parents.
+- You get into sports with the idea that you want to win. If you aren't trying to win, what's the point in being involved? Once you do get involved, you realize the team draws so much from the community, and it would be nothing without the support of it. You've got to give back. It needs to be a two-way street.

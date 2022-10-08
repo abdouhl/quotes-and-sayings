@@ -1,0 +1,25 @@
++++
+author = "Stephen Cole Kleene"
+title = "Stephen Cole Kleene Quotes"
+quotes_len = "19"
+description = "the best 19 Stephen Cole Kleene Quotes"
++++
+- It wasn't until my second year that I got to actually work with Church.
+- I think Veblen had an interest in logic.
+- In the fall term of 1933-34 I was on my family farm in Maine.
+- Those three years ended with June 1933. At that time I left Princeton, having submitted my Ph.D. thesis.
+- When I got to Princeton I made a point of attending the Philosophy Club and listening to the lectures, but I didn't get involved in any discussions in those clubs. I guess after the first year, I dropped that.
+- For example, the philosophers who were interested in logic were probably rather logical for mathematicians. But the ASL got us together, so we could talk to each other and publish in the same journal.
+- I had a liberal arts education at Amherst College where I had two majors, mathematics and philosophy.
+- I had some hesitations about philosophy because, if you worked out a philosophical theory, it was hard to know whether you were going to be able to prove it or whether other theories had just as good a claim on belief.
+- I'm sure Church got some of his ideas from this trip to Europe.
+- I think that after Church got his Ph.D. he studied in Europe, maybe in the Netherlands, for a year or two.
+- I don't think Post often came to Princeton during the '30s. I can't remember ever seeing him in Princeton.
+- Here at Wisconsin we didn't get an undergraduate course in mathematical logic until the '60s.
+- Well, I think Barkley and I were the only two who were working with Church for a Ph.D.
+- As I say, there was this movement to try to bring philosophers and mathematicians together into an organization where they would talk to each other. An organization wasn't effective unless you had a journal. That's about all I know.
+- And what I learned in Church's course. He trained us intensively in his new system, which he was just developing. Two papers were presented. I think the second paper wasn't published until well after the course was finished.
+- I went to Princeton in the fall of 1930 as a half-time instructor.
+- The job in Wisconsin was the first genuine offer of an academic job in a university which I received.
+- I read one or two other books which gave me a background in mathematics other than logic.
+- I went to Princeton from Amherst, where I split my interests between mathematics and philosophy.

@@ -1,0 +1,54 @@
++++
+author = "Jon Ronson"
+title = "Jon Ronson Quotes"
+quotes_len = "48"
+description = "the best 48 Jon Ronson Quotes"
++++
+- We have to understand how the extremists got the way they are. Without that kind of understanding, we'd never really get to know them. I put in nothing about their childhoods. But what I have put in is stuff about the weird symbiotic relationship between us and them.
+- Everyone's constantly scrambling around trying to justify their own cruel behavior, trying to come up with psychological tricks to make themselves not feel bad.
+- My paranoia never ends, but I haven't been paranoid about being spied on my shadowy forces for some time now.
+- At first, I did stories on people who were maybe just eccentric. Omar was a natural progression from that.
+- Film people can be quite ruthless and tough. I think it's because the industry is filled with talented, driven people chasing nowhere near enough work.
+- I think if somebody is so set in their ways about what they feel about something - and you get this a lot in academia, of course, and also different sorts of journalism too - you're going to sweep under the carpet the facts that don't suit your thesis. And I think that happens quite a lot in the courtroom, for instance.
+- What I think was a really lucky coincidence was that a lot of the themes of 'Okja' are things I write about a lot: cognitive dissonance and corporate greed and also the internal politics of fringe groups.
+- Maybe there's two types of people in the world: those people who favor humans over ideology, and those people who favor ideology over humans.
+- 'Okja' I don't think would have been made if Netflix hadn't made it. That, to me, is a much bigger thing than whether someone watches it on a big screen or a phone. Because it simply wouldn't have existed otherwise.
+- I'm not what you'd call a fearless type of person.
+- I consider myself a social justice person.
+- Sometimes labeling is only useful, like with OCD. Once you're labeled you can be treated. On other occasions labeling leads to tyranny, like with childhood bipolar disorder in the U.S.
+- Success is always less funny than failure.
+- Of course there are people who would like to eat breakfast without the screams of toddlers all around them, but those people should get over themselves and stop being stuck up and idiotic.
+- There was a kind of infiniteness to fiction that I found sort of... disconcerting. I remember having these really panicky thoughts, like, 'I can make this person say anything. I could make him do anything! I could put a jetpack onto his back and shoot him into space!' I don't like this feeling of having no rules.
+- Well, I had nightmares when I was doing the Klan story all the time. I had a recurring nightmare of basically being exposed as a Jew inside the Klan compound.
+- In the early days of Twitter, it was like a place of radical de-shaming. People would admit shameful secrets about themselves, and other people would say, 'Oh my God, I'm exactly the same.' Voiceless people realized that they had a voice, and it was powerful and eloquent.
+- I did feel like they were telling me that something like that was going to happen. Not specifically - not that planes were going to be flown into the World Trade Center or anything like that - but in the general sense.
+- No, people back home don't realize why there is this kind of need for heroes in America at the moment. People in Britain don't really understand what's going on here. They don't understand why Camp X-ray exists.
+- Without sounding too pretentious, I was sort of a slave to the narrative. When the narrative cracks in, I have to go where it takes me. I had to go to the Bohemian Grove. It was the obvious end to the book.
+- I just don't think I'm very good at fiction.
+- I really admire Nick Hornby - for example, the way that he can make ordinary stuff so beautiful!
+- When I was 20, I wrote a film on spec and sent it to the BBC. They wrote back, 'Usually, when we reject submissions, we like to offer some encouragement, but in your case, we don't see any point in you continuing.' I took it as encouragement anyway, thinking that only people who write terrible things are capable of writing great things.
+- Trying to solve the mystery is what I enjoy most about writing.
+- There's definitely evidence that capitalism at its most ruthless rewards psychopathic behavior. When you look at the worst corners of the American health insurance industry or the sub-prime banking market, it really feels like the more psychopathically someone behaves, the more it's rewarded.
+- But on the extremist side I didn't get any rejections at all. Everyone agreed to talk to me.
+- Nothing uniquely bad has happened to me in my personal life, but all the regular little bad things have accumulated to make me a neurotic person. And these adventures are my way of trying to make sense of that.
+- Discover the time of day when you write best, and write then. For me it's about 7 am to noon. For other people it's overnight. Try not to do anything other than write between those times.
+- Shaming is powerful and useful. I'm living in New York, and my instinct is that, after the Black Lives Matter protests, which were organized on social media, the chance of there being another Eric Garner, choked to death in New York by an NYPD officer, has diminished.
+- In the midst of a burning-hot shaming, calling for patience and context and understanding and empathy can really land you in trouble.
+- Film is like a casserole. Everybody is thrown into a pot, and we're all in it together.
+- I felt very strongly about the Ashley Madison thing. Of the 39 million people who signed up for Ashley Madison, only a tiny percentage of them actually had an affair. And I'd go a step further and say even if they did, it's none of our business, frankly.
+- Of course there's systemic misogyny in certain parts of our culture and systemic racism and a wider range of insults women have to face.
+- The world outside Twitter was great. I read books. I reconnected with people I knew from real life and met them for drinks in person. Then I drifted back on to Twitter.
+- Film isn't a meritocracy; there's no system ensuring the best screenplays get produced. It's a hustle.
+- Yeah, but in the end his followers take what they want from his philosophy. Maybe it doesn't matter what's going on in David Icke's mind. It's how other people take him.
+- The phrase 'misuse of privilege' is becoming a free pass to tear apart pretty much anybody we choose to. It's becoming a devalued term, and it's making us lose our capacity for empathy and for distinguishing between serious and unserious transgressions.
+- Obviously, I like to write stories that are page-turners. But I always try my very, very hardest to be as factually true as possible.
+- I'm much more interested in looking at our own failings than going to some faraway place and looking at their failings, thus making us feel good about ourselves.
+- Misuse of privilege is seen as the worst sin.
+- You can say anything to David Icke and he will accept it and put it into his ideology.
+- But when I was doing the KKK I had constant nightmares of being exposed as a Jew and lynched by the Klan.
+- The great thing about social media was how it gave a voice to voiceless people.
+- My entry into screenwriting was not smooth.
+- I wasn't in any way a kind of soothsayer or not surprised when Sept. 11 happened. I was absolutely shocked.
+- I have thought sometimes that the sanest people, the people who are just very balanced, very happy, are probably lower achieving than other people. My kind of irrationality happens to be fear or anxiety.
+- If I interview somebody for an hour, I'm looking for four amazing minutes.
+- When we watch courtroom dramas, we tend to identify with the kindhearted defense attorney, but give us the power, and we become like hanging judges.

@@ -1,0 +1,34 @@
++++
+author = "Eduardo Paes"
+title = "Eduardo Paes Quotes"
+quotes_len = "28"
+description = "the best 28 Eduardo Paes Quotes"
++++
+- When Seoul hosted the Games in 1988, it became a symbol of the Asian Tigers' ascent onto the world stage. In 1992, the Barcelona Olympics represented the unification of Europe. And when Rio plays host in 2016, it will reinforce the growing importance of Brazil and Latin America as a whole.
+- There is no time and space limitation for public accountability on the Internet. Creative commonality is standard and does not resemble the authoritarian style of the dead communist experience. It seems that it is no longer society's obligation to understand legislation; it is a duty for governments to be understood by their people.
+- Hosting the Olympic Games of course guarantees the world's attention, but there is more to it than simply bathing in the global spotlight. Most importantly, host cities can use the opportunity to create a positive and lasting legacy, resulting in both tangible and intangible returns to local communities.
+- You cannot deal with a city if it's not socially integrated.
+- There is no time and space in the digital world. People chat and collaborate through social networks. Cultural icons garner millions of fans online in locations they have often never been themselves. The boundary between public and private life is now everyone's business.
+- What we are witnessing is the birth of something I call 'Polisdigitocracy.' This is a form of government that counts participation and transparency as its cornerstones and uses technology as its guide. The digital revolution is allowing democracy to recall its foundations and evolution is modernizing and reinforcing our fundamental values.
+- Globalization has produced a new of level of interdependence among us. The economy and multinational supply chains do not abide by political boundaries. A computer ordered in Brazil is designed in California and assembled in several other countries. Economic integration was the first strong evidence of a new era.
+- Every time you think of a city, you have to think green, green, green. Every time you see concrete jungle, you must find open spaces. And when you find open spaces, make it so people can get to them.
+- Elected representatives are so embedded in the basic notion of what constitutes a democratic nation that it has become indistinguishable from any other form of democratic governance.
+- Rio is an energetic, vibrant place, full of beauty and nature. But we face the kinds of problems any developing metropolis does - with pollution, traffic congestion, poverty. Distribution of green areas, for example, is not uniform. Madureira, the heart of the suburb in Rio, is a concrete jungle.
+- Google is omniscient of what people search for and do. Facebook has over a billion subscribers, meaning Mark Zuckerberg has personal information about one in every seven people on Earth. U.S.A., Brazil, Mexico, India and Indonesia are at the top of that list.
+- The city of the future is a city that cares about its citizens and integrates its citizens.
+- I have the best job in the world. I wake up every morning energized at the thought of running Rio de Janeiro, the most exciting city on the planet.
+- Rio's a beautiful city, a vibrant place, special place.
+- I don't want to compare my city to Zurich; thank God we're not that boring. Rio is advancing fast, but we're at a different phase in our civilization.
+- Don't ever in your life do a World Cup and the Olympic Games at the same time. This will make your life almost impossible.
+- President Obama is the best-known politician to be exploring the possibilities of new technologies to converse with the people. Others must follow his lead and innovate. It is inevitable.
+- I really do believe that mayors have the political position to really change people's lives.
+- The digital revolution has deepened the crisis within representative democracy. But as it forces its demise, it might also dictate its future. Traditional representative democracy within nations is no longer enough. People want more participation and collaboration with their government.
+- In Rio, 1.4 million of the 6.3 million people live in favelas, or slums. They are all over the city, but favelas are not always a problem - sometimes they can be a solution, if you have the right public policies.
+- I strongly believe being mayor is the public post in which you have the greatest opportunity to change peoples' lives for the better. People live in cities, not states or nations. As a mayor, you are connected directly to citizens.
+- In Rio we built a Center of Operations, a situation room that gathers information from municipal departments and allows us to manage and help decision-making. I can check the weather, the traffic and the location of city's waste collection trucks. Each of 4,000 buses in the city has a camera connected to the situation room.
+- It's a difficult task to deal with cities. But with some original ways of getting things done, with some basic commandments, you can really get cities to be a great, great place to live.
+- Smart cities are those who manage their resources efficiently. Traffic, public services and disaster response should be operated intelligently in order to minimize costs, reduce carbon emissions and increase performance.
+- Rio will have to look after the legacy of infrastructure. But it's unclear who will run the sports centres after the Olympics.
+- Political movements and mega sporting events have always gone hand in hand. In 1980, there were Cold War boycotts in Moscow and again in 1984 during Los Angeles Games.
+- Civil movements and riots are as old as human civilization. Long before Twitter was created, mobilization of the discontented was mouth-to-mouth, or even by 'smoke signals' to gather the uprising against established political power.
+- By 2050, seven out of ten people will live in cities, which will account for six billion people living in urban areas. That phenomenon is central to all the challenges humanity faces. If there is an issue to be addressed, then it is certainly happening in cities and therefore must be considered on an urban scale.

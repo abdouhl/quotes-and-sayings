@@ -1,0 +1,70 @@
++++
+author = "Patrick Mahomes"
+title = "Patrick Mahomes Quotes"
+quotes_len = "64"
+description = "the best 64 Patrick Mahomes Quotes"
++++
+- You have to learn and develop from every experience you see on the field. I might see an unscouted blitz. I might see different coverages than I'm expecting. So I need to process and make those adjustments as I go.
+- I have to make those tight-window throws, and trying to make those plays is the reason I have had success.
+- Playing the scout-team quarterback in practice really helped develop my game.
+- I was a good student and stuff like that.
+- You can't have a good Thanksgiving meal without a little bit of ketchup on the side.
+- I didn't do any football stuff when I was a kid... Mostly baseball and basketball the whole time. That's all I did. I played football starting in seventh grade. As I got older, I started playing a little bit more. Then in high school, I really fell in love with it.
+- Coming from college, where they tell you exactly what you have to do, and they tell you have to be at this at this time, you kind of get punishment for that. Now you're in the NFL, and you have to do it on your own.
+- When you go into a game, and there's something that was drawn up the way it was supposed to be drawn up, and you missed the throw or the catch, as a receiver, it's something where you feel bad about that. You can always regret just missing it, but as a football player, you have to move on to the next play.
+- I'm close to Coach Kingsbury. He really helped my game and helped me as a person a lot. He's a genuine good person and, at the same time, a very smart football coach.
+- When you're in this league, you have to do something every single day. You have off days, but those off days are usually watching film.
+- I actually watched Tom Brady a good amount in college. My coach in college was Kliff Kingsbury, and he actually was a backup for Brady at one point, and so he showed me things that he liked with Tom and his pocket movements and stuff he did within the pocket that I've tried to put in my game a little bit.
+- If you want to win games in this league, you have to be efficient.
+- I'm a little quick - I can run a little bit - but I know I can't make a lot happen. So my thinking always was, 'Why don't you put it in the fast guys' hands and let them make plays.'
+- In the pocket, I usually keep two hands on the ball.
+- I love being able to come in every single day and work out and watch film and practice with guys who are all striving for the same goal.
+- I didn't start playing football a lot until I was in high school. I played it in seventh and eighth grade, but I didn't play Pop Warner or anything.
+- I want to be great.
+- I'm not a Packers fan. I just like football. I do respect those guys. You respect great football. I'm a Cowboys fan, or I was a Cowboys fan. You just respect great football.
+- I was that little kid: I was the one that was looking up to athletes and getting to see them and getting to be a part of it, and I remember those experiences.
+- I want to bring a Big 12 championship to Tech.
+- You can tell when coaches have a confidence in you.
+- It's going to be awesome getting to learn from a guy like Alex Smith, who's had a ton of success in the league.
+- Good third-down teams are teams that usually have success in this league.
+- When you play the Oakland Raiders when you're the Kansas City Chiefs, you know they're going to come out with that mentality that they're going to win. They're going to come out fighting. It's a rivalry game.
+- No one really sees pro athletes behind the scenes. They don't know how hard they work. They don't see how you work on the basics. They couldn't possibly know. You wouldn't think that someone who hits like Alex Rodriguez needs to use a tee every day. But that's how he stayed on top of it.
+- The furthest I have even thrown the ball was 85 yards. But I had a little wind at my back, so I don't claim that one.
+- I feel like, even if something goes wrong, I have confidence in myself and my team that we'll fix it.
+- When I scramble and do those things, I try to look downfield, look for the playmakers, put it in their hands, and let them make all the big plays happen.
+- You dream of your first NFL start when you're a little kid, playing football in the backyard, but until you get there, you never know what to expect.
+- Coach Reid is a great teacher. He understands how people learn, understands how to get people to get the concept of what the play is and why we're running it.
+- Every experience, good or bad, you have to learn from.
+- When people talk about me, they talk about just the arm and that I have a big arm. I want to be able to change that mindset to, 'He's a great quarterback who just happens to have a great arm.'
+- It's not like I mean to throw no-look passes. I think it kind of happens out of instinct. As I do it, I'm like, 'Dang, I didn't even mean to do that.'
+- Not a lot of people see that when you're growing up. You don't get to see that people really have to work hard to become as good as they are.
+- Kids in sports - it makes such an impact in life with the lessons that you learn.
+- I think, as quarterback and as a football player, you always want to get better.
+- I'm definitely not for any haunted houses. They're all scary to me.
+- I've been a fan of ketchup for as long as I can remember, and the thick, rich flavor of Hunt's ketchup delivers every time.
+- I had a lot of stats in college, and they didn't count for wins. So whatever it takes to win football games is the goal that I set.
+- You want to be drafted high, but to be drafted high into an organization like the Kansas City Chiefs, it's like a dream to me.
+- There's so much difference having arm ability. You have to be able to throw it hard. You have to be able to throw it with touch. You have to be able to do everything in this league, and I try to get better at every single one of those throws every single day.
+- Nick Foles, if he wasn't preparing like he was the starter, he wouldn't have been able to become a Super Bowl MVP.
+- Definitely, as a competitor, you want to get out there and play.
+- It's a challenge for all quarterbacks, though: You want to make the big play; you want to throw a touchdown every single play. But at the same time, you have to know that it's a process.
+- The quarterbacks that win... those are the quarterbacks that are talked about for being great.
+- I try to just focus in on being in the same routine every single day.
+- East Texas isn't known for producing quarterbacks. I was never really on the football circuit. I wasn't the type of guy that put my name out there.
+- Throughout my whole football career, I have always known I wasn't the fastest guy.
+- You want to be in the first round. That's the dream. That's what you see on draft night.
+- I got to talk with some of the great offensive minds in football. Bruce Arians, Byron Leftwich, Andy Reid, Ben McAdoo, Bill O'Brien, I met all those guys and tried to take something away from each of them. Hue Jackson, people that are known for developing quarterbacks, I got exposed to a lot of stuff I hadn't seen before.
+- There's always plays that Coach Reid just draws up every single week. I always say that they always work. He just gets on the board in his room and just starts drawing plays. The possibilities are endless.
+- You have to be secure with the ball. You can't lose it.
+- I just try to learn from every mistake that I make so that I never make them again.
+- I love this game.
+- I want people to know that I'm going to leave every single thing on the field.
+- Any dog can be aggressive; it's basically the way they're raised.
+- Look at guys like Tom Brady and Aaron Rodgers. Those guys have great arms, but people talk about them more as a quarterbacks and the intellectual side of the game and how they really dissect defenses - and then the arm is something else that helps them with that.
+- You see Tom Brady, you see Alex Smith, and you see all those guys in the pocket and how quick they are with their footwork and how they get the ball out fast. I have to get like that.
+- You can have the big arm, and that's good, and it helps out in the games, but it doesn't help you necessarily win games.
+- The team aspect of football and just playing quarterback, having the ball in your hands, having to make the plays, that was definitely something I loved.
+- For me, it's always fun. You're playing football and living out your dream.
+- You get older, and you want to be a professional athlete; you want to win on the biggest stage.
+- It's pretty cool just to see the support we have. It's unmatched, Kansas City and the Chiefs Kingdom, the support they have for us. For me to just kind of be in the community and see those people is always a good thing.
+- I like being... in Kansas City. People are extremely nice, extremely passionate about the Chiefs.

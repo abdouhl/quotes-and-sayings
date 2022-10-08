@@ -1,0 +1,43 @@
++++
+author = "Julia Michaels"
+title = "Julia Michaels Quotes"
+quotes_len = "37"
+description = "the best 37 Julia Michaels Quotes"
++++
+- It's 2016. Men are more vulnerable than ever.
+- I'm a very stimulated person.
+- People are going to assume whatever they want to assume.
+- When you first start out, people think this is super easy and you find your crew super quick. But you've really got to go through songwriter boot camp to find your people.
+- I could make apple pie every single day. You need to be super precise in order for it to be perfect. I'm such a perfectionist that baking is calming for me. I've never burnt anything, thank God.
+- I had all these singles come out within a two-month period, and then nothing for almost two years. You start to feel a little irrelevant. You realize how many people there are trying to be songwriters and how competitive it is and how political things can be.
+- Once I heard how deep music could touch people and what it can make you feel and all of these emotions it could bring out, I was really fascinated with it all.
+- Stylistically, things are becoming cooler. People are trying different things and combining genres.
+- Women often don't want to be typecast as the girl that's sad.
+- My favorite food is hot Cheetos. I could eat those every day.
+- If you listen to the radio, it's all men who are emotional and women who are sexual. There's nothing wrong with that! It definitely should be the case, but it makes me sad that women are afraid to be emotional because it makes them look weak.
+- The Weeknd's 'Can't Feel My Face' is very experimental. It's pop meets urban meets indie meets alternative.
+- I'm very emotional and vulnerable.
+- I write songs for myself, but I never keep them. I'm like, 'O.K., that was my therapy - it's out of my body now. I'm going to give it to somebody else so it can be their therapy, too.'
+- I think artists are aware that talking gives a songwriter so much material. If they just tell us what's happening, it's so much easier for us to write a song that's specific to them.
+- If I get writer's block - this is going to sound funny - I take a shower. Something about the water feels like I'm cleaning my brain as well as my body.
+- I've been the person who hides behind people and lets everyone else do their thing, and I've been content there.
+- An artist could have a really big relationship, and then they break up, and any song after that, people are automatically going to assume that that song is about that person.
+- Hula-hooping. It makes me feel free. My stepsister introduced me to it. I used to have panic attacks all the time, and she hula-hooped to cope with her own anxiety.
+- I just wanted to write the songs. I never wanted to sing them.
+- It's ingrained in people's minds that it's a typecast and a stereotype that women are just emotional and crazy.
+- I think that women are afraid to be vulnerable because they think it makes them look weak.
+- My boyfriend and I like to fight a lot. I have a lot of problems. He has a lot of problems. Somehow, we always work them out and find a way back to each other.
+- I definitely always thought of myself as a songwriter before a singer.
+- I grew up in Davenport, Iowa, but I moved to Santa Clarita, California, when I was 6.
+- There is so much power in vulnerability, and I am proud to be that typecast.
+- I've written poetry most of my life.
+- When you start to have success, people look at you differently and expect more from you. With that comes a lot of pressure to perform, so it can be a little overwhelming.
+- I just want to write fun, interesting music that pushes boundaries and is still true to myself. I want people to feel something.
+- I do love all types of music. I could be in a session for eight hours, and when I leave, I'll instinctively go to the radio or put on my favourite songs.
+- I have, like, sensory overload problems.
+- My sister was the singer, and I always had the mentality there could only be one in the family.
+- For the first three years, when I was writing, I was doing sessions with a whole bunch of different people all the time every day until I met Lindy Robbins, who kind of mentored me. And then, once you find that, all the pieces come together.
+- It never feels like work. I get to go to the studio and be with my friends every day and write new things and experiment with new sounds. We just have a blast.
+- I just remember really loving words and writing about anything I could, and the way I'd remember things, like my library card number, was to make a melody.
+- Working with new people can be really hard and nerve-wracking. When you don't know the person, it's like being on a blind date.
+- I've always been a writer. I've always loved words, ever since I was a kid.

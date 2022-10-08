@@ -1,0 +1,52 @@
++++
+author = "Paul Romer"
+title = "Paul Romer Quotes"
+quotes_len = "46"
+description = "the best 46 Paul Romer Quotes"
++++
+- Since the fall of 2010, people associated with Charter Cities, a not-for-profit think tank that I founded, have been providing pro bono advice to the government of Honduras.
+- So you could have a very institutionally well-developed economy that's still very low in terms of its technological success. That would be unexpected.
+- It is the job of government to prevent a tragedy of the commons. That includes the commons of shared values and norms on which democracy depends.
+- From the very beginning, Americans have refused to tolerate unchecked power. We must now press our legislators to protect us from the unchecked power of dominant digital platforms.
+- If two firms join together, we want their total tax bill to go up because we don't want more big firms. We'd actually like to have lots more small ones.
+- Existing antitrust law in the United States addresses mainly the harm from price gouging, not the other kinds of harm caused by these platforms, such as stifling innovation and undermining the institutions of democracy.
+- In the developing world, most people don't yet live in big well-run cities. Given the chance to move to one, hundreds of millions of people would go there to get a job, get an education for their children, and live in a place that is clean, safe, and healthy.
+- A progressive digital ad revenue tax would also make sure that dominant social media platforms bear the brunt of the tax.
+- The economy is this huge innovation discovery machine. What the government can do usefully is to focus some of that effort where things turn out better for everyone.
+- But the point of a progressive revenue tax is that you create incentives both for breakups, you penalize the acquisitions, and you encourage the development of models where the customers are customers and they know what they're giving up.
+- What happens at the Fed, what Janet Yellen and the other people decide there, what happens in central banks in other parts of the world is very important. This can make the difference between a high unemployment rate, a slow recovery or a more rapid recovery.
+- In the 1950s, Hong Kong was a place where millions of people could go, from the mainland, to start in jobs like sewing shirts, making toys. But, to get on a process of increasing income, increasing skills led to very rapid growth there.
+- The thing that was bad about colonialism, and the thing which is residually bad in some of our aid programs, is that it involved elements of coercion and condescension.
+- Ideas can be used by many people at the same time.
+- A well-run city lets millions of people come together and enjoy the benefit they can get from working together and trading with each other.
+- The general message is about a bigger global integrated economy is going to lead to faster growth, that policy could improve efficiency by getting more research going.
+- We live in a much more interconnected world now, and that means that it's more fragile than we realize.
+- If you go back to the really long-run questions that interested me, the big question was why, over the centuries, the millennia, has growth been speeding up?
+- An economy can survive with 10% of the population insolation. It can't survive when 50% of the population is in isolation.
+- But if we set our minds to improving technology, we can improve it in a direction that seems important to us and even at a faster rate.
+- Charter Cities has been approached in many different ways, by many people acting as individuals or as representatives of organizations.
+- Yeah, you know, there's a difference between the textbook world that economists like to imagine, and the real world where real people have real feelings.
+- But when I think about, say, a pharmaceutical that might help keep my mind sharp in 20 years or 30 years, I don't care if it's discovered in the United States or someplace else in the world.
+- So human capital makes ideas, and ideas help make human capital. But still, they're conceptually distinct.
+- Well, one of the things I should tell you is that if you look at the very long sweep of history what you see is that the rate of growth has been speeding up, the rate of progress, and that's because there's more and more people who are all engaged in this process of discovery.
+- My number-one recommendation is to invest in people. Humans that are well trained are the inputs into this discovery process. And there's big opportunities still, I think, to do a better job of investing in people.
+- There are many signs of the value created by all the exchange that takes place in a city. We see it in productivity and wage data. We also see it in the increase in the value of the land.
+- Yeah, but look, who really provided the world's information to everybody on Earth? That was Wikipedia, right? And if you're asking what could we do to make the digital world work for people, the Wikipedia model is great. It's a donation model.
+- For a nation, the choices that determine whether income doubles in one generation or two dwarf all other economic policy concerns.
+- When we speak of institutions, economists mean more than just organizations. We mean conventions, even rules, about how things are done.
+- No one from Charter Cities, can have any financial interest in any project in Honduras; no one can accept consulting fees from the Honduran government; no one can accept reimbursement for travel expenses or accommodations; no one can provide advice to any for-profit entity that wants to invest in Honduras.
+- In macroeconomic theory, there is this argument that what the Fed does has no effect on unemployment, no effect on investment, no effect on the rate of GDP growth.
+- After 1960, anyone who wanted to discuss almost any aspect of U.S. public policy - from how to make cars safer to whether to abolish the draft, from how to support the housing market to whether to regulate the financial sector - had to speak economics.
+- Good law includes a commitment to transparency and an insistence that no person or entity with a conflict of interest should have influence on public policy decisions.
+- When somebody discovers something like the quadratic formula or the Pythagorean theorem, the convention in science is that he can't control that idea. He has to give it away. He publishes it. What's rewarded in science is dissemination of ideas.
+- For an investment banker, the choice between a payment that doubles with every square on the chessboard and one that doubles with every other square is more important than any other part of the contract. Who cares whether the payment is in pennies, pounds, or pesos?
+- If we collectively set our minds to improving technology of a particular type we can do that, and it takes some collective action, some support for research, or some provision of patent protection, or a mixture of the two, and some focussed energy.
+- People are reasonably good at estimating how things add up, but for compounding, which involved repeated multiplication, we fail to appreciate how quickly things grow.
+- One of the most powerful insights in economics is this idea of a division of labor. You do the thing you're good at. Other people do something else that they're good at. The net effect is better for everybody.
+- There are new things we need to do in the labor market, in education, and in thinking about the future of energy sources. As long as we do those things everything really can turn out fine. But if we don't do them, we're going to be disappointed.
+- The gains from specialization go all the way back to Adam Smith. He talked about the advantage of a bigger market being that we could have a finer division of labor and be more specialized.
+- Rules about public sanitation are a simple and familiar example. Without them, a city can't be a healthy place to live; but these rules don't just happen. The rules for a city are different from the ones for a village, but as a village slowly gets bigger, a city may be stuck with the rules of the village.
+- Fracking is an amazing instance of discovery of many things that come together to make it much cheaper to extract oil and gas. In a world where burning oil and gas puts more and more carbon into the atmosphere, it's not actually the most important kind of innovation to have.
+- Unfortunately, we don't have a bankruptcy process. Suppose the state actually just gets to the point where it cannot meet all of its promises that it's made. We might need a way to figure out, O.K., well, who's not going to get what they were promised? This is what we had to do for the city of Detroit.
+- I'd rather live in a world where firms don't have these enormous incentives to spy on individuals.
+- What we've underestimated is the systemic risk that that very finely tuned system of specialization exposes us to. And so I think we will start to ask whether there are ways that we could build some more robustness into our whole system.

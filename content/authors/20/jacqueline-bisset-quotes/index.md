@@ -1,0 +1,70 @@
++++
+author = "Jacqueline Bisset"
+title = "Jacqueline Bisset Quotes"
+quotes_len = "64"
+description = "the best 64 Jacqueline Bisset Quotes"
++++
+- A Latin teacher told me I might make a good actress, and that stuck in my memory. I did some modeling, and Polanski gave me that small part.
+- Working with Candy Bergen was really wonderful.
+- I went to the premiere of The Detective with Sinatra, and perhaps people jumped to conclusions. He was very protective towards me and never came on to me sexually.
+- I'm quite happy being myself. I'm a big fan of Jessica Lange and Jeanne Moreau, but I don't want to be anyone else.
+- I have very intense conversations with friends, people I really interconnect with. We talk about politics, important things. I like to talk about ideas and get people to be specific.
+- To be used in a part without depth is a frustrating feeling, when you know you have something to give.
+- Being around people with whom you feel a connection, on many levels, not just a professional one, is very relaxing. Your ears are more open to someone who is not a cantankerous bastard.
+- I have an intense obsession with making films. I not only love to make films, I perhaps need to make films.
+- I want to keep my attractiveness as long as I can. It has to do with vitality and energy and interest.
+- At first I was always cast as the girlfriend. It was a long time before I got to play characters who were people.
+- You can sometimes learn more working with less talented people, because you learn to survive.
+- Not everyone likes watching rushes, but it makes me work harder, and I don't feel I am watching myself, but watching the progression of the character.
+- People make sequels a lot in Hollywood, and sometimes it feels like there's never an original thought.
+- I went to see Oliver Stone's 'Heaven & Earth,' which I thought was a wonderful movie, but I walked out because I was so moved. It was too painful to watch.
+- I've done five films directed by women. I did like it. They had qualities, particularly in the romantic tenderness of scenes. I felt sometimes they were a little bit soft, but maybe they were clever to get the guys working the way they wanted them to.
+- Some people have said that I haven't got the parts I should've got because of the way I look.
+- There's something about being with a group of people who become like family that must be needed in society.
+- Marriage has just never interested me.
+- I have emotional strings that tie me to Europe.
+- I think the grandfather of the set is the director. He needs to have authority, to do what people want. A warm grandfather; he needs to know his job, to be open.
+- I work very hard at relationships. I've done the thing of being home. I worked all day and came home and did all the stuff at home that a woman is supposed to do, the cooking and the entertaining. I'm a perfectionist, and, besides, I loved all those things.
+- Time seems to stop in certain places.
+- I'm a very nurturing kind of person and a sort of a homemaker. I'm just interested in things remaining fresh.
+- I've always loved men.
+- I grew up in a small town about 40 miles outside London, but it was a fairly cosmopolitan household.
+- I really feel that the talent I have is acting. Freedom and the possibility of play-that is what I like to have.
+- I work hard, and I tend to play hard. I very seldom rest hard.
+- Character contributes to beauty. It fortifies a woman as her youth fades. A mode of conduct, a standard of courage, discipline, fortitude, and integrity can do a great deal to make a woman beautiful.
+- Ideally, couples need three lives; one for him, one for her, and one for them together.
+- When you share work, and you have the opportunity of seeing people you like doing what they do best, and you also interchange socially with them, it's very addictive.
+- I'd like to get my public image nearer to my reality. People have a lot of misconceptions.
+- There is an eternal humanity that crosses through all people, and it's more interesting often when it's about struggle - not people with champagne glasses.
+- When I am working on a movie, all I want to talk about is the movie. All I want to be with are the movie people. It's like a clan. If I'm asked to people's houses for dinner, I hate to go, because they'll talk about other things.
+- Your voice is your tool and represents you. It's very important to have a good voice where you can be understood.
+- I can't believe I've been doing it so long. In the last three or four years, I've slowed down. I'm doing only the roles I really want to do.
+- I was never any good in the school theatrical productions. I always got a role like the March Hare. A Latin teacher told me I might make a good actress, and that stuck in my memory.
+- I don't come in with any preconceived ideas, and although I will have done some preparation, I can go which way the director wants.
+- I have always watched the rushes, and have learned more because I have done so, because you can have all manner of ideas in your head, but they have to end up on the screen.
+- Sometimes you like the personal adventure implicit in the making of a film, and sometimes you like your part in a film, and sometimes you like the final result.
+- The thing about anything in life is you have to get ready for it. Study, learn.
+- I wanted to go to acting school, and I did a few modeling jobs to pay for acting school. I never aspired to be a model. I met lots of photographers, and I learned a lot about light - as a source of love and illumination, light as a gift of love. On film, that's a massive contribution.
+- You need to become a good listener. As you're working, you hear someone else's lines and how you absorb them becomes your acting.
+- I always had cats and animals, so children were never really in my thoughts.
+- I was never any good in the school theatrical productions. I always got a role like the March Hare.
+- A lot of actors work too much. There comes a point where it's hard to mask your basic personality. It's a bit like a relationship. If you're always there, they can't desire you.
+- This film business, perhaps more so in America than in Europe, has always been about young sexuality. It's not true of theatre, but in America, film audiences are young. It's not an intellectual cinema in America.
+- I love being in my garden. I don't plant a lot of exotic flora, but I do spend a lot of time outside doing manual labour.
+- I'd like to work more, but I don't just want to do kind of generic characters. I want to do interesting characters, and I'd like to be cast against type.
+- I get called Jacqueline Bissette in America. In France, I get called Jackie Bisset. And actually, it is Jacqueline Bisset, which is not that easy to say.
+- I think I am an adult.
+- Of course, you see your body changing as you age, but it's more important to live than be too preoccupied with that sort of thing. I think ultimately what people care about in other people is the energy, the spirit.
+- I am a great lover of art, in many forms: paintings, objets, textiles. I don't have the talent for painting, but I have a very good sense of colour, a love of visual beauty.
+- I'm either offered window-dressing parts in large movies or little art films no one ever sees. People think the movies I end up doing are my real choices. I do the best things I'm offered.
+- We all lose our looks eventually. Better develop your character and interest in life.
+- My view is quite simple. When your dog pees on the carpet, you do not give away your dog. You say, This dog is special. I have to teach him not to pee on the carpet. I feel exactly the same way about men. They need to be taught things.
+- I have watched people who have nothing to do with the film business, but who have become part of the circle for a short period of time. They can be truly devastated when the film wraps and people leave.
+- I had no aspirations to be part of American cinema... I was really a Europe-based person, and those were the films I was inspired by.
+- At the time, 1980, people regarded actresses involved with production with a certain amount of fear, resentment and anger.
+- I have never given up on men easily.
+- A mode of conduct, a standard of courage, discipline, fortitude and integrity can do a great deal to make a woman beautiful.
+- I could never have conceived that I would ever get to work in a Truffaut film. It was astonishing to me, and still is. I felt like an old pro, but it was still so unexpected.
+- I'm a perfectionist. I need to be needed. I need to do things for a man. But I don't need to do them as much, these days.
+- What I realized on the 'Grasshopper' was that I wasn't sure that I liked being in every shot. It wasn't fun.
+- I've probably understood men too well. I realise they are predatory by nature, and I have a certain acceptance of the male animal.

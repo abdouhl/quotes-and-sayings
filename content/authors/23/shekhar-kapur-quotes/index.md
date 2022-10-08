@@ -1,0 +1,36 @@
++++
+author = "Shekhar Kapur"
+title = "Shekhar Kapur Quotes"
+quotes_len = "30"
+description = "the best 30 Shekhar Kapur Quotes"
++++
+- Not knowing whom to fall in love with is like not knowing which film to make next. Life is pretty chaotic; it's just an illusion that one has control over one's life.
+- As a director, my job is to spend money, and the producer's is to save money. Masoom, Bandit Queen and the first Queen Elizabeth have been my most uncompromised films.
+- I had no interest in history classes. In fact, I used to sleep in history classes, I used to bunk classes. But that is how students are supposed to be, no? I developed an interest in history much later. I have made a few films based on historical facts.
+- I am far more comfortable with failure than I ever will be with success.
+- Film is drama. You've only two hours, so you lie by exclusion, and try to make up for it by portraying the environment.
+- I'm working on a film called 'Bonnie.' Bonnie means water. It's in English, and it's dealing with a future world in a megacity - which is what the U.N. says we're going to be - but in this megacity, a city that runs out of water.
+- It is awkward to see a director on the screen.
+- I often wonder when I make a film - I'm thinking of making a film of the Buddha - and I often wonder: If Buddha had all the elements that are given to a director - if he had music, if he had visuals, if he had a video camera - would we get Buddhism better?
+- My own feelings of where I am in this world and the questions that I am asking myself, I started to explore them through the story 'Four Feathers' and through this actor called Heath Ledger. I knew that I had to find a 21-year-old who could play wisdom at the end. He's only 21 or 22, and I tested him.
+- I have a huge political interest. I just wish I had the courage to come into politics in India.
+- When I go out to direct a film, every day we prepare too much, we think too much. Knowledge becomes a weight upon wisdom. You know, simple words lost in the quicksand of experience.
+- In this universe, and this existence, where we live with this duality of whether we exist or not and who are we, the stories we tell ourselves are the stories that define the potentialities of our existence. We are the stories we tell ourselves.
+- I'm not sure who I am. That's why I keep saying I'm an adventurer that goes out.
+- I have devoted my life to uncertainty. Certainty is the death of wisdom, thought, creativity.
+- India was formed on the idea 'Let's get the British out.'
+- I admire people who come to politics because it takes a lot of courage to be in politics in India.
+- Heath Ledger is someone I know and would like to do a film with.
+- There's a lot of imagination in Asia, and I believe that the next Google will come from there, and the next Pixar. I believe that the great new media companies will come out of Asia and surpass the big media conglomerates that exist right now in the West.
+- There is more racial prejudice in India than anywhere else in the world.
+- I think that I altered history in 'Elizabeth,' and I interpreted history far more than Danny Boyle or Richard Attenborough did to 'Slumdog Millionaire' or 'Gandhi.' They took Indian novels or Indian characters and very much stayed within the Indian diaspora.
+- I've never looked at film-making as a career. I've looked on film-making as an adventure. When you come down the mountain, you get ready to climb again.
+- Filmmaking is a great adventure. I'm as excited as a kid to be given tickets to fly suddenly to England, South Africa, America, everywhere. I'm still a 13-year-old kid, flying.
+- It is interesting that Nehru fought and kept saying that if you break India into languages, there is no end to it.
+- It was expected of all good middle-class Indian people to build India and, as you know, Indians - when we say, 'build India,' it was all about being an accountant, a lawyer, an engineer. So it was this idea that professionals would build the country.
+- I am not possessive at all. In every relationship I have had, the girl has left me. And the fundamental complaint has been that I am self-contained. I am just comfortable with myself and am always on an adventure.
+- The question is - did Richard Attenborough have a right to make 'Gandhi?' And did Danny Boyle have a right to make 'Slumdog Millionaire?' Quite honestly, if they didn't have the right to make these films, I had no right to make 'Elizabeth.'
+- Great actors are people who just meld into the part without calling attention to the fact that they are so-and-so doing this part. They may never become huge stars, but will always, in memory, stay respected actors.
+- You're not a star until you love yourself. Directors, yeah, they've got to love their own philosophies. But actors have to really love themselves.
+- I gave up the idea of having a career when I was 24. Sounds glamorous, but I've been doing things since then, and part of those adventures was to make films because I realised I was actually quite good at it and I enjoyed it.
+- When you get up, the night and day is a contradiction. But you get up at 4 A.M. That first blush of blue is where the night and day are trying to find harmony with each other. Harmony is the notes that Mozart didn't give you, but somehow the contradiction of his notes suggest that. All contradictions of his notes suggest the harmony.

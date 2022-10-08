@@ -1,0 +1,103 @@
++++
+author = "Derek Jeter"
+title = "Derek Jeter Quotes"
+quotes_len = "97"
+description = "the best 97 Derek Jeter Quotes"
++++
+- I always used to get in trouble for talking too much. When it was time for parent-teacher conferences, I remember that I was always embarrassed about what my parents would hear about me!
+- I think everyone is ticklish. You just gotta find the right spots.
+- When it was time for parent-teacher conferences, I remember that I was always embarrassed about what my parents would hear about me!
+- During the off-season, I go to the movies almost every day.
+- Sometimes people complicate things by thinking too much about what someone might think of what they said or did.
+- I love it when people doubt me. It makes me work harder to prove them wrong.
+- I think when things linger, that's when they become a distraction. I don't want any distractions.
+- You know what I want to do? Wake up one weekend and not have to go anywhere and do nothing.
+- I attribute much of my success in New York to my ability to understand and avoid unnecessary distractions.
+- I've always had an interest in business, and my interest in business has really expanded over the years.
+- You're a person a lot longer before and after you're a professional athlete. People always say to me, 'Your image is this, your image is that.' Your image isn't your character. Character is what you are as a person. That's what I worry about.
+- I'm very, very competitive. If my grandmother asks to race me down the street, I'm going to try to beat her. And I'll probably enjoy it!
+- I like to hit the gym early in the morning. I feel better throughout the day when I get in a workout first thing in the morning.
+- I always take criticism as a challenge. It's the way I've always looked at it.
+- I don't really see myself getting a Twitter account. Nothing against it. I get it. I especially get it for businesses.
+- I try to stay as private as possible; I know that's difficult, especially playing here in New York, but I make an attempt at it.
+- Not everybody's a baseball fan.
+- I'm not a hermit, but I definitely stay in a lot more than I used to. There's more attention now then there ever was. You walk down the street with someone and it's a story. It becomes national news, you know what I mean? So, I still do things, but I stay home a lot more.
+- I've always been very cautious with what I do. You know, that started at a young age. I always had the approach or the mentality I never wanted to embarrass my parents.
+- The draft is a crapshoot, so I've been very fortunate to be drafted by the Yankees, and to have spent my whole career here.
+- The number one priority is playing baseball. There are so many people in New York trying to get you to do this and get you to do that, which is fine, but you have to take care of yourself.
+- That's how you win - pitching and defense.
+- My dad had been shortstop when he was in college, and you know, when you're a kid, you want to be just like your dad.
+- God, I hope I wear this jersey forever.
+- The last thing you want to do is finish playing or doing anything and wish you would have worked harder.
+- I get nervous watching teammates. I get nervous for them. Late in the game, pressure situation, I'm nervous for them.
+- The big difference for me is that, as I get older, I find it's a lot easier to stay in shape than it is to get back in shape.
+- I think, a lot of times, players get in trouble when they're asked questions and they think they have to find a way to answer it. If you ask me a question and I say, 'I don't know,' there's really no follow-up.
+- You have to assume that everything you do is public knowledge. Everything. Because now everyone is a reporter. Everyone is a photographer.
+- I looked up to my parents because they were very successful in what they wanted to do. I was lucky; I didn't have to look far for role models.
+- You don't just accidentally show up in the World Series.
+- I want to own a team one day. You know, that's my next goal.
+- I voted for Obama.
+- I wish I trusted people more. But when I meet someone, the first thing is, 'What does this person want?' And I put up a defense mechanism. But I've always been that way.
+- Athletics keeps us healthy, gets us up and running around. It also gives you an opportunity to meet a lot of different people, which is very important.
+- I always appreciated the ex-players. Being a Yankee, you get spoiled. Old-Timers Day, all these guys coming back, spring training, being around them, you get a chance to get to know them. So I always think you learn a lot by listening.
+- Surround yourself with good people. People who are going to be honest with you and look out for your best interests.
+- I get asked enough questions, I try not to ask too many questions.
+- You tell me you want to race down the street, I'm going to try to beat you. My grandmother asks me to race down the street, I'm going to try to beat her. And I'll probably enjoy it. Competitive to a fault, sometimes.
+- I remember going from rookie ball to A, to double A, then to triple A. At every level it seemed like the game was faster. The bigger the situation, the more the game speeds up. That's all mental. It messes people up.
+- If I put my name on something, I'm going to be involved. I'm not just going to put my name on it and not pay attention.
+- You gotta have fun. Regardless of how you look at it, we're playing a game. It's a business, it's our job, but I don't think you can do well unless you're having fun.
+- The Yankees have strict rules. You can have a mustache but no other facial hair.
+- I went to school on Senior Skip Day.
+- I'd like to get a degree. You ever see the movie 'Back to School?' I'll go back with my kids.
+- I can have fun anywhere, as long as I'm with good people. But in the offseason, I like to go somewhere warm, a nice spot in the Caribbean.
+- So many people are insanely busy nowadays, and it's easy to say, 'Ah, I'll workout tomorrow.' But you have to set aside a time and stick to that schedule.
+- Through time you learn from your experiences. I think I've learned to deal with people a little bit better over time. That in particular has developed a little bit.
+- It's never over. You don't want to be in the position to be down four runs in the ninth inning, but it's not over until the last out.
+- My dreams do not end with playing Major League Baseball.
+- Obviously, you're known for what you do. But you still want to be known as a good person. You're a person a lot longer before and after you're a professional athlete.
+- Walking around sometimes, I would love to just be able to watch people, see how they act. Sometimes I would love to be invisible.
+- Your image isn't your character. Character is what you are as a person.
+- I always have tried to treat people with respect, the way I want to be treated.
+- I think sometimes people need to get used to an idea.
+- You gotta have fun.
+- I've been playing baseball since I was 5 or 6 years old. I've been on a schedule, pretty much, since I was in eighth, ninth grade. I look forward to not doing that.
+- I have feelings. I'm not emotionally stunted.
+- What kind of influence did my parents have on my life? Well, they had the most influence. These are the people who are closest to me. My parents are very positive people. They've been supportive. They're always there.
+- I try to sign for as many kids as possible. Kids come first, and I'll always sign for a kid before an adult. It's funny, because I was never big into autographs as a kid. The only player who I ever wanted an autograph from was Dave Winfield.
+- For me, when I was a kid, volunteering was the last thing I was thinking about. When I see kids doing it now, it amazes me. It's very impressive, it gives them something productive to do as opposed to getting in trouble. For them to take time out at such a young age is remarkable. I think all kids should take a little time out to volunteer.
+- You can't quantify everything a player does to win games.
+- Don't get me wrong; it's not like I didn't go out and have fun. But there's been a lot of players that come to New York and get caught up in the lifestyle, and before you know it, they're sent away to another team because it affected their performance.
+- You can't be sensitive, because you're going to get criticized. I don't care who you are, you're going to get criticized.
+- You forget about it whether it was 15-2 or 3-2. It's still a loss. It doesn't matter what the score was if we win tomorrow.
+- No former player has owned a team in baseball.
+- You hear about women buying shoes? I buy DVDs. I definitely have a problem.
+- I have the greatest job in the world. Only one person can have it. You have shortstops on other teams - I'm not knocking other teams - but there's only one shortstop on the Yankees.
+- If you're going to play at all, you're out to win. Baseball, board games, playing Jeopardy, I hate to lose.
+- I've always been very aware of what I'm saying, but I'm also aware of what you're saying. I always want to make sure that my point is clear.
+- You're playing a game, whether it's Little League or Game 7 of the Word Series. It's impossible to do well unless you're having a good time. People talk about pressure. Yeah, there's pressure. But I just look at it as fun.
+- We just want to win. That's the bottom line. I think a lot of times people may become content with one championship or a little bit of success, but we don't really reflect on what we've done in the past. We focus on the present.
+- The first thing to know about playing baseball in Michigan is, Michigan's really cold.
+- When you put a lot of hard work into one goal and you achieve it, that's a really good feeling.
+- I've found that it's easier to stay in shape than it is to get into shape.
+- My office is at Yankee stadium. Yes, dreams do come true.
+- Everyone fears rejection.
+- I've never been an actor on Broadway, but it feels like you're on a stage when you play at Yankee Stadium. And that's the feeling I've always had.
+- My best vacation is somewhere I could hide, somewhere warm and not a lot of people around.
+- I think there's something wrong with me - I like to win in everything I do, regardless of what it is. You want to race down the street, I want to beat you. If we're playing checkers, I want to win. You beat me, it's going to bother me. I just enjoy competition.
+- I like to dance and sing when there's no one around, but, if I'm out, I'm really shy about it. So it takes a lot to get me going, but I enjoy being around music.
+- Any player that says they don't want to go to an All-Star Game is lying to you. It's something everyone wants to be a part of.
+- I want to have a family.
+- I've been asked to sign a forehead.
+- When I was younger, I was always taught not to make excuses.
+- There may be people who have more talent than you, but there's no excuse for anyone to work harder than you do - and I believe that.
+- I hate the treadmill. I hate it. You really don't have to be on it that long, something like 20 or 30 minutes. It's all about getting your heart rate up.
+- I don't listen to opinions.
+- If you're going to win games, you're going to have to come up with the big hits. That's the bottom line.
+- I'm not perfect; no one is perfect. Everyone makes mistakes. I think you try to learn from those mistakes.
+- There's feelings there, but I think I've just been pretty good at trying to hide my emotions throughout the years. I try to have the same demeanor each and every day.
+- I've always been uncomfortable, so to speak, when the focus is on me.
+- I can see how people work out to feel better.
+- The thing that means the most to me is being remembered as a Yankee, because that's what I've always wanted to be, was to be a Yankee.
+- Kids are our future.
+- I'm a New Yorker now, and believe me, there's no comparison between the Big Apple and Kalamazoo, no similarity at all. New York City's hectic, always in fast-forward, and Kalamazoo's more laid-back, smaller, slower.
+- My heroes, my dreams, and my future lay in Yankee Stadium. And they can't take that away from me.

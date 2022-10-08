@@ -1,0 +1,15 @@
++++
+author = "Julia Bacha"
+title = "Julia Bacha Quotes"
+quotes_len = "9"
+description = "the best 9 Julia Bacha Quotes"
++++
+- When conflicts end non-violently, it's more likely that the result will be longer-lasting, democratic societies.
+- A film seeking to create change on a difficult issue should not try to provide a definitive historical overview, nor present an op-ed style argument.
+- For any filmmaker who has just released a film and who is experiencing some measure of success, the temptation can be great to respond to every screening request that comes in.
+- When I was 17, I came to the U.S. to study Middle Eastern history and politics at Columbia University.
+- History was always the subject that I loved the most, and I felt it gave me the deepest sense of our humanity and who we are and where we're going.
+- Violent resistance and nonviolent resistance share one very important thing in common: They are both a form of theater seeking an audience to their cause.
+- At the heart of any successful film is a powerful story. And a story should be just that: a narrative with a beginning, middle, and end, powerful protagonists that audiences can identify with, and a dramatic arc that is able to capture and hold viewers' intellectual and emotional attention.
+- Non-violence is not glamorous, and you don't see the effects right away.
+- Violence and nonviolence are, after all, two different forms of theater. They both depend and thrive on the response of an audience.

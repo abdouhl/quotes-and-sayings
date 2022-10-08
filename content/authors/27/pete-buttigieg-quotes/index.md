@@ -1,0 +1,131 @@
++++
+author = "Pete Buttigieg"
+title = "Pete Buttigieg Quotes"
+quotes_len = "125"
+description = "the best 125 Pete Buttigieg Quotes"
++++
+- On this National Immigration Day of Action, it is worth remembering that it's not just Americans in New York or Los Angeles who believe that we need a more humane and rational system.
+- My high school in South Bend had nearly a thousand students. Statistically, that means that several dozen were gay or lesbian. Yet, when I graduated in 2000, I had yet to encounter a single openly LGBT student there.
+- Mayors love lists when they say something good about their city and hate them when they don't.
+- As we see dislocation and disruption in certain parts of the country, from rural areas to my home in the industrial Midwest, and in the economy, this leads to a kind of disorientation and loss of community and identity. That void can be filled through constructive and positive things, like community involvement or family.
+- When I was deployed, I could feel a full spectrum of American power keeping me safe. And yes, that was the armor on my vehicle; yes, it was the armor on my body; but it was also the armor of some level of American moral authority.
+- As the mayor of South Bend, Indiana, I see on a daily basis the impact of politics and policy on my family, neighbors, friends, and residents.
+- When I think about where most of Scripture points me, it is toward defending the poor, and the immigrant, and the stranger, and the prisoner, and the outcast, and those who are left behind by the way society works.
+- The old line of thought used to be that local government is the bush leagues.
+- To me, what's really important about the Green New Deal isn't, like, one of the elements of it: it's the concept. It's the concept that we have a national emergency commensurate with a depression or a war. And then the second part of it, the concept that, in rising to meet that challenge, there's a ton of economic opportunity.
+- I get the urge people will have after Trump. 'Look at the chaos and the exhaustion: Wouldn't it be better to go back to something more stable with somebody we know?' But there's no going back to a pre-Trump universe. We can't be saying the system will be fine again just like it was. Because that's not true; it wasn't fine.
+- I think for those of us who think that our morality is something that needs to be in touch with our religious faith personally, then it's really important to explain that no one party has a monopoly on faith.
+- In my generation, thankfully, as somebody who served in the Afghanistan War, would have served in the Iraq War, if called to do so - was also strongly against the Iraq War, from the beginning - I'm so thankful that we live in a moment that we can honor the troops separately from policy.
+- So much of what Christ's teachings are about have to do with the way that we take care of the least among us.
+- There's a lot to be said for expanding the Earned Income Tax Credit.
+- You're not free if you can't marry the person you love because a county clerk is imposing his or her interpretation of religion on you.
+- As Democrats and progressives look to the future, we should remember our most essential values.
+- Physically robust infrastructure is not enough if it fails to foster a healthy community; ultimately, all infrastructure is social.
+- I was in high school when Columbine happened.
+- I was well into adulthood before I was prepared to acknowledge the simple fact that I am gay. It took years of struggle and growth for me to recognize that it's just a fact of life, like having brown hair, and part of who I am.
+- Building a wall won't solve our border security challenges.
+- Let's be under no illusions: There are attacks on, for example, transgender Americans from the Oval Office, picking on troops - people willing to lay down their lives for this country - not to mention teenagers in our high schools. So we've got to end the war on trans Americans.
+- I am not skilled enough or energetic enough to craft a persona. I just have to be who I am and hope people like it.
+- 'Freedom' means a lot to conservatives, but they have such a narrow sense of what it means. They think a lot about freedom from - freedom from government, freedom from regulation - and precious little about freedom to. Freedom to is absolutely something that has to be safeguarded by good government, just as it could be impaired by bad government.
+- What's worse: a president who is very faithful to an ideology that you find extreme, or a president who is very cynical and appears to have no ideology at all? Neither one of those things is great.
+- The world is changing, but it is not changing on its own.
+- I'm not sure anything makes you an outright good person or bad person - that we're all capable of doing good or bad things. And if you want to know how much good you can do, and how much hurt you can do, just ask somebody you love.
+- When I was fourteen, Mom and Dad sent me to St. Joseph High School, the Catholic school up the hill from our place, housed in a 1950s-era tan brick building sometimes confused for a light industrial structure due to the surprisingly high smokestack of its old incinerator.
+- I think most Americans understand that we deserve to have universal health care, as enjoyed by most citizens in most developed countries.
+- Wall-to-wall coverage of the political intrigue in Washington focuses on which Capitol Hill players won the daily news cycle, with barely any reference to the communities and lives where politicians' decisions actually hit home.
+- In many ways, Trump appeals to people's smallness, their fears, whatever part of them wants to look backward.
+- The Electoral College needs to go, because it's made our society less and less democratic.
+- The greatest nation in the world should not have much to fear from a family, especially children, fleeing violence. More importantly, children fleeing violence ought to have nothing to fear from the greatest country in the world.
+- Donald Trump got elected because, in his twisted way, he pointed out the huge troubles in our economy and our democracy.
+- Because reading is a way of putting yourself in someone else's experience, especially reading fiction.
+- Being gay isn't something you choose, but you do face choices about whether and how to discuss it.
+- I believe in capitalism as long as there's a strong rule of law around it.
+- In 'Palaces for the People,' Eric Klinenberg offers a new perspective on what people and places have to do with each other, by looking at the social side of our physical spaces.
+- That really important freedom in my life, the freedom to marry, came about because of choices that were made by policymakers who had power over me and millions of others.
+- I think of myself as a democratic capitalist, although I think the word 'socialism' loses its meaning every time that it is used to describe literally any policy left of far right by the current Republicans.
+- Like public surface in general, sewers are unbelievably important. They're so important that we make sure they work basically all of the time. Which is why you never think of them - that's kind of the point.
+- I don't have to go on a tour to find out what's happening in middle America. I just go to Target.
+- As a mayor, my instinct is to really think about how to get something done and not to make the promise unless you have some view of the pathway. You don't have to have it all figured out, but you have to have a pathway there.
+- I do think, actually, one thing I noticed with Silicon Valley post-Trump is it kind of made them more politically aware, more aware that, like, business and philanthropy alone isn't going to make the world a better place.
+- By the way, if you ever watch Prince Harry on a panel or giving a talk, you can tell that as royals go, he's comparatively normal, and I think that's largely because he had a workplace experience with people with radically different social backgrounds.
+- Our right to practice our faith freely is respected up to the point where doing so involves harming others.
+- I think a lot about intergenerational justice. Short-term versus long-term helps to explain a lot of the policy disagreements that happen between the parties, and I would argue that in most ways, we are the party with more long-term thinking.
+- You can't understand America without understanding the Puritans. In many ways, we're still living out their legacy in ways that are good and bad.
+- Systemic racism is something that diminishes all of us. Of course its worst effects are for its victims, but our entire country is held back through the inequality and the mistrust that it creates.
+- We need to intentionally invest in health, in home ownership, in entrepreneurship, in access to democracy, in economic empowerment. If we don't do these things, we shouldn't be surprised that racial inequality persists because inequalities compound.
+- Most people have trouble pronouncing my name, so they just call me 'Mayor Pete.'
+- A Midwestern municipal government isn't the first thing that leaps to mind when you think of innovation, but it ought to be.
+- Things are changing tectonically in our country, and we can't just keep doing what we've been doing.
+- People in communities like Granger, Indiana, are rarely heard from on cable networks. But they, too, believe it is wrong to deport friends and neighbors who do no harm and much good.
+- My surname, Buttigieg (Boot-edge-edge), is very common in my father's country of origin, the tiny island of Malta, and nowhere else.
+- In local government, it's very clear to your customers - your citizens - whether or not you're delivering. Either that pothole gets filled in, or it doesn't. The results are very much on display, and that creates a very healthy pressure to innovate.
+- One respect in which I'm very much my father's son is how I feel about Joyce. 'Ulysses' is very much about daily life, when you get into this other guy's life and you learn about the things he cares about, and why he cares about them. And then, very indirectly, very subtly, you learn why politics has impacted his life, too.
+- Greatness will come by looking forward - untethered from the politics of the past and anchored by our shared values - and by changing our nation's future.
+- I met my husband through an app that talks to social-networking sites, and that's how we were sort of suggested to each other, and it turned out to be a great match.
+- I kept up top grades, and by senior year, a flow of mailed college recruiting brochures accumulated into an avalanche on our dining room table.
+- You're not free if you can't start a small business because you fear losing your health care, and you're certainly not free if a male boss or politician prevents you from making decisions about your own reproductive health.
+- If Medicare today includes Medicare supplemental, why wouldn't Medicare for all include a Medicare supplement for all who want it?
+- To me, what success looks like is not to believe that Afghanistan can become a unified, Western-style democracy with a developed-country economy just yet. I think success in the American interest is some level of assurance that it's not going to be a place that again leads to an attack on the American homeland.
+- I've never believed in running for office so you can eventually run for some other office.
+- We've never been a party to obstruct for obstruction sake.
+- One of the reasons we set up this country, one of the things we celebrate in freedom and democracy of the United States is you can criticize your president. You can criticize the ways in which the country falls short of its values.
+- I don't know how it plays in San Francisco. But I can tell you I came out, during a reelection campaign, in Indiana, while Mike Pence was the governor. And I wound up winning reelection by 80 percent.
+- Being the mayor of your hometown is the best job in America, partly because it's relatively nonpartisan - we focus on results, not ideology.
+- Like anyone who follows politics, I am sometimes mesmerized by the twisted and relentless drama playing out in Washington. But I also know about the price of distraction - the consequences of our attention being diverted from how politics affects daily life.
+- The force that has come closest across American history to actually ending America was white supremacy. That was the Civil War.
+- If you're a white candidate, it is twice as important for you to be talking about racial inequity and not just describing the problem - which is fashionable in politics - but actually talking about what we're going to do about it and describing the outcomes we're trying to solve for.
+- We need to consider a financial transactions tax. And we need to ask whether the top marginal tax rates are really appropriate, given that the effective tax rates paid by the wealthy are often actually lower than those paid by the rest of us.
+- You're not free if you can't sue a financial institution that gets caught ripping you off.
+- The center of gravity of the American people is way to the left of the center of gravity of Congress and, in many ways, to the left of the national Democratic Party.
+- Presidents going live from the Oval Office have used that platform to inform the American public, and also to do one of the most important parts of their job: to inspire the best in us.
+- I think there's a lot to be said for changing the balance of what we tax: wealth versus work.
+- By high school, I had traded my oversized, thick glasses for contact lenses, but my eyesight was getting worse every year, smothering my childhood aspiration of becoming an astronaut or, at least, a pilot.
+- If somebody is saying that I should not compete because I'm a man, I don't know what to say to that. And if somebody is saying that I had it easy, I would invite them to join the military and enter Indiana politics in 2010 as a gay person. See how easy they find it.
+- An election is supposed to be about our whole country - we can't just concentrate on those areas where people, for the most part, already agree with us.
+- I don't have a problem with enhanced border security, perhaps to include fencing. I think the mistake is believing that border security is as simple as just putting up a wall from sea to shining sea.
+- The first news event I understood as a small child was the loss of the space shuttle Challenger, which President Reagan eloquently mourned from the Oval that evening.
+- Safety and security are the most basic job of government. I understand that - both as a mayor who works every day to secure public safety and reduce crime, and also as someone who deployed in uniform to Afghanistan because I believed joining the military was part of my duty to help keep my country safe.
+- A message is something that makes sense no matter who you're running against.
+- I hope that teachings about inclusion and love win out over what I personally consider to be a handful of scriptures that reflect the moral expectations of the era in which they were recorded.
+- Being attentive to the things that add meaning to our lives alongside politics will help us inform our politics with the values that really do make America great.
+- I have not reached a considered position on the question of court-packing. Although I don't think we should be laughing at it.
+- Businesses always have competitors nipping at their heels. Historically, cities have not viewed themselves as subject to that same type of competition. But that's wrong.
+- You know, I do believe that China is emerging as a competitor, not just a competitor but, in many ways, an adversary. And, you know, the Chinese model is also being held up globally as an alternative power model, and I very much believe in our model versus theirs.
+- I've always been terrible at land navigation.
+- I just feel more comfortable with my sleeves rolled up.
+- By the way, conversely, one thing I've learned in my career, beginning when I ran for mayor, is that a lot of older voters are among the most excited about a younger candidate. So, you know, I think somebody of any age can deliver a compelling message.
+- You could be a senior senator and have never managed more than a hundred people in your life.
+- The most moving responses I got to my coming out in the first place was people, like teenagers, letting me know that it made their lives easier in some way.
+- 'Palaces for the People' reads more like a succession of case studies than a comprehensive account of what social infrastructure is, so those looking for a theoretical framework may be disappointed.
+- We can't look for greatness in the past.
+- My marriage to Chasten has made me a better man.
+- There's this romantic idea that's built up around war. But the pragmatic view is there are tons of people of my generation who have lost their lives, lost their marriages, or lost their health as a consequence of being sent to wars which could have been avoided.
+- I think there's an opportunity hopefully for religion to be not so much used as a cudgel but invoked as a way of calling us to higher values.
+- The decision to serve needs to be independent of your politics.
+- I'm proud of who I am. I am proud of my husband and our marriage.
+- As a consultant at McKinsey, I learned the value of data and the ability to shape that information into an answer.
+- The challenge in confronting Trump is that there are certain things that he does that that you have to respond to, just morally. When he lies, you've got to correct the lie, which will keep you busy because he does it so often. When he does something wrong, you've got to point to it.
+- I think that policy matters. I'm a policy guy.
+- I am a Democrat because I believe in protecting freedom, fairness, families, and the future.
+- The death penalty has been one of many examples where racial discrimination has played out. You can see it in the simple fact that someone convicted of the same crime is more likely to face the death penalty if they are black.
+- If I'm plowing the snow and filling in potholes, then I'm a good mayor, and if we fail to do that, I'm not. And it's got almost nothing to do with whether, when I come home, it's to a husband or to a wife.
+- My understanding of my faith is that - through a Christian framework - part of what we are called to do is to lay down our own self-interests, after the model of divinity that comes into this world in the form of Christ and lays down his life. And in order to do that, you have to care about something or someone more than yourself.
+- A lot of these so-called left positions are actually centrist by the standards of the American people, just not by members of the American Congress.
+- So much of politics is about people's relationships with themselves. You do better if you make people feel secure in who they are.
+- When you become a citizen, you are an American and questioning somebody's Americanness because they disagree with you - is about one of the most un-American things I can think of.
+- Experiences with friends or family members coming out have helped millions of Americans to see past stereotypes and better understand what being gay is - and is not.
+- So, I've learned - as a young Democrat, I've learned to think cautiously before offering advice to Nancy Pelosi.
+- My voting rights agenda is not that different from what you'd see in H.R. 1.
+- I think people in our party tie themselves up in pretzels trying to be more electable.
+- You can't just let companies self-regulate, and I've gotta think they get that, too.
+- When people are economically or socially dislocated, they are always more vulnerable to being radicalized.
+- It's time to join the ranks of nations that have put the ugliness of capital punishment behind them.
+- Tunisians are very friendly.
+- Our neighborhoods are safer when there is trust between communities and the police who are in charge of protecting them.
+- The background of a mayor of a city of any size is a background of somebody who on one hand is an executive and on the other hand is very close to the ground.
+- We've got to find a way to use our identities to reach other people.
+- I think people are just puzzled by why people where I'm from make the political choices sometimes that they do.
+- Military service might sound like a totally different environment, but every experience you fall back on later, it makes you smarter. Why wouldn't that be true of the military, too?
+- Tearing apart a community, a business, and a family will make America worse off, every time.
+- If somebody is pointing out that there are advantages - many of them unfair - that go along with being male in our society and in our politics, then I completely agree.
+- Those of us who work in politics can only make ourselves useful if our heads are filled with things that we can contribute to the political space.

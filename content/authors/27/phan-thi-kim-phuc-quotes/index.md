@@ -1,0 +1,80 @@
++++
+author = "Phan Thi Kim Phuc"
+title = "Phan Thi Kim Phuc Quotes"
+quotes_len = "74"
+description = "the best 74 Phan Thi Kim Phuc Quotes"
++++
+- When I felt real forgiveness, my heart was set free.
+- If the picture hadn't been taken, people wouldn't know what happened in the war.
+- I do not want to talk about the war, because I cannot change history.
+- No more war. Live with love and peace. That is my message.
+- The more I travel the more I see and know what people need. They need peace, they need joy and they need love.
+- Those bombs have brought me immeasurable pain. Even now, some 40 years later, I am still receiving treatment for burns that cover my arms, back, and neck. The emotional and spiritual pain was even harder to endure.
+- I have my foundation, I help the children who are victims of war, and I talk about kids and I help people to understand how horrible war is and how beautiful the world can be if we can live with love, hope, and forgiveness.
+- I count my blessings and do things to help others.
+- I just wish one day I am free from pain.
+- I love my scars. It reminds me where I come from.
+- I really wanted to escape from that little girl. But it seems to me that the picture didn't let me go.
+- My parents gave me life, but the doctors gave me life again.
+- You will remember me as a little child in another time, during another war, and involving another airplane.
+- I wanted to share my experience with people so that they feel better.
+- From time to time I look at the picture when I am very sad. I just want to remember my past and that scene made a deep impression on me.
+- In war time, nowhere is safe.
+- I really want to say, 'Thank God I'm alive.' I want to forgive the people who caused my suffering. I did.
+- Nine years old, I became the victim of war. I didn't like that picture at all. I felt like, why he took my picture, when I was agony, naked, so ugly? I wished that picture wasn't taken.
+- I did not think that I could marry or have any children because of my burns. But now I have a wonderful husband, a lovely child and a happy family, thank God.
+- My own people, the South Vietnamese, had been bombing trade routes used by the Viet Cong rebels. I had not been targeted, of course. I had simply been in the wrong place at the wrong time.
+- I was as alone as a person can be. I could not turn to a friend, for nobody wished to befriend me. I was toxic, and everyone knew it. To be near me was to be near hardship. Wise people stayed far away. I was alone, atop a mountain of rage. Why was I made to wear these awful scars?
+- I asked why me? Why did I have to suffer so much pain and scars? I was just a little girl - I didn't do anything wrong.
+- In the picture, I am crying from pain. Now, I cry for peace. I don't want to see any more children suffer.
+- Religion doesn't help me at all. But the relationship between me and God and Jesus, that changed my life.
+- I have suffered a lot from both physical and emotional pain.
+- There's such a connection between Vietnam and America, but it should be one of friendship. Not bitterness. Not enemies.
+- I went through 17 operations. I had to deal with the pain every single day. I used to compare my scars with buffalo skin. And because my skin wasn't have any pores, I cannot sweat, make me feel so tired, so headache.
+- Having known war I know the value of peace. Having lived under government control I know the value of freedom. Having lived with hatred, terror and corruption I know the value of faith and forgiveness.
+- Through my experiences, I was living with anger and hatred, which was a really bad thing for me. Then I learned how to forgive, and it freed me from hatred and helped me a lot.
+- When those four bombs fell, I was in the middle and I should have died.
+- I remember June 8, 1972. I saw the airplane. And it's so loud, so close to me. Suddenly, the fire everywhere around me. The fire burned off my clothes. And I saw my arm got burned with the fire. I thought, oh, my goodness, I get burned. People will see me different way.
+- Every movement of mine was under the control of the Vietnamese government, a communist country. I was just a prisoner without walls.
+- I hated myself. I hated people who made war. I hated people who were normal. I envied them. I wish I would be normal.
+- Even if I could talk face to face with the pilot who dropped the bombs I would tell him, 'We cannot change history, but we should try to do good things for the present and for the future to promote peace.'
+- My character is not sad, not angry. In my house, I'm always laughing, smiling, smiling.
+- For years, I prayed to the gods of Cao Dai for healing and peace. But as one prayer after another went unanswered, it became clear that either they were nonexistent or they did not care to lend a hand.
+- People ask me a lot, 'How can you smile all the time?' I tell them, 'I was never angry. God created me this way. He created me laughing and smiling.'
+- I was really embarrassed. And I asked why they took my picture when I was in such agony, and I'm the girl, in the moment that I was naked, burning, hopeless, crying - so ugly. And I asked why they took my picture at that that moment? I didn't like it at all.
+- My name is Kim Phuc, though you likely know me by another name. It is one I never asked for, a name I have spent a lifetime trying to escape: 'Napalm Girl.'
+- I got burned by napalm, and I became a victim of war.
+- The more I prayed for my enemies, the softer my heart became.
+- When I meet children and people who suffer, when they mention any kind of pain, emotional pain, physical pain, I know what they need, because it's the same thing I need. They need healing, they need peace, they need joy, they need hope.
+- I was a happy child, just 9 years old, and I knew nothing about war.
+- I suffered too much and I want to stop the suffering of other people.
+- I am not religious; I am not political.
+- We should work together to be of peace and happiness for all people in all nations.
+- If I ever see those pilots who dropped the bombs on me - or any American pilots - I would say to them, 'The war is over. The past is past.' I would ask those pilots what can they do to bring us all together.
+- I cannot sweat because there is no hair and no pores on the skin grafts. And, can you imagine, there is no blood at all in my scars?
+- Let the world see how horrible wars can be.
+- God used me that day. Even though so much of my body was burned, my feet were not burned, and so I could run out and be there for that photo. It saved a lot of souls and brought an end to the war.
+- I have two boys, so I don't want any more child to suffer like me.
+- Yet I was ready for love and joy. I wanted to let go of my pain. I wanted to pursue life instead of holding fast to fantasies of death.
+- I saw the bombs, and, like a kid, I looked back at them. Instantly there was fire everywhere.
+- Sometimes I could not breathe, but God saved my life and gave me faith and hope.
+- People can learn the tragedy of war from me.
+- For years I bore the crippling weight of anger, bitterness and resentment toward those who caused my suffering. Yet as I look back over a spiritual journey that has spanned more than three decades, I realize the same bombs that caused so much pain and suffering also brought me to a place of great healing. Those bombs led me to Jesus Christ.
+- I want to be a doctor, to give treatment to other people.
+- I had a lot of pity for myself. But I could concentrate more on my studies as a result.
+- I wished I died in that attack with my cousin, with my south Vietnamese soldiers. I wish I died at that time so I won't suffer like that anymore... it was so hard for me to carry all that burden with that hatred, with that anger and bitterness.
+- I forgive everyone who caused my suffering, even the pilot, commander, people controlling me.
+- As a child, I loved to climb on the tree, like a monkey.
+- That little girl became me now. I have accepted it and I'm thankful that my picture worked for good.
+- I am praying every day for peace.
+- I have a husband and a new life and want to be normal like everyone else.
+- I want to give back all the love and care that I have received over the years from so many people.
+- My faith in God is healing my heart so I can have peace.
+- I want to have freedom myself, and build my family.
+- In 1974, I cried all day long. I kept putting my well arm next to my left one, which could not move. My mother kept saying, 'Don't be sad. If you cry, I will cry and then we will all be twice as sad.'
+- I never thought that the child who was a famous symbol of war would one day be invited to become a symbol of peace.
+- Behind that picture of me, thousands and thousands of people, they suffered - more than me. They died. They lost parts of their bodies. Their whole lives were destroyed, and nobody took that picture.
+- My dream is that one day, all people will live without fear, in real peace, with no fighting and no hostility.
+- I know what it is like to experience terror, to feel despondent, to live in fear. I know how wearying and hopeless life can be sometimes.
+- I built my life very normal with everything I do.
+- Dear friends: faith and forgiveness is much more powerful than napalm could ever be.

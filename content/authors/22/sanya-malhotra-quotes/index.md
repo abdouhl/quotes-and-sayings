@@ -1,0 +1,106 @@
++++
+author = "Sanya Malhotra"
+title = "Sanya Malhotra Quotes"
+quotes_len = "100"
+description = "the best 100 Sanya Malhotra Quotes"
++++
+- I was extremely honoured and privileged to have had the opportunity to visit Oxford University. It was a great experience to share personal anecdotes from my career and my journey and to indulge in a fun interactive session with the students there.
+- What I see, people can't. Being so judgmental and beating myself up over my work is hard on me and my family. I would rather learn from my mistakes.
+- Everyone has to go through some ups and downs.
+- I am always picking on something or the other about the way I have performed a scene.
+- I love my curly hair and I don't like straightening done at all.
+- I enjoy being in my character's world.
+- I love wearing brands and all but Sarojini Nagar is at a different league altogether. I used to go there every week, bargain and stuff my bag.
+- Masala films are tough to pull off.
+- Honestly, when I am offered a film, I look at the story, character, director, producer and co-actors while giving a nod.
+- I don't know about others, but I am sensitive, and I easily get attached to my characters.
+- I like wearing nice clothes and dressing up. At the same time, I know that I can't be perfect all the time.
+- Dubbing can change the 'sur' of the character. Doing it for another actor and to make it believable is tricky but interesting because you do not know the graph of the character.
+- My perception and my way of working change with each film.
+- I was a crazy Shah Rukh Khan fan. I was also a huge Madhuri Dixit-Nene fan.
+- I have a habit of not going to the doctor till the last minute.
+- I would love to do a dance film someday.
+- Even though I feel I am a bit reticent and shy, performing arts like dancing and acting is like my alter ego.
+- It's an experience to actually be a part of developing a character on the go. Everyone should go through this once in their lifetime.
+- I'm not competitive at all.
+- Nawazuddin is an inspiration for me. He's is one of the spectacular actors of Indian cinema.
+- I used to dance professionally in Delhi.
+- I don't concentrate about stardom as I always wanted to be an actor and remain to be the same.
+- I had really good experience working with Ritesh Batra and Nawaz sir. It was a huge thing for me to work with Nawaz sir because he is my favorite actor.
+- As an actor, I am happy that I am able to entertain the audience.
+- It's a joy that I have such an amazing cast to work with in 'Ludo.' There's Rajkummar Rao, Abhishek Bachchan, Fatima Sana Sheikh and Aditya Roy Kapur with me. It's a cool bunch to work with.
+- I always wanted to work with Ayushmann Khurrana and I wished that I would get a good script to team up with him.
+- I feel like a star while signing autographs.
+- I started shooting for 'Photograph' right after 'Dangal' so, it's really special for me.
+- After doing a film like 'Dangal,' people would assume things are easy for me.
+- I want to be a part of content-driven films, not just the mainstream Bollywood type of movies.
+- I was always interested in dancing and doing extracurricular activities.
+- I beat myself up the moment I do something wrong.
+- My sister is just three years older than me, but I never understood her, and I could never relate to her. In fact, I used to feel that I will never be able to like her. But when I came to Mumbai, I started missing her.
+- I am my own biggest critic. I never like what I do.
+- When I saw 'Badhaai Ho,' I felt I could have done certain scenes better.
+- I can't choreograph myself. I tried doing that for 'Pataakha,' but I couldn't do it.
+- When you dub for your own character, it is the last chance to play the part again.
+- I grew up watching different kinds of shows and films and read so many different authors.
+- I want to do everything. I don't want to restrict myself. I would love to do what comes my way, something that excites me.
+- When I am choosing a role, I follow my instinct.
+- I am never happy to see myself on screen.
+- Come to think of it, I have really travelled across accents.
+- I can really harsh on myself.
+- I am so happy to be a meme.
+- I am so self-critical.
+- I want to really appreciate the work I do.
+- Personally, I am a very laid-back and a lazy person.
+- Acting is my first love.
+- It will take time to educate people about sustainability, why it is so important and how it will make a difference to our planet.
+- I'm really good at improvising on stage, so if I'd forget a step, I'll just make up something. And the rest of the dancers would be like... what is she doing!? It always looked like they have forgotten the step, so I got away with it!
+- Even if I'm not shooting I just love being on set.
+- Maths? Aiyyo. You know what? I always had a love and hate relationship with the subject.
+- You can be a part of a group or dance at home and even involve your family. Trust me, it's fun. It's a good exercise for your mind, body and soul.
+- I have realised that when you start thinking like the person you are playing, it gets easy to emote.
+- I love anything related to acting.
+- Mount Abu is a beautiful place.
+- If my mind gravitates to a role, I take it up, regardless of the length.
+- I have always wanted to be an actor. I like to enjoy every single day of my life, because I am living my childhood dream.
+- I don't like my work. I didn't like my work in 'Dangal,' and then in 'Photograph,' I was cribbing.
+- When I got to know about techniques, I realised there's a lot more to dancing than Bollywood. Till then, I had thought choreography simply meant doing your own steps.
+- I feel in today's time, you are truly successful if a meme is based on you.
+- Actors don't have to be conscious all the time or up their game when it comes to fashion.
+- Anything to do with Anurag Basu sir is always special and interesting.
+- I became Aamir Khan's fan after working with him.
+- I'm working with great directors and actors, and I'm getting to learn so much about the process of acting. I'm extremely grateful for these experiences.
+- Even when I meditate, I imagine myself in a dance movie, doing these turns and flips.
+- Regardless ofwhat happens, whatever you become, what you may do, your parents won't stop suggesting things to you.
+- It's really important to prove yourself as a performer and as an actor.
+- Being on set in front of the camera, it makes me happy and extremely grateful whenever I'm in front of the camera.
+- On a film set, where there is so much chaos, I find inner peace.
+- I love working out. It makes me happy.
+- I was in the choreography committee of my college, and we used to have an annual production and participate in inter-school competitions.
+- There is no reason why India and Pakistan are fighting. Similarly, there is no reason when two siblings fight.
+- Not everyone is a good dancer but you just have to enjoy doing it. Dance as if no one is watching.
+- I couldn't have asked for anything better than 'Dangal' because we got to prove ourselves there in every way. The character has really changed my life, so it's really important to start off with a really good debut.
+- I have stopped making career plans; they never seem to work out for me. So, I'm going with the flow, enjoying each day of being an actor.
+- My mother used to call me everyday after moving to Mumbai and would tell me to take up this course or join some distance learning course and to please do my Masters, but, yeah... I didn't do it.
+- I don't like to push myself, because I am not that kind of person.
+- Dancing does make you happy. It has helped me deal with the hardships in my life.
+- Every time my parents and sister visit me, I make sure my mother cooks chole bhature for me. She makes the best chole bhature in the world.
+- My character in 'Shakuntala Devi' is based on a real person, her daughter Anupama Banerjee.
+- Acting is an art that I am learning on the job. The thing that I can do on my part is to follow and prepare myself for the characters that I choose to play.
+- I am very glad that I got to work with Vidya Balan. I am a huge fan of her work.
+- Getting a chance to work with Vidya Balan as her daughter is quite cool. 'Shakuntala Devi' is a biopic and I'm quite kicked about it.
+- When I came to Mumbai to audition for a dance reality show, I was in top 100. I doubted myself and did not get through. It was a lesson for me... After that day, whenever I used to go for auditions, I never doubted myself.
+- I think we all know that in a film the content is the hero.
+- I have tried a lot... to be perfect all the time. It doesn't suit me. It doesn't make me happy and I do things that make me happy.
+- We humans have that power to express ourselves through various emotions.
+- I want to see myself dancing on the big screen.
+- It definitely does take some time to get accustomed to the character you're portraying and takes an equal amount of time to get out of it.
+- There is so much to explore in Delhi. The city has many interesting experiences in terms of places and foods to offer. There are so many options that one is usually spoilt for choice.
+- People may think that two sisters are always on the same page and that they share a great rapport, but I did not have that sort of an equation with my sister, Shagun. While growing up, I would hate her.
+- If you don't have a trust with a person then you can't have a conversation with them.
+- You don't necessarily get the background of a character every time, So, you have to create it mentally and write about it. This is something I learnt from Geetanjali Kulkarni with whom I worked in 'Photograph.'
+- It is really hard for me to impress myself with the work that I do.
+- I came to Mumbai to participate in a dance reality show and thought that could be my ticket to Bollywood. Gradually, I discovered that acting is what I am more passionate about and that passion has helped my boat sail.
+- I don't want to restrict myself and want to work in all genres of cinema.
+- When I decided to become an actor, I realised that every role that we play on screen requires a different kind of prep. I learnt wrestling for 'Dangal,' went through an emotional grind for 'Photograph' and stepped out of my comfort zone and shed too many inhibitions for 'Pataakha.'
+- I'm boring. I'm also a bit reticent and shy but very calm overall.
+- With every film that I am doing I am learning new things either about myself, or about filmmaking.

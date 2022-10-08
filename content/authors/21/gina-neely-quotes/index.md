@@ -1,0 +1,24 @@
++++
+author = "Gina Neely"
+title = "Gina Neely Quotes"
+quotes_len = "18"
+description = "the best 18 Gina Neely Quotes"
++++
+- I say now, if I'm not laughing a whole lot on the first date, you're pretty much not going to get a second one, I can tell you that. It's all about the laughter and a good time for me.
+- This new ministry of all this swiping and Tinder and matchmaking and Date.com and eHarmony, I'm still old-school. I like to meet people face to face.
+- All Southern cooks have tried their hands at shrimp and grits, and each one has his or her own version of the dish. My mom used to season her shrimp with garlic and onion and just prepare the grits with a little salt and pepper.
+- I'm a pasta girl, and I like dishes that are easy, one-pot dishes that are really quick.
+- You cannot be in your 50s and not change your diet. That ministry won't work. You can't keep eating burgers and fries and thinking you're going to look cute and fabulous and trying to squeeze into that little black dress.
+- If kids cook with you and participate with you, to me that makes them more apt to eat the food. They feel like they made the dish; they want to taste it. It's special, It's an effort.
+- You don't stop living because bad things happen. You keep going.
+- Life happens, honey. What are you going to do? Cry in a bowl of milk?
+- I think as we get older, we need a little weight on us to fill us out and make us look healthier.
+- Cooking has always sort of been my way to soothe the soul, if you will. I grew up around my great-great-grandmother cooking, and that's eventually where I learned a lot of things. So food has always been used to ease and comfort.
+- We cook for so many reasons. We cook when we're sad; we cook when we're happy.
+- I need a man that's comfortable in his skin and not threatened by a woman with a big personality.
+- I want to get married again. I love being married. I'm not against marriage, and I'm not against love.
+- Skillet corn bread has always been my go-to-comfort food, and my mom used to make it for me as a treat when I was younger. I do this for my girls now whenever I think they need a little love.
+- I think, for me, since I've always had a busy lifestyle, I try to take out a little time for me and exercise and do things that are good for me, because if I'm not good, then I can't extend that out to my family.
+- For me, being a public persona, I was always wondering, 'Was a man dating me for who I was? Was there an agenda? Did he want to be seen with me? Am I arm candy?'
+- I love spinach - I eat it like a crazy woman.
+- 'Down Home with the Neelys' was the highest-rated Food Network show in history. But the crazy part about it was I never wanted to do that show. I never wanted to live my life quite out loud like that.

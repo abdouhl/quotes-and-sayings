@@ -1,0 +1,18 @@
++++
+author = "Dave Morin"
+title = "Dave Morin Quotes"
+quotes_len = "12"
+description = "the best 12 Dave Morin Quotes"
++++
+- People love having a home. People love going to their house and sleeping in their bedroom and having a conversation around the dinner table. You don't particularly think of that conversation as a private conversation; you just think of it as something that happened in your home.
+- When you set out to create a new product, you usually do not start by trying to think of something completely new. You think of a product or concept that is already 'normal' to the world and then try to make it better. You make it Super Normal.
+- Any time you build a network, you have to help users find their friends.
+- As creators, we feel constant demand for innovation from the world. This puts immense pressure on the creative process and oftentimes can have a dampening effect.
+- Frankly, the hardest pieces of feedback we got in the U.S. was, 'I would love if more of our friends were on Path. It's hard to get them to join.'
+- We don't want to connect you with just anyone on Path. Without the contact list information, some of these features just don't work.
+- In mobile, people really love having single-use case experiences. They want low friction to getting to the application's use case.
+- In social, you have to innovate in information. If you have the same thing as everyone else, you're just not interesting.
+- Path does not spam users. Invites on Path are never sent without a user's consent - any allegations to the contrary are false.
+- We certainly hope that Facebook allows users to connect with their friends on Path and with any other partner applications in the future.
+- I have two iPhones: one for day and one for the night. When the day phone runs out, the night phone takes over. I never have to worry.
+- We give you a list of suggested friends to connect with who are already on Path. We notify you when other friends of yours join Path.

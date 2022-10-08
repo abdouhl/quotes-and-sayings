@@ -1,0 +1,33 @@
++++
+author = "Evander Holyfield"
+title = "Evander Holyfield Quotes"
+quotes_len = "27"
+description = "the best 27 Evander Holyfield Quotes"
++++
+- Well, number one I like dancing. Number two I knew it would be challenging because I had never done this type of dance before. I always wanted to and I happened to have the courage to go out there and give it my best shot.
+- The main thing about Bruce Lee is that, he was a little guy. And you know, his quickness, his aggressiveness, his explosive power, you have to be a great athlete to have all these, his body, his look, you know, all these things have to do with discipline and structure. He was able to go against the biggest guy, regardless of who he was.
+- Deep down, I reckon the sweetest moment will come when it's finally all over. When, at last, I know that I can stop fighting. Of course it'll also be a little sad. The sweetest moments, y'know, always come with just a little sadness.
+- Madison Square Garden, November 1984. I don't recall taking too much fear into the ring. I knew I could fight. But I got a big shock. They put me in with this rough, tough veteran called Lionel Byarm. He tested me to the limit. But I fought my heart out and, in the end, I prevailed. The story of my life, in my very first fight.
+- I beat Larry Holmes and George Foreman. I whupped Mike Tyson twice. I had my ear chewed off and spat on the ground in front of me. I've seen everything it is possible to see in boxing. I know this business better than anyone. So I live and die by my own decisions.
+- It is not the size of a man but the size of his heart that matters.
+- Well, of course a boxing match is hard because boxing isn't set for you to do good. You have to force your will upon someone, but dancing you don't have to force your will. It should be a lot easier because if I make a mistake I don't get hit.
+- I'm just one woman away, my mother, from being the same as Mike Tyson. I would've ended up like him if my mama had not been so tough and strong. A lot of people, including Mike, don't know I came from the ghetto. They think I'm too nice and proper. But that's the way my mama raised me - to look people in the eye and respect them.
+- If you don't take no chances, then you're not a performer. Performers always take chances. You go see a singer, they'll hit the high note. They'll hit that note, they're not afraid, they're gonna exaggerate the fact and make me enjoy it, make me say, 'Wow, I wish I could do that!'
+- I got three whippings a day from my mama.
+- They don't show Olympic boxing on TV in prime time. They haven't done that since 1988. In 1992, they showed one: Oscar De La Hoya. In 1996, they didn't show it. In 2000, they didn't show it. In 2004, they didn't show it. In 2008, they did not even mention boxing at all. You would think the United States didn't have a boxing team in 2008.
+- Sugar leaves you stranded; I make sure I have the proper amount of protein before I work out.
+- When at a young age you learn to face your fears, that makes the difference between people being champions and people not being champions.
+- The word of God steadies me. He says your trials and tribulations make you who you are. So you can see my whole story in the way I endured and overcame some testing experiences.
+- People who make the choice to study, work hard or do whatever they endeavor is to give it the max on themselves to reach to the top level. And you have the people who get envy and jealous, yet are not willing to put that work in, and they want to get the same praise.
+- That's the biggest problem with boxing in the United States. They do not promote it like they used to, when it used to be Howard Cosell and they showed it on 'Wide World of Sports.' Everybody knew all the fighters. Everybody was looking forward to the year when the Olympics came on.
+- A sight game is that I am hurt, but I aim to make you believe I am not even hurt, and with this confidence appearing on my face, I don't panic, otherwise your opponent will know that you are hurt. That's the whole art game in boxing.
+- Well, when I think of steroids I think of an image. You have the advantage over someone, which is a form of cheating. I guess it wouldn't be right unless it was legal for everybody. Reason it's not legal for everybody is because it can hurt people seriously.
+- No. I probably do better not being in politics. They have too much control over you when you are in politics.
+- My goal is to be the undisputed Heavyweight Champion of the World.
+- I came up poor. My mother only had a fourth-grade education. My dad didn't have any education at all. But they were very structured. They worked hard. You know, they didn't complain. They didn't murmur. And they believe in the Christ.
+- As far as working out, I know exactly what I'm doing.
+- We lived in a real rough place but my mother kept me straight.
+- From what I hear is happening, young Indian boxers have started to do well on the world stage and started to gain the attention of the general audience.
+- Fighters find it hard to give up doing what they do best - fighting for a living.
+- The game's been good to me and I hope I've been good to the game. I'm 50 years old and I've pretty much did everything that I wanted to do in boxing.
+- The big guys choose who they want to fight and they think about history: 'how many times I defended my title.' They try to break a record: 'how long I was there.' But if you look at the pedigree, who they fought, ain't nobody gonna give them credit for it because they fought a lot of people with no experience.

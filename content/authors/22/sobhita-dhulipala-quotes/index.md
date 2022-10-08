@@ -1,0 +1,106 @@
++++
+author = "Sobhita Dhulipala"
+title = "Sobhita Dhulipala Quotes"
+quotes_len = "100"
+description = "the best 100 Sobhita Dhulipala Quotes"
++++
+- My parents have always been supportive. I come from a very simple middle class family, where the upbringing is very traditional. So for them to give me the kind of freedom to exercise my choices is very fortunate for me.
+- I find a lot of happiness in playing characters that have a lot of emotions. But even more important is the team that I am working with.
+- I don't admire actors so much, actually.
+- In India, people tend to get categorised by their job or caste or colour. But in Kamathipura, despite their horrid living, it was truly eye-opening how kind and sensitive these women are.
+- I'd rather do less work than do bad work.
+- In Miss India, so much was about how you looked.
+- Renowned people from all fields receive unnecessary flak so often. Anonymity is misused, and it is a terrible thing to want to break somebody's spirit.
+- I do not morally judge any character and resist judging anybody in real life, too.
+- Choosing to remain vulnerable and sensitive despite disappointments or heartbreak helps me stay authentic to my life. It is the hardest part.
+- Earlier, I would never focus on how I looked because I thought I was just 'OK.' So my focus was on being well-read, good in studies, school captain. My personality depended on what I read, not on some magical genetic thing.
+- Being a Telugu girl, my heart always roots for Tollywood.
+- Whenever I overhear someone talking in Telugu, be it in the market or any random place, I get excited.
+- I've been living in Mumbai for a long time now, and the city has grown on me and even become my home for all practical reasons. But I'll always be a Vizag girl at heart.
+- I moved to Mumbai to pursue my degree after high school.
+- Acting made me realise this is me; this is what I always wanted to be. Even today, I am an awkward kid, and I feel most comfortable when I become a character before the camera.
+- Although I am a Telugu girl, I never felt that my debut in Telugu was delayed. I always wanted to be part of a good script, and I am pleased that 'Goodachari' hit the right notes.
+- I can't be in a film that I wouldn't like to watch as audience.
+- Every person is flawed. Do you think perfection exists? You, me, everyone - we have strengths and shortcomings; that's what makes us human.
+- There were huge films that I said no to because I felt I wouldn't have watched that film if it came out.
+- Anurag Sir is someone I have always looked up to and hoped to work with, like many other actors. It's a tremendous opportunity to be collaborating with him on my first film; I really feel fortunate. His conviction in me is very valuable.
+- My idea of a perfect breakfast would be French toast with sausages and tea.
+- I am such a reclusive person that, literally, when I am done shooting, at some level I sort of disassociate myself, and I get back to reading my books.
+- I love the breakfast culture - I opt for the French platter.
+- I see myself as a storyteller and want to do films that are being made all over the world.
+- I want to be associated with films that are content-oriented.
+- Anurag sir is someone every actor would want to work with.
+- I think most of my childhood, adolescence, and teenage years, I was struggling to feel validated - which led to a lot of my career choices as well.
+- Doing modeling was a fun thing for me. At a young age, being able to earn was exciting. I got to work with some very talented designers and models. But there was always a yearning in me to do something more.
+- Icons like Nagarjuna sir and Jagapati Babu sir have been so encouraging and shared such great energy, welcoming me into the Telugu film industry. It is motivating.
+- When I am older, I don't want to look at my films and not be happy about my choices.
+- I can't do the terrible mistake of thinking audiences are dumb and will accept anything I do. I want to be cautious about my choices.
+- Sensitivity, awareness, and conflict - these have catalysed my creative growth.
+- I was 19 or 20 when I won Miss India and then did some exciting work in fashion.
+- I've always been the person who has needed a creative outlet.
+- Of all the things I am and am not, I know that I'm not afraid.
+- Being a part of 'Mothoon' was unexpectedly character-building.
+- There are so many great directors and actors, like Dibakar Banerjee, Zoya Akhtar, Rakeysh Ompraskash Mehra, Vishal Bhardwaj, Anurag Basu - the list is very long. I hope at some point I get to work with them.
+- One's character is reflected in their choices after all. I'm glad to have been making ones that make my heart soar.
+- I like reading and writing, and I am a trained classical dancer.
+- Winning the Miss India Earth 2013 title proved to be a stepping stone for a career in modelling and, eventually, films, though I didn't aspire to become either a model or an actress.
+- The day women begin to feel good about themselves, they will truly feel empowered, and only they can do that for themselves. It will happen the day we stop seeking validation.
+- I didn't grow up watching films, as I was more academically inclined.
+- There are definitely directors I want to work with like Dibakar Banerji, Zoya Akhtar, Vishal Bharadwaj, and so many more.
+- Getting recognized for my skill is very important to me. 'Raman Raghav 2.0' gave me that.
+- I want to tell stories that I feel for, and I don't want to be a sell-out.
+- I'm a protein enthusiast, as it forms the foundation of our nutrition.
+- As a full-time model, exciting opportunities came my way, and I was lucky to be featured in the Kingfisher Calendar 2014. This helped me get noticed, and I bagged assignments to walk the ramp for well-known Indian designers.
+- I feel I'm a hard person to like.
+- I am lucky to have found an artistic companion in Anurag; there is a sense of belonging.
+- Characters are an extension of your imagination.
+- I watch a lot of Malayalam films and admire them greatly. The films have such wonderful content.
+- There's always this debate about how we need more good films but how many are willing to be part of such films.
+- I got my big break in Bollywood with Anurag Kashyap's 'Raman Raghav 2.0' when I got a call from one of the casting directors to appear for an audition. At that point, I didn't think that I would make the cut since I was auditioning for a Bollywood film for the very first time. Within an hour of the audition, I was told that I had been selected.
+- Before starring in 'Raman Raghav 2.0,' I must have watched only 20-odd movies, out of which eight were part of the 'Harry Potter' series.
+- My dream is to play ordinary characters. I have no interest in playing a pretty girl or an NRI girl.
+- Characters, like people, don't need to be right - only understood and, perhaps, accepted. We are all grey, lighter and darker, depending on our state of security.
+- My friend was interning at the Miss India office and asked me to go for an audition. I just wanted to clear one basic round to show it to my friends. 'I'm in this mind space, and I can do this, losers.' I cleared the first round, and then I wanted to do more.
+- As a person, I am an introvert.
+- Every time I decide not to do a commercial film, a masala film, I'm closer to myself.
+- Inclusivity is extremely important in any art form.
+- All I know is that it is important to stand up for ourselves, no matter how inconvenient the reality is.
+- I enjoy experimenting with food and dish out innovative food items as well.
+- I learnt a hard fact: that dignity is a luxury in our country.
+- Writing is my No. 1 passion.
+- I am a pakka South Indian at heart.
+- Finding that people are searching for my name and work on IMDb, which is the biggest data base for movies and celebrities in the world, is immensely special and motivating.
+- My mother is a teacher, and my father is a chief marine engineer.
+- I was initially excited about modelling, but soon, I started feeling detached with the job. I wanted dynamic growth in whatever I did.
+- Interesting stories appeal to me, much like it appeals to the audience. Or else I might as well become a banker and make more money.
+- When I moved to Mumbai for college, it was bit of a culture shock.
+- Every night before going to bed, I think about Vizag. But once you wake up, you have to catch up with life.
+- I'm not obsessed with the idea of fame or lots of money or social power. I can actually do want I want to do - I'm free - isn't that the greatest prize?
+- The Miss Eco-Beauty title is a very qualitative and important award!
+- I can't be selectively brave. I can't say something in the heat of the moment and then get scared when people raise their voice against my thoughts.
+- Stories are told not to preach or counsel people but to reflect the dilemmas of our time.
+- Miss India actually made me feel small.
+- I'm 87% socially awkward.
+- I have always wanted to tell stories. Even as a classical dancer, I revel in telling stories through my dance.
+- Anurag was always too passionate about 'Raman Raghav 2.0' to care about anything else. There never was a 'Bombay Velvet' hangover.
+- I grew up reading a lot on literature and all of that.
+- I love travelling.
+- I think the obsession with fair skin should end.
+- It has been quite a journey from Miss India to modelling and acting.
+- When I started working in Mumbai, I was interested in working in the indie and niche spaces, as they do make really good cinema, driven by good stories. But then, I decided to explore everything possible.
+- Anurag sir is very specific about his casting.
+- I would love to do a period film, a sports film, or an out and out action movie.
+- If one wants to change the way things are, one has to take risks and be part of different kinds of cinema, despite not knowing how it will be received. That's what thrills me.
+- I want to try everything. I don't want to limit myself to anything. I want to discover as many characters as I can. I just want to explore.
+- I get transported when I read books.
+- It is important to be clear about what you want and pursue that passionately.
+- Right after college, I participated in the Miss India contest and then went on to pursue modelling, as that seemed like the logical next step. But pretty soon, I started to feel stagnant in that profession.
+- Healthy food is very essential to keep fit.
+- Miss Earth, to me, means a lot more than an international beauty pageant. It implies a larger than life celebration of spirit, beauty, passion, and betterment.
+- If I choose to be part of stupid films, I don't deserve to call myself an actress.
+- I was 19, so validation played a huge role in my taking part in Miss India.
+- I look forward to playing characters where I want to play the ordinary, to be honest... Farmer's wife, tailor's daughter, the teacher characters that exist for real emotions.
+- It is certainly very thrilling to be given so much love and appreciation from the audience and critics.
+- Getting a part in 'Raman Raghav 2.0' was an unbelievable moment. I couldn't believe that it was happening to me.
+- I thought Anurag sir would be strict, and I had certain kind of perception about him, but he was warm and interactive.
+- I was born and brought up in Vizag 'til 12th Class.

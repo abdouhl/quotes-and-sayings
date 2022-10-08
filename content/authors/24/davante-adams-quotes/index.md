@@ -1,0 +1,106 @@
++++
+author = "Davante Adams"
+title = "Davante Adams Quotes"
+quotes_len = "100"
+description = "the best 100 Davante Adams Quotes"
++++
+- What drives me is getting the Super Bowl and ultimately trying to be the best receiver to play this game.
+- If I really make it look like I need to get outside, as a corner you have to respect that. If I run a slant and you stop it then you're like, 'Okay, great. I won.' But what if I would have kept going?
+- The biggest thing for me coming into the league was my last year in college I didn't think about the NFL one time. I just played ball and went out there and did what I did and let everything take care of itself. It worked out great for me.
+- Being able to overcome obstacles and to demand the most out of yourself is a quality that everyone needs to be successful.
+- It's nothing against anybody else. I just don't feel like anybody can guard me.
+- By running routes on air, with any quarterback, if I did routes on air with a D-II quarterback, I should catch most of the balls.
+- When you're running a route, timing is everything. You have an internal clock - a timer that goes off in your mind that tells you that you need to be ready for the ball - and you have to get to your spot on time.
+- When the numbers come it's great if we can talk about it, watch film and love the routes we're putting out there.
+- Usually, when a DB is trying to catch up to you, he'll run to your wake because his natural instinct is to trail you so you don't get too much separation.
+- That's how I've had success my whole life. That's the recipe for me, just locking in on the moment. But I start thinking about getting paid and all this other stuff, and my mind is not right. It makes it really tough to focus on what you've got to do.
+- Even getting the Lambeau Leap right was a learning experience. The wall is a lot higher than people think. You have to jump as high as you can.
+- Obviously, me being a big part of the offense, I'm going to get more looks here and there, and I'm going to do what I can with that, make the biggest impact I can for the team.
+- I like to think that with a double team, not every double team is going to be successful.
+- You can always get better and that's what I'm trying to do.
+- Honestly, as an athlete, you generally know. Your body talks to you. You know the difference between something that's hurting, sore vs. something that's going to hurt you in the long run if you try to go really push off or something.
+- It's tough to go out there and win a game with everybody healthy, let alone when everybody's kind of falling apart.
+- You can say what you want about me playing in the Mountain West, but I can only eat what's in front of me. I've dominated in my field and did what I had to do.
+- I'll catch a 25-yard pass and, typically, I'm spinning the ball and I'll be looking at the fans to try and pump them up.
+- I don't really think about the personnel too much, I don't have a desired matchup, I just like going out and playing football. I treat everybody the same when I get out there. It doesn't matter if it's Deion Sanders or if it's an undrafted rookie, I'm going to try to go out there and give them work all day.
+- No one wants to see a failed Lambeau Leap.
+- You've got to catch the ball. It's football. So you've got to do what you've got to do when the ball's punted to you.
+- The Packers have all kinds of traditions and rules that you only learn about when you get here. One of the rules is that receivers can't wear sleeves.
+- If you go out and practice super hard and then you go play in the game, it's going to be a lot more natural for you. You'll be able to catch the ball and think fast and start making plays, making people miss and turning it into the next phase of the play rather than just catching the ball and being surprised and happy that you caught the ball.
+- I would definitely say I have my head on straight, but that's due to my parents.
+- I feel like whatever team drafts me I'd fit into because they're going to get the best receiver in the draft. Regardless of if they really need a receiver early or not, the way I'm going to come in and work, they're going to get the guy they hoped they drafted and be excited about it.
+- I'm not going to be perfect. I'm human.
+- I want to be in the Hall of Fame.
+- It's tough to have a guy - not hinting at anything; it wasn't anything in the past - but when coaches are kind of on that roller-coaster ride, up and down, highs and lows, you never know what to expect. It makes it tough to come into work every day and be excited to go to meetings and things like that.
+- The way that I play is, I'm in the driver's seat.
+- I'm a guy who feeds off the energy of the fans heavily.
+- Some people just stick to what they do, and it comes back to bite them in the butt.
+- I think about scoring touchdowns a lot.
+- I had two offers coming out of high school in football and with more resources and things like that it could have been 20.
+- I've always been confident in my abilities all throughout my life.
+- I've earned the right to be paid the highest in the league.
+- Aaron Rodgers has always been one of my favorite quarterbacks.
+- I'll be running, the ball will be in the air and I'll feel like I've been in that moment before. It's basically deja vu, like an active deja vu, I guess you could say.
+- When you go up for the rebound, you can't wait for the ball to come down. You have to go get the ball at the highest point. That's how it is in football. If you want to win those jump balls and those 50-50 balls, you've got to go up and get it.
+- Once I started realizing I could lose people at the line of scrimmage, and essentially run a route on air. I figured that that was the way to go. So I just put a lot into that, and obviously I made it a big part of who I am as a football player.
+- I'm a simple man. I work out. I live and breathe wideout play and I love my family.
+- I'm good with the ball in my hand. A great red-zone threat.
+- I'm able to just play fast, and that's when the production comes.
+- I feel like if you ask people, certain people will say that I'm a top receiver. But if you ask people to name their top receivers, they won't mention me. So that's where the disrespect is coming from. I don't think they say, 'Davante Adams sucks.' But they think that top five, they put the same celebrities in there every time.
+- Aqib Talib has never seen a pass he didn't think he could take to the house.
+- I just trust in myself in what I can do.
+- People hear 'East Palo Alto' and they think, 'Oh, you're from Stanford.' They don't understand. It's like 'The Lion King:' You've got Pride Rock, and then you've got where the hyenas are. It ain't too far, but it's a completely different world.
+- I've never had an 'I've arrived' moment. I don't like that word, 'arrived.' If you say you've arrived, then you've achieved your dream. You've done all you can. 'I'm the guy now.' I don't like that.
+- I put a lot into my craft.
+- I've got a great support system around me, helping me through the adversity, whether it's us having a stretch of games where we're losing or if I'm not playing as good as I want. I just try to stay focused and keep my head down and don't look up until it's over.
+- I mean, I grew up with nothing. Crazy crime rate. Exposed to a lot of stuff that a young kid shouldn't be. Obviously, I would have loved to feel a little bit safer at times in my life.
+- I can't throw myself the ball. All I can control is running my routes and making my catches.
+- I just block everything out. It's not even something that I do. When the ball's in the air, everything goes quiet. That's how it is. I don't really think about it much. That's how I play. Tunnel vision.
+- That's just a trait that I have. I feel like I've always been a leader.
+- I wanted to be part of Jordan Brand, because I saw Randy Moss, my favorite receiver, wearing Jordans when I was younger. I wanted to do everything like Randy.
+- I'm great at getting six points.
+- I went under the radar my whole life.
+- You can't fine somebody for a peaceful protest.
+- There's certain guys who dictate or change the way they play based off who they're playing, and that still may translate to success for them, but the way that I play is, like I say, I'm in the driver's seat.
+- There were certain routes that I didn't get a chance to run in college.
+- You have to make sure you're the best at whatever it is, and I pride myself on having good hands.
+- I played a little football when I was really young, but I didn't start until my junior year. My cousin, who was a big influence in my athletic career over time, said you should go out for receiver. I said let's give it a shot. I went out and played a little and caught a couple balls over a couple dudes heads.
+- To be real with you, I have no problem with being a hermit, man.
+- The best way ideally to stop a wide receiver in the driver's seat is to get a jam on him and slow up their timing. But it just so happens that's literally my strongest tool in my bag. I just bank on me being faster and a little bit more technical than whoever it is that I'm playing.
+- People show love and things like that and I appreciate all of it, but you're only as good as that week so you've got to make sure that you continue to spoil the fans and the rest of the people out there in the world.
+- The awards or minor achievements along the way, the weekly things, hearing stuff like that makes me feel good obviously but that ain't what drives me.
+- Obviously you want to be a No. 1 receiver when it comes down to contract time and things like that.
+- Accomplished. I like that word. I feel like I've done a lot, but accomplished doesn't mean the end of the road. You can continue to feel accomplished.
+- I'm real serious about my job.
+- You ask DeAndre Hopkins or you ask Julio Jones who's the best receiver, I don't expect them, even if they did think it was me, I would expect them to say it was them because that's the kind of mentality you should have.
+- Obviously, I'm a competitor. I think everybody knows that. Everybody knows what I'm about and how I play football.
+- There's no drill that you can do as a DB to get ready for what I do on the field.
+- You'll hit adversity, and the good teams find a way to get it done.
+- This is a tough league to perform in consistently if you don't have your mind right, especially at the position that I play. You've got to focused, man.
+- I like to tell young athletes to make sure you're taking care of business in all aspects of life.
+- I pride myself on making plays and being open.
+- I think I'm the best receiver in the NFL. I do.
+- I'm from East Palo Alto, California. I grew up with zero dollars.
+- I just want to get the respect that I deserve.
+- I'm a confident player.
+- A doctor can't just come out and play because he's smart and understands the game on paper. He can dissect the hell out of it, I'm sure, but you can't just come and be on the field. But for those who have the physical tools, the mental game is everything. And I feel like that's one of my better traits.
+- Growing up, there was a lot of negativity that I could have been a part of. Fitness was a way to stay on the straight and narrow and stay safe.
+- People aren't coming out in postgame interviews saying, 'I'm the greatest.' That's not what it's about. It's about I know what I'm about, I know what I do, and I know I truly feel like nobody can cover me. So, when I get my one-on-one opportunities, I try to show that I can't be guarded. That's just a mentality and a mind-set.
+- Why any playmaker if you get them the ball early, it helps with their confidence and their mojo and their momentum.
+- We all know this is a pretty intense business. There's a lot that happens, a lot that goes on here. Just like any other job, you want to be happy, and once you've gained that respect, you want to be treated with that type of respect.
+- I feel like I have a rare skill-set with my quickness and my size. It kind of throws people off. It's deceptive with my speed.
+- That's what we play this game for; the opportunity to go win the ultimate prize.
+- Being able to get to the South and get some of that cajun food, that's always good.
+- Going down to New Orleans, that's where I end up with the best meals.
+- I want to go down as one of the greatest, if not the greatest, receiver of my era.
+- Everybody growing up where I came from that was the designer shoe. Nobody had Balenciaga's and all the stuff that we walk around in now. If you had Jordans, that was like a prize basically.
+- All I can do is keep getting open and keep scoring touchdowns.
+- You have to appreciate the slow grind because success is not going to happen overnight. It can happen overnight, but that's not my journey.
+- I'm always going to be optimistic.
+- Chemistry is not built in one practice or two weeks even. It comes over time.
+- Obviously you come in and you're not as vocal when you're a younger player just because that's just how it goes.
+- Most guys don't super jam because when you lunge forward, you can't retreat. You have to stay in there and commit to it. So you have to be confident that you can deliver a strong punch and disrupt the receiver.
+- I don't really have any specific numbers as far as what I want to do, how many touchdowns, how many yards. I just want the film to look good, and hopefully that translates to me having a lot of yards and touchdowns, which ultimately leads to us having a shot at the Super Bowl.
+- I've always been able to dunk a little bit; I'm a big basketball guy.
+- You want to draft a guy that has production and gets the ball in the end zone.
+- When you start getting a little more confident in the playbook, you can think a little bit less and just play.

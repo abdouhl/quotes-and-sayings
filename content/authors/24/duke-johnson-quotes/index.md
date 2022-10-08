@@ -1,0 +1,15 @@
++++
+author = "Duke Johnson"
+title = "Duke Johnson Quotes"
+quotes_len = "9"
+description = "the best 9 Duke Johnson Quotes"
++++
+- Whether it's Brad Pitt up there, if there's a good moment up there, and you get pulled into the emotion, you're not thinking, 'Oh, that's Brad Pitt. He's an actor, and he's famous.' That's kind of the nature of storytelling, right? You sit around the fire and tell a story, and you can get sucked into that story.
+- I was the first in my family to graduate college.
+- Puppets interacting with other puppets is super complicated. You're juggling ten balls instead of three.
+- I'm doing a music video for a group called 'Die Antwoord.' That's fun, but yeah, I'm trying to get a live-action film off the ground, and that could take anywhere from a few months to the rest of my life.
+- Typically, with low-budget stop-motion, you can get away with a cartoony style.
+- Movement and physics: These are the fundamentals of animation. You don't notice that stuff if it's done well, but if fabric or liquid or hair moves weird, your brain is like, 'Wait, that's not real.'
+- When I was at N.Y.U., I studied abroad in Prague, and I learned about some of the European animators, like Jan Svankmajer and Jiri Barta. I didn't think at the time that I would end up doing anything like that, but I certainly thought it was very cool.
+- Walking in stop-motion animation is probably the most difficult thing you can do... The way that they have these puppets connect to the set is they actually drill a hole in the set, and they put a threaded rod up through that hole and screw it into the bottom of their foot, and that keeps them in place.
+- I literally said it was my dream in life to direct a Charlie Kaufman movie.

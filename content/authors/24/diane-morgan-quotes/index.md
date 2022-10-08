@@ -1,0 +1,30 @@
++++
+author = "Diane Morgan"
+title = "Diane Morgan Quotes"
+quotes_len = "24"
+description = "the best 24 Diane Morgan Quotes"
++++
+- I've always wanted to make people laugh. It's been my only ambition, ever since my dad introduced me to the genius of the great comedians: Tony Hancock, Woody Allen, people like that.
+- I'm often spotted when I'm staring at something open-mouthed and I'm sure people must think I'm not acting.
+- I'm from a long line of really negative people.
+- My neutral accent is Bolton.
+- I wasn't a normal child. No boybands.
+- I don't want to play a copper. I couldn't do it.
+- I've only written stand-up and sketch before, so writing something long-form on my own is proving quite difficult. But I'm enjoying it as well.
+- While other kids were into New Kids on the Block, I was into Harold Lloyd and Stan Laurel.
+- I think we should do 'Cunk On America'!
+- There are always going to be angry people. I never get involved in Twitter. 'Cause where does it end? You just end up with people wanting to stab you.
+- The interviews themselves last a couple of hours and are cut down, so you can take your time lulling someone into a false sense of security before you hit them with the really weird questions.
+- Sitcoms are usually sweet with no viciousness.
+- I've always wanted to do a sketch show. And they've sort of gone out of fashion for a bit, or they've just stopped doing them for whatever reason.
+- You can get an interview that goes smoothly at any time.
+- I want to play oddballs. I want to play weirdos. There's not enough weird. Everything just seems a bit mainstream to me, and I long for anything that's a bit unusual.
+- I love talking about myself! Why would you not want to talk about yourself?
+- I'm generally not interested in Shakespeare or 'Broadchurch'. I only want to make people laugh, really.
+- When I was at drama school, people weren't taking pictures of themselves every five minutes. So I didn't realise how I looked. It was only when people started taking pictures of themselves that I looked at myself and thought: 'Oh my God, I look really miserable.' Even when I'm happy I look sad.
+- People get so heated about it and can't see the funny side, I think. And plus, everything's been said. It must be really difficult to come up with new jokes about Brexit.
+- So I was thinking I go to America. I think that would work, conquering America. Because they're so upbeat and positive and polite.
+- I've just got a very still, deadpan face, and I know how to use it.
+- I think some people can't understand why you wouldn't want kids but I can't see any advantages at all. We're overpopulated as it is. Plus, I hate thinking the only reason I'm here is to pop out a kid or two. I'd rather leave something else behind.
+- I don't want to do many panel shows. I'm a comic actor, not a comedian. There would be something wrong in Steve Coogan or Julia Davis doing panel shows all the time.
+- I'm happy doing what I'm doing. I do think, though, there were great comic actors like Thora Hird and Max Wall who only got taken seriously when they did straight roles at the end of their careers.

@@ -1,0 +1,32 @@
++++
+author = "Darrell Hammond"
+title = "Darrell Hammond Quotes"
+quotes_len = "26"
+description = "the best 26 Darrell Hammond Quotes"
++++
+- I've become fascinated by the idea that it's really achievable to make two or three small improvements in a week and by the end of the year, it's 150 improvements.
+- It's tough to play the right chord on the instrument when there's someone out there who wants to kill you.
+- I ran into an extraordinary doctor. He got up inside my head and figured out how my brain processed things, what my core values were, what my inner dialogue was.
+- If I can get a sanitized version of reality, I'll take it.
+- If you're injured, it changes the way you move. If you're injured, it changes the way you talk.
+- I've learned sometimes you just have to take the bad from people.
+- When I left my parents' home when I was 19, I went to the University of Florida, and within 24 hours was in the mental health department. And within 20 minutes, I was being told by the director there that they didn't have what I needed there.
+- I'm not sure how a world leader reacts to the work of a clown.
+- I think I wanted to write a book about the relationship between the victim and perpetrator in which the victim agrees to remain silent.
+- Everyone always told me that I had the symptoms of a P.O.W.
+- I belong to the Democratic Party.
+- I perform in the major leagues of what I do. It's incredible.
+- I've seen the hell these people go through.
+- College kids, don't be taking examples from me.
+- I was diagnosed with everything from schizophrenia to multiple personality disorder.
+- I'm not a doctor - so I can't describe flashbacks well - but it is like you're living it again.
+- Performing with anthrax in the building is not nearly as difficult as performing in a home where you might get stabbed at night.
+- I don't know if I want to be a big star though.
+- I called my mother up and I said, 'You know, I've been to the best doctors in the world and I've spent almost half a million dollars and they're telling me I have symptoms of a P.O.W. and all I did was grow up in your home.'
+- The danger with running for president is sooner or later some sound bite is going hit.
+- I was never in a mental institution for a long time. I was in psych wards.
+- I'll get to make a lot of money and do some bad sitcoms.
+- I had a dad you know.
+- I have to give the SNL crew props - it cannot have been easy to work with me.
+- Some of the funniest people I know are not screwed up in the head.
+- Doctors didn't know what to do with me.

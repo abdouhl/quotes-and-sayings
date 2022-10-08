@@ -1,0 +1,87 @@
++++
+author = "Deepika Padukone"
+title = "Deepika Padukone Quotes"
+quotes_len = "81"
+description = "the best 81 Deepika Padukone Quotes"
++++
+- At some level, I feel it is nice to know that a film of yours is doing well at the box office and has also got great reviews. That feels like success.
+- I don't want to be typecast as a heroine who does a certain kind of cinema, which is why I experiment with the types of films that I do. But yes, I won't deny that romantic love stories or romantic comedies are what I enjoy doing the most, because as an audience those are the kind of films that I like watching.
+- There are days when I love a fresh blow-dry, but sometimes I just go with bedhead.
+- My parents never raised their hand or fired me. Their way of disciplining me was to tell me what is right or wrong.
+- I've always believed that as actors, one of the biggest advantages of being in the film business - not just of being actors, but being in this industry - is the fact that you get to travel so much, and you get to see places that you probably would not if you went just as a tourist.
+- Relationships or not, I believe that people don't need to know about my life beyond a certain point.
+- I'm a strong believer in the fact that women are born to multi-task. God has made us like that.
+- The best feeling is when you are remembered for the character you play on the screen and people associate you with that character. There is no better feeling than that feeling.
+- I have fought my own battle with depression, and it was important for me to bring a little awareness about it for others.
+- I have a lot of friends, but my biggest fear is loneliness. I miss my family in Mumbai, and my biggest nightmare every day is to go back home alone.
+- A script narration is like watching a film, and I react to it like an audience with my own instinct. After that, I look for what is my character, what will I bring to the table in that role, how challenging will it be.
+- You need to feel like you're wearing the clothes, and they're not wearing you.
+- I don't think you need any kind of backing here in the industry. I think what you achieve in your life is the result of your own talent and hard work.
+- I don't have an issue with marrying an actor, though it's definitely tough. I work with actors and interact with star wives, and I don't know how they do it. Loyalty is a very important factor for me, and I need to be in a relationship where the person will complete me and fill me up.
+- I was in Mauritius, shooting for 'Break Ke Baad,' and I went for skydiving. It was a life-changing experience. Travelling, dancing, and reading are my other pastimes.
+- I'll only move in with my husband. There's no question of a live-in relationship.
+- Diwali means family, so either I go down to Bangalore, or my family comes to Mumbai. I always ensure I take a few days off.
+- I know the importance of family. I mean, it really completes me as a person. I want lots of children; I want so many children. I look at babies' pictures, and I am like... I love kids.
+- India is home, and that's never going to change.
+- Of course! It takes a lot of strength to mend a broken heart. Channelising energies into your work helps, but also to be able to accept situations for what they are instead of questioning them helps immensely.
+- I'm not into superhero movies, but I love cartoons. Tweety bird is my favourite.
+- No other aspect of filmmaking has tempted me to do a film other than the script and the story itself.
+- When I finished 'Cocktail,' it took me a very long time to get out of Veronica's mindspace, behaviour, and zone. I had to reconnect with who I am. It is a similar story with 'Bajirao Mastani.' Some films demand that.
+- You can't create chemistry. In fact, the chemistry between two actors is for people to see, sense, and judge. The only thing we can do as actors is to come on board individually because we feel the same kind of passion for a script and for a director to cast us because he feels that, as actors, we'll do justice to that part.
+- It's good to be slightly ambitious, but I believe one shouldn't be too calculative. It's good to be on the edge, but I have never followed my mind. I have always followed my heart. And it has yielded the right results.
+- I have always believed that chemistry can't be created between two people. You either have it or you don't. The script can only enhance it.
+- There are certain things I talk to my mom and certain things I speak to dad for. But I also know that it has never been that I can tell my mum something and my dad won't know. They are very dependent on each other even though they may not say it or realise it.
+- For me, competition is good; that is what keeps me on my toes and keeps me going. I am always trying to better my own work, do better than my earlier films... do films that are challenging and exciting for me.
+- I can't resist South Indian cuisine, particularly what is prepared at home. My mom is my favourite cook. She can cook a variety of cuisines. I savour her cooking at home, and she's undoubtedly the best.
+- Being sad and being depressed are two different things. Also, people going through depression don't look so, while someone sad will look sad. The most common reaction is, 'How can you be depressed? You have everything going for you. You are the supposed number one heroine and have a plush home, car, movies... What else do you want?'
+- When I realized I was depressed, then I started reading up about it. When I read that one in four people are depressed, I felt that I'm not the only one. I also felt that how many people must be feeling suffocated to fight this battle all alone. I just wanted to reach out and tell them that even I'm like you, and it's okay if you feel like that.
+- I feel ups and downs are a part of one's career, and this totally depends on how you take it. You can either be knocked down by the negative things, or you can take it in a positive way and learn from it.
+- I think for everything that people say about me as a person today - whether it's about being disciplined and grounded or whatever - I think a lot of it is a credit to my father, who has been a massive influence in my life both professionally and personally.
+- Once the film is done, then I like to watch myself. I know some actors say that they get very self-conscious watching themselves on screen especially if they have to cry in the scenes, they don't like the way their face contorts, but I have no such issues.
+- I try and work out as often as possible. Since I travel very often, it becomes very difficult to have a daily work out routine, but I practice yoga every day or try and play some sport. Also, I am very aware of what suits my body in terms of food and exercise.
+- Comedy is the most difficult. Comic timing is something which you either have it in you, or you don't. You have to have a good sense of humour to be able to understand it. A split second can make you lose the punch.
+- While I believe that when you are in the glamour industry, you have to look your best, I also believe being skinny is not 'hot and happening.'
+- The only day I will worry is if I stop getting exciting roles. As an actor, I have so much to give. There's a lot of fire and hunger in me to juice every part that I get.
+- I am not interested in churning out a certain number of films every year. For me, it's about the quality of work. I think it's about following your instincts and doing a film for the right reason.
+- Preparation is definitely important, but it depends on the kinds of roles I do. Like, I completely identify with my character in 'Yeh Jawaani Hai Deewani.' I had to be myself and I didn't have to actually prepare for it.
+- I believe chemistry is based on the trust between two performers. What actually works is something intangible - being extremely comfortable in each other's presence.
+- I was born in Copenhagen, and when I was a year old, we moved to Bangalore. I was always a shy person and was happy with just a few friends and that came from my own social awkwardness. I did not know how to make conversations.
+- I am always surrounded by very, very charming men, very intelligent men with a great sense of humour who always keep me entertained and pampered.
+- The fruit of your own hard work is the sweetest.
+- I've not been in a live-in relationship. But I've been exposed to various kinds of equations that can exist between people. When I came from Bangalore, it was black and white. Over the years, I've realised that there's more to what we see on a day-to-day basis. There are all kinds of relationships, all kinds of equations.
+- I like statement earrings.
+- I am someone who can't hold on to negativity or hold on to grudges. I might feel something at a certain point, but I get tired after that. I don't carry it with me. I forgive and forget very easily, and that's the only way to be happy and peaceful.
+- When you work on a film, it's important to feel that you are starting afresh and doing it for the first time. Also, it's important to have those butterflies in your stomach; you need to wonder how you are going to approach the character and whether you will be able to do justice to the part.
+- I don't think I am a star; I consider myself like any other girl who is of my age. Others may be working in office and doing different jobs. Similarly I don't think I am doing something different... I am also working.
+- My effort is to slip into any role that is offered to me. The minute you go into those costumes, those grand sets, and start prepping up for the role, you become the part or at least start feeling the part.
+- I would like to believe that I am a collaborative actor. That's why I love all the directors I have worked with in recent times, as they are all collaborative directors. I think my constant desire is to keep bettering my own work. I don't get easily satisfied with my work; I am very critical of it. I learn from my mistakes.
+- I am a big foodie, so much so that I eat in every half an hour. This is the secret of my glowing skin.
+- Maybe because I am from a sports background, I don't give up easily. I am a fighter.
+- As an actor, I am only excited about doing good work - be it in mainstream Hindi cinema, Hollywood, a French film, or a Marathi movie.
+- I'm quite happy having stuff like quinoa, sushi, and even vegetable juices.
+- Comfort is of great importance to me. I really want to encourage girls to dress in whatever they feel comfortable in and not get bogged down by fashion trends.
+- I am not very comfortable about dancing at weddings and New Year parties. Maybe it's because of the way I have been brought up; I wouldn't want my family to feel that cringe moment. Dance is an art for me.
+- I need to be loved. I need to be nurtured. I also need peace and stability in my relationships. I can't be in volatile relationships.
+- I meditate. I breathe out what I can't control and focus on the positives.
+- Food makes me happy. Make me work round the clock, but just feed me first!
+- 'Piku' was driven by subtleties. Most films come with the padding of the sound, the visual, the drama.
+- I guess I learnt to appreciate old Hindi-movie music from my dad and somewhere down the line picked up jazz as well.
+- My parents worry all the time because I trust people very easily.
+- Being a movie star isn't easy. It requires a lot of commitment and sacrifice. Your career goes through extreme ups and downs. You are judged all the time. Great things are written about you, but at the same time, not-so-good things are also said. At times, things are said about you that are completely untrue, and people mostly try to pull you down.
+- I still live as normal a life as anybody else. I have two homes to run. I have my staff to take care of. I work, pay bills and attend society meetings like everybody else.
+- People talk about physical fitness, but mental health is equally important. I see people suffering, and their families feel a sense of shame about it, which doesn't help. One needs support and understanding. I am now working on an initiative to create awareness about anxiety and depression and help people.
+- I don't look at it as Hollywood or Bollywood, but, of course, my roots are here, and at the end of the day, it's about your roots. You can't take India out of me.
+- There is a strong side to me, that is of a homemaker. I look forward to spending time at home in the evenings, cooking a meal, chatting with my parents and inviting friends over.
+- My character in 'Cocktail' was different from my personality. Homi Adajania took me to London, showed me how girls dress and behave there. I had not seen that kind of lifestyle before.
+- Yes, my life has changed in terms of the fame and the success, the number of eye balls on you all the time. I like to believe that it has not changed my ideology, the person that I am. I have people like Anna and my mom, my friends who tell me that.
+- I'm such a big fan of Woody Allen. I once tried staying at the same hotel as him, hoping I would bump into him!
+- I am methodical to the point of being obsessive-compulsive. And I have always been good at multi-tasking.
+- I wish to be appreciated not only as a film star but also for the person I am. If I manage to bring a smile on people's faces, then I think I'll be successful.
+- My parents have been very supportive, in fact, it was my mother who identified that what I was going through was actually depression. My family and friends never let me feel as if something was wrong with me. They made me feel that what I was going through was okay. They supported my decision to take medication for depression.
+- I have always been focused on my job. No profession allows you the luxury of being half-focused. If you're not into it, you're not there. And the film industry is all the more harsh in these cases, perhaps because it's a business of the limelight.
+- I've not really watched too many English films. I've grown up watching Indian cinema, mostly.
+- Even though I played national level badminton, I told my parents when I was in 10th that I was not interested in continuing. Being a model or actor fascinated me from a young age, and I even did a couple of ads when I was just eight years old.
+- Every film teaches you something; every experience on every film set with every co-star teaches you something. You learn something new. I think the challenge is to keep working harder and doing better.
+- To me, the mind and body are one. I'm very transparent, in a way, and people can very easily make out what mood I'm in.
+- Everybody doesn't get to do each and every film. I don't compete with others; I compete with myself. I have been an athlete, a sportsperson; so I know how to be competitive in a healthy way.
+- I hate kitten heels; they're useless. Either wear heels that are dangerous, or don't wear them at all.

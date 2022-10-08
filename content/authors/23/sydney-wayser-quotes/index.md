@@ -1,0 +1,16 @@
++++
+author = "Sydney Wayser"
+title = "Sydney Wayser Quotes"
+quotes_len = "10"
+description = "the best 10 Sydney Wayser Quotes"
++++
+- 'Bell Choir Coast' is about a fictional land where I was able to start over, discover myself, and learn to take life a lot less seriously.
+- I would love to play with Rufus Wainwright. He's one of my favorite songwriters.
+- The song 'Wolf Eyes,' I wrote because I felt like I was such a kitten. I want to be more of a wolf. I want to be stronger and more independent. I sort of wrote the song for that.
+- I made my own fictional land, which is 'Bell Choir Coast.' It was a response to feeling really, really lost, and it was what I was looking for.
+- I was 17 when I released my first record. I didn't really figure out what I wanted to say, how to get a message and put it together.
+- I asked my designer friend, Sam Klemick, to make a headdress for me, drawing inspiration from 1920s headpieces, Athena and Joan of Arc. Before each show, I have this quiet meditative moment where I put the headdress on and gather my thoughts and strength.
+- I was making more electronic and synth-based music, and when I changed my name, it helped me grow and liberate myself a little bit.
+- I'm all for skinny jeans, a flowing blouse, patterned flats and chunky jewels.
+- I wish I could have performed with Jeff Buckley, but I missed my chance.
+- I love mixing and matching patterns, styles old and new, feminine and masculine and drawing inspiration from characters like Annie Hall.

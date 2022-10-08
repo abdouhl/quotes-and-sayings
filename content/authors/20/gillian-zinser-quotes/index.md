@@ -1,0 +1,17 @@
++++
+author = "Gillian Zinser"
+title = "Gillian Zinser Quotes"
+quotes_len = "11"
+description = "the best 11 Gillian Zinser Quotes"
++++
+- The people in my life are friends I have by choice. I've made a conscious effort to have them in life. I only have the time and energy for so many people, which has cut down my friend group to a handful, but I'm so much happier with fewer good people, who really do know me.
+- I'm always after boys who don't want me, I'll tell you that much!
+- In N.Y. you're always around people, but in L.A. you can go days without seeing anyone.
+- I am mad about hats. I collect them as souvenirs from my globe trotting.
+- I love the way little kids dress themselves! They're completely carefree about how others perceive them.
+- I'm definitely much more of a beach bunny. I prefer the sun over the snow.
+- I was more comfortable with guys growing up, but now I find myself more comfortable in my own skin and open to people, regardless of their gender or popularity or any other label, as a result.
+- I grew up not having very many girl friends. Girls tend to be competitive. I actually went to the school 'Mean Girls' was written about, so you can only imagine what my high school experience was like!
+- I've always been a jeans and a T-shirt kind of kid!
+- I'm inspired by anyone who's honest in their own expression, people who truly beat to the rhythm of their own drum.
+- I'm in love with dream catchers. I collect them from every trip I take.

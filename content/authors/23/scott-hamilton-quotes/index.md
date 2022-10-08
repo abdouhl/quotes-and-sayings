@@ -1,0 +1,35 @@
++++
+author = "Scott Hamilton"
+title = "Scott Hamilton Quotes"
+quotes_len = "29"
+description = "the best 29 Scott Hamilton Quotes"
++++
+- I didn't want to be the sissy figure skater, you know.
+- Male figure skating is different than female figure skating; we're not America's sweetheart.
+- So as an amateur Olympic competitor I loved criticism, because it made me better. But now as a professional I don't really know how to channel it or where to take it, so I don't take it quite as well.
+- I was more interested in skating and the girls and traveling than I was in calculus.
+- I was nine-years-old when I first put on skates.
+- Half of figure skating is opinion, convincing judges.
+- Everything that I've ever been able to accomplish in skating and in life has come out of adversity and perseverance.
+- And the fact that I liked to show off and be the center of attention really lends itself to figure skating very well.
+- I'm very accessible. I don't get into this ego thing.
+- When you're expected to win and you have the press saying that you are going to win the Olympic gold medal, and you're the only sure thing in the Olympics, it can undermine your confidence.
+- But I never really thought that I would be extraordinarily successful at skating, it's just something that happened, you know.
+- The high road is always respected. Honesty and integrity are always rewarded.
+- I started skating and I kind of liked it because I could run circles around the guys that wouldn't pick me to play baseball.
+- Fame is a very confusing thing, because you are recognized by a lot of people that you've never seen before, and they're at a great advantage.
+- Rationality is not one of this industry's attributes.
+- I had a ninth grade teacher who told me I was much smarter and much better than I was allowing myself to be.
+- Most other competitions are individual achievements, but the Olympic Games is something that belongs to everybody.
+- Without strength and courage it's really hard to perform at the highest levels of international figure skating, because you're alone on the ice and you only have seven minutes over two nights to prove yourself.
+- What was really funny is that as I got older all those guys who called me a sissy in junior high school wanted me to be their best friend because they wanted to meet all the girls that I knew in figure skating.
+- The only disability in life is a bad attitude.
+- From the fall of October, 1980 to March, 1984 I never lost a competition.
+- I graduated a the top of my class in the '84 Olympic Games; I won a gold medal.
+- When you turn professional, you become an entertainer, and like every other entertainer, you don't want to get a bad review.
+- That's what makes the Ryder Cup in golf so much better than the Masters or the U.S. Open. To be a part of something that is not about personal achievement, but about representing everyone and sharing it with the whole country, it's wonderful.
+- Adversity, and perseverance and all these things can shape you. They can give you a value and a self-esteem that is priceless.
+- Always try to maintain complete tolerance and always make an effort to give people more than they expect.
+- And so figure skating was a great vehicle for me to kind of be competitive at something, without having to be big.
+- I just try to touch people's hearts in a way through skating, so they're not just witnessing a performance, they're feeling a performance and they're a part of it.
+- I don't think most teachers realize how much impact they have.

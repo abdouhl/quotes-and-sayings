@@ -1,0 +1,76 @@
++++
+author = "Javier Bardem"
+title = "Javier Bardem Quotes"
+quotes_len = "70"
+description = "the best 70 Javier Bardem Quotes"
++++
+- Life is not perfect.
+- I don't know how to drive a car.
+- I was raised not to be afraid to show emotion or imagination.
+- Everybody in Spain is sick of me. But in America, there's curiosity about the new kid on the block who doesn't speak English very well. The attention makes me feel vulnerable, which is something I hadn't felt in a while. But I like it.
+- You know I don't like to talk about my personal life.
+- I truly thank whoever's up there for giving me the opportunity to be loved.
+- Awards were made in Hollywood, in whatever the time it was created. They're to promote each other's movies. You give me an award, I give you an award and people will believe that we are great movies and they'll go to see them. It's still the same.
+- Imagine the situation between Israel and Palestine. It's such a big mess. You can be on one side or the other. But what's clear is that there's an urgent need for a solution there and that's been dragging on for so long.
+- I enjoy my job as long as I can create a character, otherwise it's boring.
+- When I see myself at 14 years old I can put my hands on my head and think: 'How could I have done that?' but at that time it had sense for me. You do the same when you're 20. And now, when you look at people who are 20 years old you ask yourself: 'Was I like that? Was I really like that?'
+- And the whole Oscar thing, that is just surreal: you spend months and months doing promotion, and then come back to reality with this golden thing in your hands. You put it in the office and then you just have to look at it sitting on the shelf. And, after about two weeks, you go: 'What is that doing there?'
+- The fact that I like to make characters doesn't mean that I like to watch my characters being made, my performance.
+- An award doesn't necessarily make you a better actor.
+- There is no middle ground in Hollywood; you're a failure or you're a success. That mentality is wild.
+- My truth - what I believe - is that there are no answers here and, if you are looking for answers, you'd better choose the question carefully.
+- What does my performance have to do with Russell Crowe's? Nothing. If I play Gladiator and we all play Gladiator with Ridley Scott in the same amount of time, maybe we have a chance to see who did it best.
+- When you put gas in your car you are making a political statement, because you are supporting the empires that control and continue the destruction of some countries.
+- The personal thing is something I have never talked about. And I never will. That is prohibited. My job is public. But that's it. When you're not working, you don't have an obligation to be public.
+- Many people out there don't have a choice in choosing their friends and the people they're being manipulated by. Thank God, I have that choice. I can use my judgment and choose.
+- The background - your own history - is way more important than what you can achieve as a professional.
+- When you are portraying somebody that has a very specific emotional weight, you feel like you're really starting to abandon your own body and go to someplace else.
+- I'm a great believer in stunt doubles. They do an amazing job.
+- Some quality performances and movies have a chance to be rewarded, but it's not like it's a bible.
+- I don't believe in stereotypes. Most of the time, stereotypes are just that.
+- I've always said I don't believe in God, I believe in Al Pacino.
+- I am always saying, 'I don't believe in God; I believe in Al Pacino.' And that's true. If I ever get a phone call saying 'Would you like to work with Al Pacino?' I would go crazy.
+- I've always said that playing rugby in Spain is like being a bullfighter in Japan.
+- The middle and working classes are paying the debt that the financial markets created.
+- I live in Spain. Oscars are something that are on TV Sunday night. Basically, very late at night. You don't watch, you just read the news after who won or who lost.
+- I have a man and a woman in the same body; I have the male and female values in the same body.
+- I don't really care where movies come from as long as they're worth making.
+- But I remember the moment when my father died. I wasn't a very committed Catholic beforehand, but when that happened it suddenly all felt so obvious: I now believe religion is our attempt to find an explanation, for us to feel more protected.
+- Bond is the longest-running franchise ever and there's a reason for that: they are action movies but they are also touched by current events without being political or too serious.
+- I think we are living in selfish times. I'm the first one to say that I'm the most selfish. We live in the so-called 'first world,' and we may be first in a lot of things like technology, but we are behind in empathy.
+- I do respect people's faith, but I don't respect their manipulation of that faith in order to create fear and control.
+- We actors always say how difficult and physically demanding a role was. But give me a break, it's only a movie.
+- But don't call me an actor. I'm just a worker. I am an entertainer. Don't say that what I am doing is art.
+- I've always belonged to the street, and I always will. It's in my DNA.
+- I will work with a director who has good material because at the end of the day, that's what counts.
+- We live in a world of denial, and we don't know what the truth is anymore.
+- The good thing about being an actor, and the gift of being an actor, is that you are beautifully forced to see the world with different eyes.
+- I want to act because I don't know how to do anything else.
+- When you know people are really at peace with who they are and what they do, they collaborate and want to help you to improve.
+- The award is important in order to bring people to the movie theater. That's the only principle meaning of any award.
+- I have this problem with violence. I've only done one movie in almost 20 years where I killed people. It's called Perdita Durango. It's a Spanish movie. I'm very proud of the movie, but I felt weird doing that.
+- I was emotionally and physically punched in the stomach. This is not a place where you go and deliver the lines and then you come back. It's kind of a life-changing experience. But it can't get better than this for any actor - this is like an opera.
+- I can't imagine what it would be like being James Bond 24 hours. That must be exhausting.
+- I don't like to talk about my personal life.
+- Really, I don't see this heart-throb thing at all.
+- I retired from rugby because I was old and getting really slow.
+- I do a job and am lucky enough to do a job that I love, but it is a hard one. I'm not saying it is as hard as working in a coal mine, but it is still difficult in a different way. Sometimes you have to go through very strong emotional journeys and then come back to yourself. And that can be difficult to control.
+- The only thing I can do is act, but it's not something I even feel comfortable doing. It costs me a lot, because I'm a shy person, even if I don't look it.
+- I believe in people.
+- We live in the moment now where this whole movie business is crazy.
+- Even in the darkest regions, people have discovered their right of freedom.
+- I look at myself, and I see a Spanish person who's trying to be understood by an English-speaking audience and is putting a lot of energy into that, instead of into expressing himself freely and feeling comfortable.
+- This great imperialistic world called the United States has made us believe that an Oscar is the most important thing in the world for an actor. But if you think about it for five minutes you realise it can't be.
+- I truly don't have any formula for the choices I make.
+- There is no good side to celebrity.
+- You want to do your job well so that people in the future say, 'OK, he's not bad, let's hire him.'
+- Every time I wake up, I see myself like somebody beat me up.
+- My concern is to continue respecting my work as I've done since I began as an actor and I could only do that if I'm strong enough to keep on doing what I think best in an artistic way.
+- I used to be a good party boy. I'm old. I'm an old man. You pay the consequences. I'm just fine with a couple of drinks, no more than that.
+- The bad news is that only the bad people reach the news because they are noisier.
+- People have been born in refugee camps and they are getting tired of that.
+- Now, there are so many movies, so many festivals, and so many awards going on, each judged with each other, like your work is worse than others and that's not fair. How can you tell what's best and what's worst from these awards? We're talking about art.
+- Sometimes I say to myself, what are you doing in this absurd job? Why don't you go to Africa and help people? But I cannot help people, because I am a hypochondriac.
+- Celebrity is very weird.
+- When I was born, there was a very isolated idea of what it meant to be a man or a woman, and you belonged to one gender or the other.
+- I'm happily married.

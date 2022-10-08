@@ -1,0 +1,46 @@
++++
+author = "Sam Kinison"
+title = "Sam Kinison Quotes"
+quotes_len = "40"
+description = "the best 40 Sam Kinison Quotes"
++++
+- When has stand-up comedy been kind to anyone? It goes after anyone who's the target. Comedy attacks, man.
+- I don't deny my life-style is occasionally pretty wild.
+- Not that I want to put the entire rap music style down - I just don't like it. And I know somewhere there's gotta be another guy like that. There's gotta be a guy just like that - just like me. There's gotta be somebody, somewhere... Maybe, maybe an assassin type.
+- So many people counted on me to be the party, I had to move far enough away that they wouldn't want to drive there.
+- If I get married again, I want a guy there with a drum to do rimshots during the vows.
+- It was like going to church, except Ozzy Osbourne was there.
+- I'm attracted to heartbreakers.
+- I don't worry about terrorism. I was married for two years.
+- Everything can be satirized.
+- I've never been against women. That anti-feminist rap is bogus. I think men should be nice to women, buy them diamonds.
+- Rage only works if it is justified. That's the trick with rage. You gotta have a reason to be mad.
+- I'm not going to give up the shock part of my comedy.
+- AIDS is a horrible disease, and the people who catch it deserve compassion.
+- In the 1990s, it's OK to do comedy about the Chernobyl disaster or the Space Shuttle blowing up. It's acceptable to ridicule the Pope or the President of the United States, but God forbid you do a joke... about gays. The gay community is the last sacred cow in this society.
+- I guess they're tough jokes. But there's lots of things you either laugh or cry at. And you just can't cry.
+- I started saying things in church that didn't meet with a lot of approval - like 'Jesus isn't coming back.' They started throwing Bibles.
+- Society needs a couple of vents that say what you're not supposed to say.
+- Obviously I'm not a role model for impressionable youth.
+- Just because I do a few comedy bits about gay people, that does not mean I'm out there promoting some anti-gay cause.
+- Jesus is still up in Heaven, thumbing through his Bible, going 'Where did I say build a water slide?'
+- Anyone can go out on stage and start beating people over the head with rubber chickens. That'll get people's attention.
+- My view of life is, 'If you're going to miss Heaven, why miss it by two inches? Miss it!
+- Every generation has someone who steps outside the norm and offers a voice for the unspeakable attitudes of that time. I represent everything that's supposed to be wrong, everything that's forbidden.
+- I have lived a carnal life.
+- Jim Bakker. He's lost everything, he's ruined. And the worst thing of all he still has to wake up to her!
+- I got divorced, which was not a good thing for a revivalist minister. It did not go down well. I'd already been banned from a couple churches for my jokes. So one day I woke up and decided it was time to start living for myself.
+- I guess my main influences are Jesus, rock 'n' roll and ex-wives. In that order.
+- I'm so tired of men who are afraid to hurt women's feelings.
+- It was great to be the rock comic, the shock comic. But after you've played Giants Stadium with Bon Jovi in front of 82,000 people, after you've done the 'Wild Thing' video with Jessica Hahn and every rock band from hell, you're not gonna top that.
+- You don't know what a rough crowd is. If all I have to do is go make people laugh, that's nothing. Let me tell you what a tough crowd is. A tough crowd is going to a morning service and you got six people there and you gotta pat your house payment. That's a tough crowd.
+- I'd rather entertain people than offend them.
+- Stand-up comedy is an art form and it dies unless you expand it.
+- What am I responsible for? Who am I responsible to? Everybody? How come when Archie Bunker nailed everybody, it was funny - but when I do it, it's not?
+- So many of these comics are just frustrated singers or actors - they want to get a gig doing a sitcom. It's paint-by-the-numbers comedy, lame joke-telling. They're drawn to it as a career move.
+- Folks, I've been straight for seventeen days... Not all in a row.
+- I'm a comedian, and my comedy has never endorsed violence towards gays.
+- If I've learned one thing, it's 'don't tell the truth.' Lies keep you together.
+- I'm responsible. I even did a commercial for MTV saying how I was going to register to vote. And I still haven't.
+- Real comedy doesn't just make people laugh and think, but makes them laugh and change.
+- I want to show people that there's a side of myself other than just the outrageous comedian.

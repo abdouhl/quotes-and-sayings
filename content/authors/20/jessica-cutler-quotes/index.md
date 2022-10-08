@@ -1,0 +1,22 @@
++++
+author = "Jessica Cutler"
+title = "Jessica Cutler Quotes"
+quotes_len = "16"
+description = "the best 16 Jessica Cutler Quotes"
++++
+- It's amazing to me that people have any interest in such a low-level sex scandal. If I were sleeping with a congressman, maybe, but I'm a nobody and the people I'm writing about are nobodies.
+- I don't want the IRS banging down my door.
+- There's no point in living in an alternate reality.
+- If you want to do what you want to do, you have to look a certain way.
+- If you're still in a bar when the lights go on, you are a loser.
+- In real life, people are constantly saying one thing and doing another, but if you write your characters that way, the story becomes too hard to follow.
+- I always regarded people who want fame with a lot of suspicion. Unless you have a product to sell, I don't know why anyone would want to be famous. I can't imagine what need that would fill.
+- You kind of create your own moral universe. It's like, well, I like myself. If other people don't like me, then whatever. I'm out of here.
+- They'll totally hire me if I say I got fired from my job on the Hill because of a sex scandal.
+- Everyone should have a blog. It's the most democratic thing ever.
+- Some people with blogs are never going to get famous, and they've been doing it for, like, over a year. I feel bad for them.
+- If you don't like or care about your job, what's the big deal?
+- New York is where you go to catch a big fish.
+- Normal people have sex lives of their own to worry about.
+- I always feel like I'm missing out on something, that someone is having more fun than I am, so I take measures to make sure that is impossible.
+- If you don't like or care about your job, what's the big deal? I am so over it.

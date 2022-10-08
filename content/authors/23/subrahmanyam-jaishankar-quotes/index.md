@@ -1,0 +1,21 @@
++++
+author = "Subrahmanyam Jaishankar"
+title = "Subrahmanyam Jaishankar Quotes"
+quotes_len = "15"
+description = "the best 15 Subrahmanyam Jaishankar Quotes"
++++
+- There is an issue of what does the U.S. expect abroad and what does the U.S. give at home. I think there's a reconciliation there that needs to be done.
+- We can determine our strategic part or strategic options, but the strategic framework is something which will evolve from the interaction of world powers with each other.
+- In 1992, India launched the India-Asian partnership and by 2005 we were members of the East Asia Summit.
+- I mean, the United States has had an eighteen-year military commitment in Afghanistan, and frankly, I can't think of any country other than the United States which is even capable of such a commitment.
+- India supports a rule-based order in Asia, as in the rest of the world. But we confront unavoidable challenges such as terrorism, conflicts, trans-national crimes and maritime threats.
+- If you trade with someone and they are your biggest trading partner, it is impossible you don't have trade issues.
+- We would not accept any country telling us who to buy weapons from and who not to buy from.
+- Beyond the traditional areas of cooperation, we have entered the digital age with its own opportunities. The area of fintech needs to be explored.
+- The normal metric of measuring progress has actually been the rate of growth, OK? It's not a wrong metric, but it's not a full metric.
+- I don't think that the fundamental issue between India and Pakistan is Kashmir, OK.
+- In political, strategic as well as economic and commercial areas, Singapore has become a fulcrum for India's policies east of India.
+- Here is the difference, nationalism has a certain connotation in Europe, which is not necessarily positive, but I think in Asia, nationalism is seen very much as a sort of natural corollary to economic progress, almost like you're independent, you progress, you are prosperous and nationalism comes with all of that.
+- Globalisation is under stress due to new and emerging geo-political and geo-economic faultlines.
+- You have expressive nationalism, I mean very identity driven, which shaped each other a lot of that in the Middle East.
+- Terrorism is not something that is being conducted in dark corners of Pakistan. It's done in broad daylight.

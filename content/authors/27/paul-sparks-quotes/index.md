@@ -1,0 +1,28 @@
++++
+author = "Paul Sparks"
+title = "Paul Sparks Quotes"
+quotes_len = "22"
+description = "the best 22 Paul Sparks Quotes"
++++
+- As far as the destiny of the character, I just play them until they're gone. I try not to get too involved.
+- There's a real art to telling a story in two hours, and that will always be something that people are very, very interested in.
+- I've always been of the mindset that you will be defined by the things you say 'no' to because it's so easy to say 'yes.'
+- If I was able to be omniscient and look at my career objectively, I'd be very happy.
+- I just keep following the good writing. I'm not good enough to make bad writing look good. Some people can, and I admire them for it, but I cannot. I will go down with the ship.
+- I have a somewhat reclusive quality myself, and actually what's great about New York is that it pushes you to be social because the streets are full of people.
+- Endurance training is so mental. You just do it. You just can, and you just will, and you just run that far because, you know, I get tired at the first mile. I feel heavy and all of those things, but now I have developed, it's hard to explain... It's a very satisfying place to get into.
+- I don't know everybody's political opinions, but I think the majority of people in the arts are pretty leftist, and we're disappointed in the Trump administration.
+- I'm pretty fortunate that my beard - if I shave it off, I look like a completely different person. My face, it transforms. I mean, I have a weird face! My eyes are really deep and sunken. My son tells me, 'You don't have any eyebrows.'
+- Death scenes are hard. Sex scenes are hard.
+- As actors, we get used to disappointment. We go on a hundred job interviews a year and get two or three jobs.
+- As an actor, I'm more interested in characters the longer I have lived with them.
+- I actually did not like to run. It was probably my least favorite thing that I had to do, and then in 1999, I was diagnosed as a type 1 diabetic. It was really strange. One good thing to do for diabetes is to exercise. I don't really like gyms anymore, and I travel quite a bit, so I realized that you can just take shoes and shorts and run anywhere.
+- I'm a total slave to a good story.
+- I just came home one day and, in a midlife-crisis sort of way, I told my wife, 'I'm going to run a marathon,' not really understanding what that was. Then I just kind of got into it, and now that I have been running pretty consistently over the past few years, I don't know if it's because I love it or because I hate myself. I just really enjoy it.
+- I think that's kind of nice that there's this kind of inherent respect between runners who do a marathon. People respect somebody who has done it, and I will do anything to get some respect because I don't get a lot respect in my life.
+- When I got out of school, I just started doing plays of the off-off-Broadway route, and for many years, that's what I did, slowly doing work in tiny theaters, building relationships with people in the business. It's not a showy story.
+- A lot of times, sets are not such fun places to be, and especially television sets, because everybody works so hard, and everybody's kind of grumbling about getting up at 3 o'clock in the morning and not getting home until midnight.
+- I think of myself as more additive than initially creative; I don't come up with the stories.
+- The characters I've played that I like the most are people that have a lot of obstacles. They have a lot of bad things going on. They're seeking to do something good amidst all the detritus around them, and they're aware of how badly they've screwed it up. That kind of self-awareness is tragic.
+- No, I'm not angling for huge fame. My career has been a very slow, arduous climb to the middle.
+- I sort of latch onto roles that have something to fight against.

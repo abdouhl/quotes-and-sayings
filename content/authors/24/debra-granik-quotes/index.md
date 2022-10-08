@@ -1,0 +1,106 @@
++++
+author = "Debra Granik"
+title = "Debra Granik Quotes"
+quotes_len = "100"
+description = "the best 100 Debra Granik Quotes"
++++
+- I'm a trudger.
+- Emerging actors know there's a whole lot to learn each time they are spending with someone who's done a lot.
+- The questions that loom can be intimidating. 'What kind of moves is she gonna make? What is she gonna do?' There is this pressure that you're supposed to keep impressing.
+- Some of the subject matters that I like to make stories about are definitely not inherently commercial. So I have to look for a very special kind of financing and go down a very gentle path in order to make my films, as do basically all social-realist filmmakers. It's a long process.
+- I need and want to see capable women. I don't like to see them weep all the time.
+- It's been a pleasure to see female comedians be prominent and flourish - like Kate McKinnon's Rudy Giuliani impressions, which are uncanny in their precision.
+- For whole swaths of people, that map of, 'Come along this way, come to college, do this and that,' isn't offered.
+- History has shown that there needs to be some agora, or public spaces, and I think that we already live a lot of our life on a laptop, or even smaller devices that we hold in our hands.
+- It can't change anything immediately, but films can absolutely be catalysts for conversation.
+- You have so much more time to observe and learn with a documentary because of the time between the shoots. You get a much deeper understanding of day-to-day life and its themes. It's also much more of a mess after three years; you have to comb it out carefully and see what fits together and makes sense.
+- I feel like reality TV has thrown a difficult wrench in the system - on the programming and making side, and on the curating side - which is that we now have a higher threshold for the salacious. We have a higher threshold, unprecedented, for fast, cheap, and out of control.
+- I'm doing my best to stay off that financing scheme that relies on this one strip of capital, which is the red carpet. And - no sob story - but it's hard. It takes a while.
+- I have, obviously, a very complex relationship with the more industrial side of filmmaking and the machinery that can take an actor or an actress and create something so bamboozling and monumental and fathomless in terms of publicity hits.
+- Humour is used in struggle and solving difficult things, and I relish that tradition.
+- There's a lot of journalism about poverty, but sometimes it just helps to see that there's a real person who becomes a real mom, who is working with unsustainable wages that could eventually destroy her.
+- I swing with a lot of torque from non-fiction to fiction, and I really like that place in between.
+- You gotta call it out first; it always has to be called out when we need social change, but this is how social change happens: you call it out. People had to call out child labor. People had to call out, 'Hey time's up; we need to vote. We live in this country.' People had to call out 'time's up' on enslaving people, you know.
+- I like to make films about how people survive living in the United States.
+- Every filmmaker has this short book of films that don't get made - for a whole host of reasons.
+- When I'm interested in an aspect of someone's life, I want to ask about their experiences, their survival strategies, and what they do to keep their lives interesting.
+- In Hollywood, only a female who's massively damaged is interesting.
+- I will always face the conundrum that the subjects I'm attracted to aren't essentially commercial.
+- There's all these costs of war, and they're huge and long-lasting. It's not just the numbers CNN broadcasts. And we never want to pay the VA bill; we never want to pay the bill to take care of these warriors after we applaud their sacrifice.
+- I'm interested in the lives of Americans for whom the ways this culture has tried to define itself - that is, self-esteem defined by material wealth - they have nothing to do with that.
+- There's a period where you feel very hinky and low about yourself, like, 'That was a lot of time, and there's nothing to show for it.' I've tried to tell myself that if you're going to be a filmmaker, you can't really talk like that about time, because you'll hate yourself or feel very worthless.
+- The process of starting up a new film is one of looking through a lot of material and trying to find something you really like. And it does sometimes take a minute.
+- Film is a team thing. There is no auteur.
+- 'Winter's Bone' really suited having a lower budget. It would be so hard rolling into a rural setting, a place where people are poor, and to be thinking you've got $10 million to make a piece of entertainment.
+- What I would love is for people to see some of the stories I want to tell.
+- I always think that my assignment is to seek out stories that are experienced by people who don't get the ticket for Easy Street.
+- Time's up on cheesy, lesser, boring roles for females in the stories that we try to tell.
+- The challenge for me is to make sure I've done my work. To make sure not every scene is quiet, that other scenes rise up, that there's different tension.
+- What does it really mean to have something change in you very late in your life, after you've structured your life in a different way? What does it mean to be someone who has had a history of sometimes reckless living, and then to really want to change yourself?
+- When I find those actors who are going to work that hard and collaborate that deeply, my role is to make sure there's a whole lot there for them to work with.
+- I'm always searching to learn more about our large and diverse country.
+- American film isn't just film and glamor and fame and the lives of people who are fortunate financially. Those aren't the only stories in this vast nation. That's my mandate.
+- Humour is the be-all and end-all medicine of human existence.
+- The Oscars have always been an arena in which very commercial films are recognised, and I don't mean that in a bitter way; I just didn't ever look in that direction.
+- I love to champion some of the hardworking actors where, it's been said to me, they don't bring money. But to me, they bring everything. They bring their wonderful selves.
+- I find it so hard to make films about my own region, but it could happen.
+- A role is never just a ready-made thing.
+- The social-media discourse is very different from what it might be on the ground. It's easy to bloviate without having to look anyone in the eye and then having those sentiments swell and amplify and go viral.
+- When I read Daniel Woodrell's novel 'Winter's Bone,' I was drawn to the characters, the setting, and the sound of the dialog.
+- My first camera job was filming workplace safety videos, which involved months of watching and videotaping people doing their jobs. I was hooked - from there, I wanted to know where they lived and the rest of their habits and desires.
+- I'm always looking for instances of people doing things for and with each other for pleasure, for passion, for camaraderie, from kindness. It's the anthropology of people figuring how to punctuate life with the lyrical.
+- You can't just pill away injuries that go deep in someone. They don't just stop those feelings from existing.
+- No one has a green light when they start a documentary - not ever.
+- It's kind of a test when you read a novel thinking about its potential for the screen: How does it play on your mind's screen?
+- For documentaries, I think streaming plays an amazing role, but it's a problem when the one service you initially relied on to have an incredible buffet - 'Come and see a lot of world cinema, and the lives of ordinary people as well' - all of a sudden is narrowed down until it's just gladiator after gladiator - and bloodlust.
+- #TimesUp is you can't hold it in anymore: Time's up! The doors have to give way. It can't be that every 27-year-old born into a male body is a designated genius. It can't be that the language used to review male and female films is different.
+- Our necks are getting injured from looking down, and the movie screen gives you opportunity to look up, you know? It gives you an opportunity to possibly have a discussion with someone afterwards.
+- Films set in 90210 are ten a penny. But there's rarely room to make films about a different postal code, to show the lives of ordinary Americans who have to live with very limited material resources.
+- My first narrative films developed out of a documentary process - finding someone who was willing to be filmed, watching, listening, taking copious notes and many hours of video footage.
+- There are so many American experiences that we can't know about unless we venture out to create a dialogue, to observe, ask questions, and stay there for a while.
+- Stereotypes are convenient. And yet within them, everyone will say there's something that - you know, they don't come for no reason. It's just that it takes time to explore complexity.
+- There are documentaries that will just save your life and be the conduit to the art form you started out loving.
+- I feel as though perhaps there's not a great match between the content I'm attracted to and the content that is considered attractive to some of the more major or more traditionally financed entities.
+- All filmmakers want the option to make another film, to have it not always be such an uphill battle - for it to be our life, our working life.
+- My ego is one thing. Of course I want people to like what I do. Of course. There's no doubt. You wouldn't do it. But I think what people don't fully know is how responsible you feel for so many entities. So many hardworking people who've collaborated.
+- I would fail if I had to work with stars. And I also can't afford to work that way. I can't afford to have special circumstances for rarified individuals. So, I work with actors who have given me a sign that they're willing to work in these more humble circumstances, in real-life locations.
+- Some people have these small, positive schemes for survival, a kind of strength that I am attracted to, maybe because I'm prone to the blues.
+- Festivals are where I see other peoples' films, where we talk, where I get to learn what was working about the film, I get to have a discussion with viewers... and people who enjoy reading films - I enjoy reading other peoples' films, and what discussions can come of that.
+- The time that it takes to make the feature is really contingent on the feature being sort of almost ready-made - so coming to a book is more ready-made. You at least have the story that someone sorted out.
+- Social realism takes research.
+- I think one thing that's always a concern to me is you see a role, and you're not seeing the character; you're seeing so-and-so do it. Then I'm taken out of the story considerably, personally.
+- You will never go wrong with actually photographing process. It's primitive. Humans love to see the bipedal animal in us finish things. We just like it!
+- A big part of the equation for 'Winter's Bone' was making it for so little that we owe nobody. We had a guaranteed loan and were able to pay it back.
+- Sometimes I struggle with being American.
+- I'm reaching for emotion and drama, the drama of the everyday: what happens when you don't have shelter, food, and clothing. There are some stakes. If you're displaced or evicted, there's a suspense: How will you solve that?
+- Make your film for the least amount you can.
+- My producing partner and I were shown a novel we really liked. It was called 'My Abandonment' by Peter Rock, and we enjoyed reading it.
+- Sometimes you get ensnared by an idea, and it's what I call 'the sticky burr': You go hiking, and a burr sticks to you, and that's the film you're going to make.
+- I'd love to do a comedy - something where a character has to use humor to navigate the absurdities of life.
+- I'm from the East Coast, and so therefore, the Pacific Northwest forest is very exotic land to me.
+- In the U.K., working-class lives are depicted with the characters' humour, but in the U.S., people with difficulties are often depicted with pious or simply dreary lives.
+- The immigration process is so unbelievably complicated and expensive and endless!
+- When men's lives become extremely hard, women learn how to deal with them and assist them but also develop quiet systems of coping and managing.
+- It's funny: your happiness is contingent on a bigger picture besides just yourself.
+- I come from what they call the land of nowhere. I'm from the suburb. It's extremely atomizing.
+- I think, in some ways, that is the balm of stories, of fables, of tales: it's the way we're wired. We have always needed to distill what we're going through and try to understand it by looking either backwards or forwards. And the hardest is to look in the now.
+- I bring forward stories from the lives of everyday Americans: those whose path hasn't been set out on easy street or who haven't been given it all, those who are actually forging ahead because of their own personal resources, their moxie, their survival instincts.
+- I get very caught up in the day-to-day and immersed in the scenes as they unfold. It's harder for me, as I'm filming, to see the larger story.
+- In documentary, you are sometimes burdened, or you feel very responsible for dealing with - I want to say - more complicated themes. Fiction allows for greater distillation.
+- People need meeting places. You need places where ideas get exchanged and you see each other's faces once in a while.
+- It's almost like Time's Up allowed some really good old-school players to stand up and say, 'We're actually just really normal companies that want to facilitate culture-making. Some of us are even in it for the slow returns.'
+- The struggle to have a living wage doesn't come easy. You're ready to work, you want it, you seek it... but it's not like it's just given to you.
+- It's risky to show poor Americans. People see it as a downer. But I really wanted to make a tightly wound piece of storytelling that also happened to explode the myth of American affluence.
+- I'm looking for a living wage and to continue my work. The frustration comes from when I can't do the things that matter most to me. It's when someone comes and says, 'I will finance your movie if you cast so and so.'
+- There is a porous membrane between a documentary that doesn't use interviews and what you would call a neorealist hybrid film.
+- There has to be a continuation of the communal experience of filmgoing.
+- The protagonist in 'Winter's Bone' was a really good role for a female. She was strong; she didn't have to conform to something or be a sidekick to any man. That's part of what you're responding to; it's a woman-centric situation. Her value in the film was not reliant on any man.
+- I'm someone who's always looking for hope - if there's a ray of hope, a shrapnel, shred, a flake of hope - because I take the misfortune or hard times of others very seriously.
+- We need cultural awareness and a cooperative approach with other countries versus a dominating approach.
+- In documentary, mostly, people are going to say untoward things; people are going to have gnarly beliefs. People aren't perfect.
+- Action films don't speak to me, because that's not my skill set. I also have a lot of stipulations about stories I don't want to perpetuate, ones that bring me down or make me feel like life's not worth living.
+- You can't make movies without known names, and unknowns can't become known, because they can't get work.
+- I don't want to make fictional characters who are perfect - that's a vanilla situation - but the fact is you are allowed to more carefully select and curate what it is you're going to explore.
+- We just started filming 'Stray Dog' really close to the finishing of 'Winter's Bone,' down in Southern Missouri.
+- I don't want to be on a soapbox, but I feel like a lot of documentary filmmakers are part of the ancient tradition of writing down notes, of saying, 'Hey people, hey people!'
+- We're always on the search for a novel or a source or an existing screenplay, or writing something ourselves that turns us on. But because films cost a lot of money to make and a huge amount of effort to get the people to rally, you have to really like it; you can't just semi-like it. Getting to 'really like' is the part that takes the minute.

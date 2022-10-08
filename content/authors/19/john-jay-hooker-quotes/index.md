@@ -1,0 +1,25 @@
++++
+author = "John Jay Hooker"
+title = "John Jay Hooker Quotes"
+quotes_len = "19"
+description = "the best 19 John Jay Hooker Quotes"
++++
+- On the political side, I was the Democratic nominee for the Governor of Tennessee in 1970 and 1998.
+- Attending that Convention and talking with those people and many others convinced me that I should become a blogger in my efforts to reform the government and uphold the integrity of the Constitution and the laws made in furtherance thereof.
+- But there will be no justice, there will be no government of the people, by the people, and for the people, as long as the government and its officials permit bribery in any form.
+- I have known Harold Ford Jr. since before he was born, in that his father was my driver in the 1966 governor's race, and has remained a friend of mine all these years.
+- Therefore, until the day I die, I am going to do what I can, regardless of the cost to me, to try to stop this awful corruption that is destroying our beloved democracy.
+- Over the last decade, at considerable cost to me in money and effort, confronted with ridicule and intimidation, I have brought more than a dozen lawsuits challenging the corruption in the election process in Tennessee.
+- The Constitution was written by 55 educated and highly intelligent men in Philadelphia in 1787, but it was written so that it could be understood by people of limited education and modest intelligence.
+- If you are a friend of the Constitution as I am, I hope you will consider engaging me in the topics of my posts whether you agree or disagree with my position on a particular subject.
+- It is plain that, when it comes to inferior officers, Congress itself can pass a law sending these nominees to the President with him having the authority to put them on the bench without the advice and consent of the Senate.
+- The Constitution gives the president the power to appoint, upon the advice and consent of a majority of the Senate, and it plainly does not give a minority of senators any right to interfere with that process.
+- I sincerely believe blogging can save America.
+- It is preposterous that the current members of the United States Senate and all of their predecessors for more than 200 years haven't been able to read the Constitution and do what it says.
+- I believe the two biggest mistakes made by the Founders were giving Federal judges life-time appointments and permitting them to be confirmed without the agreement of two-thirds of the members of the United States Senate.
+- The time has come for justice at the ballot box, and justice in the courts, and justice in the legislative halls, and justice in the governor's office.
+- Now I have known Sen. Bill Frist, the Majority Leader of the United States Senate, since he was born.
+- The rich and the well-born, according to the Federalist Papers, was greatly feared by the founders.
+- I am a great admirer of Sen. Frist, who is a nationally known heart surgeon and well known in Nashville as a great family man who has dedicated his life to helping others and, in that regard, he has followed in his father's footsteps.
+- A short exposure to the convention convinced me that the Internet may save the Democracy in that it is a way for the people, for the citizens, to have some direct influence on the government.
+- Through a blog, an ordinary citizen such as myself can use the Internet, this thing invented by Albert Gore, to talk from my house to the U.S. capital and to make use of my right to point out to government officials and to the media when they are wrong.

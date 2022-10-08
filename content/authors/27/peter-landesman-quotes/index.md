@@ -1,0 +1,76 @@
++++
+author = "Peter Landesman"
+title = "Peter Landesman Quotes"
+quotes_len = "70"
+description = "the best 70 Peter Landesman Quotes"
++++
+- I love football. I played it into two years of college.
+- Melted down, silver is worth a little more than four dollars an ounce. But carved, inlaid, and engraved, and identified with a particular year, it becomes the direct reflection, often the literal record, of human history, our movement through time.
+- One way to test a picture's integrity is to turn it upside down - a technique used not only by connoisseurs but also by artists trying to see their work with a fresh eye.
+- Refugees tend to avoid planes, airports and fake passports, even though flying may appear to be the most obvious way to flee. For one thing, security procedures at airports are far stricter than at land borders.
+- Salvador Dali, lying on his deathbed in a stupor, is said to have been fed thousands of sheets of blank paper to sign for fake lithographs.
+- Large corporations have the ability to distract people with controversy that just distracts people from what's great about the movie or what works about the movie.
+- I don't actually see that much difference between telling stories in journalism and telling them on film. The tools are very different, but the basic idea is the same.
+- A museum's meticulous presentation - exhaustive captions, hushed lighting, state-of-the-art armature - creates an institutional authority that is constructed to seem impregnable.
+- There was absolutely zero discourse between me or anybody at the studio with the NFL. None. The only exchange was one-sentence e-mails trying to arrange a meeting, before deciding to cancel the meeting. Period. End of story.
+- I'm Jewish, not Catholic, but I'm a spiritual person.
+- I love writing in compressed time periods because the act of survival in the midst of panic and fear, that's where true heroism comes. If you have a uniform, and you're expected to do things, it's a sort of incremental heroism.
+- I always spend a good deal of time with the people I write about. I try and smell the normalcy of their lives. I try to look at the normal rhythm of their life.
+- The story of Bennet Omalu is a riveting story; it's just a riveting tale. I knew from the beginning if I stayed close to that kind of storytelling and focussed on the character, then the other stuff comes along with it, and the message becomes baked into the journey.
+- Serious collectors and art experts, among the world's most educated, often cannot fathom the possibility of being rooked, and then once taken, cannot face the humiliation of admitting it.
+- The village of Polgardi is a dusty roadside settlement northeast of Lake Balaton, a resort area in western Hungary popular with German tourists.
+- I did nothing at the behest of the NFL, for the NFL, against the NFL.
+- Once you turn on the camera, making a movie is making a movie. I don't care if it's $9 million dollars or $50 million dollars. You have bigger toys, bigger set, actors who are better paid, but once you turn on the camera, it's director and performance, and I don't find a big difference.
+- I've been writing screenplays for a long time, and a lot of it came out of the journalism I was doing.
+- I am an old journalist, so I always do a lot of research and dive deep into people's character, who they are, and their motivation.
+- Each year, tens of millions of museumgoers walk through the entrance of the Getty, or the Metropolitan or the Prado or the Hermitage, and never consider the possibility of having to arbitrate for themselves the authenticity of what they have come to see.
+- Life only has narrative when we frame it and edit it and call it certain things.
+- I can't worry about the consequences of what I do; that's not my job.
+- We've all seen 'Network' and 'Wag the Dog,' but we were somehow insulated by the fact that those were just movies, fictions, and we could rest easy that the Real News doesn't operate that way. Well, it does - sometimes.
+- 14th- and 15th-century drawings are almost unheard-of - and as a result, they generate jealous desire among dealers and curators. Museums in particular value rarity and pedigree more than attractiveness.
+- What interested me was the story of Bennet Omalu. You hear his narrative: Immigrant from Nigeria, landing in Pittsburgh, only to learn and tell the truth about this most American - and sacrosanct - cultural institution: the NFL.
+- I'd followed the strange deaths of pro football players for years, sensing something odd going on.
+- When it came to 'Concussion,' I found myself with so many threads to weave. So integral to the whistle-blower's tale were spirituality, the cost of hero-worshipping, what it means to be an American, and just how dangerous the truth can be.
+- Documentaries for me always felt kind of limiting. I wanted to go bigger. And I also love actors, and I love performance. So feature filmmaking was always the intent.
+- There will always been the prurient rubbernecking aspect to disasters: people who just can't get enough gore.
+- I was a painter before I was a writer, so I was always a visual artist. And my writing, to me, was always visual.
+- When you're researching something for a movie, you get a very different kind of reaction than when you're researching something for an article for 'The New York Times.'
+- There's a constant dialogue going back and forth between the filmmakers and the producers.
+- What I learned is that there are indeed some stories that are too true to tell, too revealing for the general population to metabolize. And too challenging to your reporter colleagues, whose turf or toes you might have tread upon.
+- I played football the whole time I was growing up, and through two years of college. I think it's a beautiful game in many respects, one that allows you to follow a player from boyhood through manhood.
+- Sony is the only studio without broadcast relationships with the NFL.
+- Our brains have this habit of quilting dreams from the fabrics of our lives. As a filmmaker, I get to do it for a living.
+- Will Smith is the most successful money-making movie star on planet Earth, in terms of just how many people have gone to see his films, so Will is a guy who gets movies made.
+- When a director is also a writer, everyone on the production looks to him, knowing he gave birth to the idea. There's a different level of viability.
+- I was a war correspondent. I've watched great people crumble under pressure and make bad decisions.
+- I start each of my scripts by going on a journey of painstaking research and discovery, much as I do a piece of long-lead journalism.
+- I started writing screenplays myself and eventually directing.
+- I love the game. I love to watch. I watch it with my kids. I'm able to divorce the beauty of the athletics from the corporate entity that is the National Football League.
+- I had a very strong background in journalism, so it's my instinct to try to be as fair and accurate as possible.
+- Hard information on the quantity of bogus art sold is difficult to come by, in part because fraud, when discovered by dealers and auction houses, is usually kept secret to boost public confidence in the art market.
+- Life is itself an occupational hazard. Sometimes the things we love hurt us. Embracing and navigating around that contradiction is part of what it is to be alive.
+- Film brings together framing and light and color and performance and music and all of that. To me, everything I've done in my life has been preparing me for filmmaking.
+- Tom Hanks comes with a lot of credibility.
+- The trains that travel the Chunnel are massive machines. The Eurostars are bullet-shaped and a quarter-mile long. They are pulled by a 136,000-pound locomotive and move in the open air at 185 m.p.h. and through the tunnel at 100 m.p.h.
+- Like every other industry or institution, the journalism world is populated by the petty and fearful, in addition to the courageous and brilliant.
+- Modern art, in particular, seems especially vulnerable to fraud. Its abstractions are sometimes difficult to understand or grasp, and a modern painting is often loved less because of its intrinsic quality - its beauty, as conventionally understood - than because of the identity of the painter, its mark of social status.
+- As a journalist, as a screenwriter and as a director, I'm trying to tell compelling and truthful stories.
+- 'Writing' is the wrong way to describe what happens to words in a movie. First, you put down words. Then you rehearse them with actors. Then you shoot the words. Then you edit them. You cut a lot of them, you fudge them, you make up new ones in voice-over. Then you cut it and throw it all away.
+- I was doing an investigative article on arms trafficking that was taking me through Eastern Europe and the Middle East. And after I had interviewed a helicopter pilot who had been ferrying weapons into Liberia, I realized as I left the restaurant that I was being followed and set up for an ambush.
+- Sometimes, in a fictional story, you can be more honest and truthful, actually. As a journalist, you're a prisoner of the data, in effect. You have to tell the story with evidence you can verify.
+- It's very dangerous for a storyteller to walk into a situation with a political agenda because you end up telling a story about issues instead of telling a story about people.
+- I wouldn't let my children play football.
+- My personal sources in the intelligence community and the military are very good. They're excellent. I have very high-up, in-depth sources.
+- You have to find the movie in the editing room, and it can't be four hours; it has to be two hours.
+- 'Parkland' is not out to pick a fight and start a dialogue about conspiracy.
+- The itinerary of most antiquities from their source - tomb, temple, quarry - to the shelves of museums or private collectors is murky and often purposely concealed.
+- I consider myself neither liberal nor conservative when it comes to foreign policy.
+- Film is probably the medium best suited to reach the most people - the visual, the aural, the limbic, the intellectual: it captures all these parts of our mind and soul. No other art form comes close.
+- Even the two novels I've written were based on true stories. It's how I'm wired - real life is fascinating and fantastical enough. The kind of journalism I did unpeeled lids from cans otherwise sealed.
+- I was a war correspondent and journalist for a long time, and I was very near the towers on 9/11 and very shortly after in Afghanistan.
+- My politics are very centrist and sometimes, especially when it comes to foreign affairs, lean to the right.
+- As a filmmaker, it's not my intent to trigger or shape national discourse. My task is to make as powerful and understandable a film as I can. What happens next is what happens next.
+- To me, film is the most complete method of storytelling.
+- Most editors are just worried about their jobs. They're overwhelmed. They're underpaid. They do the best they can.
+- People go to the movies to have an emotional experience, not to learn information they could look up on Wikipedia.
+- I was a painter, then a novelist, then a journalist, then a screenwriter, and now I'm a director, and it feels all part of the same continuum. One led to the other, and it just feels like the natural confluence of all the ways of storytelling that I've been doing for almost 30 years.

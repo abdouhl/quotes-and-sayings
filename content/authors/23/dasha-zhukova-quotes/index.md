@@ -1,0 +1,52 @@
++++
+author = "Dasha Zhukova"
+title = "Dasha Zhukova Quotes"
+quotes_len = "46"
+description = "the best 46 Dasha Zhukova Quotes"
++++
+- Anyone who doesn't know anything about art knows the name of at least one artist.
+- The more I read, the more I realise what I don't know.
+- Most museums in Moscow, like Tretyakov, were established by philanthropists, whose passion for art allowed the development of culture on many levels.
+- I want to work in art forever.
+- There is a huge thirst for knowledge among the younger generation for contemporary art, but most of them learn about it by going on the Internet.
+- 'Garage Magazine' has a strong track record of promoting diversity and racial and gender equality in the worlds of art and fashion and will continue in our mission to stir positive debate on these and other issues.
+- I'm, like, really bad at remembering names.
+- My involvement in fashion is not at the highest artistic level.
+- I had a happy childhood: extremely outdoorsy and independent.
+- Russia was culturally isolated for so long that some sort of transformation needs to happen and will happen.
+- The Internet can give young people a fantastic platform to become financially independent and have global businesses without leaving Russia.
+- Russian women like to be feminine. Even if it's minus-10 degrees and snowing, a Russian woman will still be in her stilettos.
+- I like messy. What fun is tidy?
+- I believe in carbon offset initiatives, in eco-villages, in the sustainable regeneration of the tropical rainforest.
+- There is a very strong theatre-going tradition in Moscow. It has stayed strong.
+- I have had an interest in art since childhood. I loved to draw as a child and still do.
+- I'm quite disappointed that I'll never relive my teenage years.
+- I don't see myself as a person who just does one thing. I understand that sometimes that might sound a bit unprofessional. But I disagree.
+- I'm very proud of Soviet aesthetics.
+- I'm not interested in business for business's sake.
+- If a stranger is writing something completely fictitious, or insulting me on a blog or a tabloid, I don't take it personally.
+- I'm young, Russian, I come from money, and I date a very well-known person.
+- I guess artists are living inspiration. There's something very pure about a person that fantasizes. I like hearing their stories, watching them work. Their take on the world interests me. It's not unified.
+- When you're in a situation that is foreign to you, you just have to pull yourself together and adapt.
+- It's important to know how to operate within the system you are existing in.
+- England has a long history of supporting alternative medicine - maybe it's because they don't have such a strong pharmaceutical industry in England, and homeopathy has been taught and promoted there for hundreds of years.
+- I used to arm wrestle my roommate in college. Based on that, I'm in pretty good shape.
+- I feel like anything I've ever done, I've been strongly advised not to do.
+- I believe in the freedom of choice in both life and death.
+- I definitely feel Russian. I feel Russian, but at the same time when I'm in the States I feel at home, too.
+- I have a few pieces that I got for my birthdays or that I bought for myself: I acquire things that speak to me and put them on my wall. When I see things I like, I just know.
+- Money grants you freedom, I guess.
+- I never yell or scream. I mean, definitely not at work. I never yell at anyone I work with.
+- I have more ideas than I know what to do with. I guess I'm a bit of a fantasist and a daydreamer - all sorts of things come to me during the day.
+- I actually love physics, but art is where I thought I could make a difference for my country.
+- I don't know what drives me, but I wake up in the morning, and I want to participate in the creative cultural conversation.
+- I have always dreamed of bringing an exhibit of Mark Rothko to Moscow.
+- I think it's fascinating that clothes can drastically transform someone's mood or the way they feel about their appearance.
+- I haven't spent years in fashion making friends and making enemies.
+- I am drawn to humorous art that is ironic.
+- Overall, I'm not upset at the press.
+- I think one of my strengths is that I can always take advice, and I can delegate. I know a lot of people feel the need to do everything themselves, but I am not one of them.
+- The thing is, I grew up in L.A., so I had this unique opportunity to live in both communist Russia and see that life, and then move to America as a young girl and experience a completely different life.
+- My time at Pop has been a transformative experience that I am extremely proud of. It has afforded me the chance to collaborate with some of the greatest creative minds in the world, and I'm thankful to Ashley Heath and Bauer Media for the opportunity.
+- If you're a devoted collector of design, you seek out objects you can love to live with but also live in.
+- I am definitely quick to adapt. I am not scared to come into a new environment.

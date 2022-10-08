@@ -1,0 +1,31 @@
++++
+author = "Dwight L. Moody"
+title = "Dwight L. Moody Quotes"
+quotes_len = "25"
+description = "the best 25 Dwight L. Moody Quotes"
++++
+- Church attendance is as vital to a disciple as a transfusion of rich, healthy blood to a sick man.
+- The Bible will keep you from sin, or sin will keep you from the Bible.
+- Where one man reads the Bible, a hundred read you and me.
+- I have had more trouble with myself than with any other man.
+- God never made a promise that was too good to be true.
+- There are many of us that are willing to do great things for the Lord, but few of us are willing to do little things.
+- Faith makes all things possible... love makes all things easy.
+- There's no better book with which to defend the Bible than the Bible itself.
+- Where I was born and where and how I have lived is unimportant. It is what I have done with where I have been that should be of interest.
+- A good example is far better than a good precept.
+- Character is what a man is in the dark.
+- Death may be the King of terrors... but Jesus is the King of kings!
+- Give me a man who says this one thing I do, and not those fifty things I dabble in.
+- No man can resolve himself into Heaven.
+- It is a masterpiece of the devil to make us believe that children cannot understand religion. Would Christ have made a child the standard of faith if He had known that it was not capable of understanding His words?
+- We can stand affliction better than we can prosperity, for in prosperity we forget God.
+- We talk about heaven being so far away. It is within speaking distance to those who belong there. Heaven is a prepared place for a prepared people.
+- God doesn't seek for golden vessels, and does not ask for silver ones, but He must have clean ones.
+- We are told to let our light shine, and if it does, we won't need to tell anybody it does. Lighthouses don't fire cannons to call attention to their shining - they just shine.
+- Never think that Jesus commanded a trifle, nor dare to trifle with anything He has commanded.
+- If I take care of my character, my reputation will take care of me.
+- A rule I have had for years is: to treat the Lord Jesus Christ as a personal friend. His is not a creed, a mere doctrine, but it is He Himself we have.
+- A man ought to live so that everybody knows he is a Christian... and most of all, his family ought to know.
+- Preparation for old age should begin not later than one's teens. A life which is empty of purpose until 65 will not suddenly become filled on retirement.
+- I know the Bible is inspired because it inspires me.

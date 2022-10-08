@@ -1,0 +1,28 @@
++++
+author = "Peter Defazio"
+title = "Peter Defazio Quotes"
+quotes_len = "22"
+description = "the best 22 Peter Defazio Quotes"
++++
+- Essentially, when we run a deficit, we are borrowing money to buy things that are made overseas.
+- To the contrary, I believe the U.S. military has already done all that has been asked of them. Saddam Hussein is on trial. The threat from alleged weapons of mass destruction programs in Iraq has been neutralized.
+- In addition to a timeline, I have proposed that U.S. troops be removed from front line combat positions in Iraqi cities and towns, turning over daily security patrols, interactions with citizens, and any offensive security actions to the Iraqis themselves.
+- A timeline for bringing U.S. troops home that is negotiated with the Iraqi government would also boost the Iraqi government's legitimacy and claim to self-rule, and force the Iraqi government to take responsibility for itself and its citizens.
+- First off, the crude oil market, unlike every other commodity in America, is virtually unregulated.
+- But they are not going to take on Big Oil because Big Oil is very generous at campaign time, and this is all about the elections. They want to pretend that they are doing something meaningful.
+- About 75 percent of the crude oil marketed here is sold off the books, and they are doing trades that would be illegal if it was a regulated market, and of course they do not want to regulate it.
+- In crude oil trading, we have seen a 46 percent increase over 1 year in the margins there.
+- In recent years, breweries and brew pubs have flourished across the Nation. And, as the Representative from Oregon's fourth district, I have enjoyed seeing the diversity that craft brewery has fueled across the Nation.
+- The U.S. must renounce any U.S. interest in constructing permanent U.S. military bases in Iraq.
+- There is a lot of lip service paid in this Congress and downtown at the White House about family values and small business. Who better represents family values and small business than the fishermen and women on the Oregon and California coast.
+- It was Osama bin Laden and al-Qaeda who attacked the U.S. on September 11, 2001, not Saddam Hussein and Iraq.
+- Even the majority of the Sunnis have grown tired of foreign terrorists operating in Iraq.
+- Similarly, establishing a firm timeline for bringing our troops home could accelerate the development of Iraqi security forces and deepen their commitment to defending their own country and their own government.
+- There is no free market in oil.
+- The U.S. cannot impose freedom, security, and unity in Iraq by force.
+- Second, the resolution contains the blatantly false assertion that negotiating a timeline for bringing U.S. troops home with the Iraqi government undermines U.S. national security. Such a statement shows a misunderstanding of the enemy we face in Iraq.
+- Of the 55 refineries closed in America in the last 10 years, they were all closed for economic reasons, mostly oil company mergers. Not a single one was closed for environmental purposes or objections.
+- The training and equipping of Iraqi security forces should be accelerated.
+- The U.S. cannot force Sunnis, Shias, and Kurds to make peace or to act for the common good. They have been in conflict for 1,400 years.
+- Nor should the U.S. military be forced to remain in Iraq essentially as an army for one side of a civil war.
+- Saddam Hussein was a brutal tyrant. I am glad he is now on trial for crimes against humanity. But, opposition to a dictator is not the measure I use when deciding whether to send our men and women in uniform off to war and possible death.

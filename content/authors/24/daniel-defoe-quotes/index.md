@@ -1,0 +1,22 @@
++++
+author = "Daniel Defoe"
+title = "Daniel Defoe Quotes"
+quotes_len = "16"
+description = "the best 16 Daniel Defoe Quotes"
++++
+- 'Tis no sin to cheat the devil.
+- Justice is always violent to the party offending, for every man is innocent in his own eyes.
+- The best of men cannot suspend their fate: The good die early, and the bad die late.
+- Vice came in always at the door of necessity, not at the door of inclination.
+- All our discontents about what we want appeared to spring from the want of thankfulness for what we have.
+- Nature has left this tincture in the blood, That all men would be tyrants if they could.
+- As covetousness is the root of all evil, so poverty is the worst of all snares.
+- Pride the first peer and president of hell.
+- I have often thought of it as one of the most barbarous customs in the world, considering us as a civilized and a Christian country, that we deny the advantages of learning to women.
+- An Englishman will fairly drink as much As will maintain two families of Dutch.
+- Necessity makes an honest man a knave.
+- The soul is placed in the body like a rough diamond, and must be polished, or the luster of it will never appear.
+- He that is rich is wise.
+- It is better to have a lion at the head of an army of sheep, than a sheep at the head of an army of lions.
+- All men would be tyrants if they could.
+- In trouble to be troubled, Is to have your trouble doubled.

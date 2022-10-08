@@ -1,0 +1,22 @@
++++
+author = "Stuart Pearce"
+title = "Stuart Pearce Quotes"
+quotes_len = "16"
+description = "the best 16 Stuart Pearce Quotes"
++++
+- If my results are not good I will lose my job.
+- I just get the impression that everyone is willing me to succeed.
+- Football's in my blood - and eventually I want to be the one making decisions.
+- I enjoy making the decisions.
+- I am nothing without the players.
+- There is a set of rules and a code of conduct that I believe that you should adhere to in life.
+- The way I was brought up by my parents and guided through my football life by the influences of various managers means that in some ways I am black and white.
+- I am ready to work, I am ready for this job and I am ready for this challenge.
+- I am doing the job with the mentality that I am going to be here a long time and I hope that I am.
+- I am one of those people who quite enjoys responsibility.
+- But to me the bottom line is the more education you can give yourself, and the more preparation you can do, the less chance of failing.
+- I want them to be fully committed to the work place and fully committed to the people they work for.
+- I have made it totally clear to the players that my door will always be open.
+- I think management is about just that - managing people via man-to-man skills.
+- I will do whatever it takes to win a football match.
+- I have lived my life that way and I expect the people who work for me to be the same way.

@@ -1,0 +1,21 @@
++++
+author = "Gotthold Ephraim Lessing"
+title = "Gotthold Ephraim Lessing Quotes"
+quotes_len = "15"
+description = "the best 15 Gotthold Ephraim Lessing Quotes"
++++
+- For me the greatest beauty always lies in the greatest clarity.
+- Let us be lazy in everything, except in loving and drinking, except in being lazy.
+- Would that we could at once paint with the eyes! In the long way from the eye through the arm to the pencil, how much is lost!
+- The most deadly fruit is borne by the hatred which one grafts on an extinguished friendship.
+- Absolute truth belongs to Thee alone.
+- Let the devil catch you but by a single hair, and you are his forever.
+- A heretic is a man who sees with his own eyes.
+- It is not the truth that a man possesses, or believes that he possesses, but the earnest effort which he puts forward to reach the truth, which constitutes the worth of a man.
+- He who doesn't lose his wits over certain things has no wits to lose.
+- They make glorious shipwreck who are lost in seeking worlds.
+- One can drink too much, but one never drinks enough.
+- A single grateful thought toward heaven is the most perfect prayer.
+- If some things don't make you lose your sense of reason, then you have none to lose.
+- For the will and not the gift makes the giver.
+- Think wrongly, if you please, but in all cases think for yourself.

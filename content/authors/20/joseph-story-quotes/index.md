@@ -1,0 +1,12 @@
++++
+author = "Joseph Story"
+title = "Joseph Story Quotes"
+quotes_len = "6"
+description = "the best 6 Joseph Story Quotes"
++++
+- And it is no less true, that personal security and private property rest entirely upon the wisdom, the stability, and the integrity of the courts of justice.
+- Republics are created by the virtue, public spirit, and intelligence of the citizens. They fall, when the wise are banished from the public councils, because they dare to be honest, and the profligate are rewarded, because they flatter the people, in order to betray them.
+- A feeble executive implies a feeble execution of the government.
+- A good government implies two things; first, fidelity to the objects of the government; secondly, a knowledge of the means, by which those objects can be best attained.
+- It was under a solemn consciousness of the dangers from ecclesiastical ambition, the bigotry of spiritual pride, and the intolerance of sects... that is was deemed advisable to exclude from the national government all power to act upon the subject.
+- A feeble execution is but another phrase for a bad execution; and a government ill executed, whatever may be its theory, must, in practice, be a bad government.

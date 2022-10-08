@@ -1,0 +1,42 @@
++++
+author = "Shiri Appleby"
+title = "Shiri Appleby Quotes"
+quotes_len = "36"
+description = "the best 36 Shiri Appleby Quotes"
++++
+- As an actor, you can have your opinions, but our responsibility is telling the point of view of this one character.
+- They ask questions like 'do you believe in aliens' and those types of things. They were really interested in aliens, and that was really something that the Japanese have an interest in, and they are also very big fans of romances.
+- I've been watching so many movies and they all have to do with the DVDs. It's just so much more convenient.
+- I'm not going to do the story any service if my acting isn't strong.
+- The people were just so lovely and accommodating and had really interesting questions and it was just interesting to see how the show is actually received in so many different countries.
+- There are a lot of different sides to me. I don't know if I'm always peaches-and-cream.
+- A lot of the things I get sent are the girlfriend or the wife or the assistant, and those are not that exciting to me.
+- Most of the roles I've had, usually the story's about how the man affects my character.
+- It's hard to get material. I haven't made a movie before. I have two episodes of television that I think have come in really great, but it's really hard to get directing work.
+- I was in the pilot of ER: I played a 15-year-old pregnant girl they were treating. And then, in the final season, they were casting for interns.
+- I took my waitress uniform. Seemed fitting.
+- In terms of watching other directors, it's more like I go on set now, and I'm prepared, as an actor, and ready to give them everything, but at the same time, you observe how everybody else does it because there's always something to learn.
+- Men are even afraid to say, 'You look nice,' or, 'You look pretty,' when you come out of hair and makeup to walk on set. And before, men would constantly - producers would constantly say things, but that's kind of a way that they would butter the actresses up and make them feel secure.
+- She wasn't as naive and innocent as she was in the first season.
+- I've literally pitched to every studio and network trying to get directing work. It's really hard.
+- I find that people are constantly coming up to me now. There's been a definite surge of people recognizing me and I'm not sure if it has to do with the DVDs or not, but I've sort of assumed that it does because the show has been off the air for three years now.
+- Steven Spielberg, Woody Allen, you name it - I'm interested. I'm free. I'm looking for acting work. At the same time, you have to find a role you're right for, and then there's a slew of other actresses. That's why I will pursue more directing. It's like, who needs a boss? I'm right here.
+- I do feel like I have a lot more confidence now. I can shot list the episode before I start, but then, as things happen on set, I know how to adjust so I can still execute the scene completely, and I still know how to make my days.
+- As an actor, you don't really have a say or a voice in what the conversation of the show is going to be. So, as an actor, I'm just trying to make sense of why the character is making these choices, and somehow, in that way, you can sympathize or root, at least not detest, what this person is doing. That's, at least, my job in telling that story.
+- My career after 'Life Unexpected' took a really big dip, and I realized you have no control as an actor over the process of going to work.
+- I had a really normal childhood except I acted. It was like, my brother played soccer, and I was on television sometimes.
+- I'm the field producer whose job it is to manipulate the contestants to get them to do what we really want them to do to get the footage to make the show.
+- Growing up on set, the director is the person that, as a child, you admire and gives you validation.
+- It feels nice after a long career as an actor to find your own voice and support that.
+- Right now, my focus is really acting and directing. But I see the creativity and the work that goes into building a network, and it's fascinating to me. If those doors open for me... I think just learning as much as I can at this point is really what it's about.
+- I never went to any of the Hollywood child parties.
+- 'Baywatch' was one of those shows that you auditioned for all the time as a young girl. I auditioned once to play a blind girl and didn't get it. I was constantly auditioning for it.
+- Back in the day when I was on The WB, I may have only had one or two female directors throughout the entire run of a series.
+- Reality TV is not real.
+- I loved working with Adam Driver.
+- Just having more days of being the director on the ground, that's been invaluable.
+- I'm a total 'Project Runway' junkie. I also watch 'Keeping Up with the Kardashians.'
+- I would like to see more of the making of just regular television shows. Like the casting process. I think it's so fascinating to watch the actors come in and see how they discuss everybody afterwards. It's a crazy world that has no rhyme or reason.
+- There was a scene early on during the first season of Roswell and I broke down crying. Since then, I've always just been able to do it.
+- I think from here on it's up to me to prove that I'm growing up and that I have other things to say, but in terms of the show it definitely gave me all of the opportunities I've had so far.
+- I think the show has sort of given me a name in this business and allowed a lot of people the opportunity to see what I can do, and it's just sort of like a sweet starting point.

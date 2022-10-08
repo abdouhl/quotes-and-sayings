@@ -1,0 +1,15 @@
++++
+author = "Ji-Hae Park"
+title = "Ji-Hae Park Quotes"
+quotes_len = "9"
+description = "the best 9 Ji-Hae Park Quotes"
++++
+- In the midst of hardship, it was the music that restored my soul.
+- I would not want the limitations held by the name of a classical musician. I want many people to enjoy my music much beyond just classical music fans. I think the term, 'violinist,' keeps me distant from the audience. I want to communicate with them more.
+- I want to make my music a genre that people can immediately identify: something that never existed.
+- Changing your perspectives will not only transform you but also the whole world.
+- Consolation of music is different from the one of words. It starts from the inside... It cries with you instead of telling you to stop crying.
+- I might look successful and happy being in front of you today, but I once suffered from severe depression and was in total despair.
+- Classical music can rock you!
+- I not only play at the prestigious classical concert halls like Carnegie Hall and Kennedy Center, but also hospitals, churches, prisons, and restricted facilities for leprosy patients, just to mention a few.
+- When you are in depression, almost magically, nothing motivates you.

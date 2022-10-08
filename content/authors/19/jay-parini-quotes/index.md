@@ -1,0 +1,102 @@
++++
+author = "Jay Parini"
+title = "Jay Parini Quotes"
+quotes_len = "96"
+description = "the best 96 Jay Parini Quotes"
++++
+- One of the first courses I ever taught at Dartmouth was on the Bible as literature.
+- Fundamentalism takes different forms in different religions, but there is one striking similarity in all forms of fundamentalist thought. Each wishes dearly to hold in check all varieties of 'modern' or 'decadent' thinking.
+- I still have deep respect for the evangelical tradition and feel, in many ways, close to the Baptist roots of my childhood, although I've been an Episcopalian throughout my adult life and a regular churchgoer.
+- There's been an unquestionable decline in American culture. The education system is thin on the ground. People don't read as deeply and at length as they used to. And the media has been scattered into so many cable channels.
+- What I'm trying to argue, as passionately as I can, is that the Jesus story isn't worth dying for, it's worth living for. Jesus presents a third way, a way of being in the worth that embraces the Sermon on the Mount, with its challenge to violence and greed.
+- I say that a myth is a story which has particular energy, mythic resonance. I always say that a myth is a tear in the fabric of reality through which all of this spiritual energy pours.
+- As a Christian, I try to meditate or pray at least once a day, however briefly.
+- It's probably incorrect to say that Islam is 'a religion of peace,' as some politicians like to say. Overstatements like that don't clarify anything.
+- The whole point of the Resurrection stories - and the Resurrection itself - is that we don't recognize Jesus when he comes back to us.
+- I argue that the resurrection was not the Great Resuscitation. It was a total transformation. I just don't accept the black-and-white thinking that goes along with needing to regard the gospels are literally true.
+- Even among those who have no special allegiance to a particular branch of Christianity, there are plenty of seekers as well as agnostics and atheists who harbor a certain curiosity about Jesus and his story.
+- Obviously, you're trying to peel through 20 centuries of theology, speculations, church doctrine and storytelling. I'm trying to get back to the absolute basic story of who was Jesus, what did he say, what was he teaching, and what did he do.
+- Beginning in the late 18th century, some German scholars began to regard Holy Scripture not as a single revelation but a sequence of inspired texts that occurred in specific times and places and were subject to varied and multiple meanings.
+- I suspect that a huge amount of the anxiety and suffering that we see around can be closely traced to our wanton misuse of our resources. Just look at any garbage dump and see what is wasted. In a sense, we've wasted our souls.
+- I'm tired of hearing about this 'well-regulated militia' that is so necessary for American freedom.
+- I've been teaching full-time for 41 years at small colleges, and I can't imagine what it would mean for me or my colleagues to be armed with handguns or rifles instead of books and a thorough knowledge of our chosen disciplines.
+- Language kills, and inflamed rhetoric of the kind that spews almost daily from the lips of Donald Trump, Ben Carson, Mike Huckabee, and others running for public office in this country should be condemned.
+- A proper respect for nature means that you can't pollute the air, poison the rivers and chop down the forests indiscriminately without suffering greatly.
+- My own grandparents came to the United States as immigrants in 1912, and they lived for some years in Italian ghettos in New York. Most immigrant groups start in ghettos somewhere, and many of them never get out.
+- Christmas is a story that has both religious and pagan origins, and to ignore its power is to ignore the power of myth - those symbols and legends that help us to ground our lives.
+- I think the membrane - I say that the membrane between life and death is perilously thin. And I do think the story of Jesus, this great mythical story, can have transforming value in our lives.
+- It seems likely that Jesus, being a scholarly young man, learned some Hebrew, but that's conjecture. It's more likely that Jesus spoke some Greek, as this language dominated the region after the conquests of Alexander the Great in the fourth century.
+- A revival of 'Of Mice and Men' would have seemed out of place in years of Reaganomics, Donald Trump and Michael Milken, a time when Rambo supplied millions of filmgoers with a fantasy that masked what was really going on in their lives.
+- Within the Christian tradition, fundamentalism arose in the 19th century as an effort to push back against modern' readings of the Bible that suggested everything in the text wasn't true in some literal sense.
+- Colleges and classrooms should be havens of tranquility, places where thoughtful discussions occur, where students work together with their teachers to acquire knowledge of the arts and sciences.
+- It's impossible to see the face of Jesus without seeking that face in some concentrated way, in the practice of the faith, through prayer and action.
+- I often think that the last holiday is the greatest, but then some really stand out in my mind. One of the best was one my wife and I had in the Lake District. We stayed in a B&B and walked around the countryside for two weeks.
+- I suspect that the framers of the Bill of Rights have long since rolled over in their graves.
+- I had a year off, so my wife and I were heading to Italy to study Italian. We found a little house in a village called Atrani. I discovered that Gore Vidal lived right above us in a big house, so I sent him a note.
+- Sarah Palin is a figure of fun on the American left, easily lampooned as a know-nothing, gun-toting ex-beauty queen who loves God and the red, white and blue above pretty much anything else except for Todd, her macho husband, who races snowmobiles across the Alaskan tundra.
+- The idea that owning a gun in America was an individual right only dates to the 1980s.
+- We should never forget that Americans continue to advocate for individual liberty, equality and self-governance. We often step in when it's necessary to help countries in need. But our history needs no whitewashing. To attempt this does us a terrible disservice.
+- 'Bag of Bones' was a big, distorted yet wonderfully entertaining novel that rode high on the bestseller lists in 1998.
+- American politicians who dwell on American exceptionalism only dishonor us by suggesting we play dumb to our past.
+- Good and productive labor is valuable, and it doesn't mean you have to have a fancy job description. You don't have to become rich. You can be ordinary. Happiness lies there. Do good work, create good work for others.
+- Who was Jesus anyway? After twenty centuries, there is not much anyone can agree on. The four canonical gospels don't measure up to modern standards of biographical writing, and - outside of this material - there is precious little contemporary evidence, apart from a few glancing mentions of Jesus or the movement centered on him.
+- The British, and most European countries, have struggled to accommodate Muslim immigrants, but they have nevertheless welcomed them in large numbers.
+- In truth, Jesus did not, in his own time, attract much notice.
+- If you think about it, Jesus was this religious genius who grows up on the Silk Road, and so He's getting from the West all these Greek ideas from Plato about body and soul.
+- Jesus discouraged the accumulation of wealth, worried about its effects on those who had it, and took special pleasure in helping the poor, dedicating his efforts to them. He must have shaken his head at the large gaps between rich and poor throughout ancient Palestine in the first century.
+- I regard Jesus, like the Buddha, as a figure with the power to shape our lives.
+- The fact is, we need markers in life, whether we subscribe to a religion or not. And the major holidays, such as Christmas, serve to remind us of the turning world.
+- As with all great works of literature, 'Of Mice and Men' moves with the inexorability of a huge river, and it pours itself, exhausts itself, in the sea of our unconscious. Having read it, we carry the book inside us forever.
+- When Gore Vidal was coming up, there were three major channels, and he could count on a big audience when he debated someone like William F. Buckley on TV.
+- American failures in Vietnam and Iraq suggest that it's not really possible to create and sustain a proxy government in a country far from our own borders.
+- I have a mystical bent, and I pursue daily meditations that follow the liturgical calendar - what are called the 'daily offices' of the church.
+- For the most part, I think of PC as meaning Plain Civil. You treat people the way you'd like to be treated yourself, and that means not using language that is demeaning.
+- Indeed, we might all forget where we have been if we didn't have somebody to assemble and arrange the little blocks called facts from which history is constructed, artfully or less so.
+- 'Of Mice and Men,' Steinbeck's fifth novel, adheres to a simple dramatic structure, which observes the classic Aristotelian unities of time, place and action.
+- In a country where Americans sense, quite genuinely, that their freedoms have been taken away by the government - as in the U.S. Patriot Act, as in NSA surveillance - people feel powerless.
+- The most dazzling aspect of 'Possession' is Ms. Byatt's canny invention of letters, poems and diaries from the 19th century.
+- For no good reason, George W. Bush and the best and brightest he could muster, including the likes of Paul Bremer and Paul Wolfowitz, decided it made sense to attack Iraq.
+- One thing a narcissist doesn't like is to look in a mirror that is in any way genuinely reflective of what's on the other side of it.
+- Christmas is, for those who wish to follow the way of Jesus, an invitation to accept into our comfortable and safe lives those who come to us from far away, who seem ragged, marginal, in transition.
+- Actually, a myth is a story that is not just not true, but it's a story that is especially true. And I think the myth of Jesus is especially true.
+- In a sense, I wrote the book about Jesus that I wanted to read.
+- Jesus remains the most influential person in history, one who has inspired untold followers for millennia.
+- Each year in early spring, during the season of Lent, which begins on Ash Wednesday and concludes on Easter, a plenitude of books, magazine articles, and television shows about Jesus appear.
+- I have written about some truly great writers - John Steinbeck, Robert Frost, and William Faulkner. Faulkner and Frost were the very peaks of American poetry and fiction in the 20th century.
+- In the Dead Sea Scrolls, there are many Aramaic texts from the time of Jesus, so one can get a pretty good idea of what the language of Jesus looked liked.
+- A long-running argument exists over whether Christians and Muslims worship the same God. In my view, they certainly do.
+- Whether we're looking at the burial box of St. James, a fragment of the True Cross, the Shroud of Turin, or some bones supposedly belonging to John the Baptist, there is always excitement and distrust, faith and doubt.
+- When you think about 'The Grapes of Wrath,' it's an American masterpiece, and a very long process goes into the making of such a book.
+- I came to know Gore Vidal in the mid-1980s, when I was living in southern Italy, virtually a neighbour, and our friendship lasted until his death in 2012. Needless to say, he was a complicated and often combative man.
+- I envy Muslims their practice of regular and genuine prayer. It's a beautiful practice that enriches their daily lives.
+- The ability to sympathize with those around us seems crucial to our survival, and it's connected to the mirroring functions of the brain.
+- It's not unusual for socio-economic, even racial or ethnic, groups to cluster.
+- The core of the Jesus message is what has made him relevant for twenty centuries.
+- I think that the practice of religion allows one to discover emotional and psychological truth of a kind not available in the secular world.
+- The whole Christmas story was probably a later addition to the gospel narratives, presented only by the authors of Matthew and Luke. Mark and John seem never to have heard of the manger in Bethlehem, the Massacre of the Innocents, the hovering star, the three wise men, and so forth.
+- The ancient Greeks and Romans were comfortable with any number of deities and were quite open to allowing conquered nations to continue to worship in whatever ways they saw fit, as long as they didn't mind having an emperor who required taxes and tributes.
+- The gospels were, in fact, written anywhere from forty to a hundred years after Jesus, and their authors attempted to demonstrate that Jesus could be seen to fulfill various Old Testament pronouncements.
+- It's time that Americans dealt seriously with guns, getting in place strong and appropriate measures - there is no excuse for anything but the strictest controls.
+- God is God, but he has various names in different languages, and each strand of monotheistic religion has multiple ways of describing the godhead.
+- The stories about the life and teachings of Jesus were mainly told in Greek, the original language of the gospels.
+- Among the disciples of Jesus, it seems most likely that at least Philip was bilingual in Aramaic and Greek.
+- American fundamentalist thought connected strongly to reactionary political ideology as nervous Christians pushed back against liberal reforms on many fronts.
+- To bolster his right flank and attract women voters, John McCain had cynically opted for a running mate who was, by any stretch of the imagination, unqualified for a position a heartbeat away from the presidency.
+- I've spent a good deal of time in the Middle East over the years, lecturing at universities in places like Egypt, Jordan, Israel, and Morocco.
+- By the time I went to college, I knew the major passages of the Bible pretty much by heart.
+- Then I studied theology in college, and when I was getting a Ph.D. in literature, I took courses in New Testament studies and studied Greek versions of the Gospels.
+- The United States is truly remarkable, a nation founded on a set of Enlightenment ideals so beautifully expressed by the Declaration of Independence and codified in the U.S. Constitution. We should feel good about our ideals, even when we don't quite manage to live up to them.
+- A. S. Byatt is a writer in mid-career whose time has certainly come, because 'Possession' is a tour de force that opens every narrative device of English fiction to inspection without, for a moment, ceasing to delight.
+- The U.S. invaded Vietnam because many in our government - Lyndon Johnson's best and brightest - imagined it could impose a government on that country that would provide a buffer against China and stop the supposedly rolling dominos of Communism.
+- I have always found the baptism of Jesus, with a dove descending and voice from Heaven, one of the great moments in the Jesus story. This is where Jesus hears the deep call from God.
+- So who is Jesus? For me, he's the central character in the greatest story ever told. It's a story about a gradually realizing kingdom that lies inside of us.
+- As 'Possession' progresses, it seems less and less like the usual satire about academia and more like something by Jorge Luis Borges.
+- My father was a Baptist preacher, and he used to read the King James Bible to me every single morning. He made me memorize it and repeat verses at night before I went to sleep.
+- Ridding the world of poverty is, of course, a fantasy.
+- Honest, simple work for young people is essential to their well-being.
+- With the Patriot Bill in place, the NSA no longer needed to get a warrant from a judge to tap into anybody's electronic information. A Surveillance State that would have boggled the mind of Orwell was born.
+- My earliest memories of holidays are from when I was about eight. We lived in Pennsylvania, and every year we'd visit Miami.
+- To Western eyes and ears, Sharia law seems devoid of respect for differences of opinion or complex moral thinking. Certainly the American idea of separation between church and state is lost in Sharia-style governance.
+- History is, of course, a made thing. It does not exist by itself in anything like a recognizable form.
+- Although the story of George and Lennie in 'Of Mice and Men' ends on a depressing note, there is a peculiar aura of human dignity in it, a hint of redemption.
+- We are a nation of immigrants, a quilt of many colors, and we've managed over more than two centuries to create a way of life that allows for a reasonable degree of upward mobility, that prizes individual liberty, promotes freedom of religion and genuinely values equal rights for all citizens.

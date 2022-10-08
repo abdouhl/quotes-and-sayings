@@ -1,0 +1,30 @@
++++
+author = "Erika Slezak"
+title = "Erika Slezak Quotes"
+quotes_len = "24"
+description = "the best 24 Erika Slezak Quotes"
++++
+- If you have ever been in a real tragic or sad situation, the words that come out are hopelessly inadequate and kind of cliched.
+- The worst storyline I've ever been involved in I wasn't involved in, because I was clever enough to get pregnant with my second child and they wrote me out and they replaced me with Christine Jones. And thank God - that was the worst storyline.
+- I've obviously made a very nice amount of money. I have a very nice lifestyle. I get to do what I love. Very few actors get to do that, and even fewer are lucky enough to work steadily for 24 years.
+- My parents had a wonderful marriage, but it was a very dependent relationship. My mother was entirely dependent on my father because that's how it was in those days.
+- I might be doing a lot more theater, which is kind of what I love, but there's simply no time for.
+- Daytime has been successful all these years because it caters to a very real need in the audience - to see something that's not nighttime fantasy. People watch daytime because it's like their lives.
+- There are lots of people in the world who do have the advantage of going to a good drama school and just decide that they want to be actors. There's nothing wrong with an untrained actor; they have to get their training somehow, they have to learn.
+- I was actually very pleased that they let me do it, because I feel very deeply for breast cancer survivors. I don't have it, but it is in my family. I've always been very aware of it. I go for mammograms and checkups.
+- My husband gave up all his work to stay at home with the kids, and we split all the duties at home. I do all the boring stuff - like pay the bills, and he does all the exercising for both of us, which I'm very grateful for... I thank him for it regularly.
+- And at five o'clock in the morning we left to drive to Old Tucson, and I sat with my mouth open in the van. I was stunned by the beauty of that country.
+- Fame an fortune are nothing if you're not happy and healthy.
+- My daughter is a freshman in college and my son is - well, our daughter and our son - is a sophomore in college. So they come home on selected weekends, they come home on vacations and they're home in the summer, although they have jobs.
+- Oh, God, I would love to go and do a play someplace.
+- I mean, I don't necessarily want to leave because I have this job, but I would love to do a good play.
+- But also, it's a wonderful thing for children to see the birthing of puppies, to see nature at its best when it works and to have the experience of the puppies.
+- We owned a bearded collie for many years. Sophie. She was old, and she died last year.
+- I think it's a mother's dream come true to see it work out that way. Not just the mother, but certainly parents, to know that their children have a very solid moral foundation and religious foundation.
+- Very few people run around and get amnesia and have comas and come out of them and do all the silly of people have strokes and have comas and come out of them and do all the silly things we do on soaps.
+- I haven't been on the stage in a long time.
+- Brian really kicked back on his own when Amanda was a baby. We had a long talk about it, and he was spending a lot of time in California working there and he didn't really want to spend all his time out there and have his children and his wife on the East Coast.
+- Jean's whole job is to protect Victoria. Jean is a very practical, very orderly, very disciplined person; she is the personality called the gatekeeper.
+- I have this personal affinity for the desert. I am fascinated by the desert. I love it.
+- You know, if you think about it, the most powerful people on this earth probably never raise their voices - they just say it and people hop to, because they have that power.
+- And I'm hoping that over the next 20, 50 years, whatever, the mystique of television and film and all that will diminish somewhat, and people will leave us alone to get on with our jobs.

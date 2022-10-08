@@ -1,0 +1,27 @@
++++
+author = "Peter Krause"
+title = "Peter Krause Quotes"
+quotes_len = "21"
+description = "the best 21 Peter Krause Quotes"
++++
+- Making a television show is a difficult, collaborative, creative endeavor, and it really requires everybody to band together and all work together every day.
+- I'm pretty political when it comes to human rights and things like that.
+- Well I'm not much of a singer. But it's been a really nice time to do film, television, theater and have it all happening at once. That wasn't planned but it just happens.
+- I'm a science geek. I even have a T-shirt with a glow-in-the-dark chart of the periodic elements.
+- People are first and foremost Republicans, first and foremost Anarchists, first and foremost a man or woman, and that is a mistake. It hurts the individual and it hurts the whole.
+- The best shows I've done, the writers, actors, and directors have been pretty much left alone - maybe given a little guidance to make it a little more this or more that. But the heavier the hand on the show, I find, the more troubled the show is.
+- I'm apparently attracted to things that are on the edge of what America really wants to watch: 'Six Feet Under,' 'Sports Night,' 'Dirty Sexy Money,' and 'Parenthood' were always struggling in the ratings. It was kind of heartbreaking not knowing if we get to come back every season.
+- I don't smack him around. I don't yell at him. And if he wants to go to the park in his pajamas, I don't care.
+- I think that being a conscious parent opens your eyes to the fact that any adult relationships that you have, whenever children are present on a daily basis, that they're modeling how they get along with people by what they see how you get along.
+- It sounds so trite but in relationships, you have to communicate.
+- I think that every show on television has its place. I think Married With Children or, I don't know, The Nanny... some people want to go home, turn on the TV and be able to iron their clothes or grab a sandwich. Come out and catch a joke and not have to follow the story.
+- I have the ability to move around without being recognized all the time. I mean, you want to be famous - but not too famous.
+- My bones are tired from all the tragedy in me.
+- We live in a country where people still get beaten to death because of their sexual orientation.
+- At this point, I'm spoiled. I've actually had a really blessed career.
+- I'm very wary of large groups of people getting together and trying to believe the same thing. It never seems to end well, whether it's political or religious or whatever.
+- I got to portray a park ranger on 'Gilmore Girls,' the reunion films. And when I was a kid, that was one of the things that I wanted to be - I wanted to be a forest ranger or park ranger.
+- And then, all of a sudden, you're like, all that's great and fun, but Arthur Miller's in my dressing room. This is the third night he's been here and he sits in my dressing room for an hour after each show, and talks to me for an hour. So I'm pretty spoiled right now.
+- I'm moved to think about the political state of our country right now. Most people who go out and vote have a very clear sense of what's right and wrong. And a lot of those people who don't aren't sure, so they don't go out and vote.
+- I started college Pre-Med. That lasted about half a semester.
+- Losing your patience and your temper isn't the most attractive thing, but as kids get older, you wind up raising your voice.

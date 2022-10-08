@@ -1,0 +1,28 @@
++++
+author = "Steve Buyer"
+title = "Steve Buyer Quotes"
+quotes_len = "22"
+description = "the best 22 Steve Buyer Quotes"
++++
+- From a generation that came of age during the Great Depression, millions of our country's best and bravest took up arms in a worldwide struggle against tyranny.
+- The men and women of today's VA are dedicated to caring for today's veterans and stand ready to provide for our servicemembers who now defend our freedoms and our way of life.
+- I strongly support the Bush Administration's clean diesel rules, which will reduce air pollution from diesel engines by more than 90 percent, and reduce the sulfur content of diesel fuel by more than 95 percent.
+- I also believe that Hurricane Katrina did reveal a weakness in our energy supply systems, highlighting the reliance this country has on the gulf coast for our energy resources.
+- Our greatest privilege and responsibility as leaders of the House Committee on Veterans' Affairs is to provide our veterans with a system that cares for their wounds and ensures that they have an opportunity to succeed.
+- The sacrifices ordinary American men and women from communities large and small have been willing to make, often before they were past their teenage years, have secured our nation unprecedented freedoms and made us the world's bulwark of liberty.
+- Each family of the United States military now attends to their loved ones funeral with a wrenching worry that it will be met possibly with a protest or a demonstration.
+- We, the people of the United States, we are a great Nation with a great vision.
+- As a matter of fact, when compression technology came along, we thought the future in 1996 was about voice. We got it wrong. It is about voice, video, and data, and that is what we have today on these cell phones.
+- In fact, it is often times a detriment for the Government to preemptively legislate on an issue before we can either define it or grasp its impact.
+- I expect VA's inspector general and the FBI to work closely together so that we can identify and eliminate the flaws that allowed this leak and prosecute any criminal acts.
+- Because all of us believe and understand in the fabric of the common bond of why we call ourselves American is to care for the men and women who wear the uniform; and when they take off the uniform, we care for them when they are veterans.
+- Since the Revolution, eight generations of America's veterans have established an unbroken commitment to freedom.
+- America's veterans embody the ideals upon which America was founded more than 229 years ago.
+- The young patriots now returning from war in Iraq and Afghanistan and other deployments worldwide are joining the ranks of veterans to whom America owes an immense debt of gratitude.
+- The nation's obligation to her defenders is as old as that defense itself.
+- It is my sincere hope that hospitals across Indiana, and America, continue to strive for excellence when it comes to providing medical care. This proposed rule will be harmful to communities who wish to upgrade their medical facilities.
+- Our nation has kept faith with its veterans. Funding for veterans healthcare and benefits is strong, and has increased more than 75 percent in the last decade.
+- More than 48 million men and women have served America well and faithfully in military uniform.
+- Men and women whose early youth was shaped in the ordeal of the Great Depression showed the values formed in that crucible when tyranny threatened a world.
+- For those who have made the ultimate sacrifice, we are grateful that such men and women were among us. For those who continue to serve, we honor their commitment. For those who return to civilian life, we honor their service.
+- Twenty-five million veterans are living among us today. These men and women selflessly set aside their civilian lives to put on the uniform and serve us.

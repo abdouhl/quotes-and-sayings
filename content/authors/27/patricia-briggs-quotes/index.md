@@ -1,0 +1,15 @@
++++
+author = "Patricia Briggs"
+title = "Patricia Briggs Quotes"
+quotes_len = "9"
+description = "the best 9 Patricia Briggs Quotes"
++++
+- Read good books. Read bad books - and figure out why you don't like them. Then don't do it when you write. If you are a science fiction or fantasy writer, going to conventions and attending panels is very useful.
+- I am not attempting to preserve culture, or record actual events or stories. Instead I bow my head in gratitude to those storytellers who have gone before and paved a way for me play in their stomping grounds. Doubtless those who want to be offended, will - allowing me to make them happy, too, which pleases me as much as it pleases them.
+- The cool thing about writing is that there is really never a typical day. Sometimes I get a rhythm going and head off to work every morning and come home at night. Sometimes I'll write for two days straight and then be utterly blank for the next two.
+- I've been a storyteller all my life. When I was in high school, I used to amuse myself by driving through the woods at night and see how long it would be before I scared the pants off my friends - and if I could do it before I scared myself.
+- The conflict between the creatures of Native Lore and the immigration of the European preternatural hosts is hinted at in 'Blood Bound' and reflects the conflicts between the human immigrants and the Indian people who were already here.
+- When I put magic into a book - whether it's a wizard or a crusty old werewolf - I'm asking a reader to swallow a huge leap that is counter to everything he or she knows. An extra big helping of reality makes that leap go down a lot easier.
+- When I write, I get glimpses into future novels.
+- For the traditional fantasies, a lot more of my research comes from reading rather than doing. I like my worlds to feel real, so I do a lot of world building research.
+- My mother was a children's librarian. I remember when traditional stories were revised for modern audiences until they bore only a nodding acquaintance with the originals, but were released as 'authentic Indian stories' when they were, in fact, nothing of the kind.

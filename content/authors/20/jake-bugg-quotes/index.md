@@ -1,0 +1,23 @@
++++
+author = "Jake Bugg"
+title = "Jake Bugg Quotes"
+quotes_len = "17"
+description = "the best 17 Jake Bugg Quotes"
++++
+- It can be disheartening to see acts that don't necessarily have any input on their own material to do so well in the charts.
+- I don't need an award to inspire me to keep making music.
+- My mum was a single mum on the dole.
+- YouTube is a good way to discover new music now because it comes up with that thing at the side with other artists you might like.
+- Three thousand people singing back your songs is an incredible feeling.
+- I don't care about the word 'pop'. The Beatles were pop; it's just what's popular.
+- The papers, you know, they're always gonna just make stuff up. They think it's in the public interest.
+- As a songwriter, it's very hard to listen to music that's not coming from the heart and soul, personally.
+- At school, people would say I should go on 'Britain's Got Talent,' but I would never have done that because it doesn't seem genuine; it doesn't feel natural.
+- Before I was 12 years old, I had no interest in music; I was just into football. Then I heard Don McLean's 'Vincent' come on at the end of an episode of 'The Simpsons.' You know when you hear something and you don't understand why you like it, you just do? That's how I felt. I just thought, 'I want to be able to write songs like that.'
+- Bob Dylan is great. I've been compared to him a lot. I think when people see a person on stage with a guitar they just think, 'Bob Dylan!'
+- I play music because I love it and I'll keep playin' till I'm old.
+- Obviously, with your first album, you want to make sure you are really happy with it.
+- Sometimes Lennon needed McCartney and sometimes Simon needed Garfunkel. You'd go mad doing everything on your own.
+- I would love to have been born in the '60s.
+- If a song is longer than three and a half minutes, it'll need something to keep you entertained.
+- One Direction? The young girls will grow up and forget about 'em.

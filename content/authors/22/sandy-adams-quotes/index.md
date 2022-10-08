@@ -1,0 +1,19 @@
++++
+author = "Sandy Adams"
+title = "Sandy Adams Quotes"
+quotes_len = "13"
+description = "the best 13 Sandy Adams Quotes"
++++
+- I am opposed to both cloning and the destruction of human embryos and adamantly opposed to funding of embryonic stem cell research.
+- The one endorsement that makes the most difference is from the constituents in the district.
+- The road to recovery is to stimulate small business and innovation by reducing taxation, regulation, and litigation.
+- At an early age, I quit high school at 17 and joined the Air Force.
+- I believe we should use all means necessary to prevent the acquisition or fabrication of nuclear weapons by countries or groups hostile to the U. S. We should act in concert with our allies who are similarly working to protect their countries.
+- I was married by 18 and I had a beautiful little girl.
+- I know that there are many on the Space Coast who are already attempting to address job creation and I intend to support them in every way possible. I will be a hands-on participant.
+- I have a proven record as an effective legislator, which I believe is my greatest asset.
+- I am a Christian. My husband and I belong to the Episcopal Church.
+- The federal and state governments should ban the use of taxpayer funds to support cloning and embryonic stem cell research.
+- We can't allow domestic violence to become a campaign issue.
+- I'm pretty sure I'm not at war with myself.
+- I'm an average citizen and always have been.

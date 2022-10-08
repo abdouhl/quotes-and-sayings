@@ -1,0 +1,106 @@
++++
+author = "Doug Ducey"
+title = "Doug Ducey Quotes"
+quotes_len = "100"
+description = "the best 100 Doug Ducey Quotes"
++++
+- As our economy advances, our government and our laws need to modernize, too.
+- It's a sad day when Republicans will attack fellow Republicans on an issue as fundamental as free enterprise.
+- I believe we need to ensure there are no refugees placed in Arizona with connections to terrorist organizations.
+- Too often, I hear stories of teachers and parents spending part of their paychecks to ensure there are supplies in the classroom - even basic necessities like pens, pencils and paper. This is unacceptable.
+- I have been outspoken on my opposition to 'Obamacare,' and I don't buy the line that our Medicaid program, or any function of government, has reached maximum efficiency.
+- Arizona has three of the top 10 public high schools in the nation. We know how to educate a child. We just need to do it more often in more locations, and where we're having issues are in low-income areas where - where kids don't have a parent that cares or two parents that care, and, of course, also in our tribal nations.
+- Conventional wisdom is not always the best wisdom.
+- I'm focusing on the issues that bring people together and build broad majorities.
+- Our teachers are valuable, and our public policy should reflect that.
+- This is America. Success is not guaranteed.
+- We want to make sure Arizona residents have the opportunity to learn about the decisions we are making and have a chance to participate in the process.
+- Arizona should be to the Sharing Economy what Texas is to Oil and what Silicon Valley used to be to the tech industry.
+- It's very easy for people to say what's wrong with education in Arizona, but if I'm elected as governor, I want to focus on what we're doing well and maximizing the impact of what we know is working.
+- I've visited schools all across our state, and the message is clear. Our kids have needs today, and our educators need more resources to do their jobs.
+- I've repeated time and again that Arizona is open for business.
+- Running to do a job as important as the governor's shouldn't be easy; it should take a lot of work, and I'm out there giving my best every day.
+- As our economy advances, educational attainment is going to keep Arizona competitive.
+- Franchises are independently owned and operated businesses whose owners are responsible for their operations.
+- If people want to take the time to vote, they should be able to, and their vote should be counted.
+- I want to be an independent and responsible voice for Arizonans, and it would be unwise to endorse a specific approach before the costs and benefits of these options can be evaluated.
+- Our officers are on the front lines - the first to show up on the scene of a crime. They should be respected; not ridiculed. They and their families protected; not put at risk.
+- The Governor's Office is going to get out of the litigation business.
+- Biotech research is incredibly important for health-care innovation.
+- As a former board member for Teach For America, I understand that every child has the ability to learn and that, no matter their circumstances at home, we have a duty and a responsibility to educate them and to do it well.
+- When Arizona became a state, the federal government granted our founders nearly 11 million acres of state land. Every time we sell a piece of that land, proceeds go into the Land Trust where the money is invested and earns interest.
+- I want to see us add more dollars to the classroom.
+- The American people overwhelmingly oppose taxpayer funding of abortions, and it's no different in Arizona, where we have long-standing policy against subsidizing them with public dollars.
+- We can't let government make long-term commitments that it may not be able to keep.
+- What many don't know is that Arizona has a something called the State Land Trust - a fund with assets that have been set aside and invested for decades specifically to benefit education.
+- Maintaining a positive working relationship with Mexico's leadership will also be crucial to increasing communication and trade. I plan to personally maintain those relationships.
+- Texas has an established trade office in Mexico City, as do other Texan cities. They have a more mature trade relationship with Mexico, and I want to make Arizona a leader in this area also.
+- You still find a great sense of possibility here, and I want to make sure that Arizona stays that way. I want us to be the welcoming, job-creating state we've been from the start, a place where everybody's got a chance.
+- I built a company, a team, and a brand that started right here. It was an American success story, and it started right here in Arizona.
+- I am a forthright defender of the right to bear arms - which is guaranteed not only by the U.S. Constitution, but by the Constitution of Arizona.
+- I'm a believer in private enterprise, the dignity of work, limited government, and the possibilities of freedom.
+- Serving ice cream isn't exactly like serving in state government, but what I learned guides me today.
+- Speculation replaces fact. It's very easy to see news outlets running with information that is unconfirmed or erroneous.
+- My focus will be a strong and growing economy - so everyone who wants a job can find one.
+- When it comes to free speech and participation in the democratic process, our laws should reflect the goal of making it easier for more citizens to engage.
+- I don't have a real attraction or interest to national politics, so I want to see Republicans win across the board in the state of Arizona, because those policies of lower taxes and lighter regulation and strong foreign policy are important to me.
+- Some people never learn, no matter how much their heads hurt in the morning.
+- Setting the state budget is one of the most important tasks we undertake at the state Capitol - because after all, it's the people's money - not the government's.
+- Arizona has excellent medical schools, both public and private, and it is critical that we create an environment that keeps medical students in Arizona to practice medicine once they complete medical school and their residency programs.
+- I took an oath of office to protect Arizona from all enemies, foreign and domestic.
+- I honestly believe that we are Arizonans and Americans first, not merely advocates for our respective political parties.
+- I'm always concerned about how our state looks.
+- If there's one thing Arizona is best in the nation at, it's water.
+- We think that this message - of someone that's from the private sector that built a company and now wants to shrink a government and grow an economy - is a winning message.
+- I'm a pro-growth, small-government conservative with a background in free enterprise.
+- I strongly believe that more money needs to be spent in the classroom.
+- As governor, I want to make sure that Arizona's hardworking taxpayers get to keep more of what they earn.
+- Every dollar spent on education should go toward helping our teachers teach and our students learn.
+- Like many of us in Arizona, I wasn't born here - I'm a product of the Midwest and the working class.
+- As parents, we all want the best for our children.
+- One area where the state can be more effective in addressing the doctor shortage is to focus on making sure that Arizona is a friendly environment for doctors and those wishing to practice medicine.
+- To say that I'm going to veto something that I haven't read is just - or sign something that I haven't read - I don't think is good policy for any chief executive.
+- Sky Harbor may be a city airport, but it's an Arizona vital resource used by citizens all over the state, and our economy is dependent on its success.
+- We should be working with the governor of Sonora to establish a commercial sea port on the coast of their state.
+- Earning a certificate or degree, or both, after high school opens the door to countless economic opportunities.
+- Every large brand has franchisees and stores that don't make it. It's unfortunate, and Cold Stone did everything it could to support its franchisees, but some failure rate is part of the business.
+- Government must continue to live within its means.
+- We will ensure Arizona continues to grow jobs, not destroy them.
+- As CEO of Cold Stone Creamery, we used a concept called 'search and reapply,' which meant that if we found better ways of doing something, then we would do it.
+- I ran for public office to do something good.
+- We should empower teachers to do their job by cutting wasteful spending and crippling bureaucracy, not classroom resources our educators and students need.
+- Let's learn from our peers and then beat them at their own game.
+- As I have traveled the state, I have seen firsthand that there are Arizonans who are hurting.
+- We all should be concerned if our kids don't know who Sandra Day O'Connor, John Adams, and Ronald Reagan are.
+- Governors compete. States compete. People & businesses decide.
+- I hope you'll find that my campaign was a reflection of how I plan to govern - bringing people together, building coalitions, and finding common ground.
+- My philosophy is that I may not like all the questions that you ask, and you may not like all the answers that I give, but this is part of a transparent government.
+- A great economy requires great public schools.
+- I built a company; now, I would like to shrink a government and grow an economy.
+- If you're old enough to father a child, then you're old enough to accept financial responsibility for that child. If you don't want your embarrassing, unlawful, and irresponsible behavior going viral, man up and pay up.
+- As governor, it is my highest priority to protect Arizona citizens.
+- Where opportunities to expand trade and commerce exist, we will lead, and we will partner.
+- In many respects, Arizona is a model for the rest of the country on best practices for water management.
+- Education standards need to be set at the state level. High standards are an important way to ensure that the education system we are funding is actually working and producing, at a minimum, what we would expect it to.
+- These are basic, nonpartisan, non-ideological questions. How many United States senators are there... who was the first president.
+- I'm committed as governor to valuing and nurturing our relationships with our friends to the south.
+- I am a believer in the rights of the unborn and the goodness of every life, and I have promised that, as governor, I will champion those values.
+- In our administration, we're going to follow the law, and any policy that we move forward will fall well within the law and the Arizona Constitution.
+- I'm very comfortable, of course, just with my family.
+- I understand the dignity that comes from work and caring for one's family.
+- We want to control our own destiny and take responsibility for our own outcomes.
+- By working together, we can make Arizona a place where everyone has an opportunity for a better life.
+- Texas has more effectively capitalized on its opportunities as a border state, and I've always said that I want to look to states that are doing better than we are and replicate those success stories in Arizona.
+- I enjoy being out; I like being around people, but at a certain point in time, I kind of run out of charming, and I'm ready to go home, and I'm very comfortable alone.
+- If you saw a better idea or business anywhere in the world, and you could reapply it legally and ethically and with attribution, you were supposed to do that. And I used that learning in building Cold Stone.
+- We don't want Arizona to be dependent on the whims of Barack Obama and the federal government.
+- The threat from radical Islamic jihadists is real and needs to be taken seriously.
+- Federal government has forced a one-size-fits-all model on our education system.
+- The best way to keep water prices down is to avoid unnecessary increases in costs.
+- States with better-educated citizens also see economic benefits. These states have better luck recruiting and retaining quality employers, and they enjoy lower overall rates of unemployment, poverty, and welfare dependency.
+- Ice cream brings people together.
+- My focus is 100 percent on my day job, on the state of Arizona.
+- Arizonans want us to come together, put aside politics, and solve problems. You want us to do our jobs in way that reflects the best of our state. You want us to stop and listen - something that doesn't always come naturally to people in politics.
+- One way to ensure that all kids will be successful in school and life is by focusing on literacy by the end of the third grade.
+- One state can't set everything right, but here in Arizona, we can set an example for the rest of the country in how those of us in elected office conduct ourselves and interact with each other and our constituents.
+- Thriving economies on both sides of the border is a win-win for Arizona and Mexico, but that will only come by working together and demonstrating mutual respect.

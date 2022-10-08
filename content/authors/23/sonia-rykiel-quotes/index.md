@@ -1,0 +1,91 @@
++++
+author = "Sonia Rykiel"
+title = "Sonia Rykiel Quotes"
+quotes_len = "85"
+description = "the best 85 Sonia Rykiel Quotes"
++++
+- People said making clothes inside out was not proper. I disagreed, because clothes that are inside out are as beautiful as a cathedral.
+- I didn't listen to anyone. I was so violent, so authoritarian, only listening to what I wanted and myself.
+- Knowing yourself, and learning to love yourself as you are, is the beginning of beauty. I think the most important thing is to show off what's most beautiful about you and to hide what's less beautiful.
+- My color is black. And black, if it's worn right, is a scandal.
+- As soon as the show is over, I always think, 'How will the woman I design for go forward?' It's so important to start quickly because I can't let her get away.
+- I just can't live without chocolate - I have between two and six pieces every day.
+- I never played a part in the feminist movement - it touches me, but I am not a militant.
+- It is interesting to see what other designers do, and not work in a vacuum.
+- Being one step ahead of a fashion trend is not so important to me. What matters is to always forge ahead.
+- Since I didn't know anything, I did everything I wanted.
+- When a woman confuses what she is with what she wears, then something is wrong inside.
+- At hotels, you are an actress. Absolutely. You can do what you want. Go where you want. I love my home too. But I love to arrive in a hotel. They have books, chocolate, food. I put things in the little refrigerator.
+- Everything I do is really an expression of myself, through colors and shapes and, at the same time, I try to explain what I feel not only as a creator but also as a woman. I cannot separate one from the other.
+- My first conversation of the day is with my daughter, Nathalie. I call her every morning; it is a ritual.
+- You have to be luxurious nude. It's difficult to move in the nude in front of a mirror. It's much easier to move when you're dressed. But if you can walk around in the nude easily in front of your man, if you can be luxurious in the nude, then you've really got it.
+- When I started in fashion, for the first 10 years, I said to myself every day, 'I'm going to quit tomorrow.'
+- To me, the biggest revolution of the 20th century was the pill.
+- For me, luxury isn't just the real thing. It's also fake. Swarovski crystals or real diamonds? It's a game.
+- The lead of a film that wove around me, I played all the roles. I traveled the world; I loved life, pleasure. I adored to write, create.
+- I want women to learn to find themselves.
+- I always believe in pants. You can play with your legs, your attitude, with pants. It's much more funny. It's much more sophisticated. It's much more arrogant, like a man with feminine attitude. I love pants.
+- The pill was the liberation of the spirit of women.
+- I came from an intellectual Parisian family. My father was a watchmaker; my mother was a housewife. We discussed politics, art, sculpture - never fashion.
+- I don't read e-mails because I hate them.
+- I became the world's queen of sweaters without even knowing how one was made.
+- As soon as I am up, I brush my hair. I eat breakfast first: tea and brown bread, and sometimes a fresh fruit juice like orange or grapefruit. I write notes on the previous day in my notebook, then I shower.
+- Paris was a melting pot.
+- My view is that you have to deal with who you are. It's hard work, in a way, but somebody has to do it.
+- It's important to keep on keeping on, to feel good about yourself and be happy with who you are.
+- What pushes me forward is everything I have learned: political, social, cultural. I put all that into the clothes.
+- With only one bag, you can change your outfit completely.
+- Women should look at themselves and decide for themselves what color or length they should wear.
+- I hate wasting time getting dressed. I like to put something on and just think, 'Yes. That's it.'
+- A man is attractive when he is slightly disturbing like a woman, a woman when she's a little disturbing like a man.
+- I don't think I would ever have plastic surgery; there isn't anything I'd want to change.
+- I don't know why some women don't wear make-up. Every woman should gild the lily.
+- I was a tomboy, always fairly eccentric, and convinced I'd grow up to be an actress.
+- I have no regrets in life, and you know what? If I could, I'd go back and do it all again.
+- My fashion has no time, no season. It doesn't go out of style. If someone decides that clothes can go out of fashion, then you are deciding a woman can go out of fashion.
+- How can you live the high life if you do not wear high heels? I don't understand why women wear these ballet pumps. They are only good if you walk like a ballet dancer, and only ballet dancers do that.
+- Fashion should be a kind of bouillon de culture.
+- I am a perfectionist. It has always been this way.
+- My only ambition was to have 10 children. Fashion was an accident.
+- You can have a conversation with your eyes.
+- Artifice is art.
+- The Rykiel woman? She doesn't have time to stop time. She's too busy running. In her hands she's carrying a tote, a baby, a book, a camera.
+- I don't want to show my pain. I resisted; I hesitated. I tried to be invisible, to pretend that nothing was wrong. It's impossible; it's not like me.
+- My favourite feature is my hair. It has always made me look different. It was so red when I was born that my mother thought I had blood on my head. When I was a teenager, I looked like a tomboy, but then I understood that I could be a woman who was an intelligent mix between a lady and my mannish side.
+- To be modern is to be aware of what is going on.
+- I have never followed fashion. What is fashion to me? I just think of things that inspire me, that inspire women, and I design that way.
+- It's useless to send models out on the runway to cry.
+- I invented a sweater so small, so close to the body, that Women's Wear Daily nicknamed it 'The Poor Boy Sweater' and consecrated me queen of knitwear.
+- I have the impression that the women around me are like me - smaller, taller, fatter, thinner - but in fact, we are all the same.
+- The natures of men and women are very mixed, and for me, the most fascinating type of woman is the one who is a little masculine, has a little of the man in her, and the sort of man who is fabulous is the one who is a little woman, too. It's impossible not to mix them!
+- I wanted women wearing my sweaters to give the impression they were naked. The aim wasn't to impose outfits but to stay as close as possible to women's bodies and their freedom of movement.
+- Everyone knows that life is very expensive and you can change, you can turn, you can play with clothes with a lot of accessories.
+- A woman who walks well parts crowds - it's something we should all be taught to do.
+- I've never been interested in dressing one woman. What's interested me was to have a philosophy. It hasn't been important to put a woman in a blue dress. I wanted to dress women who wanted to look at themselves. To stand out. To be women who were not part of the crowd. A woman who fights and advances.
+- It's not true that clothes look better on skinny girls; what counts is the attitude.
+- Like Picasso, I go through blue periods, green periods, or grey periods.
+- I don't know how to knit.
+- I'm not brave, I'm not fantastic. I'm like any other woman. I'm unhappy. I'm difficult. I'm sad. Am I strong, too? Maybe, but not always. There are days when I don't want to see anyone. The most important thing you learn? You can live with it.
+- A woman and a dress, very often, fight against each other because they are not at the same place. Sometimes you see the woman moving the belt around. She is making the robe her own. She needs that. Otherwise, the dress doesn't exist.
+- I hate the word 'feminine!' I mean, there is a woman and a man, and when I say 'woman,' it suggests all that is radiant, tender, fascinating, gentle, demoniac, exaggerated! 'Feminine' makes me think of somebody who is spindly and over-sweet - I don't like that!
+- My mother knitted a lot, but I never did; it was no fun.
+- My shows are about the complete woman who swallows it all. It's a question of survival.
+- My breakfast is very important.
+- I love chocolate. Black chocolate with marshmallow inside, caramel inside. If I could only have two foods, I'd take some fantastic chocolate. And some terrible chocolate. I love the Clark Bar.
+- French women famously take care over their appearance, but this wasn't instilled in me as I grew up. I was taught that beauty comes from different places, from the inside and from the outside.
+- I was fascinated by stripes from the start. On clothing, they follow a woman's movements.
+- The key to my collections is sensuality.
+- Women often stop me in the street.
+- I wanted a maternity dress, but I couldn't find anything I liked. Everything was abominable. So I made one. Then I made a pullover. 'Elle' put it on the cover. Then WWD elected me the Queen of Knitwear.
+- Wherever I go, I buy shoes.
+- I think in the darkest moments, we need a break.
+- People are going to figure out that I don't know anything. I always thought I'd be discredited in the end.
+- A dress will never make a woman sexy, fatale, magnificent, mysterious. It's a way of walking, of standing, or existing, the way you give your hand or your regard. That's what makes the dress.
+- I care a lot about my looks, although I'm not too adventurous. Every day I dress the same way in a kind of 'uniform' of black, although in varying fabrics - it's always black.
+- First I made a dress because I was pregnant and I wanted to be the most beautiful pregnant woman. Then I made a sweater because I wanted to have one that wasn't like anyone else's.
+- We are working women. Also, we have the problem of children, of men, to take care of our houses, so many things. I try to explain that in my clothes. They are clothes for everyday life. That is the real life of woman.
+- I am what I am. Before I was not so proud to make fashion. My family thought fashion wasn't very interesting. So I hid that.
+- 1968 was the beginning of the hippie movement in fashion. That movement made fashion change completely. It was not necessary to be always dressed up. You could be dressed the way you wanted - it was absolute freedom.
+- I don't think that clothes have anything to do with the personality. That comes from the woman herself.
+- I wasn't interested in fashion originally. Fashion was for other people.
+- I was supposed to be a mother like my mother, who didn't work.

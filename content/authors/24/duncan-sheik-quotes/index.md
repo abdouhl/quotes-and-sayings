@@ -1,0 +1,42 @@
++++
+author = "Duncan Sheik"
+title = "Duncan Sheik Quotes"
+quotes_len = "36"
+description = "the best 36 Duncan Sheik Quotes"
++++
+- I actually am always a music first person.
+- I certainly wouldn't say that my life is a disaster, but there have been moments where I've felt like that.
+- My second record was all about big ideas - I was trying to make big statements about the culture, about life. I think in a certain way, I was a 27 year old kid with a guitar.
+- I wouldn't say that I've had a tough life by any stretch of the imagination.
+- A real foolproof way to do it is play your stuff by hook or by crook and build up a grass roots following.
+- If I were to do this over I'd play a lot more shows before I made a record.
+- I started playing music at a pretty young age.
+- I'm a pretty big P.J. Harvey record fan and you can really hear New York in his record.
+- For my second record I had gotten ProTools (program) and started to familiar myself with hard disc recording.
+- I actually think sadness and darkness can be very beautiful and healing.
+- My first two records were more energetic; Phantom Moon is subtle, quiet; so these various reactions are just something I expected.
+- I got a publishing deal with BMG, they were supportive, and some money to record demos.
+- I feel fortunate about being able to make the music I want to make and getting away with it.
+- I'm fortunate I have this coterie of musicians around me to help take music to next level. Being surrounded by so much creative energy, so many creative people really feeds that creativity in me.
+- Things come to me pretty regularly. There is never a shortage or a backlog.
+- The experiences of promoting my first album were really something; there is so much illusion in my environment (touring and pop music) that I wanted to clear away.
+- Happy music doesn't tend to move me much.
+- The difficult thing about a pop record is that you're given guidelines: it has to have 3 choruses, and then it must be between 3 minutes fifteen seconds and three minutes forty-five seconds.
+- I think my Buddhist practice has a profound influence on my life and encompasses my creative projects.
+- Lately I've been a workaholic. I'm in the studio all the time and I've helped to produce a couple of artists.
+- Because of my Buddhist practice, I'm never lacking for inspiration.
+- I'd have these weird experiences where I'd just be walking down the street with this chord progression in my head, this happened more than a few times, and I'd walk home and find a fax in my machine and it would match the music in my head.
+- I privilege the music over the lyrics.
+- It's inevitable your environment will influence what you do.
+- I think in a way I was probably completely naive about what it takes to make something become a hit.
+- But really important, perhaps most important is the craft; how you make your record, the creation of these sonic worlds you want your listener to hear.
+- So I started chanting when I was nineteen, which was about twelve years ago, and it really had a huge impact on my outlook, happiness, and general creativity.
+- I mean, at the end of the day when I'm making a record, what I want to do is what I do.
+- I also wanted to make a record that was about other things than romance, yeah, after two years on the road singing all the songs from the first album, I got kind of tired of that.
+- I make the kind of music I like.
+- Simon Hale, the British arranger, does all string and wood arrangements on my records.
+- I try to make sure that the Buddhism is more or less implicit in the music rather than explicit.
+- But I can't really say there is too much modern music that I'm blown away by at this moment.
+- So, once I've written a song, you know, I'm pretty happy with what the song is on its own terms.
+- Ultimately, if I'm really moved by something, it's going to go on the record and that's that.
+- And frankly, when I made that record, hit songs were not what I was trying to achieve.

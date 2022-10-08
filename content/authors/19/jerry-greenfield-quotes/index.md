@@ -1,0 +1,33 @@
++++
+author = "Jerry Greenfield"
+title = "Jerry Greenfield Quotes"
+quotes_len = "27"
+description = "the best 27 Jerry Greenfield Quotes"
++++
+- One of the great things about Ben & Jerry's for me is that not only is it delicious, but I get it for free.
+- I like that Ben & Jerry's is willing to speak out about social and political issues that aren't always safe - but are the right thing to do.
+- We measured our success not just by how much money we made, but by how much we contributed to the community. It was a two-part bottom line.
+- I eat many different ice creams. I'm not an ice cream snob, although I do think Ben & Jerry's is the best. But I'm happy to eat anybody's ice cream, really. As long as it's good.
+- One out of every 100 families in Vermont was a part owner of Ben and Jerry's.
+- If you happen to believe what Ben & Jerry's is supporting and involved in, then you should support the company. If you don't believe in what we are supporting, don't support it.
+- Business can be a source of progressive change.
+- The reality is that most companies are not about any values at all - they are about making money. It is extremely rare for a business to stand for anything because most businesses don't want to alienate potential customers, and if you believe in anything you are going to alienate someone.
+- Don't just do something because it's a trendy idea and will make you a lot of money. The reason I say that is because any kind of venture involves going through difficult times. If you're doing something you are passionate about and really believe in, then that will carry you through.
+- Ice cream is the perfect buffer, because you can do things in a somewhat lighthearted way. Plus, people have an emotional response to ice cream; it's more than just food. So I think when you combine caring, and eating wonderful food, it's a very powerful combination.
+- I'm a pretty laid-back kind of guy. What I've always wanted to do is set up situations in our company where if people who worked there needed help, we would try to help them, and at the same token if the company needed help from people, they would help us. A kind of give and take.
+- Businesses typically look at issues like price, quality, time of delivery. They don't often think about social and environmental impact because they're focused on their financial bottom line.
+- Now, when we face a problem like global warming, and you understand that the biggest impacts on global warming come from business and industry, I think business needs to take a leading role.
+- When you are led by values, it doesn't cost your business, it helps your business.
+- Startups are often very undercapitalised, but I found that to be very beneficial because it forces you not to throw money at problems. Instead, you learn all the nuts and bolts of what you're doing and become an expert.
+- If your support the community, they will support you.
+- It's good to stand for something, to believe in something and base your business on values.
+- It's pretty rare to have CEOs or high level executives at big companies who are social activists. They tend not to be drawn to those areas of life.
+- Look at your business and the activities that you undertake. Then, start to think about not just your economic concerns, but about social and environmental impacts that businesses have.
+- If you open up the mind, the opportunity to address both profits and social conditions are limitless. It's a process of innovation.
+- Ben & Jerry's is an indulgent dessert that should be eaten in moderation. You should not be replacing more than one meal a day with ice cream. We do not consider a pint or a tub of ice cream to be a single serving.
+- I guess I harboured hopes that things would happen more quickly, but I'm not disappointed.
+- So much business is based on the belief that we should do whatever we can within legal limits to make as much money as we can. Ben & Jerry's was based on values, and we try to operate a business that not just sells ice cream but partners with all our stakeholders - whether that's suppliers or customers - to bring about a more sustainable world.
+- You know, I get frustrated with our country's administration, which is really the people who are not acknowledging global warming. I mean, it's accepted by scientists around the world, scientists in our country and it's accepted by every country around the world with the exception of the United States.
+- Ben & Jerry's evolved into what it is doing and is trying to transition its supply chain, but this is essentially retrofitting. In the social enterprise movement, we see companies whose essence, the products they make, the reason they exist from day one, is because these people see something out in the world that they cannot accept.
+- Businesses can lead with their values and make money, too. You don't have to simply be purely profit-driven. You can integrate social and environmental concerns into a business, be a caring business, be a generous business and still do very well financially.
+- Recycling, packaging, businesses are changing all of those things because that's what consumers want.

@@ -1,0 +1,48 @@
++++
+author = "Steven Adler"
+title = "Steven Adler Quotes"
+quotes_len = "42"
+description = "the best 42 Steven Adler Quotes"
++++
+- Every 15, 20, 25 years, a new rock and roll record needs to come out and a new rock and roll band needs to come out.
+- I used to wake up in the morning and say, 'Oh, God.' Now I wake up in the morning and look forward to life.
+- I've been blessed. I grew up and played and worked and created with the Freddie Mercury, the Jimi Hendrix, the Keith Richards, the John Paul Jones of my generation.
+- Part of recovery is relapse. I dust myself off and move forward again.
+- One thing about Texas people, they're very passionate about their Rock N' Roll, and I love it.
+- Drummers are conductors - we set the pace for the music - so if you're not relaxed and feeling right, the whole thing goes out the window.
+- I want to go to Heaven, and I don't want to come back. I don't wanna come back and be a baby, and be a teenager again. Oh my God, no! No, I don't want to be a teenager again. It's too awkward.
+- It's only rock and roll, my god! It's not rocket science.
+- I'm very influenced by jazz drummers. I always liked drummers like Roger Taylor, Keith Moon, Ian Paice, John Densmore. I just learned from playing to those drummers.
+- I always knew that we were going to be successful and accomplish and succeed at our dreams. There was never a doubt in my mind. When we were recording 'Appetite For Destruction', we all knew.
+- If the Police could do a reunion... One of the biggest jerks I ever met was Sting. If he can do it, then anyone can do it. It's not that big a deal. And the Eagles! They did it! They severely hated each other. It's just rock and roll.
+- We owe it to the fans to do a tour around the world.
+- I want to be in the big show, and to be in the big show, you have to practice. I have this attitude now that I'm going to take all the greatness I can. Nothing's going to stop me.
+- I originally wanted to go into sports, but my first concert was KISS at the shooting of 'KISS Meets The Phantom Of The Park.' The minute I saw Gene and Paul... it was all over. I knew that's what I wanted to do.
+- People fight, they get angry, they do drugs, and they do crazy things.
+- I just had lunch with Slash two days ago. He loves Axl. He holds no grudges towards him. Twenty years of great music wasn't created because of some stupid grudge. That's a shame.
+- GN'R was five guys who were all into different things. I liked pop and disco, Izzy was into New York rock, Slash loved Aerosmith and Led Zeppelin, Axl was into Genesis and Elton John, and Duff was a punk rocker. We all blended that stuff together.
+- I look in the mirror and see a few scars, but I like myself.
+- I thank God, Jesus, and my Grandmother for being able to support myself and my family.
+- I'm not angry with Axl anymore. I love him and I feel blessed that I got to work with him and achieve what I achieved with him. I guess time does heal all wounds.
+- I wasn't able to make the full commitment until I met 'Celebrity Rehab's' Dr. Drew.
+- Don't try to follow any trends, just concentrate on writing great songs and knowing your instrument. All the other stuff will fall into place.
+- Every musician, their goal in life is to play music that people love, and I've accomplished my goal. I was inducted into the Rock and Roll Hall of Fame and left that chapter of my life and those people in the past. Good and bad, I've loved and am thankful for that chapter.
+- Loud is a way of life.
+- My health is wonderful. I work out. I'm working. Playing music. I have a beautiful wife, a nice home, a nice car, I got money in the bank. I got three beautiful dogs that love me. Like I said, I'm blessed. I survived.
+- I have to say, the coolest person I ever met in my whole life is John Mellencamp. I never met a person who was more secure about himself and his person.
+- If it wasn't for KISS, there would be no Guns N' Roses. Bands like that made Guns N' Roses. We were five guys with five personalities and five different influences. The stars were aligned for us.
+- I'm not a big metal fan. I love and respect the musicianship, which is spectacular.
+- Nothing is cooler and more attractive than a big comeback, and that'll be me.
+- The only thing I want to be satisfied in life is to do one reunion tour with Guns N' Roses. I would like to finish what I started with them.
+- I just got tired of being sick and tired and feeling down. Unfortunately, you don't realize this until you're getting sober but the reason why you're depressed all the time is it's the drugs that are depressing you.
+- You gotta pick yourself up. Sometimes you just gotta do it over and over, but you gotta do it. You can't give up. I wouldn't give up. I didn't give up - or doubt myself - in becoming a successful musician with a successful band.
+- You can have all the riches and success in the world, but if you don't have your health, you have nothing.
+- The real shame about the ending of the Guns N' Roses when I got kicked out wasn't just that I got kicked out, but Slash and Axl stopped working together.
+- In every language you can imagine, I've had people say 'Appetite For Destruction' is the soundtrack to their lives. I don't think you could say something nicer to an entertainer or performer - can't get more respectful.
+- The golden rule of drums is hands clapping and feet tapping, and when you are in and out of consciousness, you can't do that to best of your ability.
+- There are so many Al Anon fans and friends who have shown me wonderful love, prayers, thoughts! I thank everyone for this. It feels great to have wonderful people behind you, pushing and praying for you. Mostly, I don't want to let myself down, but they encourage me not to let them down.
+- It's hard to find five musicians who know what the other is going to do before they do it. And that's what we had in GN'R.
+- Slash, Axl, Duff, Izzy and I are all brothers. Axl and his lawyers cannot take away what we had. As long as we are alive, we have it. We are brothers and what do brothers do? We fight. I may not like them all the time, but I will always love them.
+- I'm not gonna be a slave. I'm a rock n' roller.
+- You figure that time could heal all wounds, but some people just really hold a crazy grudge.
+- When I was growing up, you would put on a KISS record or a UFO or Aerosmith record and listen to it from the first song through the last song. It's been so long since a band has put out a record like that.

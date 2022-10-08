@@ -1,0 +1,23 @@
++++
+author = "David Lambert"
+title = "David Lambert Quotes"
+quotes_len = "17"
+description = "the best 17 David Lambert Quotes"
++++
+- Music will always be there. I own a piano. I have it in my apartment. I play it every day, and I have a lot of musician friends who I play with.
+- Puerto Rican culture is very lively; very lively people; very warm people; and the food is really great. We're all about cooking a lot of food and having family around, we're kind of loud. It's that sort of vibe and it's great.
+- I feel like it's always a good sign when you find yourself talking for hours about every topic ever. It's best when you just find the person interesting for no apparent reason.
+- I'm a big fan of independent girls who are strong-willed, vocal in their opinions, and have a sense of humor.
+- As an actor, I'm always so excited about those things that I get to stretch my legs and really get to do something that's hard to do.
+- I'm the oldest in my family and do play piano.
+- My family actually moved a lot growing up. I really only lived in one place every five or six years, and then we'd move again. That was just for my dad's work.
+- As I got older, I'd say probably when I got to, like, seventh or eighth grade, I was living in Atlanta, Georgia at the time, and I went for an open call for an agent, a local agent out there, a woman named Joy Purvis, and she ended up picking me up.
+- I know Spanish pretty well. I'm half-Puerto Rican - my mom is from Puerto Rico - so I have a lot of family there, and my mom's first language is Spanish. But growing up in the States, and with my dad being from the States, I'm kind of just like this white kid.
+- I owe everything to my mom. She definitely got me to where I'm at today. Without her I wouldn't be able to do the things that I do. She and I are very close.
+- When I was in Taiwan, we were there for about 8 months, and I was 11 at the time, so it was definitely a culture shock. But it was a really interesting time to be there. I didn't entirely realize how different it is from the States. I just accepted it because I was there and my parents needed to be there.
+- Acting truly is a love of mine.
+- I did theater for fun, and I didn't really think it was anything serious. I met a lot of kids through it, and it was pretty social for me.
+- I actually really like Christopher Walken. I find him a really interesting actor. He's such a character that I love everything he's in.
+- I'm one of 3; I have a 16-year-old sister and an 11-year-old brother. We're all very close. We're an interesting family, and we moved a lot when I was younger. I feel like we are very tight knit because we had to sort of jump and leave places and start over again and again.
+- I actually watched 'Lord of the Rings' right when it came out, so maybe 2001 or 2002 or whenever that was. But I watched those movies, and I ended up loving them so much that I found every behind-the-scenes feature and every sort of 'making-of' clip they had.
+- Acting goes back a little ways for me. I supposed I started with theater growing up. It was mainly a social outlet and it was just kind of something I did for fun. I met a lot of good friends through it, so it really kept me involved.

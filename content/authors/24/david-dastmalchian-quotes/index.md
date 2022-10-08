@@ -1,0 +1,13 @@
++++
+author = "David Dastmalchian"
+title = "David Dastmalchian Quotes"
+quotes_len = "7"
+description = "the best 7 David Dastmalchian Quotes"
++++
+- I've keep every comic I've bought in my life. I used to be obsessive about boarding and bagging them all.
+- Directing is not on my agenda, but writing is. I want to write everything from action, superhero films to quiet dramas, smaller films.
+- The first comic book I ever bought, I was in third grade. It was 'Avengers,' I think, #240. I grew up in Kansas City. And I walked into a 7-11. I had seen, like, 'The Hulk' TV series. I knew about comic book heroes. I knew about it, but I hadn't actually had a physical comic in my hands until that time. And it was a big deal for me.
+- There is a quality of selfishness that is associated with an individual when they are in the depths of addiction.
+- Life is filled with tragedy, with long patches of struggle and with, I think, beautiful bursts of joy and accomplishment. Blessed with those moments, you just try to relax as much as possible and focus on the little things, like the joy of changing your baby's diaper.
+- I do love writing. It doesn't come to me as readily as I think acting does. I think acting is in my instincts. Writing is a craft that I work very hard at. And I have to train and continue to develop.
+- If you look at Stan Lee and the Marvel comics, yes, there's a lot of awesome, serious and dramatic action that takes place.

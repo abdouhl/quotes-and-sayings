@@ -1,0 +1,95 @@
++++
+author = "Jonathan Safran Foer"
+title = "Jonathan Safran Foer Quotes"
+quotes_len = "89"
+description = "the best 89 Jonathan Safran Foer Quotes"
++++
+- In high school I became a vegetarian more times than I can now remember, most often as an effort to claim some identity in a world of people whose identities seemed to come effortlessly.
+- The purpose of the Seder to my mind is to inspire conversations with your family about the human drama and hopefully transmit values to the next generation. I've always felt like this could be better.
+- Living on a planet of fixed size requires compromise, and while we are the only party capable of negotiating, we are not the only party at the table. We've never claimed more, and we've never had less.
+- There is a glaring reason that the necessary total ban on nontherapeutic use of antibiotics hasn't happened: The factory farm industry, allied with the pharmaceutical industry, has more power than public-health professionals.
+- There are a lot of things that we crave, there are a lot of things that would make us perhaps more fulfilled in a sensory way that we just say no to.
+- It's hard to draw clear lines between writing and life and I don't think it is necessary to or necessarily good to.
+- I've never particularly liked bankers.
+- Food is not just what we put in our mouths to fill up; it is culture and identity. Reason plays some role in our decisions about food, but it's rarely driving the car.
+- You write to please yourself, you write to move yourself, to engage yourself in the asking of questions that are important to you.
+- Look, taste is clearly the crudest of our senses: this is scientifically, objectively factual. It is less nuanced. Eyesight is extraordinary - hearing, touch. I find people who devote their whole lives to taste a little strange.
+- We've made science experiments of ourselves and our children.
+- For a long time, I thought I would like to be a doctor. Such a good profession. So explicitly good. Never a waste of time.
+- When you read something you have written, you have to confront some of the lies you have been telling yourself.
+- As I've grown older, I've grown more convinced there's nothing that shouldn't be talked about. If we think we're protecting each other, we're not.
+- I see myself as someone who makes things. Definitions have never done anything but constrain.
+- It's possible to make things that aren't just money-makers. Something wonderful for its own sake.
+- I see bad stuff on the street all the time that I don't do anything about. I do bad stuff myself all the time. The goal is not to somehow be perfect - that's silly, that's naive. The goal is to just recognize there are choices in front of us, and to try to make better ones.
+- There's never been a culture that wasn't obsessed with food. The sort of sad thing is that our obsession is no longer with food, but with the price of food.
+- There's no being wrong in seeing something in art, only being disagreed with.
+- The question, I've come to think, is not what inspires one to change, but what inspires one to remain changed.
+- Kids are a great analogy. You want your kids to grow up, and you don't want your kids to grow up. You want your kids to become independent of you, but it's also a parent's worst nightmare: That they won't need you. It's like the real tragedy of parenting.
+- People don't care enough. They don't get worked up enough. They don't get angry enough. They don't get passionate enough. I'd rather somebody hate what I do than be indifferent to it.
+- I think there's going to be something that happens now, where books move in two directions, one toward digitized formats and one toward remembering what's nice about the physicality of them.
+- It would be refreshing to have a politician try to defend guns without any reference to the Second Amendment, but on the merits of guns.
+- If the thrill of hunting were in the hunt, or even in the marksmanship, a camera would do just as well.
+- These little daily choices that we're so used to thinking are irrelevant are the most important thing we do all day long.
+- Oh, I'd say I like a meal as much as anybody. But I find a certain kind of foodiness silly, gluttonous and embarrassing.
+- I know lots and lots and lots of vegetarians who think it's perfectly all right to kill animals for food to eat, but don't do it because they think all the ways in which it's done are wrong.
+- Maybe one day the world will change, that we'll be in a luxurious position of being able to debate whether or not it's inherently wrong to eat animals, but the question doesn't matter right now.
+- People who care about animals tend to care about people. They don't care about animals to the exclusion of people. Caring is not a finite resource and, even more than that, it's like a muscle: the more you exercise it, the stronger it gets.
+- Jews have a special relationship to books, and the Haggadah has been translated more widely, and reprinted more often, than any other Jewish book. It is not a work of history or philosophy, not a prayer book, user's manual, timeline, poem or palimpsest - and yet it is all these things.
+- Literature has drawn a funny perimeter that other art forms haven't.
+- We need a better way to talk about eating animals, a way that doesn't ignore or even just shruggingly accept things like habits, cravings, family and history but rather incorporates them into the conversation. The more they are allowed in, the more able we will be to follow our best instincts.
+- Again and again we are confronted with the reality - some might say the problem - of sharing our space with other living things, be they dogs, trees, fish or penguins.
+- All really great artists, Jackson Pollack, John Cage, Beckett or Joyce - you are never indifferent to them.
+- The Torah is the foundational text for Jewish law, but the Haggadah is our book of living memory. We are not merely telling a story here. We are being called to a radical act of empathy. Here we are, embarking on an ancient, perennial attempt to give human lives - our lives - dignity.
+- Books are slow, books are quiet. The Internet is fast and loud.
+- Few people sufficiently appreciate the colossal task of feeding a world of billions of omnivores who demand meat with their potatoes.
+- When a book remembers, we remember. It reminds you that you have a body. So many of the things we may think of as burdensome are actually the things that make us more human.
+- When we talk about protecting our right to have guns, we are talking about protecting our right to shoot bullets. So what is it that's so important to shoot at?
+- Just about every children's book in my local bookstore has an animal for its hero. But then, only a few feet away in the cookbook section, just about every cookbook includes recipes for cooking animals. Is there a more illuminating illustration of our paradoxical relationship with the nonhuman world?
+- I want to talk about God in a literary way. But I think I would have a very hard time praying to God.
+- In America right now, we use words like 'smart' to talk about bombs. American rhetoric is grounded in ideas of capital-G Good, capital-E Evil, and it's very clear who is on which side. But in a book you can do just the opposite. You can use all lower-case words.
+- Is there really anyone, besides Rudy Giuliani, who prefers the new Times Square?
+- My greatest fear is feeling like a professional novelist. Somebody who creates characters, who sits down and has pieces of paper taped to the wall - what's going to happen in this scene, or this act. What I like is for it to be a much more scary, sloppy reflection of who I am.
+- Fiction works when it makes a reader feel something strongly.
+- There is an overabundance of rational reasons to say no to factory-farmed meat: It is the No. 1 cause of global warming, it systematically forces tens of billions of animals to suffer in ways that would be illegal if they were dogs, it is a decisive factor in the development of swine and avian flus, and so on.
+- To remember my values, I need to lose certain tastes and find other handles for the memories that they once helped me carry.
+- I'm interested in the kind of religion that makes life harder. I'm not so interested in the comforting kind of religion.
+- People always ask what a book is about, as if it has to be about something. I don't want to write books that lend themselves to that sort of description. My books are more a kind of breaking-down.
+- As a writer, putting words on the page is how I pay attention.
+- It seems entirely possible to me that horrible things can be going on without us becoming horrible people.
+- Writers now are putting total faith in designers at Apple and Amazon. It's almost like a race-car driver having no input into how cars are designed.
+- My children not only inspired me to reconsider what kind of eating animal I would be, but also shamed me into reconsideration.
+- I'm not funny. People assume that because my books are funny, I'll be funny in real life. It's the inevitable disappointment of meeting me.
+- There are two kinds of sculptures. There's the kind that subtracts: Michelangelo starts with a block of marble and chips away. And then there is the kind that adds, building with clay, piling it on. The way I write novels is to keep piling on and piling on and piling on.
+- Food is not rational. Food is culture, habit, craving and identity.
+- That's the nice thing about being a vegetarian. You don't have to be neurotic. Selective omnivores have to be neurotic. Personally, I don't have time for all that; I don't want to get into it.
+- What the world does not need is a Haggadah that pats itself on the back. It needs a Haggadah that gets out of the way, that starts a conversation and gets out of the way.
+- I will never come around to the idea of an anthropomorphic God. I'm also uncomfortable with the word 'God'... I'm agnostic about the answer and I'm agnostic about the question.
+- I usually write away from home, in coffee shops, on trains, on planes, in friends' houses. I like places where there's stuff going on that you can lift your eyes, see something interesting, overhear a conversation.
+- We eat as sons and daughters, as families, as communities, as generations, as nations, and increasingly as a globe. We can't stop our eating from radiating influence even if we want to.
+- The more exposure people have to the realities of factory farming, the more we will see people rejecting it. It's already happening.
+- Consumers are going to have get used to eating less meat - to paying more for better quality meat and eating significantly less of it.
+- I first became a vegetarian when I was nine, in response to an argument made by a radical babysitter. My great change - which lasted a couple of weeks - was based on the very simple instinct that it's wrong to kill animals for food.
+- Every factory-farmed animal is, as a practice, treated in ways that would be illegal if it were a dog or a cat.
+- How could this world be so unlike the world that I believed I was living in? I can't describe it. Do I not want to describe it, or do I simply not possess the vocabulary?
+- I always write out of a need to read something, rather than a need to write something.
+- Feeding my children is not like feeding myself: it matters more.
+- I need an office, so I can have a place where I don't write.
+- I have made my own choice, which is vegetarianism, but it's not the choice I'm imposing on anybody else.
+- The best books are the ones that ask the most questions.
+- There is no greater gift than time.
+- I'm less worried about accomplishment - as younger people always can't help but be - and more concerned with spending my time well, spending time with my family, and reading, learning things.
+- It's rarely talked about, but hunting for sport is just about as vile as we humans get.
+- The kind of funny irony is that a lot of people talk about ethical meat eating as if it's a way to care about things, but also not to alienate yourself from the rest of the world. But it's so much more alienating than vegetarianism.
+- Why does watching a dog be a dog fill one with happiness?
+- When it comes to meat, change is almost always cast as an absolute. You are a vegetarian or you are not.
+- We shouldn't be intimidated by someone else's idea of perfection if it will prevent us from taking steps we actively want to take.
+- I often think about how my sons will come to know about September 11th. Something overheard? A newspaper image? In school? I would prefer that they learn about it from my wife and me, in a deliberate and safe way. But it's hard to imagine ever feeling ready to broach the subject without some impetus.
+- The French, who love their dogs, sometimes eat their horses. The Spanish, who love their horses, sometimes eat their cows. The Indians, who love their cows, sometimes eat their dogs.
+- My wife and I have chosen to bring up our children as vegetarians. In another time or place, we might have made a different decision. But the realities of our present moment compelled us to make that choice.
+- Words are capable of making experience more vivid, and also of organizing it. They can scare us, and they can comfort us.
+- It's a good rule of thumb, it seems to me: if you're not allowed to see where something comes from, don't put it in your mouth.
+- Why do I write? It's not that I want people to think I am smart, or even that I am a good writer. I write because I want to end my loneliness.
+- I am an on-and-off vegetarian. Sometimes on, mostly off. I think it is better to be a vegetarian but occasionally, the call of the hot dog overpowers my ethics.
+- It's not worth getting too excited about thinking about the larger picture. The larger picture doesn't come into focus for an awfully long time.
+- We say no to lots of things that would please us. I would like to punch people every now and then, but I don't. I would like to have something for free rather than pay for it. I would like to skip to the front of the line... I don't mean to brush aside the taste of meat, which is a powerful attraction. But its power is not without limit.
+- Why wouldn't - how couldn't - an author care about how his or her books look?

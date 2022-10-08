@@ -1,0 +1,29 @@
++++
+author = "Gray Scott"
+title = "Gray Scott Quotes"
+quotes_len = "23"
+description = "the best 23 Gray Scott Quotes"
++++
+- The mobile revolution has dramatically changed our world view, empowered women, and increased our empathy. Corrupt governments have been toppled and wars avoided because our species has become so digitally connected.
+- The main thing I'm concerned with right now, is getting people to understand that the Internet of Things is already in their lives. So if you look around your house, either your television, refrigerator, or some of your appliances - they are probably already connected.
+- The 'Star Trek' future, to me, is where we are headed. Everything is automated, and we are free to pursue our dreams. We are free to pursue lives that aren't about working and toiling away in dangerous jobs. For example, how many of us would love to be poets, or how many of us would love to be artists?
+- It's a physical thing that can grab a hold of data and literally rearrange our lives by changing the direction you take your car in. This continuum is going to keep building on itself as we move forward into the future.
+- The real question is, when will we draft an artificial intelligence bill of rights? What will that consist of? And who will get to decide that?
+- We do know that we can set certain algorithms for machines to do certain things - now that may be a simple task. A factory robot that moves one object from here to there. That's a very simple top-down solution. But when we start creating machines that learn for themselves, that is a whole new area that we've never been in before.
+- To understand the future of technology, we need to begin with one fundamental truth: Technology is natural.
+- We are afraid of ourselves and our own unconscious minds. When we are building something that reflects us, it's the one thing we're all afraid to face. We're afraid to face ourselves. Building machines that mirror our consciousness is a very frightening proposition because we have seen how evil people can be.
+- Watch a child play, and you will see real power. They are fearless.
+- There is no reason and no way that a human mind can keep up with an artificial intelligence machine by 2035.
+- I don't think that an artificially intelligent system that has superhuman intelligence will be violent. I do think that it will disrupt our culture.
+- Who gets to decide the robotic bill of rights? It's going to be controversial.
+- Technology will mirror the culture and the psychology creating it. We need new psychological scaffolding to work with. Less fear and more optimism.
+- By 2018, automation is going to be in full swing in the United States and around the world. There are estimates that it could replace 50 percent of our jobs. That is an enormous shift. But even if we go through a phase where we have an unemployment valley from automation, there will be new jobs and new things for us to do.
+- We're going to become caretakers for the robots. That's what the next generation of work is going to be.
+- We are increasingly becoming cyborg-like beings. We are becoming literally what we create. Biology, physics, and technology are evolving towards one and the same thing.
+- In 'Chappie,' you see this sort of young robot that's learning through maybe 'deep learning' how to see the world really, look out into the world, and learn step by step. What's so interesting is that with 'Chappie,' you're getting to see how human behavior reacts to artificial intelligence, and I don't think it's always going to be positive.
+- Immortality may be impossible, but imagine what humanity could learn if we all lived 700 years. We could travel deep into utopia and beyond.
+- You have to talk about 'The Terminator' if you're talking about artificial intelligence. I actually think that that's way off. I don't think that an artificially intelligent system that has superhuman intelligence will be violent. I do think that it will disrupt our culture.
+- These machines are going to reflect our species and our evolutionary process. Everything we are will end up in these artificially intelligent machines no matter what we do.
+- Negative and pessimistic views of technology have always existed. I can just imagine some pessimistic Sumerian in 3500 B.C. screaming about the evils of the wheel.
+- We are going to have to have different ethics for different artificially intelligent machines. You obviously want a different set of ethics for a military artificially intelligent machine or robot than you have for a care-taking robot.
+- Robots will harvest, cook, and serve our food. They will work in our factories, drive our cars, and walk our dogs. Like it or not, the age of work is coming to an end.

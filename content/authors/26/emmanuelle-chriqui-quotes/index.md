@@ -1,0 +1,42 @@
++++
+author = "Emmanuelle Chriqui"
+title = "Emmanuelle Chriqui Quotes"
+quotes_len = "36"
+description = "the best 36 Emmanuelle Chriqui Quotes"
++++
+- When I look up and see a star, I know my mom is there. She's with me all the time. It's a powerful connection.
+- My mom was an aesthetician and she went to beauty school back in the '60s. I just remember watching her do her makeup all the time. She always had her nails done, makeup on - her face was ready to go when she went out. I loved it.
+- I'm actually very sensitive to energies, and when people are not aligned, I can feel that.
+- Never reveal your insecurities to a man, because nine times out of 10 they have no idea they even exist.
+- I had to deal with death at a really young age.
+- One tip I like is don't forget your reusable bags when you go to the drug store or to the mall. I think most people think of the bags for the grocery store, but I try to take mine wherever I go.
+- Generally for red carpet, I love to relax first. I love to work out. I love to eat well, drink tons of water beforehand, so on the night of the red carpet I feel good and ready to go. I also love to get a good body scrub.
+- Most actors want to sink their teeth into amazing material.
+- I generally circuit train and do Pilates.
+- I appreciate humor so much, but I'm actually not a funny girl.
+- Someone once told me that the most dynamic actors are people who have stories. People who have lived life. People with experiences.
+- A great day in New York would be to wake up, get a cup of coffee and head up to Central Park for a nice walk. Then I'd go down to the East Village and stroll around. After that, maybe I'd go check out a museum or catch an indie film at the Angelika.
+- I feel like I want to be known first and foremost for my work.
+- I look at my father. He is one of my heroes. He is such an incredible, classy man. He was such a great father and such a great husband in so many ways, and we lived through some pretty tough times losing my mom. When I see all that he did, I think, 'Wow, that's a really wonderful man.'
+- Acting is not glamorous. It's not. Anybody who wants to get into acting for the glamour is in for a hard time.
+- I tell the most horrible jokes.
+- My elbows are double-jointed, so I can flip them inside out.
+- I don't know why, but in my career and in my life, I often find myself in situations where I am the only girl among boys.
+- I love what I do, but I never want to OD on celebrity.
+- When you're starting out, every line in a show or a commercial is like a huge success.
+- When you have confidence, that's what becomes attractive to other people and makes them want to work with you and spend time with you.
+- I love doing voice-over. It's so fun.
+- I love European films in general. If I were to go to the movie store or something, that's what I like to see.
+- My career has been successful, but it's been a grind of hard work.
+- I have to be honest, I am a true jeans and t-shirt girl.
+- The beauty of voice-over work is that maybe you come in and record once every two weeks for a couple of hours and do a couple episodes a session. It's awesome! You spend an afternoon playing in the booth, and there you have it. It doesn't interfere with much.
+- As a child I was given the freedom to explore my passion for acting, but I also grew up in a home where there were a lot of rules. I didn't have 'yes' parents.
+- Is it easy to avoid paparazzi? It is, it really is.
+- Reese Witherspoon is my everywoman. She's managed to have a family and this amazing career. That's the goal.
+- For the record: I wear makeup. All. The. Time. But I do it in a way that looks natural.
+- I'm this little Canadian Jewish girl, and I'm living my dream.
+- I have a theory that most people in Hollywood are from Texas.
+- I can celebrate food anytime. I love cheese. When I crave a certain food, I just eat it.
+- The girl next door isn't necessarily blonde and blue-eyed anymore. So I don't feel like I need to morph into that all-American thing.
+- I always describe my career as something where nothing ever popped overnight.
+- We have this idea of perfection that is so unrealistic. We are our own worst enemy. No one is noticing that little scar.

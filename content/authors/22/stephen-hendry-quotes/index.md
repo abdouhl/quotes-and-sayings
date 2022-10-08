@@ -1,0 +1,106 @@
++++
+author = "Stephen Hendry"
+title = "Stephen Hendry Quotes"
+quotes_len = "100"
+description = "the best 100 Stephen Hendry Quotes"
++++
+- These days, you can watch many different sports; you are saturated with it 24 hours a day. And young boys all want to be footballers because you don't even need to be that good, and you can still earn £100,000 a week.
+- You get better as the rounds go on.
+- It would break my heart to lose playing safe.
+- Going into a tournament with 100 per cent belief you will win it - that's how I've always enjoyed snooker.
+- My favourite store is All Saints. Having spent years dressed in a dinner suit and a bow tie as a professional player, it is wonderful being able to wear normal clothes again.
+- In snooker, it's very important to keep very still on the shot and allow the cue to do the work.
+- Ever since I was a kid, I'd imagine that I was making a break to win the world championship.
+- Even though I say to myself that I was seven-times World Champion, the voice in my head says, 'You can't play this shot.' It's completely mental - quite literally. My confidence is sapped every time this happens.
+- Even as a boy, my dad always told me, 'Don't show emotion.' If I banged my cue, he would give me a row and say, 'Stop that.' Don't show any petulance. It was developed, certainly, but I think you have got to have it in you.
+- I find it very difficult when, due to a lack of confidence, I don't produce and lose matches I could have won.
+- I grew up Dalgety Bay, in the Kingdom of Fife, in a 1970s bungalow. We moved there when I was nine and stayed for about six years.
+- I would never be one to go striding over to any woman who caught my eye - after all, I'm the person who got to know my wife's parents before I plucked up the courage to talk to her.
+- Did I have a mis-spent youth? I suppose I did in that I left school early without any qualifications, having bunked off a few times for tournaments.
+- Judd Trump's bedrock of his game is potting good long pots, getting in, creating a chance, and winning frames at one visit.
+- People often write to me, addressing the envelope, 'Stephen Hendry, Snooker Player' or 'Stephen Hendry, Scotland,' and it reaches me.
+- If the World Seniors led to a place directly into the Crucible, then I would take it very seriously because to play there again would be incredible.
+- I always loved playing in front of big audiences; now I'm jittery if one person is in the room watching me.
+- Unless I can do myself justice and play well, I'm not going to play.
+- Larry David, he's my hero. I want to be him - I want to act like him - everything.
+- The memories for the missed opportunities are stronger than for the ones I managed to get over the line in.
+- By the age of 14, I had stopped doing homework and stopped studying - as soon as I had any spare time, I was up to the local snooker club. I was fortunate my parents never forced me to stop playing snooker and told me to carry on at school. Nowadays, that probably isn't the best advice. I basically had nothing else to fall back on.
+- In any sport at the top level, if you don't put in the hard work, you can be sure someone else is. It is a vicious circle.
+- When I didn't retain the world title after my first win, which no one's ever done, I was gutted and made my driver take me home straight away. We travelled through the night, and I didn't say a word all the way from Sheffield to South Queensferry.
+- When you have a big lead, you relax and don't concentrate as much.
+- You really have to be winning by the time you get to 20 these days.
+- The tip I would give is that once you play the shot, make sure your chin is touching the cue after you hit the cue ball.
+- The best way to deal with aggression is to ignore it and try to get the match over as soon as possible.
+- In around 2000, I became aware of a recurring problem of the 'tightness' around my cueing action, which somehow stops me believing that I can play the shot - even shots I could previously play with my eyes shut.
+- There are times when there's been some discontent and muttered threats from audience members. I take no notice, and in any case, I always have John Carroll around to deflect unpleasantness.
+- When I'm practising on my own, my game feels great, but there's a big difference between practising on your own and playing against people.
+- The quarter finals is always an exciting round because you know you're one match away from that one table situation: where the magic really starts to happen at the Crucible and where it starts to come into its own.
+- When you get a trophy, why go jumping and crying? Winning's a great feeling, but everything else is an anti-climax.
+- If I'm going to play, I'm going to have to give it 100%, which means I'm going to have to play in all of the tournaments that I don't like.
+- When I was playing Jimmy White in those finals, I could tell when he was under pressure.
+- There's no point, me turning up at the world championship as a publicity stunt and then lose 10-3 to someone who shouldn't tie my shoelaces.
+- In the late '80s and early '90s, I took success for granted, winning four or five tournaments a year. I just expected to win them.
+- I loved being the best player in the world. There was no pressure staying there.
+- Reading from cover to cover - I'm not a great reader.
+- I never dreamed, when I received a small table for a Christmas present from my parents, I would have the career that I did or achieve so much.
+- There are some people who never get used to losing at anything, and I am probably one of them.
+- I could have had eight or nine world titles at least, and you do think about that at times.
+- The seven world titles record I hold is the one that means the most to me. There is no doubt about that.
+- However much I try, I can't shake off the effects of the yips.
+- I love playing in China. The crowds here value success more than British people seem to.
+- I have always really loved clothes, although I am glad to say that my tastes have mellowed somewhat over the years. When I first played professionally and started to earn big money, almost everything I bought was by Versace.
+- Maybe I wish I could be out there on the big occasions playing like I did at my peak, but I certainly don't miss the six and seven hours a day practice that went hand in hand with being world champion in the nineties - or losing to guys knowing that it would never have happened when I was at my best.
+- In the '90s, I never socialised with other players.
+- I don't think about technique. I just pot the balls.
+- I always liked to take on the middle pockets. They're much harder.
+- Judd Trump loves playing against the top players.
+- I liked 'The Wire.'
+- There are players out there who want to dominate and keep their opponent sitting down. They want to make centuries and win frames at a single visit, and I like to see that.
+- I like cookery programmes: Anthony Bourdain going around the world eating stuff; Rick Stein - he's another favourite.
+- It is quite surreal when you go to places up the north, like Inner Mongolia, and you are getting mobbed at the airport.
+- I got into poker in the early 2000s. In snooker tournaments, you are always looking for things to pass the time between matches, so we'd play together, or I would play online.
+- My form's good in practice, but that doesn't count for anything, really.
+- You have to win any way you can.
+- You benefit from deep inner belief of having wins behind you, so you get to the table, and you know you're not going to miss.
+- I still enjoy a wee game of poker now and then, but I'm not very good, and being Scottish, I don't like to lose that much money!
+- The worst loss in my career - the 2002 World Championship final against Peter Ebdon.
+- Even when I used to play Jimmy White in Scotland, he would have the majority of the support. That's the only time it would irk me, coming back to Scotland and people still wanting me to lose.
+- The only way you can get confidence is by winning, and unfortunately, the only way you win is by being confident.
+- I am not on tour any more, but I hear things, and there are stories that some players are not as dedicated as they should be and treating some of these PTC events in Europe as stag weekends rather than tournaments.
+- I can't overstate the part the yips played in bringing my career to a close.
+- Ronnie O'Sullivan is the only player in history to be dominant and popular at the same time.
+- I remember far more shots that cost me matches than the ones that won me matches. That is maybe the way you think if you are someone who has won a lot of tournaments and had a successful career.
+- I am not a superstar in Britain.
+- I think the word 'yips' trivialises it; it is completely debilitating, like a cancer spreading through your game and just destroying it.
+- In China, they appreciate someone who has worked hard. They say it is incredible to win seven world championships. I know it is, but it's a shame I have to go 10,000 miles to get the whole crowd behind me.
+- In both snooker and poker, you have to play your best under pressure; I was always able to do that. I don't think it is something you can teach. Your mental strength, your confidence, your self-belief has got to be very strong. That is the common denominator.
+- Snooker is my sanctuary and always has been.
+- By 2012, my game was shot. You're sitting on your chair watching players' leagues below you play shots you can't. That destroyed me.
+- I liked Dalgety Bay, but my life did not revolve around the house. I was a teenager there, and these things aren't that important at that age.
+- It's easy to have a good attitude when you're flying, but you need it when you're up against it as well.
+- The thing is, with century breaks, maximums, ranking tournaments, these sorts of things are automatically going to be broken: it's not if but when.
+- I'm not the player I was.
+- For reasons I don't understand, I've always been relaxed at the table.
+- When I started, there was never a great history of people doing well in snooker from Scotland. By chance, I got a table for my Christmas. If I hadn't got that, then none of this would have happened.
+- You cannot underestimate the body blow for a snooker player of having your cue broken. After all, it's an extension to your arm.
+- It's always been my weakness that my concentration tends to go when I get into scrappy frames.
+- The most I ever played was 12 or 13 tournaments. Now they're talking about almost 20, and it's all year round, playing through the summer as well.
+- Financially speaking, I haven't ended my career in the best shape, and there are debts, as well as what is to come by way of a divorce settlement to Mandy.
+- When I was 13, my parents bought me a mini snooker set for my birthday. From the moment I first held a cue in my hands, I was transfixed.
+- I enjoy commentating on the big tournaments for the BBC, the occasional exhibition match, and my business interests.
+- It is just down to confidence. When I haven't got any, I hate playing the game.
+- In all the years I've been playing, I've never considered changing my cue. It was the first cue I ever bought, aged 13, picked from a cabinet in a Dunfermline snooker centre just because I liked the Rex Williams signature on it. I saved £40 to buy it. It's a cheap bit of wood, and it's been the butt of other players' jokes for ages.
+- For me, winning was 'job done.' I would practise the day after.
+- It's nice to have genuine appreciation for what you've achieved in the game. You don't often get it in Britain.
+- I cannot see a situation when I won't feel pressure to play well and win.
+- Steve Davis has found a way of competing to a level that is not as high as it once was, enjoying his wins, and not getting too angry about the defeats.
+- I obviously know how good I was, and people refer to the modern game being tougher.
+- In Britain, we don't appreciate people who have been a major success in sport. It is grudgingly given to you.
+- I put on the tuxedo, and it's like putting on overalls - they're my work clothes. Then I go to work. I'm relaxed. I do my job.
+- Since he was born, Mandy and I have hoped to give Blaine a brother or sister.
+- I tried hard to create my own records when a lot of them belonged to Steve Davis, so to see someone else beat yours, you'd be lying if you said there wasn't a twinge of regret there.
+- When you're young and you first come onto the scene, you're fearless. You just go for your shots and don't really think about the consequences. But as you play on through years and years, you get punished for those misses, and gradually, that leaves scars. It dents your confidence a bit.
+- If I have regrets, it's around my sons. There is no doubt they were affected by the divorce - Carter more than Blaine, I think.
+- It's the worst feeling in the world - to lose in the first round at Sheffield and then have to go home - because it's such a long tournament, and it's hard to avoid it. It's on the TV all day every day, and if I lost, I didn't want to be anywhere near snooker.
+- The crowd could be tough to deal with at times, but I learned to use them and the way they behaved towards me as strong motivation.
+- One of my biggest sponsors is based in China, and I probably spend as much time there as I do in the U.K. Over the years, I have really grown to love it, but the first time I went was a different story.

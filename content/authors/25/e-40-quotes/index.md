@@ -1,0 +1,106 @@
++++
+author = "E-40"
+title = "E-40 Quotes"
+quotes_len = "100"
+description = "the best 100 E-40 Quotes"
++++
+- I might like the Sacramento Kings. One of my favorite players is Dirk Nowitzki.
+- I think the Internet is right on time. I think it's very important. It's reaching out to millions of people. Even the most slimiest and grimiest hood cats out got iPhones and Smartphones so they're able to view everything on the Internet, so they're well in tuned to what's going on.
+- Whether you're a DJ, whether you a rapper, whether you a producer, take it seriously. This is an occupation - you can get paid - don't expect to blow up overnight, and appreciate when you do get paid any type of money, appreciate it.
+- When I had my house in '96, I had a Warriors basketball court built.
+- I love gospel music, I love gangsta music.
+- Me and Master P go way back.
+- My voice gon' stick out like a turd in a punch bowl.
+- Longevity has a lot to do with me continuously nonstop putting music on the shelf, and making myself be the face of the Bay, and continuing to carry the Bay on my back for many moons, you know.
+- I got southern roots from Texas all the way to Louisiana, went to Grambling State back in the day, my whole career I've done songs with down South artists.
+- I had T-Pain on one of my singles before anyone really knew of him. I was the first one to put that to life of having T-Pain on the hook.
+- I've got a big heart and I believe in good karma.
+- I feel like I'm a voice of hope.
+- I first started rapping when I heard the Sugarhill Gang in 1979, when I was 11 years old in seventh grade.
+- I love mayonnaise, but mustard is a must when you're doing the Impossible Burger.
+- I don't get inspired by too many people because I like uniqueness. I'm a unique dude.
+- I was a little bit ahead of my time.
+- I looked up to Too Short before I was making my own music.
+- When I do listen to music a lot of times I listen to old school music, I'm talking about Earth, Wind & Fire, I'm talking about the Isley Brothers, the O'Jays. It just eases my mind.
+- You feel me' - that's straight from me. You can put a stamp on that.
+- What motivates me is true talent, it's golden when talent acknowledge talent.
+- I always stay humble. I don't act funny towards nobody.
+- I'm the most humblest guy you can ever talk to or meet.
+- My mom and dad divorced when I was 8 years old, but my Dad never left my life. We would go over there on weekends and he'd be playing his guitar, listening to Bobby Blue Bland and B. B. King and KBLX radio while he was out in the garage painting custom cars.
+- I started playing drums in the 4th grade.
+- I've been rapping on some crunk beats and getting down on the South music for years. I feel like I can do it all.
+- I just respect people and mind my business. I don't got time to worry about what the next man's pockets are looking like, I gotta worry about what mine are looking like and my family.
+- I'm the first rapper ever popping his collar.
+- I talk about things that real street cats can relate to.
+- You know, I don't turn down autographs. I try to sign as many autographs as I can.
+- I've got songs that'll make a gangster cry.
+- I was the class clown when I was a little young mustache.
+- When I was 20, I was the hustler - rubbing my temples, stressed, trying to get out the streets, trying to take my life to another side of the game with something I really loved to do: rap music.
+- I didn't invent the word 'hyphy' and I'm not trying to say I'm the king of hyphy.
+- In the '80s, I wore these glasses because I was trying to look like a square to outsmart the po-po, you feel me? It was what we call 'throw off methods.' So I wear little glasses.
+- I'm not a full-fledged producer, but I can be one if I want to really spend my time on straight being a producer.
+- Music is very therapeutic and healing, and I hit it from all angles.
+- When I was in the marching band, I used to take my snare drum and turn it over and use my drumstick and scratch on the other side. That was just being creative.
+- People, a lot of times, don't like what's different. When it's something different out there, the majority of people will be like 'aww, that's wack!' but if it's regular, plain or a straight through flow, it's easier for them to adapt to, because everyone likes the normal.
+- Any relationship, I'm talking about even with your kids, when you got something they can relate to - both of y'all - it helps.
+- The West ain't been the same without 'Pac.
+- Slang is really coded talk. I can say a few things, in front of somebody, that only people who know what I'm saying are going to pick up on.
+- I had a song back in 1992 talking about 'It's all good.' Then my partner Theo who used to work for 92.3 The Beat in L.A. started saying 'You know it's all good' on the radio and everybody took it back to their soils like that was the new Cali word. But that's a regular word form the Bay Area.
+- Music is really a medicine, it can make you feel good.
+- As long as I've got my life, health and strength, and I'm in my right mind? I'mma get money.
+- I'm what they call an intelligent hoodlum.
+- I've been in the game a long time. I've done all sorts of different types of music. From mob music to the G-Funk era.
+- I think the whole world has been able to utilize the Internet. I feel like you don't have to be from a certain soil.
+- I got a solid fan base and they love me and I love them. They know I'ma give them what they want to hear.
+- I would like to work with Dr. Dre.
+- I will rap circles around anybody.
+- I'm just a storyteller.
+- I make up many words but we can go on for forever about slang words that E-40 created. That has always been one of my things since was youngster. I have always being creative with my words.
+- A lot of people - they might think I fell off, but they don't know I'm eating. I'm on the West coast, eating. It's just they don't hear about me because they don't see me on the TV. But I'm still around.
+- I respect cats that can rap and everything, but the artist that inspires me is Turf Talk.
+- I'm always giving life lessons in my music.
+- I'm definitely underrated. By far.
+- I love funk! That's the music I grew up on.
+- When you do mixtapes, a lot of times your fanbase can say, 'We've been getting this for free for so many years, his new album is about to drop, we've listened to it, and we're not going to buy it. We'll download it for free.'
+- I'm living proof that there's no age limit to rapping.
+- Ebonics is me. I'm the king of slang, hands down.
+- It's nice to have video play, radio play but as long as I can work my virals on the Internet, or yet get it out to where people hear it and can see it anytime, I'm cool.
+- I'm a survivor, man. I done had my ups and downs, but I've got get-back skills for real for real. I refuse to fall.
+- When I was little, seven or eight years old, in third and fourth grade, I would always try to use long words and stuff.
+- Before me, there was no offbeat flow.
+- Some people be game-goofy and words don't sound right coming out of their mouthpiece. But whenever E-40 says something it's just solidified.
+- I'm the greatest game-spitter of all time. I talk about the swell, the block, the 'hood. I'm a street commentator. I narrate how people live. That's E-40.
+- I got a great imagination, and I pay close attention to my surroundings and I'm very observant.
+- There's always a message in my music, you just gotta be able to just sit there and be open-minded.
+- I really started from grassroots, without a handout or anything.
+- I had every major label in the world - I mean, any label that dealt with rap music wanted to sign me. I ended up going with Jive Records because I liked everything about 'em.
+- Sometimes all your fanbase wants you to do is stay within your envelope and do you because that's what they love you for.
+- I don't listen to rap all the time. Even though I rap, rap can be nerve-wracking.
+- The rap game without me would be like woofers without bass.
+- However God had it planned, I'm rockin' with how he do it. He took the steering wheel and I'm letting him drive.
+- It's always a dream come true to do music with your pops. And your son.
+- The 'Day Shift' songs are things that would unfold during the daytime. 'Night Shift' is what would unfold during the nighttime. So, that's how I put that whole thing together. I did both all on one album budget.
+- I did a double CD, 'The Element of Surprise,' in 1998. That album went gold.
+- In the early '90s, Too Short was like one of the first dudes who kinda discovered Lil Jon. So I always used to see him at concerts and we'd pow wow - a good dude, you know?
+- I don't just talk about jewelry and cars and houses and belittling those that don't have that. I'm a democrat. I speak for the democrats. I speak for the soil.
+- I'll rock with anyone - vintage rappers, young dudes, anyone.
+- Rap evolves and to still be current you have to evolve with it! Get in front or get left behind.
+- As you get older, you start trying to eat a little bit better, and just do a little better.
+- Communication, that keeps everything cool. Not holding anything back, you got to tell each other what's on your mind, that's really it. Otherwise when one gets mad at one, it can burst and you just let it out and it can just come out wrong.
+- I'm not boasting or nothing but a lot of people have a lot of love for me. I'm a legend, but I stay H and H, hungry and humble.
+- I just love sports.
+- I'm a corporate thug. That's the best way to be.
+- I paint pictures with my raps.
+- You know, Tupac would go into the studio and make like six or seven songs in one day. That's how he operated. He was real quick with his pen.
+- I feel like this - everybody, every rapper to me, I feel like every rapper got a little bit of E-40 in them, whether they know it or not.
+- For the first six years of my career I was independent. I got on to a major and did my thing there. I had platinum and gold records and all that.
+- It's like with me, I feel like I was never one of those rappers that, you know, stayed in one time warp.
+- My momma was working very hard, doing three jobs... she just worked her butt off, man. On the weekends she started to play this song called 'Living for the Weekend.'
+- The earliest music I remember hearing is Al Green's 'Let's Stay Together.' That was when my momma and my daddy were together, before they went their separate ways.
+- I used to burn rubber at every light, mean mugging everything there was, cause that was my attitude.
+- I don't wanna be like everybody else, I don't wanna rap like everybody else.
+- I'm glad I'm setting an example for the younger generation so in the future they can say, 'Look how long E-40's rap career was. Look how long he stayed relevant.'
+- I used to love Talking Heads, Peter Gabriel, and the Human League.
+- Long as the Earth is here, hip-hop'll be here.
+- I love working with different artist with different styles and different producers with different sounds, creativity is everything.
+- Rick Barry always amazed me - he was one of the best free-throw shooters of all time, and he used to throw it underhand.

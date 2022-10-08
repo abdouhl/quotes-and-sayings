@@ -1,0 +1,42 @@
++++
+author = "Prince Harry"
+title = "Prince Harry Quotes"
+quotes_len = "36"
+description = "the best 36 Prince Harry Quotes"
++++
+- I adore kids. I enjoy everything that they bring to the party. They just say what they think.
+- There's not a day that William and I don't wish that she was... we don't wish that she was still around, and we wonder what kind of a mother she would be now, and what kind of a public role she would have, and what a difference she would be making.
+- My mother had just died, and I had to walk a long way behind her coffin, surrounded by thousands of people watching me while millions more did on television. I don't think any child should be asked to do that under any circumstances.
+- Once you're in the military, she means a lot more to you than just a grandmother. She is the queen. And then you suddenly, it's like start realizing, you know, wow, this is quite a big deal. And then you get goose bumps and then the rest of it.
+- It's something my mother believed in: If you are in a position of privilege, if you can put your name to something that you genuinely believe in, you can smash any stigma you want, and you can encourage anybody to do anything.
+- I've longed for kids since I was very, very young.
+- You've got to give something back. You can't just sit there.
+- There's a lot of times that both myself and my brother wish, obviously, that we were just completely normal.
+- I had never heard of Meghan before. I was beautifully surprised when I walked into that room and saw her, and there she was, sitting there. I thought, 'I am really going to have to up my game here, sit down, and make sure I've got a good chat.'
+- I've longed for kids since I was very, very young. And so... I'm waiting to find the right person, someone who's willing to take on the job.
+- I hope that a lot of my mother's talents are shown in a lot of the work that I do.
+- I can safely say that losing my mum at the age of 12 and therefore shutting down all of my emotions for the last 20 years has had a quite serious effect on not only my personal life but also my work as well.
+- My brother and I were brought up outdoors. We appreciate the countryside; we appreciate nature and everything about it.
+- Conversations with my mother, father, my grandparents, as I've grown up have obviously driven me towards wanting to try and make a difference as much as possible.
+- For me personally, as I said, I want to serve my country. I've done it once, and I'm still in the army, I feel as though I should get the opportunity to do it again.
+- People don't realize how amazing elephants are.
+- I'm still very much a kid inside myself.
+- You've got to have fun in life. Otherwise, wow - imagine life without fun.
+- All I want to do is make my mother incredibly proud. That's all I've ever wanted to do.
+- Part of my role and part of my job is to shine a spotlight on issues that need that spotlight, whether it's people, whether it's causes, issues, whatever it is.
+- I was the typical 20-, 25-, 28-year-old going around, going, 'Life is great. Life is fine.'
+- To be honest dinner conversations was the worst bit about being a child and listening to the boring people around me.
+- Everyone has a different opinion; every country has a different way of doing things. But I do believe that we need a regulatory body so that everyone who owns or manages wildlife is subject to inspection and rated on how well they look after the animals and how the communities benefit.
+- I know I've got a lot of my mother in me.
+- I have probably been very close to a complete breakdown on numerous occasions.
+- People would be amazed by the ordinary life William and I live. I do my own shopping. Sometimes, when I come away from the meat counter in my local supermarket, I worry someone will snap me with their phone. But I am determined to have a relatively normal life, and if I am lucky enough to have children, they can have one, too.
+- I wish I could spend more time in Africa. I have this intense sense of complete relaxation and normality here.
+- I sometimes still feel I am living in a goldfish bowl, but I now manage it better. I still have a naughty streak, too, which I enjoy and is how I relate to those individuals who have got themselves into trouble.
+- I've served my country.
+- The fact that I fell in love with Meghan so incredibly quickly was sort of confirmation to me that all the stars were aligned; everything was just perfect. It was this beautiful woman just sort of literally tripped and fell into my life; I fell into her life.
+- I get a huge buzz from spending time with kids.
+- I think losing your mother at such a young age does end up shaping your life massively. Of course it does, and now I find myself trying to be there and give advice to other people who are in similar positions.
+- I had never even heard about her until this friend said, 'Meghan Markle.' I was like, 'Right, give me a bit of background. What's going on here?' So I had never watched 'Suits.'
+- Anyone who says they don't enjoy the Army is mad - you can spend a week hating it and the next week it could be the best thing in the world and the best job you could ever, ever wish for. It has got so much to offer.
+- My mother died when I was very young. I didn't want to be in the position I was in, but I eventually pulled my head out of the sand, started listening to people, and decided to use my role for good. I am now fired up and energized and love charity stuff, meeting people, and making them laugh.
+- You can imagine the kind of dinner parties I had to go to at a young age... pretty dull.

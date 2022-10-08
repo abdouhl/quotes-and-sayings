@@ -1,0 +1,96 @@
++++
+author = "Sophie Ellis-Bextor"
+title = "Sophie Ellis-Bextor Quotes"
+quotes_len = "90"
+description = "the best 90 Sophie Ellis-Bextor Quotes"
++++
+- I don't think anyone doubts my motives, really. I do what I do and it's not very complicated. Of course, you might hate the music that I make, but I don't think people feel threatened by me just getting on with what I'm up to.
+- I wrote the worst novel ever.
+- I don't know why people think I'm polished - I often leave the house with buttons missing and ladders in my tights.
+- I didn't feel so great when I was a teenager, but who does?
+- Having a successful first album is one thing, but a successful third is another.
+- You have to apply yourself because you'll never get a better opportunity than the one you have right now. Having said that, people know by now if they like me or not. I don't need to prove anything.
+- That's part of the reason I called the album 'Shoot From The Hip.' I did feel it was time to open up more.
+- When it comes to my family I never quite know how protective I have to be, or what I should or shouldn't say.
+- I can definitely tell when mum has got money because then she likes to go shopping to spend it, whereas dad is steadier and avoids splurges. I like to think I've inherited both sides.
+- I really love being in London at weekends - there's always so much to do.
+- My rule for the corporate stuff is the same as with my music - I do whatever means I can sleep at night and whatever means I can be dignified.
+- Philately is normally a boys' hobby but for some reason it was in vogue at my junior school. Between the ages of eight and ten I collected avidly. I'd pore over my Stanley Gibbons book, obsessively checking my collection's value. I always hoped I'd stumble across a really valuable one, a Penny Black or an Inverted Jenny, but it wasn't to be.
+- I'm a little bit allergic to the whole brand thing to be honest but maybe it's just happening around me and I'm not really aware of it.
+- I'm big in Russia, but no one's quite sure why.
+- I've been DJing a little bit, so you get used to the fact that music sounds brilliant when it's loud.
+- I'm too frightened of confrontation, so I will always tip - even if the service has been really shoddy.
+- The NHS is a bit iffy when you sprain an ankle, but when it's a high-priority issue, it's fantastic. They don't mess about. They're incredibly efficient when things go wrong.
+- Writing songs about fancying people in dance clubs is all very well but it's not the be-all and end-all. There are other topics.
+- It's funny how intimate it feels to get a text.
+- I'd never really thought about it before, but now you ask I can see that how my parents handled money definitely affected my relationship with it.
+- My little boy Sonny makes me laugh all the time. He has good comedic timing.
+- I like the influence of the macabre, but I don't believe in ghosts.
+- I do find it a bit disconcerting when your name becomes a brand.
+- A career in entertainment has a lifespan, like one in sport.
+- Turning the thermostat down is something that I do pretty reluctantly. I like to be able to walk around in whatever I fancy at home.
+- There's so many singers, you watch them and a lot of it is waving around. You don't get this feeling that they're really thinking about what they're saying.
+- I've got a thing for footwear; I have about 200 pairs of shoes from all over the world.
+- I don't think writing or co-writing my songs makes me a better singer, but I haven't really got an excuse not to do it as I've got too many opinions!
+- A good song is a good song whatever your age.
+- Some people can get away with being very sexy to men and not looking like a complete cow, but I didn't think I was in a position where people knew me well enough.
+- 'The X Factor' is great entertainment, but it doesn't prepare people for getting chewed up and spat out by the music industry.
+- I've got quite a curvy shape so I try to wear stuff that's tailored.
+- I learned to stand up for myself at school where I was never too popular.
+- I'm happy that I have a look, but I don't over-analyse whether or not it's beautiful or ugly.
+- I'm a sucker for good black skirts and pretty little shirts and kooky tops. I have to admit that shopping satisfies my craving for immediate gratification.
+- In terms of influence, my style icons have been a mixture of Julie Andrews and Olivia Newton-John. When I was little I used to watch 'Grease,' 'Mary Poppins' and 'The Sound of Music' a lot. If you put all those things together you do kind of get my outfits. A slightly tarty nanny in a second-hand outfit. That is pretty much what I wear.
+- Come rain or shine I walk short distances rather than taking my car.
+- Being a chef would be too much hard work.
+- In real life, I'm not super-posh but if that's the stereotype, I really don't care. It could be worse.
+- I'm someone who has always been quite clear about what I like. In the studio, I'm not a control freak but I know what I want.
+- My parents separated when I was four. It wasn't the smoothest of divorces, but then as my mother always says, you can't have a passionate marriage without a passionate divorce.
+- There are a lot of people out there who lie about their age and I think it does us all a disservice. It can't all be over when you hit 30. That would be rubbish.
+- I never manage to get to bed early on Sunday night but this doesn't matter, as I don't know one level of exhaustion from another.
+- You need to have a life outside your career.
+- I try not to wear anything I have to fidget with - there's nothing worse than wearing something and pulling down the hem and re-adjusting the top. My pet hate is when girls wear those strapless dresses and spend the whole night yanking them up.
+- I tasted huge success with my first album, and when it's happening it feels like a roller coaster you can't get off. You should be very careful about wishing for success on that scale.
+- I get really frustrated if people don't smile.
+- There are a lots of clowns in our family - our house is a fun house.
+- But I don't like working on lyrics publicly in the studio - I prefer to take them away and work on them in my bedroom.
+- In terms of clothes, everything is on the same level for me. If I like it, it doesn't matter if it cost £200 or £2.
+- Now when I say Sophie Ellis-Bextor I feel that's not really me because that's become this entity from doing the gigs and the shows and the make-up contracts and whatever else.
+- I love getting dressed up. Being a pop star is the most brilliant job for that. A lot of girls love shopping, but they might see the most amazing outfit and think, 'When am I going to wear that?', so it's my duty to exploit the fact I do have events I can wear these things to.
+- You learn that, when your children are all right, everything is right in the world.
+- Yes, being educated is definitely an advantage. But having said that, I've met so many people in life who haven't done very well at school but who are still really bright.
+- For every person that says I'm the new Audrey Hepburn, someone else says that I look like an alien.
+- I don't think that old-fashioned idea of record companies exists any more.
+- I used to be hung up on my figure, but it's a waste of time. I don't believe in diets. Have four pints one night, be healthy the next.
+- Someone had my number and they started text-stalking me. I've never replied to them. It was tempting to write back, but I resisted.
+- Like my mum, I sometimes buy things I shouldn't and fill my house with rubbish.
+- Not all my shoes are designer. In terms of clothes, everything is on the same level for me. If I like it, it doesn't matter if it cost £200 or £2. I'm attracted to things rather than labels.
+- I try my hardest not to read reviews.
+- But I quite like that the public has a very short attention span. If I haven't been on telly for a little bit, I can sense it. People don't take as much notice of you, it's really quite palpable.
+- I'm a sucker for sad disco pop.
+- Getting up to dance to your own stuff looks pretty pretentious. And leaving the dancefloor when it comes on is just awkward.
+- A lot of what inspired many musicians is celebrating differences, and people relate to that - more people feel like the unpopular, freaky one than the one in the in-crowd.
+- I'm always sticking up for other people.
+- The fact that my mother was on television every week while I was young was occasionally awkward, and often frustrating.
+- Dance music is great, but it's not a time to be reflective or particularly wistful.
+- I started my music career at 18 and for a long while I let other people handle my affairs.
+- Two premature babies was not a genetic thing; we were just unlucky.
+- I was an only child, but then my parents resettled with different partners, and I am now one of six.
+- I'm the messiest person I know.
+- I had my autograph down by the age of 13. I used to sign it everywhere.
+- I would love to record something with PJ Harvey or Alison Goldfrapp.
+- My parents are good role models because they've worked hard and gave me a happy childhood.
+- Trust your instincts: they tend to see you right. By listening to them, at least you can sleep at night.
+- I must confess I knew very little about the trance scene, I'm more house and commercial dance but it was really interesting and different.
+- I'm really interested in fashion but at the same time I find it quite competitive. Second-hand stuff leaves you more open to whatever your own personal style is rather than feeling dictated to by shops.
+- It's hard to feel comfortable in your own skin when you're younger.
+- When I first started out, I got criticism for the way I looked. I think, now, it's a good thing because, why would you want to look like everyone else?
+- On my wedding day. I didn't want a natural, blushing-bride look - I had a full-on hairdo and red lips. I thought it would be disingenuous to do the whole virginal look, so even though I had the white dress, I had pink net underneath.
+- Some people are really good at packaging themselves, but that's not really me.
+- I think I'm fairly good with money, but I've developed some strange tics - in shops I don't like to go to the counter unless I've got at least two things to buy. If I'm walking around with just one thing in my hand I'll put it back and wait a few weeks because that doesn't seem like a proper purchase.
+- Yeah, I'm not really a morning person.
+- I'm all for consumer rights. I get very aggravated if I don't get a good service.
+- I think there's quite a lot of cowardice in music. I don't mind if it goes wrong, I just want to go for it.
+- You should make an effort on stage because it's a performance. The stage should be glittery and camp, but I don't go down the shops in full stage gear.
+- Everybody remembers Robbie Williams said I had a face like a satellite dish.
+- I don't want to sound like an old grandmother but actually it's quite nice when you get up early and then, by the time it gets to 10am, you're quite perky and already quite switched on.
+- Also, I think women really come into their own in their 30s.

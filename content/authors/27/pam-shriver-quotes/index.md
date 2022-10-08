@@ -1,0 +1,41 @@
++++
+author = "Pam Shriver"
+title = "Pam Shriver Quotes"
+quotes_len = "35"
+description = "the best 35 Pam Shriver Quotes"
++++
+- I think my best tennis is good enough to win.
+- If I had to write a novel, I'd start crying after three lines.
+- My office is just off my master bedroom. One of my theories is I needed to double-door it with three kids at home.
+- Being a 6-foot-tall tennis player is not great for a girl's social life.
+- Eventually I ran for the board of the WTA, lost my first attempt, got on the board my second attempt, and stayed there through most of my career.
+- I feel that I can make certain shots, tough shots, and that I can play better when things aren't going well.
+- There's always a time in a relationship when you can pull back. Three years ago when I realized I was falling for a guy with a complicated medical history, I decided not to exit. Believe me, I made the right decision.
+- When I was 13, tennis became more of my life. It's when I gave up skiing, I gave up winter sports. I still played varsity basketball my freshman year of high school - basketball was the last sport I gave up for my tennis.
+- It was quite the intimidating Sunday afternoon, US Open finals day for me. Sixteen years old, the 16th seed, second major, first US Open, as an amateur, playing Chris Evert.
+- I became president of the players' association and was willing to have conversations with influential people about equal prize money or how the tour could be promoted and structured in a way to make women's tennis better.
+- Living in Baltimore at age 11, I was still not single-focused on tennis. I still played other sports. It was becoming a bigger part of my life, but it was still mainly my summer hobby.
+- A major final to a tennis player is sacred ground. Short of any type of serious injury - soft-tissue tears, serious orthopedic injuries or a major illness like throwing up, dehydration or cramping - you keep going, especially in the final of a Slam.
+- I hate sitting still.
+- I love women's tennis, and I want it to do well. But I don't want to pander. I don't have to be warm and fuzzy. I just want to be respected.
+- You realize as an athlete that there is a bit of a clock, and you don't want to look back on a career and say, 'I wish I had done this a bit differently.'
+- I have horrible handwriting, horrible spelling and horrible grammar.
+- I haven't always been as gracious a loser as I could have been.
+- People all the time try to take my outside interests and make them a negative. My life has always been like that and it always will be like that. I don't think it necessarily means that while I'm concentrating on tennis I can't put 100% into it. If I didn't have 100 different interests, I probably wouldn't be as good a player.
+- I got to one Grand Slam final, and that's what you shoot for as a player.
+- Living in Los Angeles and having three little kids, it's hard following the Orioles.
+- I am so worried about my shoulder, which aches now as I write. The pain is frightening because of its intensity. I want so much to get rid of this pain. I must be strong. I must be strong.
+- When you're in the second set and you start thinking I have to win this and get it over, the pressure to finish quickly can get to you.
+- In regular tournaments, players throw in the towel occasionally for one reason or another.
+- You have to make sure the players know to be accessible, and that's part of their job. That's why you earn a lot of money. There's a public relations, fan-friendly part of it.
+- Have a living will if you don't want long-term life support. It makes the decision easier for the family.
+- To be part of the big picture, whether it's celebrity interviews or seeing how big the U.S. Open is in New York or on the world stage, is amazing.
+- I feel like the NBA, WNBA, tennis and basketball have really been at the forefront of social justice and pushing for change from the athlete platform.
+- The microphone is open. There is no delay. If I see something and want to say it right now, I can.
+- Even when I played, if they gave me the microphone after a match, whether a doubles final or a singles final, I'd handle the microphone pretty well.
+- I've learned to really appreciate the courtside position and the art of picking up certain subtleties. Player expression you can't see from a camera angle, or the booth.
+- I didn't mean to offend anybody. It's my filter. I constantly work on it.
+- I was given advice early in the quarantine: Don't focus on what you don't have. Focus on what you do have and will have again, and I've said that to myself over and over again.
+- But politics is something that would require so much of me. I'm a public figure now, but as a politician... It's more likely that I'll become a sportscaster than a politician.
+- The pace of play is very important whether I'm watching baseball, tennis or golf.
+- I took more anti-inflammatories probably than anybody in my 20 years of playing and I know what that terrible stomach pain can be. I also know what terrible menstruation cramps can be, as most women tennis players have, to the point where you feel nauseous, but you just play on.

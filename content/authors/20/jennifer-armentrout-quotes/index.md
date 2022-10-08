@@ -1,0 +1,21 @@
++++
+author = "Jennifer Armentrout"
+title = "Jennifer Armentrout Quotes"
+quotes_len = "15"
+description = "the best 15 Jennifer Armentrout Quotes"
++++
+- While I'm writing YA, I can't read YA, and the same with adult. I usually only listen to music while I'm writing YA.
+- One constant writing ritual, no matter what I'm writing, is that I cannot write if people are around me. It wigs me out - the idea that someone is reading as I'm writing stuff.
+- Memories, even bittersweet ones, are better than nothing.
+- My first crush was my brother's best friend.
+- You can make your own way. It's about getting out there and not letting rejection get you down.
+- 'Tempting the Best Man' centers around Madison Daniels, who's had a major crush on her brother's best friend since she was a girl.
+- All the old school Young Adult novels inspired me. I grew up reading R.L. Stine, Christopher Pike, Richie Cusick, and so on. I loved how you never really knew who the 'bad guys' were in their works, and I wanted to capture that feeling with 'Don't Look Back.'
+- I have such a soft spot for the really cheesy zombie movies, but if I had to pick a really good one, I'd have to go with an actual TV show and say 'The Walking Dead'.
+- I don't think with any book you get used to people falling in love with the story. It's been incredible just to realize your books are being read. It's a pretty amazing feeling.
+- I think I'm always going to be a paranormal girl at heart. I'm always going to be intrigued by it.
+- I can't wait for everyone to read 'Don't Look Back.' It's something very different for me, my first romantic suspense novel, so I'm very excited to be sharing the book, finally.
+- My first celebrity crush was Jonathan Brandis. I even got to talk to him on the phone. I wrote a fan letter, and he answered. Talk about a surreal experience.
+- I'm a bit more of a suspense reader on the adult side, but my favorites were the ones I grew up reading.
+- 'Don't Look Back' is my first YA contemporary mystery/thriller. It's been described as 'Black Swan' meets 'Pretty Little Liars'.
+- I wrote 'Don't Look Back' in November 2011, and when I wrote the novel, it wasn't contracted, so there was a freedom in that - no expectations or anything like that. It was also my first contemporary novel I'd written and sold, which was to Disney/Hyperion in January of 2012.

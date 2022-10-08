@@ -1,0 +1,44 @@
++++
+author = "Steve Eisman"
+title = "Steve Eisman Quotes"
+quotes_len = "38"
+description = "the best 38 Steve Eisman Quotes"
++++
+- I thought that there would never again be an opportunity to be involved with an industry as socially destructive and morally bankrupt as the subprime mortgage industry. I was wrong. The for-profit education industry has proven equal to the task.
+- What is very negative is that in every country in Europe, the largest owner of that country's sovereign bonds are that country's banks.
+- I'm shorting two stocks in the U.K., but I've got a screen of about 50, and I might short all 50 if I think Jeremy Corbyn is going to be prime minister.
+- I know my Trotskyites well, and I know you don't want to be invested in the U.K. if a Trotskyite is prime minister.
+- Alan Greenspan is the worst Chairman of the Fed in history.
+- To say that past managements of Citigroup were poor would be a kindness.
+- Deutsche Bank has a very simple problem. It doesn't make money.
+- My parents worked as brokers at Oppenheimer securities. They managed to finagle me a job.
+- Do your own homework. I can't overstate the importance of this.
+- We need the government to force the banks to write down all their bad assets now and then recapitalize themselves, preferably with private capital. Those banks that cannot raise sufficient capital should be seized and their deposits sold off.
+- The single greatest line I ever wrote as an analyst was after Lomas said they were hedged: 'The Lomas Financial Corporation is a perfectly hedged financial institution: it loses money in every conceivable interest rate environment.' I enjoyed writing that sentence more than any sentence I ever wrote.
+- Running my fund in 2008 felt a little like being Noah. Noah builds his ark, and he puts his family on the ark, and off they go. So he and his family are safe, and everybody else is dying.
+- The world needs more standardization, less innovation.
+- I'm not short, so I can make a speech and drive the stock down and cover the stock. That's not what I do.
+- Daniel Tarullo has more power of the U.S. banking system than anybody since Alexander Hamilton. That's not an exaggeration, by the way.
+- When I started out as an equity analyst, we had no securitization data. We relied on company data.
+- Financial innovation is an oxymoron. It's very rare that there is something that's actually financial innovation. It's a euphemism for hiding leverage.
+- I don't think anybody has any idea what the economic impact of Brexit will be.
+- I have no negative stories about Deutsche Bank, period.
+- What value does cryptocurrency actually add? No one's been able to answer that question for me.
+- When you're levered 9 to 1, it'd be unreal for a bank to go down.
+- Nobody is going to invest in the Italian banks unless they trust their balance sheets.
+- I'm flattered anybody would call me a legend.
+- I don't see the value in Tesla.
+- If you ever had the misfortune of reading all 2,000 pages of Dodd-Frank, which I have done - and it almost killed me - basically, all it does is create a list of all the things it wants the Fed to fix.
+- The cultural issues, I think, at Wells Fargo went very, very deep. They have to unwind these cultural issues.
+- Elon Musk is a very, very smart man, but there are a lot of smart people in this world, and you've got to execute. He's got execution problems.
+- Citi is the cheapest large bank.
+- It's very hard to argue with someone who thinks he is God because he makes a lot of money.
+- People always come up to me and ask what the next 'big short' will be. The truth is I simply do not have an answer, and do not want to have an answer, to this question.
+- It's not hard to have a second act. It's just that the second act's not going to be as exciting.
+- Once in a blue moon, an entire industry is a good short.
+- The only thing that I know for sure is that the people who invest in the U.K., those investors, believe strongly that the ramifications of a hard Brexit are very bad, and they believe that a recession will take place in the U.K., and that would clearly be negative for banks of the U.K.
+- Deutsche Bank is a problem bank.
+- The one stock in my portfolio which I say hasn't worked yet but has the potential for a big home run is General Motors.
+- I hated being a lawyer.
+- I've always felt there was something wrong with Wells Fargo's culture, for a very, very long time.
+- I'm not really worried about England's banks.

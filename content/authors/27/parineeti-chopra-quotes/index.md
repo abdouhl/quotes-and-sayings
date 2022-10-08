@@ -1,0 +1,106 @@
++++
+author = "Parineeti Chopra"
+title = "Parineeti Chopra Quotes"
+quotes_len = "100"
+description = "the best 100 Parineeti Chopra Quotes"
++++
+- I never wanted to be singer. People in my family love music, and I pursued it as a hobby.
+- On screen, if I have to wear shorts or bikini for a scene, I should have the body for that.
+- There are things that I am doing apart from films to keep me normal. Otherwise, emotionally, it is very draining.
+- I never entered the film industry with any expectation.
+- I feel proud every time I recall the valour and courage of our army men in the war against Pakistan.
+- I stay happy and don't take life seriously.
+- To make a mark, you have to do something different.
+- I am a drama queen!
+- It was quite difficult to play the role of a scientist in 'Hasee To Phasee.'
+- I used to think weight loss happens quickly, but it has taken a lot of time. There is no secret to it.
+- There are girls who look stunning on screen. I don't think I look stunning, but I am working hard.
+- When you experiment with new forms of exercise, you stay motivated on a daily basis.
+- I am terrified of plane landing. It's a phobia for me.
+- If there's any actor who is saying we are not insecure, they are lying, because this job is an emotional one.
+- Birthdays are about doing something fun and interesting.
+- I would love to do a film with Shah Rukh Khan or Salman Khan where I also have a great role.
+- If you aspire to be an actor, go ahead. But do have a backup plan because you can't predict your future in the industry.
+- I will never do a usual film with song and dance; the character has to be important.
+- I got my first film, 'Ladies vs Ricky Bahl,' easily.
+- There's nothing new about women playing pivotal parts or title roles in films. Women in strong characters have always been accepted. It has been this way for years.
+- I do martial arts mostly. But if I am bored, or my body is aching, I swim or go the gym. I can sometimes be doing cardio on the treadmill, kick boxing, stretching, dance, whatever I feel like. I just make sure I have something to do every day but no particular set routine.
+- I hadn't grown up thinking that I have to be this big actress in Bollywood.
+- I will do everything that is required from me, but if people get bored of me, I can't control their emotions.
+- My dad was a supplier to the army and was not a very well-off person.
+- It's my life's aim to make people understand the job of an actor, what they go through, and why they are such a protected species. People see the glamour part of it. But there's so much stress that often you don't even pay attention to the luxuries.
+- If you want to release your own single, there cannot be a better launch than going to Los Angeles and collaborating with a renowned artist.
+- My personal life was very important for me, the people I am with, my friends, where I go.
+- When you make a film, you will either make money or won't.
+- I studied finance and was a topper.
+- I'm just trying to do all kinds of films.
+- I don't think I have a genre at all.
+- Singing is something that I have learnt. I have given exams for it.
+- Whenever I read a script, I don't differentiate between a kissing scene or an emotional scene.
+- I believe love is finding the person you're happiest with because he understands and accepts you the way you exactly are.
+- I find it cooler when one guy is totally committed to one girl. I find that very hot; it's very attractive.
+- Boys tell me they have shared my pictures with their sisters to inspire them, and that makes me happy.
+- I was born and brought up in Ambala.
+- Govinda can act in his sleep. He is just amazing.
+- I don't wake up in the morning thinking that I have to bag roles in all good films that are being made.
+- Pantene shampoo is a big saviour for me. I endorse something only if I believe in it, and I truly think this shampoo is wonderful.
+- Don't leave your job without getting an acting offer. Very few people in the industry are lucky to get a film without much struggle and be successful.
+- This 'bubbly' word, I am personally going to take it up as an agenda to ban it. Colas are bubbly. Champagne is bubbly. I am not bubbly!
+- After winning so many debut awards, I never thought I would win for 'Ishaqzaade.'
+- On screen, I may hate a co-star, have a stomach ache, but I have to convince you of that emotion that is demanded on cue. There are times when I feel like dancing, but on 'action,' I'll have to cry.
+- I don't want to do a film where I have a ten minute role.
+- I cannot stand dishonesty among people, the tendency to prevaricate.
+- When you finish reading a script and think it is good but have reservations about a kissing scene, it means that you haven't understood the script completely.
+- I love masala films, and as an audience, I like my dose of commercial cinema.
+- If someone close to me forgets my birthday, I am heartbroken.
+- I count the weeks and days before my birthday.
+- We have our moments of emotional vulnerabilities as any other human being, and my greatest fear gnawing away at me is losing my loved ones.
+- If anybody tells me to stop eating chocolates or pizzas, I won't be able to do it.
+- I know there are actors who won't kiss on screen, and I respect that, but I don't have any rules like that. I will stay true to the script.
+- I have a backup plan. Everybody should have a backup plan. I am a banker. The day you all get bored of me and don't want to watch my films, I will go back to banking.
+- As actors, we exhaust ourselves emotionally and physically, which no one sees.
+- People who take time out to dole out opinion on social media are negative people.
+- My dad is this typical orthodox, narrow-minded Punjabi man in front of whom you can't even utter the word called 'boyfriend.'
+- Social media is the wrong place to judge what India is thinking about.
+- I've always liked H&M's exciting and affordable fashion - there is plenty of inspiration in store to create your personal style.
+- I will act and give my best with all my dedication.
+- I feel, as an actor, one must not have inhibitions.
+- If you don't have patience in this profession, you almost always end up getting bent out of shape expecting quick results.
+- In this industry, it's sad that a superficial thing like weight loss can actually define your career, but if that is the case, so be it.
+- I am totally open to being in love.
+- I will always accept good films that require demanding performances.
+- I think I could be good on TV.
+- I cannot keep myself to a particular diet. I eat what I want, when I want and try to keep it as healthy as I can.
+- I want to be in a relationship with a simple, honest, and an uncomplicated guy because that's the kind of person I am.
+- When two people who are in a relationship and want to have fun, they should mutually agree and warn the other person to not get serious. If they mutually agree, then it's fine because they're just having fun.
+- I am in a visual medium and should be able to compete with every good-looking actress.
+- I hope people don't get bored of me. That fear is always there.
+- I am not endorsing being thin; I am endorsing being your fittest self.
+- If you yourself are not comfortable about your body, do something about it. If you are comfortable, let it be. Other people have no right to comment anyway.
+- I would love to be on TV, but a good show has to come my way.
+- It's an honour for me to work with Rohit Shetty. He is the biggest commercial director of the country, making the biggest franchise, 'Golmaal.'
+- I have been offered a lot of films with many big actors, but I have unfortunately declined them.
+- When you are overweight, you just don't feel good about yourself.
+- I am a responsible person. I plan a lot. I am disciplined.
+- I am not one of those actresses who says she has no time for love.
+- I always took music very seriously and passionately. It is one of my biggest passions and hobbies.
+- Making films take a lot of intelligence and is tough, though achieving Economics honours is tough, too.
+- Actors are fighting at all time. The love you get is amazing. When you don't get it, it is the most excruciating career you can be in.
+- I didn't debut in a film playing a diva.
+- I have no limitations, because I believe in myself.
+- I have been singing since I was a child, and I am a trained Hindustani classical singer.
+- I think directors look at me because I am an energetic person with a strong personality and always like to make people laugh.
+- When it comes to money, I can earn it.
+- I am not an insecure person at heart, but I am also aware that I am not as good looking as an actress is expected to be.
+- I think size zero is extreme. Even if I starve and stop eating, I don't think I would ever reach size zero in life.
+- I am a birthday person. I am not modest about birthdays.
+- I love 'filmi' things.
+- I would love to be a part of a project like 'Ocean's 8,' if such a film is ever made in India.
+- I want a guy who can take care of me. He should be rock solid and someone I can depend on.
+- I enjoy people who talk intelligently.
+- For me, I think humour is something important.
+- We are what we are because of the people in our lives. What would I be without my family and close friends?
+- Getting fitter is just like getting a new haircut. It changes the way you look and also changes your outlook towards a lot of things in life.
+- Good films and good performances will help you go further in your career. You can't get too far by just choosing leading lady roles.
+- I hate going to the gym, running on treadmills, or doing weights. I like keeping it fun and relaxed because that is when you are sure to get results.
+- I am ambitious to do good work and do it really well.

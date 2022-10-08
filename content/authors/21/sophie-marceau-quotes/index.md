@@ -1,0 +1,32 @@
++++
+author = "Sophie Marceau"
+title = "Sophie Marceau Quotes"
+quotes_len = "26"
+description = "the best 26 Sophie Marceau Quotes"
++++
+- I think it's almost easier to make people cry than to make people laugh.
+- Even if I think in English, it's more a language of acting than French.
+- Acting is contained - you act for three months, then leave it - but writing is the act of creation. Writing is dangerous.
+- Words, yes, formulating things, creating something from your heart, it is something very necessary, yes.
+- So, sometimes, when I'm not happy with my performance and I have to think, I will think in English.
+- I think I'm a tough person, but for sure, I would talk under torture.
+- I need the seasons to live to the rhythm of rain and sun.
+- All I will say is that I'm playing a lot of different roles that, to be honest, are more interesting and demanding than any I've played before.
+- You know French means like sophisticated, well educated, so far.
+- I find the subject of childhood fascinating. I explored this subject in Speak to me of love and I am curious about portraying the often painful transition into the adult world.
+- It is something actresses need to go through and I think they look forward to being naked in a movie. I don't know why, but it is something you need to exhaust from yourself.
+- When you direct your first film, you always start by telling stories that you are familiar with.
+- What I am interested in is the present time.
+- Mel Gibson would not be a good James Bond.
+- But the privileges that one has enjoyed and exploited can sometimes turn against you: nobody thinks of you as a director, you are always an actress.
+- Well it is sometimes difficult to act in another language.
+- As you know it is a comedy so everything is a little bit pushed. That's what's funny about this kind of movie is you can laugh about the absurdity, and the bad side of life.
+- Acting is wonderful therapy for people. Instead of suffering for yourself, someone will do it for you.
+- Genre aside, I'd like to make a film about people.
+- You can perform all kind of characters but you cannot change what people feel for you.
+- And I think it's very rare to have good stories, well written comedies.
+- I just heard a very funny story about somebody who died yesterday, I'm sorry to say so but it was so absurd that you can't help laughing. And the person that was concerned about that story was laughing too.
+- I felt sometimes too responsible as an actor because people promote violence or weird things that I don't want to be part of.
+- Oh, I'm not English, I cannot talk on behalf of an English person. I'm French. I can say about French. They are quite emotional, though, and they talk about their emotions.
+- I'm a good storyteller.
+- There is no doubt that this film is autobiographical, but at the same time it also tries to portray an ordinary couple in a language that everyone can understand.

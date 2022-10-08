@@ -1,0 +1,19 @@
++++
+author = "Elizabeth Gillies"
+title = "Elizabeth Gillies Quotes"
+quotes_len = "13"
+description = "the best 13 Elizabeth Gillies Quotes"
++++
+- I love being a teen because you don't have all the responsibilities of an adult yet.
+- I think dealing with mean girls is just a part of life. I never really took people like that too seriously.
+- Hopefully, after 'Victorious' has lived a long and beautiful life, I would like to go into movies. And I'd like to have a very successful movie career. Ultimately I'd love to win an Oscar; that's my big goal in life, so that's what I'm going for.
+- If someone's being less than courteous to you, I don't think you need to pay any attention to them.
+- The food I eat the most is probably steamed, plain white rice. I know its really, really, really boring, but that's honestly the food I eat the most. No, I like cucumber avocado rolls... I love that.
+- In middle school, I was boy crazy and it was the worst! I would always lose, too. I was more into the competition than the boy by the end of it! I just wanted to win!
+- I like growing up; I feel like I have an old soul. I like the age to match as much as it can.
+- The funny thing about voice over is you can go in in sweatpants and have your hair all messed up, and no one will see you, and you can still deliver the same great product.
+- Once you lose the honesty in a relationship, I mean, I think you don't have a relationship at all.
+- I try not to tweet too much; I'm a really sporadic tweeter. I will tweet nonstop for, like, 3 days, and then I won't for a month. I don't make it priority at all; if I feel like doing it, I do it, and if not, then I don't care.
+- A strong sense of humor, a really awesome personality, and maturity is also really important in a boyfriend. I tend to only be attracted to older guys for that reason. I just love guys who have a really strong sense of who they are.
+- If you're passionate about something and stick with it, even if your friends aren't doing it, it'll pay off. It can be really rewarding to stick to your guns.
+- My two big date deal breakers are someone with no sense of humor and someone who chews badly. I will never be with someone who never laughs or someone who chews disgustingly, so if either of those things are detected on a date - it's a total deal breaker.

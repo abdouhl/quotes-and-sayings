@@ -1,0 +1,78 @@
++++
+author = "Desmond Tutu"
+title = "Desmond Tutu Quotes"
+quotes_len = "72"
+description = "the best 72 Desmond Tutu Quotes"
++++
+- Racism, xenophobia and unfair discrimination have spawned slavery, when human beings have bought and sold and owned and branded fellow human beings as if they were so many beasts of burden.
+- In God's family, there are no outsiders, no enemies.
+- Hope is being able to see that there is light despite all of the darkness.
+- In my country of South Africa, we struggled for years against the evil system of apartheid that divided human beings, children of the same God, by racial classification and then denied many of them fundamental human rights.
+- Oh, 1994, April 27. There won't be a day like that ever again. I mean, the sky was blue, with a blueness that had never been there before.
+- I wish I could shut up, but I can't, and I won't.
+- I am a leader by default, only because nature does not allow a vacuum.
+- Peace comes when you talk to the guy you most hate. And that's where the courage of a leader comes, because when you sit down with your enemy, you as a leader must already have very considerable confidence from your own constituency.
+- The universe can take quite a while to deliver.
+- For Christians, who believe they are created in the image of God, it is the Godhead, diversity in unity and the three-in-oneness of God, which we and all creation reflect.
+- All the United States, it is a society that is split like to the bottom, that had very poor people in the country that is one of the wealthiest countries.
+- God is patient with us to become the God's children he wants us to be but you really can see him weeping.
+- In many ways, when you're a Nobel peace laureate, you have an obligation to humankind, to society.
+- Niger is not an isolated island of desperation. It lies within a sea of problems across Africa - particularly the 'forgotten emergencies' in poor countries or regions with little strategic or material appeal.
+- If you want peace, you don't talk to your friends. You talk to your enemies.
+- The price of freedom is eternal vigilance.
+- I am not interested in picking up crumbs of compassion thrown from the table of someone who considers himself my master. I want the full menu of rights.
+- The God who existed before any religion counts on you to make the oneness of the human family known and celebrated.
+- Be nice to whites, they need you to rediscover their humanity.
+- If you are neutral in situations of injustice, you have chosen the side of the oppressor. If an elephant has its foot on the tail of a mouse and you say that you are neutral, the mouse will not appreciate your neutrality.
+- For goodness sake, will they hear, will white people hear what we are trying to say? Please, all we are asking you to do is to recognize that we are humans, too.
+- I've never doubted that apartheid - because it was of itself fundamentally, intrinsically evil - was going to bite the dust eventually.
+- When the missionaries came to Africa they had the Bible and we had the land. They said 'Let us pray.' We closed our eyes. When we opened them we had the Bible and they had the land.
+- As human beings we have the most extraordinary capacity for evil. We can perpetrate some of the most horrendous atrocities.
+- When you think of the sort of things that happen when a genocide happens, it's again not people who are intrinsically evil.
+- It is our moral obligation to give every child the very best education possible.
+- Do your little bit of good where you are; it's those little bits of good put together that overwhelm the world.
+- I certainly know that I would not be able to survive if it were not for the fact that I am being upheld by the prayers of so many people.
+- It's a blessing that South Africa has a man like Nelson Mandela.
+- Exclusion is never the way forward on our shared paths to freedom and justice.
+- A person is a person because he recognizes others as persons.
+- Without forgiveness, there's no future.
+- Those who invest in South Africa should not think they are doing us a favor; they are here for what they get out of our cheap and abundant labor, and they should know that they are buttressing one of the most vicious systems.
+- In the land of my birth I cannot vote, whereas a young person of eighteen can vote. And why? Because he or she possesses that wonderful biological attribute - a white skin.
+- Be nice to the whites, they need you to rediscover their humanity.
+- In the Bible, we first encounter God when he sides with a bunch of slaves against a powerful Pharaoh, an act of grace freely given.
+- Many people would be surprised that, in fact, I'm quite shy.
+- The minute you got the Nobel Peace Prize, things that I said yesterday, with nobody paying too much attention, I say the same things after I got it - oh! It was quite crucial for people, and it helped our morale because apartheid did look invincible.
+- My humanity is bound up in yours, for we can only be human together.
+- We inhabit a universe that is characterized by diversity.
+- You must show the world that you abhor fighting.
+- Forgiveness says you are given another chance to make a new beginning.
+- When we see the face of a child, we think of the future. We think of their dreams about what they might become, and what they might accomplish.
+- Universal education is not only a moral imperative but an economic necessity, to pave the way toward making many more nations self-sufficient and self-sustaining.
+- Children are a wonderful gift. They have an extraordinary capacity to see into the heart of things and to expose sham and humbug for what they are.
+- Europe became rich because it exploited Africa; and the Africans know that.
+- But God can only smile because only God can know what is coming next.
+- Inclusive, good-quality education is a foundation for dynamic and equitable societies.
+- How could you have a soccer team if all were goalkeepers? How would it be an orchestra if all were French horns?
+- God's dream is that you and I and all of us will realize that we are family, that we are made for togetherness, for goodness, and for compassion.
+- God's love is too great to be confined to any one side of a conflict or to any one religion.
+- What is black empowerment when it seems to benefit not the vast majority but an elite that tends to be recycled?
+- We would like to see you departing peacefully.
+- In its history, Europe has committed so many massacres and horrors that it should bow its own head in shame.
+- You stand out in the crowd only because you have these many, many carrying you on their shoulders.
+- People often speak of God being even-handed. God is not even-handed. God is biased, in favor of the weak, of the despised.
+- I mean in the South African case, many of those who were part of death squads would have been respectable members of their white community, people who went to church on Sunday, every Sunday.
+- God is not upset that Gandhi was not a Christian, because God is not a Christian! All of God's children and their different faiths help us to realize the immensity of God.
+- I don't think I've ever felt that same kind of peace, the kind of serenity that I felt after acknowledging that maybe I was going to die of this TB.
+- When a pile of cups is tottering on the edge of the table and you warn that they will crash to the ground, in South Africa you are blamed when that happens.
+- Your ordinary acts of love and hope point to the extraordinary promise that every human life is of inestimable value.
+- Because forgiveness is like this: a room can be dank because you have closed the windows, you've closed the curtains. But the sun is shining outside, and the air is fresh outside. In order to get that fresh air, you have to get up and open the window and draw the curtains apart.
+- Before Nelson Mandela was arrested in 1962, he was an angry, relatively young man. He founded the ANC's military wing. When he was released, he surprised everyone because he was talking about reconciliation and forgiveness and not about revenge.
+- I think that most of us would prefer to be popular than unpopular.
+- We may be surprised at the people we find in heaven. God has a soft spot for sinners. His standards are quite low.
+- Hate has no place in the house of God.
+- In South Africa, we could not have achieved our freedom and just peace without the help of people around the world, who through the use of non-violent means, such as boycotts and divestment, encouraged their governments and other corporate actors to reverse decades-long support for the Apartheid regime.
+- I have been to the Occupied Palestinian Territory, and I have witnessed the racially segregated roads and housing that reminded me so much of the conditions we experienced in South Africa under the racist system of Apartheid.
+- You don't choose your family. They are God's gift to you, as you are to them.
+- We are each made for goodness, love and compassion. Our lives are transformed as much as the world is when we live with these truths.
+- Isn't it amazing that we are all made in God's image, and yet there is so much diversity among his people?
+- And every human being is precious.

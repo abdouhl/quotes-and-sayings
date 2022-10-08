@@ -1,0 +1,106 @@
++++
+author = "Gegard Mousasi"
+title = "Gegard Mousasi Quotes"
+quotes_len = "100"
+description = "the best 100 Gegard Mousasi Quotes"
++++
+- I defeated Dan Henderson, he's making tons more money than me. I defeated Mark Hunt. How is it possible Mark Hunt is making $800,000 with a record of 10-10?
+- Even if I win the belt, I'm going to be underrated. It is what is it.
+- You're going to lose eventually. It doesn't matter who you are.
+- I've fought Jacare twice, it's not a fight people want to see.
+- I could beat Yoel Romero, who is probably more dangerous than someone like Anderson Silva, but I would get more credit for beating Silva.
+- People are stupid, what can I say. They don't know who's a real fighter or not.
+- The truth hurts. It hurts to some people.
+- After doing boxing a little bit, I knew that I wanted to achieve what the other boxers were achieving: the championship and whatever comes with the championships.
+- I see some fighters lose very badly, but still they get more praise or they're not overrated. They're just good fighters in a lot of people's eyes. But I feel like one loss with King Mo, it made me a very bad fighter somehow.
+- I've trained with Douglas Lima, he's a tough kid, but I could feel the weight difference.
+- People always talk. People say rude stuff. It bothers you but I'm not losing sleep on it. I don't care.
+- Getting in the cage, it's not like I need a whole mental preparation for it. It's just a fight.
+- My goal is to get the belt, the UFC belt.
+- I made my money with good investments, I'm going to make maybe $1 million a year just with my real estate.
+- People like crap. It doesn't matter. I think if you have a big mouth and you perform so-so, it is what it is. People are going to notice you more. Nice guys come last. Let's say it like that.
+- As a fighter, you want fair treatment.
+- I have losses to Machida and Lovato, and I'm going to avenge them both.
+- I've been training my whole life with southpaws. It's annoying to fight a guy who's a southpaw, but nothing that I haven't see.
+- Derek Brunson's stand up is horrible, I'm sorry. The guy is a good fighter but his stand up is just terrible. He's an amateur fighter stand up wise.
+- Iranian people are very hospitable, very family-oriented and besides that they have a very beautiful country.
+- People can't always judge by the records. Maybe a guy has 11 wins in MMA but he's fought the best. Someone else has 11 wins but he's fought nobody. It's a difficult sport because someone can be a champion in four fights, look at Brock Lesnar. So records don't always mean a lot.
+- I don't want to tell sad stories about myself. We may not have had a lot to spend when I grew up, but my childhood was good. The public likes to hear a dramatic story. They want a star to rise, have a meltdown and then return to greatness. Very American.
+- I think as I get older, I'm going to look for the fun fights.
+- The UFC has too many rules, it doesn't make it better.
+- I fought K-1 at heavyweight.
+- I'm a solid fighter.
+- I would beat Michael Bisping. I would jab his face the whole night. Easy.
+- A wrestler will always be a wrestler, and they will always go back to the basics.
+- It's an advantage for me fighting in Japan. I'm familiar there. I have friends there. I've been fighting so long there.
+- Luke Rockhold is the guy I want to face.
+- Whenever I've felt that there was a lot of pressure on me. I perform at my best.
+- It's always been a goal of mine to get the belt in different weight classes.
+- In Bellator, I feel like I can grow. As the fighters grow, I know the company will grow. You feel like a part of the company.
+- Luke Rockhold's not going to take me down. Chris Weidman's not going to take me down. Their wrestling is great, but they have to set it up with strikes.
+- Men have to stay strong. 'They fight, it's normal. Females don't have that instinct.
+- Not being able to train or fight for a long time is not going to make you a better fighter.
+- If I would fight Michael Bisping, I would be the favorite. Everybody knows that.
+- I feel like I'm one of the strong middleweights, physically.
+- With me, somehow because I've been fighting outside the UFC, I still have to prove myself.
+- I've seen so many fighters getting knocked out.
+- When you lose, you learn a lot more.
+- I won the belt in DREAM, I won the belt in Strikeforce, every fight was just a fight, it wasn't something special, it just was getting in the ring and fighting.
+- I cannot come and suddenly put on a persona. Like, I cannot be Mike Tyson. When you saw him it was raw, it was intense, 'I want to hurt you.' But now everybody tries it. I don't enjoy that. It's not real.
+- I believe that style-wise, matchup-wise, I matchup much better against Anderson Silva than Jon Jones, but it doesn't mean that I'm scared to fight at 205.
+- I feel like I have a lot of potential, and I feel like I can beat anybody.
+- I've been working on wrestling aside from MMA. That is something that I wasn't doing in the past so I'm getting more confident in my wrestling. I learned that I didn't know a lot about takedowns, it's a really big gap and I'm catching up and learning a lot.
+- Maybe I'm not the best fighter, but I'm always going to fight, no matter who it is.
+- I watch the comedy shows like 'Married With Children,' 'Friends,' 'Family Guy,' and 'Everybody Loves Raymond.'
+- People always say I'm a bad loser.
+- I always thought I would be a boxing champion.
+- I want to be healthy when I quit, and I want to quit while I'm on my top. A lot of fighters continue because probably they need the money. My goal was invest, get out of the game healthy and secure. I feel like that's a real champion. Not someone who gave it all in the ring, and then at the end of his life, they don't have anything.
+- For a wrestler, I think it is much better to fight in the ring than in the cage. The cage has more advantage for the stand up fighter.
+- I'm fighting to get paid. I'm not doing this because I love the sport so much. I'm not a crazy person.
+- I really like Robert De Niro.
+- Just pay my what I'm worth. I'm a fair guy, I'm not asking more than what I'm worth.
+- I have fights where I thought I'm going to destroy the guy and then I had a very tough fight, I had fights where the guy's a big name and I win in the first minute.
+- I was born in Iran, my parents are Armenian. We fled from Iran to the Netherlands when I was eight years old. We had a lot of family and friends in Iran, so it was hard to leave, especially for my parents. But we managed to settle well in the Netherlands, after a year in refugee camps. But I understood it was a process.
+- My goal was never to be the best. I always wanted to make my money, and, of course, I always wanted to win my fight. Because if you keep winning, people got to say 'yeah, he is the best middleweight.' But to be honest I don't care.
+- Normally for me, it's not interesting. When do you see in the jungle, female fighters fighting each other? I mean it's not human nature.
+- I was champion in Dream at middleweight, I'm champion in Strikeforce at light heavyweight, and my final goal is to be heavyweight champion of the world.
+- I like Vitor Belfort. He's a nice guy and I have nothing against him.
+- I don't like nicknames, to be honest.
+- I can fight in Japan, I can fight in Europe, I can fight in U.S. How am I not marketable? I speak English.
+- There are four seasons in Iran, so you can go winter skiing, you can go in summer to the beach... it's not a real tourism place, but it's a nice country if you have family and friends to visit there.
+- I think with fighting you have to have a desire to achieve something. You never see a rich kid get to the top of any combat sport because they don't have the drive. All the great boxers come from the ghetto. They all had nothing. They have the desire, the hunger but the rich kid is not going to get punched in the face. Why would they?
+- Beating a guy like Bader, that's a big thing.
+- I am one of the best, I should get paid like one of the best.
+- A fight is a fight. You can have any style.
+- At 15, I went to boxing. That's when I really wanted to be a champion, so that gave me a goal in life, so it kept me focused on training instead of other things.
+- I like fighting in America.
+- I have great people around me, I have great training partners, and I think if you really want something you work for it and you get it.
+- People just see what they want to see.
+- I've fought for different organisations, different titles, from all around the world.
+- I like all kinds of music artists like Akon. I even listen to Lady Gaga.
+- The more fights I have the more relaxed I get in cage or ring. It's all about experience. It's something that I try to do because I fight better when I am relaxed.
+- I can't put on an act, so I try to be one of the best fighters so at least I get paid. Let's say Michael Bisping, he wasn't that great. He was losing, winning, but he was making a lot of money, and that was because he was outspoken and from the U.K. But not everyone can be like that. So, I tried to be the best I could.
+- When you constantly claim you are the best, people start to believe that. I see that happen a lot. You can convince a lot of people by talking, even if that has nothing to do with your actual performances. But that's not my thing.
+- I fought a long time ago in Canada, I fought a Croatian guy, I don't remember his name, but there I had a size advantage. At the end, I explained to him about cutting weight. He didn't know about weight-cutting, so I explained to him, and I was bigger than him at that time.
+- I know I'm underrated.
+- I respect all my opponents and they do the same thing that I do to get ready for fights.
+- When I was an amateur, I would go to knock guys out in the first minute. When you get experience, you know it doesn't work like that.
+- It's just a personal challenge, I'd like to see how I can do as a boxer.
+- Maybe at the end of my career, I could do some fights at heavyweight, when I'm older and not cutting weight. When I'm in my prime, I should stay at my weight class when I'm at my best, but let's say the end of my career, I want to just make an extra buck and not taking it too serious, yeah, I'll get fat and I'll fight, sure.
+- The UFC focuses on entertainment, but that's not what fighting is about. It is not a concert.
+- Emotion works against you. The less emotion, the more you use your brain and fight smart.
+- I have no doubt in my abilities that I can beat any of the top ten guys. Once I'm focused I know I can beat them.
+- Some good fighters, they never won the belt, so it doesn't always show the whole picture. But it's an accomplishment.
+- Fighting is not my life.
+- My dad would take me to judo a few times a week. I got all these things that I was able to do once we were set up in Holland. Everything was taken care of. I think Holland is a country that takes care of their people - one of the best countries in the world.
+- I'd rather have the underdog position than the favorite because I've been the underdog for a long time. I don't mind fighting that way.
+- I'd rather fight somebody in the top five rather than somebody in the top 15, but I'll fight anybody.
+- I talk bad about Uriah Hall all the time but I don't dislike the guy.
+- I don't like watching the females fight. It's just not attractive for me, but not like in a looks way.
+- I have a lot of nicknames. They called me Kingo in Japan, they called me the Young Vagabond, but that sounds bad, then Soldier of Fortune, now they call me the Dream Catcher.
+- With the UFC it's like, you make okay money, and only if you're the champion do you make good money. So they're keeping the fighters deliberately poor so they'll keep fighting.
+- I'd rather have no nickname, but with my style, you can't really put a name on it.
+- People ask me questions, they ask me if I can beat Michael Bisping. Of course I can beat Michael Bisping.
+- When I was barely 21, I was making my Pride debut. That was at the beginning of my career.
+- Maybe I lose my fights because I don't fight smart.
+- Mentally, it's good for me to fight in Japan.

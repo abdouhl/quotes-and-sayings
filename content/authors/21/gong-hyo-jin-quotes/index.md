@@ -1,0 +1,18 @@
++++
+author = "Gong Hyo-Jin"
+title = "Gong Hyo-Jin Quotes"
+quotes_len = "12"
+description = "the best 12 Gong Hyo-Jin Quotes"
++++
+- At first I thought the character Sun-young was a normal character, but later I realized that she is not after all. In some sense, she could be fierce.
+- I always choose new dramas with a hope that all of my fans and viewers would be able to feel comforted while watching.
+- Many big and small things happen in our lives, almost on daily basis, and I hope that everyone would not lose the trust that they have in themselves, and never lose positive attitude.
+- People in their early 20s would not be embarrassed to be completely dedicated to their significant others and would have such a passionate relationship.
+- I enjoy shopping at local shops which I get to know by chance.
+- I think people are addicted to looking good in front of other people.
+- If there is a chance to do so, I want to work with Stephen Chow in a romantic comedy film.
+- I told Son Ye Jin that I'll be on 'Running Man,' and she said that it will be hard for me because I have no will. I told her that I'll just go with that concept, and she said it won't be so fun then.
+- I fear drama more than films. The amount of work and exhaustion are incomparable.
+- I always thought that fans would always turn away from me whenever they find more attractive actresses or dramas.
+- I think the most ordinary romance is showing your partner the way you are and leaving behind the things that we cannot understand.
+- I sometimes feel like my life is getting shortened. However, I forget about all of the hard time when viewers show a lot of love.

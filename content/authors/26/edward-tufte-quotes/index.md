@@ -1,0 +1,30 @@
++++
+author = "Edward Tufte"
+title = "Edward Tufte Quotes"
+quotes_len = "24"
+description = "the best 24 Edward Tufte Quotes"
++++
+- The goal is to provide analytical tools that will last students a lifetime.
+- What this means is that we shouldn't abbreviate the truth but rather get a new method of presentation.
+- I think it is important for software to avoiding imposing a cognitive style on workers and their work.
+- There are many true statements about complex topics that are too long to fit on a PowerPoint slide.
+- I was writing a chapter of Beautiful Evidence on the subject of the sculptural pedestal, which led to my thinking about what's up on the pedestal - the great leader.
+- I hope that I am generous and tolerant, but certainly on the intellectual side I think that there are discoverable truths, and some things that are closer approximations to the truth than others.
+- If you like overheads, you'll love PowerPoint.
+- That is to say, nature's laws are causal; they reveal themselves by comparison and difference, and they operate at every multivariate space/time point.
+- The idea of trying to create things that last - forever knowledge - has guided my work for a long time now.
+- My father worked for governments all his life as an engineer and public works director.
+- A curious consequence is that I have become a minor celebrity.
+- The minimum we should hope for with any display technology is that it should do no harm.
+- What gets left out is the narrative between the bullets, which would tell us who's going to do what and how we're going to achieve the generic goals on the list.
+- The commonality between science and art is in trying to see profoundly - to develop strategies of seeing and showing.
+- The leading edge in evidence presentation is in science; the leading edge in beauty is in high art.
+- It is straightforward for me to be ethical, responsible, and kind-hearted because I have the resources to support that.
+- I am certainly not an intellectual relativist, nor a moral relativist.
+- The point of the essay is to change things.
+- The speculative part of my work is that these particular cognitive tasks - ways of thinking analytically - are tied to nature's laws.
+- I do believe that there are some universal cognitive tasks that are deep and profound - indeed, so deep and profound that it is worthwhile to understand them in order to design our displays in accord with those tasks.
+- A practical part of my teaching is to provide demonstrative, hands-on experiences.
+- Public discussions are part of what it takes to make changes in the trillions of graphics published each year.
+- Beautiful Evidence is about the theory and practice of analytical design.
+- My idea here is that, inasmuch as certain cognitive tasks and principles are tied to nature's laws, these tasks and principles are indifferent to language, culture, gender, or the particular mode of information that is provided.

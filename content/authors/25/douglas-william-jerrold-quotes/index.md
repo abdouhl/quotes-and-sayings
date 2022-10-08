@@ -1,0 +1,22 @@
++++
+author = "Douglas William Jerrold"
+title = "Douglas William Jerrold Quotes"
+quotes_len = "16"
+description = "the best 16 Douglas William Jerrold Quotes"
++++
+- The sharp employ the sharp.
+- There is peace more destructive of the manhood of living man than war is destructive of his material body.
+- A conservative is a man who will not look at the new moon out of respect for that 'ancient institution' the old one.
+- Love's like the measles - all the worse when it comes late in life.
+- Marriage is like wine. It is not be properly judged until the second glass.
+- A coquette is like a recruiting sergeant, always on the lookout for fresh victims.
+- We love peace, but not peace at any price.
+- Religion's in the heart, not in the knees.
+- In this world truth can wait; she is used to it.
+- The best thing I know between France and England is the sea.
+- The only athletic sport I ever mastered was backgammon.
+- Fortunes made in no time are like shirts made in no time; it's ten to one if they hang long together.
+- Some people are so fond of ill luck that they run halfway to meet it.
+- He was so benevolent, so merciful a man that, in his mistaken passion, he would have held an umbrella over a duck in a shower of rain.
+- The surest way to hit a woman's heart is to take aim kneeling.
+- Happiness grows at our own firesides, and is not to be picked in strangers' gardens.

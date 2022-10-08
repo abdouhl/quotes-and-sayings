@@ -1,0 +1,65 @@
++++
+author = "Jonathan Majors"
+title = "Jonathan Majors Quotes"
+quotes_len = "59"
+description = "the best 59 Jonathan Majors Quotes"
++++
+- I try to do my best to differentiate each fella, each spirit, from the next one... and once it's exorcised it doesn't just go away. It becomes a part of you. So every role becomes a part of you.
+- And if you think this young boy, from Dallas, Texas, is adding to the canon of theater arts, of performing arts, of cinema, well I'm humbled and I'm very excited.
+- I'm a military brat; my mother's a pastor. There's been a lot of order in my life that I don't have control over, that I just dedicate myself to.
+- I love being uncomfortable. I love feeling very revealed. And when I watch a piece of work that I've done, I'm actually looking for that. How naked is this character? How truthful is this character? If it's truthful, there's automatically a separation.
+- Sadness is a privilege. To be mopey about something, that's a privilege. I did not grow up with that.
+- Emotions in the men in my family run deep.
+- If you're not on set, if you're not on stage, go to class. Find teachers you trust and who push you and who you respect as people. That's what you're getting with a teacher: a point of view. You end up taking those points of view and that turns into your point of view as an actor.
+- I have a very high frequency of anger, and a very high frequency of sadness.
+- As an actor, you need to grow and experience things. What you experience in life is what is going to help you and your art.
+- I was told by the world for a long time that I was angry, or that I was sad.
+- As a father, my job is to protect, and keep things away from interfering with her imagination because that's her voice.
+- You keep your rent low, which takes some of the pressure off. So when I say 'no,' I mean 'no.' I don't mean, 'Give me more money.' I mean 'no.'
+- I came from a very military, Christian, Southern upbringing.
+- I'm not a pastor. I'm not a man of the cloth, but I have my own calling.
+- Growth is uncomfortable; you have to embrace the discomfort if you want to expand.
+- I like going to the matinee. I like taking my daughter there. It's just my favorite place in the world. I go there after auditions. I lived in New York City, I would go to the theater right after because it clears your mind.
+- I'm a drifter. I go where the wind blows.
+- That's the beauty of being an actor. You're kind of a journeyman.
+- The first thing I do when I start a role is I look to see where we're similar. What do you get for nothing, you know?
+- I look for what responsibility the character has in telling the story. If you remove the role from the story, can you still tell the story properly? And if the answer is no, then I'm interested.
+- I played sports, I did all that, but I was a theater kid.
+- If you can't find peace inside, you'll never be at peace.
+- I'm an actor, and the thing about an actor is that if you're fortunate enough and you have the ability, is you can access multiple parts of yourself. I want to grow and see how far can I stretch.
+- I had so much joy as a boy: middle child, lots of energy, big emotional life. I was a clown and still am.
+- If you've been in drama school for eight years, you've got teachers in your head all the time.
+- Sometimes the world didn't feel fair enough. Everything feels fair on the stage.
+- I dreamed about being Michael Jordan, Michael Jordan being my dad at some points, or him helping me play basketball.
+- In cinema, the hero is not the one who sacrifices their body always, but the person who sacrifices their heart. They allow their heart to break so everyone else can stay intact.
+- I was accepted to North Carolina School of the Arts with stitches in my mouth.
+- So the survival of the spirit, the body and the emotions? That's the way to win in 'Lovecraft Country'.
+- Eight years of steady acting training nonstop... three years in the profession. And I'm still in the apprentice mode and I'm still watching everybody and learning.
+- When someone tries to take over a country or a culture, they destroy the art.
+- I use the transition of the airport, the flying from one place to another to really let go of the -isms, and the ideas that I have as an individual and kind of adapt and begin to morph.
+- I have nine years of scholastic actor training, and what I've learned is that training does not an actor make. You have to have an artful way of looking at things. You have to have a certain point of view. And you get that point of view through experience.
+- So I feel now very much like a guardian. I'm standing in front of art. I'm standing in front of cinema. I'm standing in front of Black culture. I'm standing in front of the history of America, and I'm protecting it by making art, by protecting our art, and by promoting our art.
+- In war, the first thing that goes, when you try to take over culture, is the statues. I think we all can recall statues with their heads cut off in museums.
+- There comes a point in everybody's life where you either learn to handle things or you get handled.
+- My first kiss was fourth grade, girl named Krista West. We're walking out to the black top, and I throw my arm around her. I kiss her on the cheek.
+- The thing about terror and why it's so interesting is that terror is there to keep us safe. But then the issue comes in: Well, how do you ever grow if you can't get past this fear? That's called suppression.
+- You speak to be understood, right? And you're understood so you can be felt. And you're felt so you can get what you want.
+- We now have the Black Lives Matter movement. I find that curious because this country is not quite the melting pot it's purported to be. Black lives are unknown in some pla'ces.
+- You know, I'm a 6-foot Black man, and I'm built the way I'm built. Driving is a very stress-inducing thing for me to do.
+- There's an anecdote that's really been sticking with me: To be a Black man in America, you are born into the horror genre. You are not safe. Period. Full stop.
+- We talk about America as a melting pot, where you can't turn salt into pepper. Then you got too much pepper. You need the salt. You need the paprika. You need the broth.
+- We say Black lives matter, but a lot of white folks don't know Black folk.
+- My intention was always to share my experience and my gifts on the largest stage possible.
+- As a boy and even now, I am wont to melancholy. I do, probably once a day, experience a sincere heartbreak.
+- When you allow yourself to really think about the future and the legacy you're leaving, you become gentler.
+- You have to be as smart as you can be, not smarter. You don't need to be smarter than you are.
+- Because when you're in drama school, you're playing multiple characters at once. You know, in the morning you're doing a Chekhov play, and then you're doing a Shakespeare workshop midday.
+- In sci-fi, the Black guys always die. So, it's extremely important to bring African-American characters to the genre and not have them killed.
+- You know, I didn't grow up in a cultured household. We were all highly intelligent, but we were common, simple people. We weren't activists, none of that.
+- Racism is earthbound - it's something we only do to each other here on earth. Legacy, on the other hand, is otherworldly. It pushes us forward to our future.
+- There's a certain mentality that military brats have, you know? Especially if you're a male, and your father's the one in the forces.
+- I spent some time in juvenile detention, and as far as owning space, I may have owned too much space as a young boy, and it got me in trouble. But through that, I found some unity. I found acting, and that's become a place to exercise that.
+- As a Black man, you are living in a place and you are constantly unsafe. And we go to these bastions of safety: Harlem, you can call that a haven; the South Side of Chicago, you can call that haven; Detroit, you can call that haven.
+- The interesting thing about an absent father is, for a child, you don't know he's absent. You just think he's... tardy.
+- I got a buddy named Brandon, who I boxed with for a long time, and I always think about him, or my daughter. If they look at something I've done, or they've seen me in the world and they don't recognize me, then I've done something wrong.
+- I grew up in the Dallas Metroplex. But I spent a lot of time in Waco and then in small towns down there with my grandma and then in Killeen and in Riesel.

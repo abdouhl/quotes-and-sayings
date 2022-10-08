@@ -1,0 +1,61 @@
++++
+author = "Sally Field"
+title = "Sally Field Quotes"
+quotes_len = "55"
+description = "the best 55 Sally Field Quotes"
++++
+- My agent said, 'You aren't good enough for movies.' I said, 'You're fired.'
+- I came from a real working-class show business family.
+- You can't help but feel all the human-rights issues.
+- I've done some good work and some not-good work.
+- I have never been beautiful in cliche terms.
+- 'Forrest Gump' is filled full of moments where your heart just cheers.
+- I grew up in a show-business family, but we were working-class show business. There was nothing glamorous about it. You had great things one day and the next day, nothing.
+- People really don't understand what actors do.
+- I haven't had an orthodox career.
+- The roles... the deep roles that I've gotten to play have turned my course. They've changed my life experience.
+- I really have no ulterior motive in taking on certain roles. I have no larger issue that I really want to show people. I'm an actor, that's all. I just do what I do.
+- In the 1970s and 1980s, I got to do some great work. The Oscars are really nice, but the best part is that I had the opportunity to do that kind of work.
+- I've had such an odd career.
+- I'm looking for a bunch of new tchotchkes that represent the new part of my life.
+- I mean, the only thing that matters to me is getting to the work - getting to do the work. And I don't really care where it is: whether it's on stage or on television or in film.
+- My last son is leaving to go to college; my grandchildren are being born. My mother is living with me.
+- If I hadn't fought back, I might have been Gidget forever.
+- I'd been kind of a hiccup in my parents' lives. They lost track of me and I didn't know what I was going to do with myself. And then fate reached in and took me in its hands. I was discovered right out of high school and started getting work.
+- I don't want to look old and worn, but what can you do? My real focus is being an actor. I care more about having the opportunity to play roles that I haven't played than I care if my neck looks like someone's bedroom curtains.
+- I think the first thing I did was several scenes from Romeo and Juliet.
+- I can't deny the fact that you like me! You like me!
+- I wouldn't mind having my heart broken because it would mean that I had that much feeling connected to somebody. And that would be really great.
+- I was raised to sense what someone wanted me to be and be that kind of person. It took me a long time not to judge myself through someone else's eyes.
+- There was really a snobbery from people in film - they did not want people who had come from television. It was the poor relation of show business, and especially situation comedy.
+- I would take plays and I would cut out all the other dialogue and make long monologues because I felt the other kids weren't taking it as seriously as I did.
+- Last year I was diagnosed with osteoporosis. I was over 50, Caucasian, thin, small-framed, and I have it in my genetic history. It was almost a slam-dunk.
+- The Oscars are really nice, but the best part is that I had the opportunity to do that kind of work.
+- I always wanted to be a great actor.
+- I did comedies for 10 years and I learned a great deal.
+- I wanted to be Katharine Hepburn-ish - there was a bit of nobility about her.
+- But there isn't any second half of myself waiting to plug in and make me whole. It's there. I'm already whole.
+- I've never had my heart broken. It's a very sad state of affairs. I think everybody should have their heart broken. I don't think it says anything good about me at all.
+- The only thing that matters to me is getting to the work - getting to do the work. And I don't really care where it is: whether it's on stage or on television or in film.
+- When you're old, you are more certain of who you are, and that may be a good thing or a bad thing.
+- I haven't had an orthodox career, and I've wanted more than anything to have your respect. The first time I didn't feel it, but this time I feel it, and I can't deny the fact that you like me, right now, you like me!
+- I'm so vigorous, and I so take it for granted, because I've always been a real physical person.
+- You lose your habitual behavior, which allowed you to sort of zone out. You have to be here, you have to be now, you have to be present.
+- The opportunities I've had to play really complex characters - which haven't been a lot, but some - you never get over them.
+- It took me a long time not to judge myself through someone else's eyes.
+- There are not a lot of places for an actor to explore what it's like to be a woman in her 60s. There aren't any films about it and there very few TV series about it.
+- I really like cable T.V.
+- Change is never easy.
+- I never really address myself to any image anybody has of me. That's like fighting with ghosts.
+- Never, ever, have I felt really accepted in Hollywood.
+- I so believe that older women have tremendous value to their families, their community, their country, the world.
+- I had to let my ego go a long time ago.
+- You know, people really don't understand what actors do.
+- I was just lucky enough to grow up in a time when they actually had drama departments in schools.
+- When I was born, the doctor looked at my mother and said, 'Congratulations, you have an actor!'
+- Had there not been a Mary Todd, there would not have been an Abraham Lincoln. She found him when he was a young lawyer and really a bumpkin. No one knew of him, but she recognized his brilliance.
+- You just do the best you can with what you've got... and sometimes magic strikes.
+- There are parts of me that I feel are beautiful, but they don't have anything to do with my nose.
+- I think that's very sad, that I haven't allowed my heart to be broken. I have broken a few.
+- I joined the Actors Studio and began to work with Lee Strasberg, and that changed my work.
+- But I was losing so much bone density that I would have been in grave danger. And I mean grave danger. If I had let it go just a few more years I could have broken my hip or spine just picking up my granddaughter.

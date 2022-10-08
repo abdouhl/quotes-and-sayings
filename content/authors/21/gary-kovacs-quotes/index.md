@@ -1,0 +1,13 @@
++++
+author = "Gary Kovacs"
+title = "Gary Kovacs Quotes"
+quotes_len = "7"
+description = "the best 7 Gary Kovacs Quotes"
++++
+- When I know the data that's being shared and I'm asked explicitly for my consent, I want some sites to understand my habits. It helps them suggest books for me to read or movies for my family to watch or friends for us to connect with.
+- The stream in my hometown Calgary is the oil and gas industry - that's the talk you hear on the street.
+- Privacy is not an option, and it shouldn't be the price we accept for just getting on the Internet.
+- You have to have in mind what you want when you go public. It's not just an end in and of itself. Suddenly, you have investors to satisfy. Investors who want - who demand - a return.
+- The long-term value proposition for cellphone companies isn't just voice conversation - it's transfer of data.
+- Flash content is the most prolific content on the web today; it is the way people express themselves on the Internet.
+- I don't know why, but I'm continually amazed to think that two and a half billion of us around the world are connected to each other through the Internet and that at any point in time more than 30 percent of the world's population can go online to learn, to create and to share.

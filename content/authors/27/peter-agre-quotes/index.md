@@ -1,0 +1,39 @@
++++
+author = "Peter Agre"
+title = "Peter Agre Quotes"
+quotes_len = "33"
+description = "the best 33 Peter Agre Quotes"
++++
+- I grew up in Minnesota. Four generations of my father's people are buried there.
+- My brother Jim and I spent many wonderful summers working on dairy farms in Wisconsin owned by Mom's cousins, and as members of our local Boy Scout troop.
+- Written in 1895, Alfred Nobel's will endowed prizes for scientific research in chemistry, physics, and medicine. At that time, these fields were narrowly defined, and researchers were often classically trained in only one discipline. In the late 19th century, knowledge of science was not a requisite for success in other walks of life.
+- Every cell in our body is primarily water. But the water doesn't just sit in the cell, it moves through it in a very organized way. The process occurs rapidly in tissues that have these aquaporins or water channels.
+- My wife and I have four children, and none of them are in lab science, so clearly I returned home at night and presented a fairly unattractive example of a scientific life.
+- Now in the 21st century, the boundaries separating chemistry, physics, and medicine have become blurred, and as happened during the Renaissance, scientists are following their curiosities even when they run beyond the formal limits of their training.
+- We always had lutefisk for Christmas dinner, after which Dad read from the Norwegian Bible.
+- Johns Hopkins introduced me to two defining events in my life: commitment to biomedical research and meeting my future wife, Mary.
+- Until 1985, when my lab found the protein they are made of, aquaporins hadn't yet been identified. There had been a controversy in biology for more than 100 years about how water moved through cells.
+- For me, the discovery of aquaporins was like a gift after 25 years in basic science.
+- My goal was to develop into an independent research scientist studying clinical problems at the laboratory bench, but I felt that postgraduate residency training in internal medicine was necessary.
+- One of my motivations to become a blood specialist was to study malaria in red blood cells. But in science, you discover something and you want to go this way, but your work goes that way.
+- Following my junior year in high school, I went on a camping trip through Russia in a group led by Horst Momber, a young language teacher from Roosevelt.
+- Natural selection is not an inflammatory phrase; evolution is.
+- Now a cholera epidemic was sweeping through Southeast Asia and south Asia in the early 1970s, so I started medical school and I joined a laboratory to work on this.
+- In 1862, Abraham Lincoln signed the Homestead Act, a bill opening one half million square miles of territory in the western United States for settlement.
+- To my knowledge, there's never been a scientist in the U.S. Senate.
+- Water is commonly regarded as the 'solvent of life,' since our bodies are 70% water. All other vertebrates, invertebrates, microbes, and plants are also primarily water. The organization of water within biological compartments is fundamental to life, and the aquaporins serve as the plumbing systems for cells.
+- Our lab had always refrained from keeping our studies secret.
+- So, my advice to young scientists is, think critically about your work; probably don't blab unnecessarily.
+- Mother had to support herself at age 18 because it was during the depression and when my grandfather lost the farm and there was no place for her; she worked as an assistant to a maid.
+- There is an anti-science by the far right. We have to be careful that the far left doesn't balance this with a naive approach of promising what we can't deliver. I mean, science is neutral; it's not politically conservative or liberal.
+- Well, all life forms are dependent upon water.
+- There are over 50 brilliant scientists working at my lab, and being sensitive to their needs is among the top skill sets that scientists like me have to learn.
+- While the lab plays an enormous role, research is also influenced by inner peace of mind and one's family environment, depending on what stage of one's life and career a scientist is at.
+- In science, one should use all available resources to solve difficult problems. One of our most powerful resources is the insight of our colleagues.
+- I think there's nothing about evolution in the Bible; I think this is a statement of religious insecurity. But people have their beliefs.
+- It is a remarkable honor to receive a Nobel Prize, because it not only recognizes discoveries, but also their usefulness to the advancement of fundamental science.
+- The Department of Cell Biology at Johns Hopkins was founded and directed by Tom Pollard, an engaging young scientist with remarkable energy and enthusiasm.
+- The long, cold Minnesota winters instilled in me a fascination for exotic far off places; I aspired toward a career in tropical diseases and world health problems.
+- Well, my take was people of Minnesota, these are good people. They're in many ways more generous than other parts of the country. They're better educated than other parts of the country.
+- Often times the public school teachers are ridiculed or they are made to feel inferior but this is really undeserved.
+- Dad was a chemistry professor at Saint Olaf College in Minnesota, then Oxford College in Minnesota, and a very active member of the American Chemical Society education committee, where he sat on the committee with Linus Pauling, who had authored a very phenomenally important textbook of chemistry.

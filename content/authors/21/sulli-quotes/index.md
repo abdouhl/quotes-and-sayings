@@ -1,0 +1,27 @@
++++
+author = "Sulli"
+title = "Sulli Quotes"
+quotes_len = "21"
+description = "the best 21 Sulli Quotes"
++++
+- I don't commit any crimes.
+- I hate people who 'gaze rape' me.
+- There were times when close people... Some of my closest friends have left me. People hurt me, so everything fell apart. I didn't feel like I had anyone on my side or anyone who could understand me. So that's why I completely fell apart.
+- When I met people in the past, even before saying hello, I felt like I should explain myself: This isn't who I am!
+- I felt something like a sense of achievement while acting.
+- My life is actually empty, so I feel like I'm lying to everyone by pretending to be happy on the outside.
+- IU and I hosted a music program together, and she had told me that she would be writing a song for me. My fans call me 'Peach,' so when her new song came out, I called to ask her about it, and she confirmed that the song was for me.
+- Social phobia, panic disorder... I've had panic disorder ever since I was young.
+- I was under so much pressure. I often felt scared.
+- I think I have a lot of ambition when it comes to acting.
+- It's because I feel comfortable that way... not wearing a bra looks more natural and prettier.
+- I wish people would look at me and think, 'Well, someone like that exists!' Accept the difference.
+- I'm not a bad person.
+- Going braless is one's freedom.
+- I have never bought a swim suit because of my fear for water.
+- I didn't know I would cry when I actually cut my hair, but I felt empty when something kept dropping and disappearing.
+- I had looked forward to the day I would cut my hair because I wanted to change my style when I couldn't before. When the day came to actually cut my hair, however, I felt so empty my eyes teared up on their own.
+- Even close people left me - I was hurt by them and felt there was nobody who understands me, which made me fall apart.
+- I did not have chance to buy swim suits because I did not go swimming at all. If I ever get a chance to buy one, I want to try one in white or with ribbons.
+- Bras are like accessories to me.
+- When I first posted pictures of me braless, there were so many different reactions. I could have been frightened and hide, but I didn't. I wanted people's prejudices to disappear.

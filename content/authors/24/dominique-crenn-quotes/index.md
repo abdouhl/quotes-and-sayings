@@ -1,0 +1,105 @@
++++
+author = "Dominique Crenn"
+title = "Dominique Crenn Quotes"
+quotes_len = "99"
+description = "the best 99 Dominique Crenn Quotes"
++++
+- I'm not trying to be anything other than myself. I appreciate any type of restaurant or cooking, and the main goal is to just be ourselves.
+- Food is politics. You know, we have one planet. And growing food is, you're using the soil of the planet.
+- My restaurant is an expression of myself - my fantasies. Where I've been, and where I want to be. I think of my cooking as very emotional.
+- As a chef, I've always been very conscious and very thoughtful about the way that I buy food or have my farmers produce it.
+- As a young girl, being a chef did not cross my mind - I wanted to conquer the world. I wanted to play with my brother and the boys. I wanted to be a famous photographer.
+- It's funny: not too many people used to think that Brittany was a culinary treasure, but there's such amazing stuff. Beef and pork, of course, but the seafood! The food there is kind of wonderful.
+- You look at most of these 'best chef' lists, and there are about nine male chefs and one woman chef. The problem is still around.
+- Well, I don't think I'm a chef. I'm just someone that... I found a way of speaking. It was not a pen. It was not a brush. It was food.
+- Obviously, growing up in France, I had foie gras probably when I was two years old. Writing about it and understanding what's going on in the world about it, I think I became more conscious and more thoughtful about things, for sure.
+- So, when I was about eight, I told my mother that I wanted to be a chef - and a police man, too. I didn't totally know that was it at the time, but I was very attracted to it from the beginning. I liked the idea of working with people in a kitchen, of dealing with ingredients, all of it.
+- I live in a condo outside of San Francisco, in a town called Larkspur, near a marine area.
+- I try to craft a menu that is very welcoming. I like to make vegetables and seafood, and I love to make pasta.
+- Early in my career, I was told I shouldn't try to work in a kitchen, that I should consider serving or managing instead. It was a sad narrative that was given to me, and it came from a society that didn't know better.
+- I think what we have at Atelier Crenn, which I think is good, is that the basics are very traditional.
+- I'm keeping positive; I'm a very positive person.
+- In the restaurant business, if you break even, you're lucky. It's a really hard business, it's a survival business.
+- I loved school, although I got bored very easily. I liked literature. I loved philosophy. I didn't like math. I was good at English. I didn't like German. I was good at sports and continued to compete on all sorts of teams.
+- We see the effects of climate change on food prices and in so many other ways.
+- At a very young age, I fell in love with the idea of being in a restaurant and being surrounded with people around me. I don't think at the time I thought about becoming a chef. I have a bachelor's degree in economics. I never went to a cooking school.
+- I'm talking to a lot of my industry to maybe try to create a guild and coalition where people, when they retire, would get a pension. We pay taxes through the years, we pay for unemployment, but we don't have a pension.
+- Meat's effect on climate change simply cannot be ignored.
+- Like I say, Michelin is Michelin. It's nice people are recognized, but at the end of the day, the star doesn't define you, it's what you do with it, and it's what you do in life in general. I think it helps you with the business, but it doesn't help you as a person.
+- I'm not a saint - I'm not saying that - but I was lucky enough to work with people who believed in me, and I want to honor that until the day I die. I'm still learning and still evolving, though.
+- Look, I'm human. Sometimes I'm struggling, sometimes I'm hurting, sometimes I have feelings, sometimes I'm heartbroken. I try to do good in the world even when I'm very sad.
+- It's rubbish for somebody to say that food is not politics.
+- I think women are inclined to look at things with more purpose because of our sensibility. We want things to connect and come together.
+- I love meals where you have maybe 10 side dishes spread on the table. People get their plate and they can then pick what they want to eat.
+- I'm French, I know how to cook.
+- We need to come up with alternatives to all the plastic wrap and containers that we use in restaurants. It's small things, like having your team bring reusable cups to get their coffees, and consolidating shipments as much as possible.
+- Cooking is just a vehicle to express yourself, like painting and acting... The reason why we're cooking is not because we want to put something on the plate. It's so much more complex than that.
+- We need to get into the community and understand who they are and their needs instead of just giving them something without understanding what they want.
+- I've loved poetry since a very young age and my parents, especially my dad, he really introduced us to art when we were quite young.
+- When I started to work in the kitchen, there's not a lot of women that were working and I didn't try to pay attention to that.
+- I think through humor you can get a point across better than through just a dramatic narrative.
+- My food is about texture and technique.
+- I came to the U.S. in the 1990s. I worked all around, including at Stars, and in 1996, I became the chef of Yoyo Bistro, which used to be Elka. During my one-year tenure there, I met a lot of French chefs at the time.
+- I usually like simple food when I'm at home.
+- For a menu to come together, you have to have sweetness, saltiness, crunchiness... it's all about balance.
+- I want people to ask me how I feel about the world, or what is my day about, and ask me a question that's not just related to food, but that's related to me being a person: Someone that's vulnerable, someone that has ideas and someone that wants to learn more.
+- Food is language. It helped me to open up the conversation on other things.
+- My grandmother was kind, but she knew what she wanted and she wasn't afraid to give a command. When, eventually, I ran my own kitchen, I realized I had a leadership model reaching back into my earliest memories.
+- My mom and dad taught me to never take anything for granted, and to give what you are to your community.
+- I've participated at summits where I was the only chef. I was surrounded with thinkers and writers and innovators.
+- I want my legacy to be, wow she was a woman that really cared about others and dedicated her life to make sure that this world was a better world.
+- I always wanted to open a small place.
+- What I want to tell people is, you have to believe your gut. You have to find answers from what your gut is telling you. I always work with intuition.
+- When I came to America, I saw the inequality right away with the food industry. And I don't really talk about it in the book, but the racism here, it's so predominant and so impregnated in the history of America.
+- I never doubted myself when I opened my first restaurant. You've got to give 100% of yourself until you know you've done it. But it was still a struggle.
+- Every dish is very connected to my own experiences. Perhaps I go deeper in the description and feeling in the dish than a male chef would. But it's difficult to say.
+- I am just a little fish in the sea. But I do understand that everything that I do could have a little impact.
+- I'm not a pescatarian, I'm not a vegetarian, but I'm also a conscious person. And I know the impact of the way that we fix meat nowadays is not good. It's killing us, it's killing the planet.
+- Of all the restaurants I visited in my childhood and adolescence, it was Michel Bras that I remembered most vividly and it was the chef himself to whom, early on in my cooking, I would make the most references. I don't mean that I tried to cook like him. Rather, that I tried to think like him.
+- Sustainability is one of my biggest passions. I have two little girls, twins, and I lie awake at night worrying about what the world will look like for them.
+- I'm most excited about people being more conscious about their eating habits.
+- I feel that when you connect something that you do, especially serving food, and connect that together with words - I think it's very important.
+- I think I was eight or nine when I had my first long-form tasting menu.
+- I'm not even a just a kitchen cook - everything we do has a purpose, and there's meaning to it.
+- Being a chef is about feeding people, which is part of the story of all humanity.
+- I think sometimes when you go to a space you might like it, but the landlord is expecting something different from you. Our concept is very specific to us, so we need to have the freedom of doing it.
+- I have a big mouth. And I'm not afraid to use it.
+- Food is what I think about constantly. I love the beauty of this planet.
+- Professional kitchens are studied to cook for countless people. At home, design often wins over functionality. A restaurant must be functional.
+- Surround yourself with people that really care about not just you, but also the world and the things that you believe in.
+- I kind of do not like the word chef. Chef, giving you a sense of hierarchy and power. To be a good cook and to be a good leader, it has to come from within and to understand others.
+- When you are adopted and you realize that someone gave you a gift, you pay attention to things very clearly. You realize how lucky you are.
+- You have so much responsibility because when you're in the kitchen, it's not just food, it's where the food comes from, what you did with production, what you did it with human interaction, and how you did it with different cultures. Food becomes a mark of activism.
+- Food, for me, is society, and food is very political. Food is part of culture, and culture relies on art and creativity. If there is no art, there is no food, and there is no city.
+- My dad's best friend was a food writer and critic, so I was very lucky to eat in beautiful Michelin-starred restaurants growing up.
+- My parents believed in the importance of education, but beyond that they were pretty relaxed. My brother and I weren't expected to become lawyers or doctors. As long as we were settled and happy, we could do what we liked.
+- I just felt very isolated in France, a very bureaucratic place, no space for thinking in a different way, an artist's way.
+- My family, they come from farmers. I used to spend my summers on the farm instead of in the south of France. I loved the hard work and the earth.
+- Eating is an act of activism for me; it's politics.
+- I want to treat every ingredient in a way that conveys its most pure qualities, but with a little bit of a dreamy twist.
+- I've met a lot of people who were resistant to my ideas, because they were afraid to get into unfamiliar conversations. I didn't listen to them.
+- You need to be confident. You need to know who you are as a person and as a human. But make sure that you go through the world with humility and respect for others.
+- I was very fortunate to grow up in France with amazing parents who allowed me to understand the importance of activism. My dad was a politician but he was also an activist, and my mom was a beautiful feminist who took care of others.
+- When you give someone an award and you tell them that they are the best female chef in the world, you alienate them from their peers.
+- I was sifting through the dier, and I remember thinking: This potato is important. It comes up from the soil and feeds us, it connects us. It is the core of society.
+- I want people to start to think. I always say that: You've got to think before cooking.
+- I grew up in France, eating the very best pastries.
+- Everyone should watch 'Supersize Me' to realize how much our physical health is connected to the food we eat.
+- My biggest role models are not chefs, but women like Coco Chanel, Simone de Beauvoir, Nina Simone.
+- San Francisco needs to become a city where you have late night offerings.
+- I think Los Angeles is an incredible city. It's also very diverse, which I love about it.
+- You're thinking about a dish, you're thinking about an ingredient, and in many ways, you end up becoming a naked chef in front of the customer, because what you put on the plate is you. It's who you are and where you've been.
+- Anybody that comes in, a new person is supposed to spend six months downstairs in the basement doing prep work. I didn't. I got on the line right away.
+- I try not to spend 10 hours in the kitchen when I cook at home for guests. That's why I try to be really organized and have everything thought out.
+- A restaurant, a small business lives day-by-day. If they're lucky they can make maybe up to 5% profit. That's not a lot.
+- People ask me how come you say hello to your customers every night? It's because I need that. It's not just a restaurant. It's my house.
+- In general, cooks like to be in the kitchen and they don't really interact with others.
+- I don't want people to look at my menu and see just the ingredients. I want to take them on a journey.
+- When I interview people that want to work with us, I often disregard their resume, because a piece of paper, it doesn't tell me really who they are. I'm looking for honesty, vulnerability. I'm looking for strength, I'm looking for weakness. I'm looking also for someone that wants to learn and is excited about learning.
+- Meat is complicated. We have to be thoughtful about the ecosystem that we're living in and not to destroy it because of the instant gratification and the demand of others.
+- I love hi-tech kitchens, but that doesn't necessarily mean full of appliances.
+- I'm Dominique Crenn. I'm a chef, entrepreneur, artist, poet, human being. I have three restaurants in San Francisco: Atelier Crenn, Bar Crenn and Petit Crenn.
+- I think cooks that are just interested in molecular gastronomy are cooks that will never be chefs.
+- If you are a chef, you have an incredible responsibility in this world. Don't just open a restaurant to serve food. Include the community, and make sure that you are not taking advantage of what the planet has given us.
+- What the food industry should be talking about? Climate change. It should be talking about the industrialization of food. It should be talking about how are we gonna feed the kids at school.
+- There is so much inequality and injustice in America, and COVID-19 has exposed that even more. We have to really understand that this is a wake up call; this is a time of action.

@@ -1,0 +1,23 @@
++++
+author = "Justin Long"
+title = "Justin Long Quotes"
+quotes_len = "17"
+description = "the best 17 Justin Long Quotes"
++++
+- I have such thin skin, so I make a concerted effort to avoid reading anything about myself.
+- I had been thinking for a while about how bored and tired I was of playing straight-down-the-middle everymanish characters that have what I call white guy problems. And I missed playing characters who lacked dignity and more importantly, lacked social skills.
+- I would feel so guilty about lying that I would try to stress myself out and work up a headache so I wouldn't have the guilt of not having a bit of the symptom.
+- I love doing voiceover work. I started doing voiceover work when I had just dropped out of school, and the first few professional jobs I got were plays, but then I started making money doing voice-overs.
+- Guys like Philip Seymour Hoffman or Sam Rockwell are the guys I look up to and have the kind of career I'd like to emulate.
+- I look like a geeky hacker, but I don't know anything about computers.
+- If I had been egotistical about the movies, I have been brought back to earth.
+- I really hated school and so I just wanted to stay home and watch 'I Love Lucy' and watch the movies that inspired me to the point where we are sitting here.
+- Nine out of 10 people who recognize me recognize me from the commercials.
+- People who haven't done commercials, don't appreciate how hard it is.
+- I just didn't like going to school.
+- The Britney Spears movie was just fun and light, but let's talk about that in a few months.
+- So I made a request. I said to the writers, I have a minor request that I just want to play a loser.
+- If you can measure success in this business based on happiness alone I feel like I've hit the lottery.
+- I loved the opportunity to just transform my voice. I loved the idea of doing impressions and mimicking and playing around with the spectrum of your own voice. That's what I enjoy most about doing voice-overs.
+- I loved 'Junebug.' It was one of my favorite films, my favorite type of film.
+- I've always been proud of the fact that I can hold it together and I rarely break. It's a point of pride for me.

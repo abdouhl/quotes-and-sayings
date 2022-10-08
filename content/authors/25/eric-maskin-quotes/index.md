@@ -1,0 +1,48 @@
++++
+author = "Eric Maskin"
+title = "Eric Maskin Quotes"
+quotes_len = "42"
+description = "the best 42 Eric Maskin Quotes"
++++
+- Prediction is certainly a valuable goal in science, but not the only one. Explanation is also important, and there are plenty of sciences that do a lot of explaining and not much predicting.
+- Because mechanism designers do not generally know which outcomes are optimal in advance, they have to proceed more indirectly than simply prescribing outcomes by fiat; in particular, the mechanisms designed must generate the information needed as they are executed.
+- In an industry with highly sequential innovation, it may be better for society to scrap patents altogether than try to tighten them.
+- I'm not a housing market expert, and I don't want to pretend to be one.
+- I don't want to make public statements about issues that I have not studied in detail.
+- Through meteorology, we know essentially how hurricanes form, even though we can't say where the next storm will arise.
+- If I buy a car, I use the car, you don't, and the market for cars works pretty well. But there are many other sorts of goods, often very important goods, which are not provided well through the market. Often, these go under the heading of public goods.
+- This may not be the most serious problem in the world, but it is a familiar one: How do you divide a piece of cake equally between two children and also make sure that each of them sees it as a fair division?
+- Economic forecasting has actually got pretty good over the years, though admittedly, we don't always get it right.
+- I choose questions to work on according to how much they excite me.
+- I have a strong attachment to Harvard.
+- I probably learned most at MIT by teaching and working with Peter Diamond, who acted like a big brother to me during my time in the department.
+- When a bank calls in a loan, it obviously hurts the customer in question. But it also adversely affects other banks that have lent to this borrower. They are now less likely to be repaid and so can't as readily lend to their own customers.
+- The Nobel Prize is not very important for the winners - they are usually pretty successful people already. But it is valuable as a way of drawing the public's attention to important work in economics.
+- How do we ensure in the case of public goods that they are provided at all, and that they are provided at the right level, taking into account citizens' preferences?
+- Of course, MIT was notable not just for its faculty but also for its students. And, facing such extremely bright kids as a rookie teacher was something like being thrown to the wolves.
+- I think I have met nearly all the Laureates in Economics. Among the few I haven't met, I suppose I'd most like to meet Ronald Coase because of his legendary power to persuade his colleagues of the validity of the Coase Theorem.
+- Devising a mechanism is a lot like solving a puzzle - and gives you the same kind of kick.
+- It wasn't that Harvard was deliberately trying to overwork me, but I think I had a tendency to take on more things out of enthusiasm than were good for me.
+- A properly designed tax system can strike a balance between helping the poor and, at the same time, giving people the incentive to work.
+- What we mean by an outcome will naturally depend on the context. Thus, for a government charged with delivering public goods, an outcome will consist of the quantities provided of such goods as intercity highways, national defense and security, environmental protection, and public education together with the arrangements by which they are financed.
+- Leo Hurwicz is the father of mechanism design theory and has inspired much of my work, and Roger Myerson is an old friend and collaborator and a tremendous economist.
+- The market is no god - it cannot solve every problem.
+- I like to work on a number of things simultaneously. If you're working on a variety of projects and if you get stuck on one of them, you can move to another without grinding your gears indefinitely.
+- There are some things that we value as a public good that the markets can't deliver, like clean air.
+- If I'm a bank, and I'm making risky loans, I have an incentive, if I can, to make those loans using other people's money: in other words, to make highly leveraged loans.
+- There is universal consensus among experts that the earth's atmosphere is heating up - and that we are responsible for it by putting carbon dioxide in the atmosphere. We also know that the consequences of global warming are catastrophic. But how do we make sure that all countries reduce greenhouse gases?
+- Much theoretical work, of course, focuses on existing economic institutions. The theorist wants to explain or forecast the economic or social outcomes that these institutions generate.
+- I was born in New York City but grew up across the Hudson River in Alpine, New Jersey.
+- Perhaps one day earthquakes, hurricanes and financial crashes will all be predictable. But we don't have to wait until then for seismology, meteorology and economics to become sciences; they already are.
+- The market doesn't work very well when it comes to public goods.
+- At Tenafly High, I was lucky to have some dedicated teachers; I'm especially indebted to my calculus instructor, Francis Piersa, who opened my eyes to the striking beauty of mathematics.
+- In various countries around the world, assets that had previously been in the hands of governments were sold off to the private sector in the hope that this would lead to a more efficient allocation, that these assets would be put to better use.
+- The theory of mechanism design can be thought of as the 'engineering' side of economic theory.
+- I entered economics because of a course I took on 'information economics,' which I found fascinating.
+- If banks anticipate government will come to the rescue should the credit market go badly awry, they may make loans that would otherwise be imprudent, e.g. subprime loans with little prospect of repayment.
+- Many markets work best with little or no outside interference. But others - especially those subject to big 'externalities' - need a helping hand.
+- If budget planning requires gathering information from people who may not always have the incentive to disclose that information, then the principles of mechanism design can definitely be of use in such planning.
+- Specifically, in the software industry, progress is highly sequential: progress is typically made through a large number of small steps, each building on the previous ones.
+- Markets work well with goods that economists call private goods.
+- A contingent bailout policy - implicit or explicit - must be coupled with some regulation of what banks can and cannot do. For example, a ban on lending to uncreditworthy customers might well make sense.
+- Most policy makers embrace a religious-like belief that the market can and should solve every problem.

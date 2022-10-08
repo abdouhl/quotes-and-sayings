@@ -1,0 +1,90 @@
++++
+author = "John M. Grunsfeld"
+title = "John M. Grunsfeld Quotes"
+quotes_len = "84"
+description = "the best 84 John M. Grunsfeld Quotes"
++++
+- At the age of six, I declared that I wanted to be an astronaut. My mother thought that was just fine, as it would encourage me to learn science, and besides, there really was no chance I would ever actually become an astronaut.
+- When I first went to Hubble, as an astronomer and as a scientist, it was a dream come true. And as an astronaut, the Hubble missions are premiere missions because Hubble is so important to science, so important to humanity, that it's just a very special event. But as an astronomer, it was sort of the holy grail of missions.
+- The truth is, every single rocket launch off of planet Earth is risky.
+- Hubble has really opened our eyes to what the universe is made of, its structure, and has helped us learn how little we know about the universe.
+- The biggest honor is to be an astronaut. It's such a tremendous privilege to be able to represent humankind in our quest to explore space.
+- The things I like to do involve a lot of mental focus, a combination of physical and mental challenge. That is what mountain climbing is.
+- There are some things worthy of risking your life for.
+- I grew up on the south side of Chicago in the 1960s, and I think there was a synchronicity of events that inspired me to be an astronaut, and, of course, the backdrop is nothing less than Mercury, Gemini, and Apollo. That was a time in our nation where we aspired to great things, and we achieved them.
+- Science fiction has been an inspiration to generations of scientists and engineers, and the film series 'Star Wars' is no exception.
+- The Martian atmosphere is very thin. It's like our atmosphere at 100,000 feet.
+- We need to move off the planet. And Mars is the next best place.
+- Small bodies in our solar system, like comets and asteroids, help us understand how the solar system formed and provide opportunities to advance exploration.
+- I have had the privilege to be a member of many high-performance teams at NASA, both on and off the planet.
+- It's pretty amazing to me that we have had a space shuttle program that's lasted for 30 years - for one space shuttle. That's quite an achievement.
+- The Hubble Space Telescope, which was designed for extreme servicing, you know, we can fix everything. And the James Webb Space Telescope, where we can fix nothing. It has to work the first time. And it's a very complicated telescope.
+- Here we were, the only seven humans in space, repairing a telescope whose only purpose is to enrich the minds of people on planet Earth and increase our understanding of the workings of the universe. I can think of no better peaceful use of space for all humankind.
+- Hubble uniquely has been able to look in the atmosphere of a planet orbiting a nearby star and figure out what's in that atmosphere.
+- I have dedicated my life to answering the great scientific questions of our time and to the incredible adventure of space exploration.
+- I'm absolutely compelled for NASA to send international astronauts to Mars to find out if Mars ever harbored life.
+- Asteroid detection, tracking, and defense of our planet is something that NASA, its interagency partners, and the global community take very seriously.
+- What we do at NASA is inspiring. It's reaching, it's visionary, and it inspires people on Earth to try hard things.
+- There's no question that if we stay on planet Earth and never leave, that eventually we'll be wiped out.
+- I don't particularly want to jump out of an airplane with a parachute if I don't have to. I don't want to go bungee jumping. I like adventure with a real purpose that I can buy into.
+- The '60s were a remarkable time because several things were happening at once. Men were leaving planet Earth, kids were breaking into the television age, and I was able to see Neil Armstrong walking on the moon.
+- If I could live in space, I would definitely do that.
+- One of the things that happens in space is that there is a fluid shift. You get a lot of extra pressure, and it fills your sinuses, and the horseradish is a miracle worker for cleaning that out.
+- Our country... invests a tiny fraction of 1 percent in NASA, and this is what's so amazing to me, is with that small investment, we do so much for the country.
+- All indications are that three and a half billion years ago, Mars looked like Earth. It had lakes. It had rivers. It had river deltas. It had snow-capped peaks and puffy clouds and blue sky. Three and a half billion years ago, it was a happening place. The same time on Earth, that's when life started. So did life start on Mars?
+- After my spacewalks, I am quite exhilarated but also tired, similar to a workout on Planet Earth.
+- Hubble showed us the marvel and majesty of stars being born.
+- I think it's really a sign of great American strength that we do invest the money we do in technology, in these hard projects, in NASA.
+- As soon as I could ride a bike... I was always riding over to the Museum of Science and Industry to explore. It's where I first began to develop a fascination with machines and scientific principles.
+- As a young boy growing up on the South Side of Chicago, I was inspired by the nascent space age.
+- I look forward to working with the NASA team to help enable new discoveries in our quest to understand our home planet and unravel the mysteries of the universe.
+- A deep ocean under the icy crust of Ganymede opens up further exciting possibilities for life beyond Earth.
+- The James Webb Space Telescope was specifically designed to see the first stars and galaxies that were formed in the universe. So we're gonna see the snapshot of when stars started. When galaxies started. The very first moments of the universe. And my bet? There's gonna be some big surprises.
+- Growing up in Highland Park, in high school, I had some very influential teachers: I had a math teacher who taught calculus that helped me learn to be in love with mathematics; I had a chemistry teacher who inspired us to work what was in the class and to go beyond.
+- A lot of people get home from work and sink into a good chair, the place in their life where they feel most comfortable. I get that comfort in space, the place where I most feel like I belong.
+- Hubble isn't just a satellite; it's about humanity's quest for knowledge.
+- I'm an incurable romantic. But I'm not an adrenaline junkie.
+- Getting a team of scientists on Mars could be transformative.
+- Our journey in going beyond our home planet is a human endeavor, and in the greatest tradition of exploration, past, present, and future spacefarers will continue to be enduring catalysts for inspiration in our quest to unravel the mysteries of the universe.
+- Science at NASA is all about exploring the endless frontier of the Earth and space.
+- We're being very careful that we don't send a spacecraft to Mars with the intention of detecting Martian life - and find out that we detected the Earth life that we took with us.
+- The surface of Mars is bathed in ultraviolet light, bathed in radiation. Mars's magnetic field is essentially gone, so the surface of Mars is essentially sterilized.
+- InSight will get to the 'core' of the nature of the interior and structure of Mars, well below the observations we've been able to make from orbit or the surface.
+- Only by studying large numbers of people can we figure out, are astronauts dying at a higher rate of cancer, and what types of cancers, than other people?
+- The team at the Space Telescope Science Institute has a demonstrated record of meeting the high-performance challenges of operating the Hubble Space Telescope and preparing for the James Webb Space Telescope.
+- The moon's a nice place to visit, but you wouldn't want to live there.
+- To help enable the kind of science Hubble is performing makes my life worthwhile.
+- Because of Hubble and other telescopes, we've now discovered that there are probably planets around every star, or virtually every star. There are solar systems around most stars. And the fact that we're here on a planet, Earth, means that it's likely there's lots of other Earths out there.
+- Regardless of what dreams you have, work very hard, play very hard, and have fun.
+- Once we get beyond Mars, which formed from the same stuff as Earth, the likelihood that life is similar to what we find on this planet is very low.
+- The most striking thing to me about human space flight and my own personal experience is that I've seen dramatic changes on Earth. We humans are rapidly changing the planet. I've watched Amazonia as the rainforest has been cut down. That's something I've seen out the window. I'm very worried about that.
+- I believe that the future of humans, and the future of Earth, depends on space exploration. That's not a French problem, or a problem for Alabama: it's a planet-wide problem. International cooperation is crucial.
+- I can't imagine anywhere I'd rather be than outside the space shuttle in my space suit next to the Hubble Space Telescope.
+- Once in a while, the universe lets you be free alone and in peace.
+- I got lucky and got assigned to Hubble.
+- I thrive with high-performance challenges in front of me.
+- The best would be to fly in space with family and friends.
+- I kind of feel like I found my cause in life servicing the Hubble Space Telescope.
+- Going to Mars would make NASA great again.
+- All space exploration is risky. As an astronaut, I had to decide each and every time I went to space whether or not to risk my life for the mission.
+- There's a perspective that I've gained as an astronaut that I didn't get from my science activities. In my science activities, I learned by the seat of my pants. Spending 17 years as an astronaut, I learned the NASA formalism of systems engineering as if my life depended on it. Literally.
+- The first thing to know about space food - it is the ambiance; it is the environment. It is not the food.
+- Are we alone? Many, many people on planet Earth want to know. We are on the cusp of being able to answer that question... because of the investments we're making in space technology.
+- Sometimes astronauts feel a little ill or get minor scrapes. I trained as a crew medical officer to do basic treatment.
+- Sciences are being unified by the search for life in the universe.
+- I think that space exploration as a broad activity is the most important things that humans can do. I've always found it fascinating, interesting, compelling, and I have a drive to go out into space.
+- The James Webb Space Telescope was specifically designed to see the first stars and galaxies that were formed in the universe.
+- When I grew up on the south side of Chicago, it was kind of a rough neighborhood, and when my parents saw the prospect of my older sister going to middle school, high school, they decided that we would move to the north side of Chicago, Highland Park, and for me, that was a whole new ballgame.
+- Being an astronaut, there are not a lot of things that have really shocked me in my life.
+- The strangest thing I've found is that when I got to space, I felt more comfortable in space that I've ever been on Earth before. I just felt this is my home.
+- There is no stronger case for the motivational power of real science than the discoveries that come from the Hubble Space Telescope as it unravels the mysteries of the universe.
+- The only reason Hubble works is because we have a space shuttle.
+- Here on Earth, we're exposed to asteroids hitting the Earth, eventual changes in the Sun, changes in the Earth's climate, things we're doing to the Earth's climate. If we want to survive, we need to become a multi-planet species. That's further down the road, but the first wave is going to be the explorers.
+- Absolutely the most fun thing to do in space and rewarding thing, in many ways, is to look back at planet Earth.
+- When I grew up as a kid, we didn't know there were any other planets outside of our own solar system. It was widely speculated that planet formation was an incredibly rare event and that it's possible that other planets just don't exist in our galaxy, and it's just this special situation where we happen to have planets around our sun.
+- The Hubble Space Telescope is more than remarkable. It has answered just so many of those fundamental questions that people have been asking about the cosmos since people were able to ask questions.
+- When people left on the Oregon Trail from St. Louis, they knew that only a fraction of them would make it to the West Coast. But they went anyway.
+- We don't know how many planets we're going to have to examine before we find life, and not finding it on 10 or 100 doesn't mean it's not there. This may be very tricky.
+- Life outside of Earth is probably going to be really hard to find.
+- I was not really scared on my spacewalks. We practice so much and need to stay so focused that it has a calming effect on me. I do a kind of visualization and meditation in the airlock prior to going outside, to guide my first activities once I get out in space.
+- I see no difference between scientific exploration and human exploration.

@@ -1,0 +1,31 @@
++++
+author = "Pythagoras"
+title = "Pythagoras Quotes"
+quotes_len = "25"
+description = "the best 25 Pythagoras Quotes"
++++
+- Do not say a little in many words but a great deal in a few.
+- Strength of mind rests in sobriety; for this keeps your reason unclouded by passion.
+- Virtue is harmony.
+- Begin thus from the first act, and proceed; and, in conclusion, at the ill which thou hast done, be troubled, and rejoice for the good.
+- Choose rather to be strong of soul than strong of body.
+- It is better wither to be silent, or to say things of more value than silence. Sooner throw a pearl at hazard than an idle or useless word; and do not say a little in many words, but a great deal in a few.
+- There is nothing so easy but that it becomes difficult when you do it reluctantly.
+- Friends are as companions on a journey, who ought to aid each other to persevere in the road to a happier life.
+- Reason is immortal, all else mortal.
+- The most momentous thing in human life is the art of winning the soul to good or evil.
+- Above all things, reverence yourself.
+- There is geometry in the humming of the strings, there is music in the spacing of the spheres.
+- Silence is better than unmeaning words.
+- The oldest, shortest words - 'yes' and 'no' - are those which require the most thought.
+- Above the cloud with its shadow is the star with its light. Above all things reverence thyself.
+- Rest satisfied with doing well, and leave others to talk of you as they will.
+- There is a good principle which created order, light, and man, and an evil principle which created chaos, darkness, and woman.
+- As soon as laws are necessary for men, they are no longer fit for freedom.
+- As long as man continues to be the ruthless destroyer of lower living beings he will never know health or peace. For as long as men massacre animals, they will kill each other.
+- Do not talk a little on many subjects, but much on a few.
+- Beans have a soul.
+- No one is free who has not obtained the empire of himself.
+- A thought is an idea in transit.
+- Concern should drive us into action and not into a depression. No man is free who cannot control himself.
+- Anger begins with folly, and ends with repentance.

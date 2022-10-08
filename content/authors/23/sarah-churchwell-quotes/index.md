@@ -1,0 +1,21 @@
++++
+author = "Sarah Churchwell"
+title = "Sarah Churchwell Quotes"
+quotes_len = "15"
+description = "the best 15 Sarah Churchwell Quotes"
++++
+- History is prone to mistakes in identity, and facts are not always solid things.
+- Pop music provides not just the soundtrack to our lives, as the cliche goes; it releases our emotions and helps us to articulate them. This is why music is so important to adolescents, who are struggling with questions of identity and self-expression.
+- Textbooks are no longer given to schoolchildren; they're too expensive. So they're given to the teachers, who probably need them more.
+- Music - not just the lyrics, but the music itself - expresses confused or illicit passions: rage, lust, envy, frustration, channeling these energies and creating an outlet for them.
+- People who are given whatever they want soon develop a sense of entitlement and rapidly lose their sense of proportion.
+- In all likelihood, the only thing extraordinary about Tiger Woods was his golf: he had extraordinary coordination and extraordinary discipline - on the course, at any rate. That discipline was the source of his power.
+- There is nothing that 'Sesame Street' can't teach you, if you let it.
+- The legacy of slavery comes from the sustained political, legal and economic effort to link permanently an entire group of people to poverty - and to mystify that systematic disenfranchisement by making up something called race, which could serve as a distraction.
+- Top-up fees mean that universities are increasingly under pressure to confer degrees upon students, who perceive the degree as a commodity they've purchased. Failure doesn't enter into anyone's calculations.
+- If history starts as a guest list, it has a tendency to end like the memory of a drunken party: misheard, blurred, fragmentary.
+- Expression and thought are inextricably linked: crude language permits only crude thinking.
+- History resembles a guest list in that sense of the invited and the gatecrashers: the people for whom we have been waiting, and those whose presence takes us unawares.
+- In one sense, Obama's point couldn't be clearer: race is a distraction from class-based inequities. And if we dismiss working-class resentment as camouflaged racism, we will continue to be distracted by the spectre of race.
+- 'Sesame Street' was a pioneering educational T.V. show, intended to help underprivileged children. But even those of us middle-class kids spoilt for pedagogical choice couldn't get enough of it.
+- Racism is an effect of slavery, not the other way around. Once slavery was abolished, not only did racism not disappear, neither did the economic system it upheld.

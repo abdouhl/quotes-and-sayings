@@ -1,0 +1,46 @@
++++
+author = "Susan Vreeland"
+title = "Susan Vreeland Quotes"
+quotes_len = "40"
+description = "the best 40 Susan Vreeland Quotes"
++++
+- I would like to bring people who have never been to a museum into a museum. And I would like to bring museum goers into libraries. I think there ought to be this cross-fertilization.
+- For a century, everyone assumed that the iconic Tiffany lamps were conceived and designed by that American master of stained glass. Not so! It was a woman!
+- To feel the grace of God in a painting of the dear, quiet commonness of a domestic interior, or in a landscape, seascape, cityscape, trains us to feel the grace of God in the thing itself in situ.
+- Each time we enter imaginatively into the life of another, it's a small step upwards in the elevation of the human race.
+- To me, art begets art. Painting feeds the eye just as poetry feeds the ear, which is to say that both feed the soul.
+- I don't know if a historian or scholar owns an opinion.
+- I wanted to keep a Gothic cathedral alive in my heart.
+- It was only after I began to write fiction that I found a way to connect with painting.
+- Readers would email me and say, 'Please write a novel about so-and-so,' but it has to come from yourself and not so much from your readership.
+- Two of my grandfathers had been artists, lifelong oil painters, so I was exposed to art very young. I've always been interested in it, although I never pursued it as a career or even as an avocation.
+- Art history looks at art works and the people who have created them.
+- Where there is no human connection, there is no compassion. Without compassion, then community, commitment, loving-kindness, human understanding, and peace all shrivel. Individuals become isolated, the isolated turn cruel, and the tragic hovers in the forms of domestic and civil violence. Art and literature are antidotes to that.
+- The idea of being close to where pigments were mined - that's the first thing in making a painting, getting the material. And what's the last thing you do in making a painting? You put a frame around it.
+- Landscape is more than flat land covered by floodwater, the seeping of peat bogs, a river of liquid pewter viewed from a sentry tower. It's an influence on what a person values, what she is willing to sacrifice or argue for.
+- I could say diamonds are a girl's best friend, and that never changes. But the taste for art did change.
+- I'm hoping that I make readers into museum goers and museum goers into readers.
+- I suppose it's easier for most writers to create and vivify characters of their own gender.
+- I absorbed as many Impressionist paintings as I could, in Parisian museums and in many museums in the United States and in books, looking for clues to architecture, clothing, settings.
+- 'Luncheon of the Boating Party,' owned by The Phillips Collection in Washington, D.C., has served Americans as a symbol of France and French culture, both of which I love, and is as evocative and triumphant an image as that other emissary of France, the Statue of Liberty.
+- I pored over art books and absorbed the placidness of Monet's garden, the sparkling color of the Impressionists, the strength and solidity of Michelangelo's figures showing the titanic power of humans at one with God, Jan Vermeer's serene Dutch women bathed in gorgeous honey-colored light... My conviction grew that art was stronger than death.
+- When I think how art education is eliminated whenever we get a budget crunch in the schools, I have to stand up and say that even when there was dire poverty ten blocks away from Tiffany Studios in the Lower East Side of Manhattan, there was art and creativity within.
+- The gift art gives us is that instead of seeing only our own world, we see into other times, which offers a window into other cultures and sensibilities.
+- The company, Tiffany Studios, ended up in bankruptcy in 1930 - early '30s.
+- Coming out of the Louvre for the first time in 1971, dizzy with new love, I stood on Pont Neuf and made a pledge to myself that the art of this newly discovered world in the Old World would be my life companion.
+- Color has always been important to me, ever since my first deluxe box of Crayolas.
+- The value of writing about art is its effect on the imagination. Paintings allow us to inhabit another culture, place, and time period, and address the issues of those time periods that resonate with our own time.
+- I made my personal discovery of Emily Carr while visiting Victoria in 1981 to write a travel article. Immediately, her strong colors attracted me; her spunk fascinated me. Her down-to-earth voice in her writing appealed to me as authentic and original.
+- When I see Tiffany windows in churches across the United States, I get a sense of spiritual upliftment from that.
+- Susan B. Anthony said that the bicycle did more to emancipate women than any other single thing. The bicycle was linked in the psyches of women at that time as a symbol of practical emancipation. Women could go places, wear their skirts shorter to manage the bicycle, and be independent.
+- When I was nine, my great grandfather, a landscape painter, taught me to mix colors. With his strong hand surrounding my small one, he guided the brush until a calla lily appeared as if by magic on a page of textured watercolor paper.
+- Writers have to be observant. Every nuance, every inflection in a voice, the quality of air, even - they all get mixed up in this soup of the story developing in our minds.
+- I write about art out of gratitude to painters for the joy and spiritual uplift they have given me. Painters interpret for us the visual glories of God and, in this way, bring us closer to Him.
+- Whatever it is that can help to bring God close is something to be revered.
+- I ventured into fiction in 1988 with 'What Love Sees,' a biographical novel of a woman's unwavering determination to lead a full life despite blindness.
+- When I learned that near Roussillon there were ochre quarries and mines from which was extracted the ore which produced pigments in all the warm hues of the color wheel, I had a substantial artistic link to this region beyond mere love.
+- As New York careens toward the modernity of the twentieth century when Gibson girls were transforming themselves into working women, Clara Driscoll enters the male field of stained glass artistry and builds a lively, multi-national, multi-class women's department within Tiffany Studios.
+- There is so much strife and tension in the world that I find the silent world of paintings from the past both hopeful and healing.
+- Archival and published history does not always record personal relationships of historical figures, so characters must be invented to allow the subject to reveal their interior realm through intimate interaction.
+- The Tiffany lamp is an American icon bridging the immigrants, settlement houses, and the slums of the Lower East Side and the wealthy industrialists of upper Manhattan, the Gilded Age and its excesses.
+- After one hundred days of confinement following a bone marrow transplant, I rejoiced in taking short walks to a nearby park as I was writing 'Girl in Hyacinth Blue.' The uncertainty of my survival made every blade of grass gorgeous in its green intensity, lifting itself up, doing its part to make the world beautiful.

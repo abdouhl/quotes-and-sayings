@@ -1,0 +1,78 @@
++++
+author = "Guy Kawasaki"
+title = "Guy Kawasaki Quotes"
+quotes_len = "72"
+description = "the best 72 Guy Kawasaki Quotes"
++++
+- You really can't spend money on social media unless you really try. Social media is really more about effort than expense.
+- A large social-media presence is important because it's one of the last ways to conduct cost-effective marketing. Everything else involves buying eyeballs and ears. Social media enables a small business to earn eyeballs and ears.
+- It doesn't matter whether the Dow is 5000 or 50,000. If you're an entrepreneur, there is no bad time to start a company.
+- What I lack in talent, I compensate with my willingness to grind it out. That's the secret of my life.
+- Most venture capitalists won't read a business plan unless the entrepreneur is introduced to them by a contact.
+- The good news about entrepreneurship is that your fate is in your hands. The bad news is that your fate is in your hands!
+- Smart, well-meaning people get it wrong when they start believing that the world owes them something and that the rules are different for them.
+- A 50-year-old company can innovate as well as two guys/gals in a garage.
+- Entrepreneurship is not for everyone.
+- I don't want to make more friends. I have four kids, I have plenty of friends, and all the personal relationships I need.
+- A company should search for every instance of the use of its name and zoom in when there are issues - both good and bad.
+- It's easy to say that entrepreneurs will create jobs and big companies will create unemployment, but this is simplistic. The real question is who will innovate.
+- I do have a peripatetic and active intellectual curiosity.
+- A crash is when your competitor's program dies. When your program dies, it is an 'idiosyncrasy'.
+- At the end of my life, is it better to say that I empowered people to make great stuff, or that I died with a net worth of $10 billion? Obviously I'm picking the former, although I would not mind both.
+- I've been all over the world meeting with companies and startups and entrepreneurs. And I tell you, they are more similar than different.
+- My recommendation for SEO is very simple. It's Write Good Stuff. In my mind, Google is in the business of finding good stuff. It has thousands of the smartest people in the world, spending billions of dollars to find the good stuff. All you have to do is write the good stuff; you don't need to trick it.
+- I think a lot of the logic of Google+ is much better in terms of notification of messages to you, in terms of how you post. One very obvious feature is that with Google+, after you post something, you can edit it forever. That is true of both posts and comments. I edit almost every post I make and almost every comment I make.
+- If you're an entrepreneur and you think that the president makes a difference to your business, you should stay at your current job.
+- Different parts of the world have different attitudes to failure. Arguably, it may take more courage to be an entrepreneur in Sydney, or Paris, or London, or Japan, or Singapore... but an entrepreneur sees the world for what it could be, not what it is.
+- Most people who graduate from college think they have to make a perfect choice. Is it Goldman Sachs? Is it Google? Is it Apple? They think that their first job is going to determine their career, if not their life.
+- Don't worry, be crappy. Revolutionary means you ship and then test... Lots of things made the first Mac in 1984 a piece of crap - but it was a revolutionary piece of crap.
+- What I learned from my kids is that the greatest joy in life is not from material trappings, power, or visibility. The greatest joy comes from your kids. Nothing is even close to my kids in terms of bringing me joy.
+- I love the notification system on Google+. If someone mentions you, you get notified via Gmail. That's very useful for someone like me.
+- I have developed a Zen-like approach to the operating systems that people use: 'When you're ready, the right operating system will appear in your life.'
+- Evangelism is selling a dream.
+- I think that no one, or very few, are born as good presenters. It's a skill that you learn.
+- Every day, I get five pieces of hate mail: Tweets or hate emails.
+- A simple summary of my life is that my parents worked very hard so that I could have a great education, and I took that education and worked very hard to get where I am. I would like my kids' lives to be exactly the same.
+- Not many people agree with what I do.
+- Coming from the U.S., you tend to look at one homogeneous market with 350 million people. But in Europe, every country has its own customs and laws.
+- When I finally got a management position, I found out how hard it is to lead and manage people.
+- I travel all the time.
+- As communicators and marketers, people are so accustomed to thinking from the 'top down.' Finding the great analyst or the famous journalist who will endorse what you do and tell the rest of the world to go and buy your product.
+- Leverage your brand. You shouldn't let two guys in a garage eat your shorts.
+- Companies in Europe should stop trying to do the U.S. version of a European idea.
+- When you enchant people, your goal is not to make money from them or to get them to do what you want, but to fill them with great delight.
+- The right algorithm is to put off seeking funds for as long as physically possible. And in an ideal world, a startup would never have to seek funds at all.
+- Entitlement is the opposite of enchantment.
+- Great companies start because the founders want to change the world... not make a fast buck. Call me a romantic, but I think entrepreneurs should try to change the world. This comes from working at Apple... old habits die hard.
+- I merely consider myself a father, and one role of a father is to provide financial resources for his family.
+- A good idea is about ten percent and implementation and hard work, and luck is 90 percent.
+- If you provide enough value, then you earn the right to promote your company in order to recruit new customers. The key is to always provide value.
+- Patience is the art of concealing your impatience.
+- The jewelry business is a very, very tough business - tougher than the computer business. You truly have to understand how to take care of your customers.
+- I would like my kids to inherit a world where people succeed because of merit and hard work, not entitlement, and where people accept others for what they are and not try to change them.
+- Social media allows me to pick my times for social interaction.
+- Simple and to the point is always the best way to get your point across.
+- Great companies start because the founders want to change the world... not make a fast buck.
+- I think that no one, or very few, are born as good presenters. It's a skill that you learn. The key is the 10/20/30 rule: 10 slides given in 20 minutes using no font smaller than 30 points. If people just adhered to this rule, they would double or triple the quality of their presentations.
+- Create something, sell it, make it better, sell it some more and then create something that obsoletes what you used to make.
+- Good people hire people better than themselves. So A players hire A+ players. But others hire below their skills to make themselves look good. So B players hire C players. C players hire D players, etc.
+- If you look at my Twitter feed it is 99% links, but 1% is me responding and 1% of a big number is a big number.
+- Ambitious failure, magnificent failure, is a very good thing.
+- If you have to put someone on a pedestal, put teachers. They are society's heroes.
+- When I was getting my education, I fell in love with the writings of Peter Drucker. He was my hero. I had a naive belief that when I became a manager, it was going to be like Peter Drucker's books. That is, I was going to be the effective executive. I was going to talk to people about their goals. I was going to help them actualize.
+- There are two ways to approach the application process: trying to hit a home run by getting an immediate 'Yes, here's an offer' or trying not to be eliminated. I recommend the second approach.
+- Many Android users aren't aware of some the things that Android can already do such as supporting the enforcement of companywide security policies, encrypting phone data and providing e-mail and calendar widgets that update in real-time. Our job is to help people and businesses discover and use these features.
+- The A-listers and the A+ listers, are reporting the news, they're not making it.
+- The most important thing is that you hire people who complement you and are better than you in specific areas. Good people hire people better than themselves. So A players hire A+ players.
+- My perspective is this: my allegiance is to the best product for my needs. For a computer, this means Macintosh. For phone and tablet, this means Android.
+- People are forgiving of v 1.0 of a product if it's truly innovative and useful. Then you can get away with a lot. But if you're merely marginally improving the status quo, then you better be rock solid.
+- I don't take myself that seriously. I'm a pragmatist.
+- I started my career counting diamonds and schlepping gold jewelry around the world. The jewelry business is a very, very tough business - tougher than the computer business. You truly have to understand how to take care of your customers.
+- I'm a lousy predictor of the future.
+- If you make money, you might not make meaning.
+- I don't think Steve Jobs nauseated people when talking about how great Apple stuff was. The reason why he didn't nauseate people is because it was true. The start of all great marketing is to have a great product.
+- Every social media post should have a beautiful graphic. If there are two identical stories, the one with the beautiful graphic will always win.
+- It's hard to name a person who is unpopular who has influence.
+- What you learn in school is the opposite of what happens in the real world. In school, you're always worried about minimums. You have to reach 20 pages or you have to have so many slides or whatever. Then you get out in the real world and you think, 'I have to have a minimum of 20 pages and 50 slides.'
+- My mother taught me not to take any crap from anyone and to stand up for my rights. You might not believe this lesson came from a tiny Japanese woman, but it's true.
+- The most powerful way to convince the interviewer that you can do the job is to show how much you already know about the industry, the company, and the products/services of the company. In other words, enchant the interviewer with how much you already know.

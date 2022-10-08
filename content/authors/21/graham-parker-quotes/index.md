@@ -1,0 +1,14 @@
++++
+author = "Graham Parker"
+title = "Graham Parker Quotes"
+quotes_len = "8"
+description = "the best 8 Graham Parker Quotes"
++++
+- Mostly I've never let record companies become involved with my music, which was a very smart thing that my first manager Dave Robinson did, to keep them out of it.
+- I never learned music. I'm quite uneducated, and usually I sat in front of the TV, with soap operas on, in England. It was very inspiring for me, I'd done all this traveling around, I came back living with my parents, everyone around me was like they're living in a soap opera.
+- I went to Morocco, joined a band called Pegasus, ran out of money, went to Gibraltar and worked on the docks, writing songs about the sun and the morning and the birds.
+- I do not wanna write a song like 'Coathanger' so Andrew Breitbart can rage against me on his web site. It's not my idea of fun.
+- Oh, man, pop singers are terrible actors. We're all bad.
+- In the early days, I had very little idea about arrangements, and I wrote songs a little flat, as it were, just on an acoustic guitar. They didn't really have quite enough nuance.
+- When I was a kid in the mid-'60s, I was what's known as a moddie boy, a prototype skinhead. You all had your hair like a crew cut, cropped, with suits or Levis with red suspenders, sometimes Doc Martens. It was a thriving soul music, Motown and ska scene; we used to dance to Prince Buster and the Skatalites.
+- I started to work up in my old bedroom, playing, writing songs, and it somehow came to me that I could introduce soul music. Nobody seemed to be doing that.

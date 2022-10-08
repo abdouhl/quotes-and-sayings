@@ -1,0 +1,70 @@
++++
+author = "Gennady Golovkin"
+title = "Gennady Golovkin Quotes"
+quotes_len = "64"
+description = "the best 64 Gennady Golovkin Quotes"
++++
+- The first am fight I had, I was 10 yrs. old. I didn't count, but as far as I remember, it was approximately 350 fights. It was a lot of fights.
+- The main thing I want to have at the end of my career is to be healthy. But as for people to remember me, I want my fans to remember the type of fights I had.
+- People who like boxing like my style.
+- I like real people. I don't like fakes.
+- I'm just a fighter.
+- It was a very difficult time after the fall of the Soviet Union. Jobs were difficult, and you had to fight to have anything nice.
+- I always watch NHL, NBA, NFL games and don't miss tennis and golf.
+- Canelo, he is not a champion. He is a liar who has no respect for the sport of boxing or its fans.
+- If you have money, and you help people, you don't talk about it. Just do it.
+- The older kids, if they wanted something from you, whether it was cash or sports equipment, they would just take it. My older brothers used to say, 'If someone tries to take something from you, never give it to them.' So we fought all the time.
+- I'm a very well-behaved guy!
+- I love and respect my sport, but I am not a bad guy. First, I am a sportsman.
+- I've never been a bad guy - never acted like a tough guy.
+- There are no survivors in my fights.
+- Cain Velasquez - he is a good puncher. He is very compact. He's strong. He's very smart. He's a good fighter. He's a warrior.
+- Boxing is a business.
+- I only worry about those who want to fight.
+- I understand this business. Sometimes there's a lot of corruption. It's boxing.
+- I love to fight. And I love to fight against the best.
+- Boxing is serious. It's not a game. Just one punch - change life.
+- Hublot is a great high quality brand which represents modern, stylish, masculine look.
+- Boxing is sport. Is good. Not just for bad guy.
+- I'm a boxer. I'm a boxer. If you're interested, just watch my boxing, not my life.
+- Anytime a curtain closes forever, that's always sad news.
+- I respect all the fighters who have the big names.
+- Family is the most important thing to me.
+- Sugar Ray Robinson is my favorite boxer of all time. He is a middleweight. I saw him and liked him.
+- When I come home, my wife is the boss.
+- When I wrap my hands, I do it for my family. I owe my courage to them and also my success. That's why I fight.
+- I am very positive. I like to box. I like my life. I am happy every day.
+- Each fight has its own preparations and challenges.
+- Madison Square Garden is one of the best fighting venues in the world.
+- Oh, I like New York City. It's like my country. The people have good energy, good atmosphere. It's just work, work, work. Everyone is working. It's a lot like my country.
+- I believe in my power and boxing skills.
+- I remember my time growing up. It was a little bit difficult because the Soviet Union was broken.
+- I'm always looking for new ways to improve my skills.
+- I liked soccer. I played it for two years.
+- I had a very hard life in Kazakhstan.
+- Outside the ring, I am Gennady, but when I get in, I am Triple G: I become a different guy. I don't know how I switch, but I understand my job, I understand the situation, and I understand my business.
+- I remember seeing Sugar Ray Leonard, Mike Tyson, and the old films of Sugar Ray Robinson.
+- I never went into the mine. But I saw my father and other men coming out, day after day, their faces and bodies covered in soot. It looked very hard and dangerous.
+- It's always been a dream of mine to fight at Madison Square Garden, and it's something I really relish.
+- Maybe I can become the next James Bond.
+- Jacobs was a very good fighter and gave me good learning experience going 12 rounds.
+- Those 'Rocky' endings are great in the movies and on the stage, but I don't think it would be too smart for me to get into that kind of fight in the ring.
+- Canelo is the number one in Mexico, a country known for great fighters. He is very special.
+- I know Canelo before. He's a good guy. Good fighter.
+- I love judo. I love grappling. I love jiu-jitsu.
+- My father is always with me. But moving forward and making my father more proud of me is very important. Taking care of my family, as my father did, is even more important.
+- From the beginning, when my brother Vadim first took me to the boxing gym at 10, I was able to punch hard, and the coach always put me with older boys because of that.
+- If you want street fight, let's go. If you want boxing, I show you. But people think I am, like, gangster. No. Ring is different world. Very dangerous.
+- I went to university every day for five years. I thought, 'I must - must - go to school.' Look, my hands, these are like guns. When you have guns, you can relax. But in the future, you need something else.
+- My brothers first brought me to boxing. I dedicate the fights to them and my father and fight for my family.
+- This is boxing. It's not like a baseball game. The fighters say, 'I need a lot of money or I don't fight, because it's very dangerous.'
+- Middleweight is my category.
+- When I was a young boy, those 'Rocky' movies were my favorite, especially the wild and exciting endings. I loved those films; they inspired me to want to become a fighter.
+- I am not Julio Cesar Chavez Jr., and Canelo is no Danny Jacobs.
+- In general, I enjoy watching different sport tournaments and competitions.
+- I worked hard to become of champion of the world.
+- If I can beat a proven champion like Canelo, that will take my career to a different level.
+- I have a lot of limited edition sneakers that Jordan sends me.
+- I don't feel my opponent's power. I feel something happening when I get hit, but I don't feel power.
+- I want to fight in Madison Square Garden because it's the mecca of boxing. This is my dream.
+- For me, it's very hard to train too much, just sparring, sparring, sparring. It's boring.

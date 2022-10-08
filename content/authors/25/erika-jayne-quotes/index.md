@@ -1,0 +1,106 @@
++++
+author = "Erika Jayne"
+title = "Erika Jayne Quotes"
+quotes_len = "100"
+description = "the best 100 Erika Jayne Quotes"
++++
+- I don't know him. I didn't grow up with my father. We don't speak.
+- When I say there's a little bit of Erika Jayne in everybody, what I mean by that is: No one is one way all the time. No one is buttoned up all the time and no one is wild all the time. There are different parts to your personality, different layers - and that's really what Erika Jayne is, another layer to a human being.
+- My mother was very hard on me when I was a child. I think she was raising me how the world was treating her.
+- I think as more women see that there are women out there building vibrant and creative and powerful lives and careers in their 40s, 50s, etc., then these older views of ageism will fall away.
+- I like to slip out in the middle of the night and take my Lamborghini and drive it really fast on the highway.
+- I grew up with gay family members, and I went to a performing arts high school. So I grew up in children's theater, musical theater, and all of my life has been around the LGBT community.
+- I've known my son was going to be in law enforcement from the time he could walk and talk. That's all he's ever wanted and that's kind of your role as parent is to honor who your children really are.
+- People see me and assume one thing, and they get to know me and see that there's more there.
+- It's great to have financial support. But having someone's emotional support is something that I wish I had more of growing up.
+- I had everything that you want. Every material object. Everything. But inside my core I still wasn't satisfied.
+- Erika Girardi likes her hair straight with a lot of product, just a really good blow-dry. Erika Jayne likes her hair ropey with a lot of product, really rock star and wild.
+- I grew up a Madonna fan, still am a Madonna fan, and will die a Madonna fan.
+- Both my husband and I come from very modest backgrounds. He's obviously done very well, and I've worked hard all my life and done well, too.
+- If you want to look good it's hair, it's makeup, it's wardrobe, and then those people that help facilitate that. They're not cheap.
+- I don't enjoy fighting with people. I don't enjoy having conflict.
+- I would have never thought to write a memoir, but I'm glad I did it.
+- You have to treat your skin very tenderly. You can't be aggressive with your skin.
+- I have a lot of sapphires in my collection.
+- If I'm not working I'm not wearing makeup. The skin needs to breathe.
+- I was fortunate enough to go to an art school where we had a lot of different ethnicities represented.
+- I will always be fashion. I try to pull it together. I think that comes from a sense of self. That's how you create your own look.
+- I trust my gut a lot.
+- I make music that speaks to me.
+- My husband's a lawyer, and I lived a lawyer's wife's life.
+- As human begins, we all have layers to ourselves, you know?
+- When I do my makeup, it doesn't look professional.
+- As an artist you always want to evolve and you always want to grow.
+- Not everybody wants to be on TV, believe it or not.
+- Whether I'm performing in a club or onstage as Erika Jayne, whether I'm making records, whether I'm doing TV, I've got to entertain, and I have to take people away from their space and bring them into mine.
+- I'm very afraid of the dark. I even have a night light.
+- You create real friendships through a growth process. It's not just, oh hi, we're friends! That's very childlike. True adult friendships take time, understanding, and it's a plant that needs to be watered and tended to so that it blossoms.
+- I think art and dance is something everyone can relate to.
+- I like fashion. I enjoy playing with it.
+- I don't think my father wanted to be a dad.
+- I tend to look at the silver lining of things.
+- I'm a very guarded person, very controlled person.
+- The most surprising thing I discovered was how rich of a life I've led. It's easy to forget all the things we experience throughout our human journey.
+- I made dance records and the gay community gravitated toward them. They gave me a place to really shine, a place to develop, and a place to spread my wings - I'll forever be grateful for that.
+- There was this moment in my father's house where he said, 'My wife, she never had any kids and I never had any kids.' Yeah... He had never acknowledged my existence.
+- There are two different sides of my personality, much like everyone has two different sides of their personality. I mean, it's a profession... It's something that I do. And I'm not Erika Jayne 24 hours a day.
+- I think that I've enjoyed my time on 'Real Housewives.' It's been a great opportunity, and I've had a lot of fun and have been able to see a lot of great things and meet some really cool people.
+- I lived in New York from 1989 to 1996, and I feel like I just got used to carrying everything around.
+- After dinner, there is no eating until the morning. My mom was really big on that.
+- I think my mother and grandmother had style even though we're humble Southern people.
+- Being able to express yourself under the name Erika Jayne and saying things people want to say but wouldn't, or doing things that people want to do but don't, or taking that extra leap of faith or pushing the levels of sexuality, or whatever, that helps Erika Girardi stand on her own two feet and be calm and peaceful.
+- I sleep on a Tempur-Pedic mattress, and I have custom-made sheets. They're white with some patterns, and the highest thread count of Egyptian cotton you can get.
+- My breakfast is egg whites, avocado and grilled tomatoes. Lunch is usually some type of chicken and then for dinner... I like to eat. I'll eat pasta even though I'm not supposed to.
+- Listen, I'm rebellious. Okay? I always have been.
+- I have a really great bathtub, and I unwind by taking baths.
+- I have a great family, and I have a great home, husband, and son. So I think that's probably all anyone ever needs anyway. Everything else is the icing on top of the cake to be quite honest.
+- Sometimes people expect you to be something that you're not or want you to be something that is out of your philosophy, yet they claim they are a fan. Like, 'I'm really your fan, but you should get a nose job!' That's not really a fan.
+- I think anything you take on you should want to be the best.
+- I go to a dermatologist, so I'm under that kind of care because you really can't get this skin without a professional - that's the truth.
+- I've grown up disciplined all my life as a dancer, so I know how to eat and work out.
+- I like a neckline to be either high or low; the middle just doesn't work for me.
+- I'm a big dreamer.
+- Craft and art and discipline in what you do will make you happy.
+- All I can be is myself. I feel comfortable in my own skin, which I think is maybe what translates.
+- Erika Jayne was born out of rebellion. I like to break the rules.
+- All artists, no matter who they are, have always come into contact with criticism. No one's gonna like what you do 100 percent of the time.
+- The court of public opinion should not matter, but we're all human. And sometimes things sting. But I think you have to be willing to shake it off, and to not fall in love with the applause either.
+- I had never, ever thought about being on any 'Real Housewives' show, so it was interesting to actually be on one.
+- I like to fish. I love to stay outdoors.
+- The television in my bedroom is always on, so after I get out of the bath and put on my jammies, I sit in bed, curled up in my comforter with Tom, and we watch the news together until we fall asleep.
+- Before I was cast on 'The Real Housewives of Beverly Hills,' I had secretly quit Erika Jayne altogether.
+- That's the one thing I loved most about Tom when my son was younger was that he welcomed him with open arms. I'm very thankful. That's my guy.
+- There are only so many material things you can have before it becomes boring.
+- I was a starving artist.
+- I've become rather desensitized to how much sexy I put out.
+- I'm never going to be a gourmet cook.
+- You have to have Aquaphor, because you don't want a crusty, dry mouth, and this, in my opinion, is the best. It wears well, it's a great base for any type of lip gloss, lipstick, anything like that.
+- If I'm on the plane, I insist on being comfortable. I don't believe in getting dressed up to fly. There's no reason for that, especially when it's 16 hours to fly internationally.
+- Nobody's ever going to marry me for my cooking skills.
+- I love costume jewelry, because, listen, you can't pick a real jewel every day.
+- I grew up in Atlanta, Georgia, and I honestly started performing for my family when I was around three. I would jump up on the coffee table and I would get in the closet and ask that they introduce me to come out, and from that point on, my mother stuck me in dance class and children's theater.
+- I don't think anyone should tap you on the shoulder and tell you that it's time to sit down and retire.
+- My ultimate goal was to make the music that I wanted to make, and give shows. I was never going to get a major label deal - I never wanted a major label deal - so I was really free to express myself.
+- It's all too easy to say, 'You didn't have a dad, therefore, you married an older man.' Listen, I didn't marry my dad. My dad is much younger than my husband.
+- I've dealt with this forever: the younger woman that married the wealthier, older man. I mean, I'm tired of having to justify my 20-year marriage.
+- I think that's what makes marriage work - when you allow each other to be strong in their chosen profession; when you support each other and love each other.
+- I'm a showman. I believe that you're a character every time you put on clothes.
+- I like to describe my style as S&M chic with a little hood-rat appeal.
+- No matter what city I'm in, I'm always trying to run down a new Panthere ring.
+- The first time I met my father was when I was 25. I was visiting here in Los Angeles, I had not moved here yet. And he came down to meet me. It wasn't emotional, it was like meeting a stranger.
+- I lived Tom Girardi's legal life with him first 10 years of our relationship. I went to every legal organization, every event - all of those groups he belonged to and those speeches he gave.
+- You have to work to look good. You don't wake up and effortlessly look fabulous.
+- 'Chicago' has got such great women characters. It runs off two women, so what could be better than that?
+- White diamonds can get boring, so I love a colored stone.
+- There is a certain amount of conflict that comes with being a 'Housewife.' It is not a comfortable position. If you are comfortable, you aren't doing your job.
+- I'm a big sports fan and go to games.
+- If you have long hair that gets styled all the time, or if you're dancing and working out, dry shampoo is essential because you don't want to wash your hair every day.
+- It's fun to have an over-the-top stage personality.
+- I don't have a makeup bag, I have a makeup artist!
+- 'Housewives' has shone a light on women of middle age, that you're not out of the game, you're not old, you're not put out to pasture... You're lively, you're doing things, you're aggressive, you're making money, you're recreating yourself.
+- As you begin to develop real relationships and bonds it gets harder because sometimes you say things to people and hurt their feelings and you really care about them.
+- My mother was a makeup artist for Estee Lauder and she taught me.
+- Who knows what happens with 'Housewives?' I will say this, what a great opportunity to have been on the show, and the doors that it's opened for me, and I have nothing but great things to say about the show.
+- When I moved to California, I always knew that my son would eventually come out and live with me.
+- You know, I entertain whether I'm on 'Housewives,' or whether I'm on 'Dancing With the Stars,' or whether I'm on 'Young and the Restless.'
+- I'm very firm in my beliefs.

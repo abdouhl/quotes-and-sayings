@@ -1,0 +1,72 @@
++++
+author = "Pharrell Williams"
+title = "Pharrell Williams Quotes"
+quotes_len = "66"
+description = "the best 66 Pharrell Williams Quotes"
++++
+- I can't say what I'm going to wear all the time. The minute that I say that, then there's something in me that tips off and then I need to break out of that.
+- The more I can make a person comfortable in their environment by taking my ego's hat off and leaving it at the door, then they can dive deep within themselves and we can pull out something interesting that people have never heard before. It's the stuff that's - that no one's ever heard before is really interesting.
+- The element of harmony is super important.
+- I love the way Charlize Theron and Kate Moss dress.
+- I love playing. The keyboard is my journal.
+- I love when things are transparent, free and clear of all inhibition and judgement.
+- I just happen to admire everyone that we work with.
+- When you're dancing, you're dancing for people to see.
+- The people have allowed me to - they've respected my choice of wanting to be like, a little, you know, a baby alchemist, and just trying to mix different cultures together and things that I think are interesting.
+- I love what I do, I love my job.
+- Some people say there's nothing new under the sun. I still think that there's room to create, you know. And intuition doesn't necessarily come from under this sun. It comes from within.
+- Lyrically, I could be so much sharper. Melodically, I could be so much stickier. Musically, I could have so much more texture. So I'm constantly doing that, trying to find new ways to mix things up.
+- I'm like most people. We just concentrate on the present. I live right where the film is going through the film projector and it hits the light.
+- I have an all-Japanese design team, and none of them speak English. So it's often funny and surprising how my ideas end up lost in translation.
+- I love making music, though. I love playing.
+- I'm like a little boy from Virginia. I'm a backpacker. In my head, I'm left of centre. I come from the pool of weirdoes.
+- Right now, musically I'm inspired by everyday people.
+- I don't know about style mistakes.
+- When you're playing, you're playing something for the world to hear.
+- You don't know what people are looking for. What you know is what you feel like might be missing. It's up to the people to agree with you or disagree with you, and you'll know in their reaction.
+- I love when things are transparent, free and clear of all inhibition and judgment.
+- I'm a producer. I'm a musician. And my job is to come in and, you know, put - you know, I treat all of the artists that I work with, like, you know, the way da Vinci was looking at Mona Lisa, you know, there's an interesting backdrop.
+- I'm always consciously trying to make what I feel is missing.
+- Living your life 40 floors up, looking out every day on ocean and skies, you see the world from a different point of view. It's like living in a very interesting fishbowl, but since no one can see up here, it's like a fishbowl with a limo tint.
+- It's not possible to experience constant euphoria, but if you're grateful, you can find happiness in everything.
+- You sort of have to become what you're wearing.
+- You treat the air as a canvas and the paint is the chords that come through your fingers, out of the keyboard.
+- Music is all of a sudden much more colorful.
+- I like anything sweet.
+- Fashion is more about feel than science.
+- Alber Elbaz is just a genius. He'll be in a dinner jacket and he doesn't care what time of day it is: I love that about him. He just marches to the beat of his own drum.
+- I just like being a kid. I enjoy it, I don't want to grow up.
+- The simplest way to say it is that I think we're all dealt these cards in life, but the cards in and of themselves don't read one way or the other. It's up to you to home in and cultivate whatever you've got in your hand.
+- I like the world.
+- The keyboard is my journal.
+- I think all music is a gift from God.
+- I learn a lot from my experiences and collaborations. Most of my collaborations are meant for me to learn.
+- I only entertain very close friends.
+- The sexiest woman musician is Alicia Keys.
+- So when I'm playing, I'm sort of painting a feeling in the air.
+- My style hero was' Batman.' Now it's Tony Stark.
+- I'm a fan of music, first and foremost. So I do things from the perspective of a fan.
+- I'm just very thankful. And I say that a lot because that's the most important message.
+- 'Entrepreneur 'just denotes that you recognize that you're doing things across disciplines and that you're blazing your own path.
+- You get used to it when you feel like you're an artist.
+- Remember my first tenet in getting dressed is how you feel in the morning. So if you're not being true blue to that, it usually shows.
+- I don't know, the artist thing is not me. I love making music, though.
+- When it comes to luggage, I am an underpacker.
+- I love everything that Frank Gehry does. I wish I could have that man build me a Wayne Manor-style mansion, like his idea of it.
+- Most of the time, I see what I see, I search my feelings, and then I make my decisions based on my gut - and I don't always make the right ones.
+- My ideal travel companions are my family.
+- When I'm in the mood for room service, my favorite order is a peanut-butter-and-jelly sandwich.
+- I wanted clothing that I couldn't find, so I decided to make it.
+- You can't get anything done hanging out all day long.
+- Some of us get a feeling when we hear music and we feel music, and you want to figure out how to continue to feel that.
+- My favorite Dominican dish to indulge in is anything with crab.
+- For me, nothing is given.
+- Iconic artists are never straight ahead. Michael Jackson loved Elvis and Burt Bacharach, and uniquely blended both of them into what he did.
+- I answer questions the best I can.
+- I like to browse and just hang in bookstores.
+- I don't want to end up being a circus act, doing my most famous tricks when I'm 70.
+- I think music follows the trends of the collective conscious.
+- Everything that we experience every day leaves a long-lasting impression.
+- I just do what I do. It's not something that should be revered as something that's great.
+- There's no better feeling than just going in and just working with someone and what comes out is something that the world knows about.
+- I am overly ambitious, because I realize it can be done.

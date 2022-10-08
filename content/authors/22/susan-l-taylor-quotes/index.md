@@ -1,0 +1,31 @@
++++
+author = "Susan L. Taylor"
+title = "Susan L. Taylor Quotes"
+quotes_len = "25"
+description = "the best 25 Susan L. Taylor Quotes"
++++
+- Stress and worry, they solve nothing. What they do is block creativity. You are not even able to think about the solutions. Every problem has a solution.
+- We don't have time to waste. Our communities are crumbling; our children are under siege. Failing schools and a for-profit prison-industrial complex are sucking the life out of black homes and communities. We are not going down like this!
+- Don't identify yourself with labels and brands and have to buy every cute thing you see. Invest in the things that will grow in equity.
+- The things I need from my husband and he needs from me are minimal - respect, support when needed, kindness, love.
+- Thoughts have power; thoughts are energy. And you can make your world or break it by your own thinking.
+- Parents really just need support and not to be blamed and not to have fingers pointed at them.
+- We need quiet time to examine our lives openly and honestly - spending quiet time alone gives your mind an opportunity to renew itself and create order.
+- We women feel we are here to serve. That's the mistake we make. We may have children, husbands, lovers, bills, responsibility. Those things don't own us, but too often we let them.
+- We have to get up, and we have to move our bodies. We need to move! There is no way to be healthy or happy - no way - without having some kind of exercise regimen.
+- Historically, black women have suffered tremendously, but today's black women are the triumph. We have choices, and that's what freedom is all about: having the power to choose.
+- I don't care how much you know, how many books you read, how you much you study and, you know, how educated you are, you're still going to struggle. Life is challenging.
+- I write about spirituality not so we get strong from within and achieve some state of nirvana and then distance ourselves from the real world. I write about it so we can feel empowered to doing the critical work that this generation of black women are charged with doing.
+- We will never finish everything on our to-do lists. It's not possible, and that is life!
+- We must learn how to live in the space of inner peace in our everyday lives. This takes consistent, conscious effort because I know so many black women are hurting and sad, and we don't easily express our heartache or show our wounds.
+- We have to fill our hearts with gratitude. Gratitude makes everything that we have more than enough.
+- What we still haven't done is really learned and embraced our history. When we do that, we'll no longer be doubtful and fearful that we are weak and incomplete.
+- Use missteps as stepping stones to deeper understanding and greater achievement.
+- We live in an abundant universe. Everything we need to take care of ourselves, those things are all around us. Don't focus on that economy. Don't believe that there's not enough for you.
+- Seeds of faith are always within us; sometimes it takes a crisis to nourish and encourage their growth.
+- Occasionally, I have to think like myself to remember where I put something.
+- We need a new order of ministers to stand in pulpits. It's not enough to sing and praise God in worship services. Any religion that doesn't encourage us to work together to end the needless suffering all around us is godless.
+- There's a lot of rhetoric out here, a lot of talk about giving young people opportunity. Just looking so deeply into the RFK Children's Action Corps, I can see that they are really, really living that mandate.
+- We don't have an eternity to realize our dreams, only the time we are here.
+- It's hunger. It's homelessness, often. It's underfunded, under-resourced schools. It's abuse beyond the chilling. It's having overwhelmed parents and caregivers. Those are the things that young people are struggling with beyond our view.
+- When I joined 'Essence,' I was a young, single mother. I was 24. I hadn't gone to college. I wasn't making any money at 'Essence' - what was it, $500 a month - and I was struggling. So I was always looking down the road, always hoping for a better, you know, tomorrow.

@@ -1,0 +1,100 @@
++++
+author = "Dimebag Darrell"
+title = "Dimebag Darrell Quotes"
+quotes_len = "94"
+description = "the best 94 Dimebag Darrell Quotes"
++++
+- On our early demos, I was really frustrated with my recorded sound. I'd tell my dad, 'Dude, I want more 'cut' on my guitar - I want more treble.' And he'd say, 'Now, son, you don't want that. It'll hurt your ears.' But my dad just didn't understand.
+- I use some pretty radical harmonics at the beginning of 'Heresy.'
+- Jamming with other people will create energy and excitement that you can feed off, and which will help push you to do things you'd never dream of doing by yourself.
+- I'm not going for a soft sound. I ain't lookin' for a warm sound. My sound is warm, but I don't need tubes to do it. The Randall RG-100 is the best amp for what I do.
+- I respect the Pantera fans with all my heart.
+- Whenever I feel my chops are slacking, I'll play some wide-stretch trilling exercises and take them up and down the neck as well as across it.
+- Even though I'll do finger warm-ups that go up and down the neck to build up my chops and dexterity, I never, ever sit around and practice the actual licks I'm gonna play live. If you do, then you'll be all worried about the complexity of getting the fingering right and everything else about it, as opposed to the feel.
+- My hair's a pain in live performance. I'm always inhaling it: I almost choked to death a couple of times.
+- I try to do things in one take, but doubling rhythm parts is always difficult, especially if you want things to cut the way I want them to cut.
+- People that love this form of music have loved it from way back - Sabbath, Zeppelin, the early days.
+- Find someone you can jam with. That's a big deal. When you play with someone else, you gotta work together to get the thing started and in time, working and in the groove.
+- I can never understand how a solo could ever be 'uncool.' Play something good, and it won't be uncool, you know?
+- We still get those kind of cats coming out to our shows. Once you're into it, you're into it for a lifetime.
+- Yeah, nothing feels better than knowing that I can put a guitar in my hands at any time and rip - even when I'm taking a crap!
+- Glen Tipton and K.K. Downing are the gods of double-guitar axemanship.
+- A lot of bands whine about the road and how tough it is.
+- I was more influenced by players like Randy Rhoads and Eddie Van Halen than by the guys in southern rock bands.
+- As far as I'm concerned, it's no good being able to wail out smokin' leads if your rhythm chops hugg!
+- All syncopation means is accenting beats that you don't normally accent.
+- Van Halen was a huge influence on me, and 'Eruption' was the song that really leaped off that first Van Halen album.
+- Lessons didn't really work out for me, so I went to the old school, listening to records and learning what I wanted to learn.
+- The local dudes who knew that my dad owned a studio would say, 'Ahh, dude is spoiled,' and this and that. But we didn't abuse it at all. I'd always ask if we could use the studio first, and if our dad didn't want us there he would tell us, and that was that. But I definitely tried to get down there as often as I could.
+- Spittin' blood, smokin' guitars, fire everywhere - Kiss is where I started.
+- My old man was a musician - that's what he did for a living. And like most fathers, occasionally he'd let me visit where he worked. So I started going to his recording studio, and I really dug it.
+- To me, blues is more of a feel and a vibe, rather than sitting there and saying, 'Well, I'm gonna play bluesy now.'
+- When I play live, I jump around like an idiot for an hour-and-a-half or more under a lighting rig that's hotter than hell.
+- Between the record companies being the way they are and the fact that people can just download one song instead of buying a whole album, it's hard to make a good living nowadays.
+- Losing control of your pick on stage sucks, so I scratch some deep X's into both sides of my pick with something sharp, like a dart.
+- 'I'm Broken' was a sound check riff.
+- Whenever I record more than two or three layers, it starts to get cluttered up, and you can't hear the cut of the guitars as good. It's hard to get four guitars to hit at exactly the same time and keep the attack tight.
+- You can write every song on an album in E and not hurt a thing.
+- To make harmonics scream, I first dump my Floyd Rose real quick, hit a harmonic with my left hand while the string is still flapping, and then use the bar to pull it up to the pitch I wanna hit.
+- Most bands don't make it past two albums and tours, if that. We pulled it off, and everybody's been happy and cool, but we got to the point where we knew it was time to take a break.
+- When you're on the road, you've got to have your four-track - or some kind of recording device to jam on and have a good time.
+- Who doesn't like to play Black Sabbath tunes!
+- It's funny, man, sometimes you record something that you plan on re-doing later, but then when you listen back to it, you decide to keep it because you realize that it's gonna be real tough to beat!
+- My whammy system is set up so I can yank the bar up as well as do dive-bombs with it. This means that if I accidentally push down on the bridge with my palm, my strings go sharp and sound out of tune. I make sure this never happens by never resting my hand on the bridge when muting. I always do my muting just in front of the bridge.
+- I love jamming with my band because the guys inspire me every time. We all get off on each other's playing.
+- My heroes were Eddie Van Halen - especially after Van Halen I, II, III, and IV - Randy Rhoads, Ace Frehley and dudes like that. My brother played drums and we jammed in the garage and started writing our own stuff.
+- The first time I heard 'Crazy Train,' I was crashed out in bed, definitely not wanting to get up and go to school, when my brother Vinnie came in and cranked it up.
+- Initially, I just used the guitar as a prop. I'd pose with it in front of a mirror in my Kiss makeup when I was skipping school. Then I figured out how to play the main riff to Deep Purple's 'Smoke on the Water' on just the E string. Next, my old man showed me how to play barre chords, and that's when things started getting really heavy.
+- I always go for that live, honest feel when I'm going for that first rhythm track. I'll never hold back on a part just so it'll be easier for me to double it later on - to my ears, it sounds sterile if you do that. I always want to get that initial track kicking and full of slurs, squeals and feel. I'll worry about doubling it later!
+- Play the pentatonic blues scale, just for fret- and pick-hand dexterity and to mesh them both together.
+- Musicians tend to get bored playing the same thing over and over, so I think it's natural to experiment.
+- The worst advice I ever received from my dad was to play by the book.
+- The harder stuff has always done it for me. Man, if it rips, I'll give it a thumbs up!
+- When I tried to play something and screwed up, I'd hear some other note that would come into play. Then I started trying different things to find the beauty in it.
+- I was mostly influenced by bands like Black Sabbath and Judas Priest - Metallica's 'Kill 'Em All' was also a hell of an inspiration.
+- With the right outlook, you can learn to entertain yourself and entertain each other so you can enjoy doing what you're doing. There's obviously gonna be highs and lows, and the trick to it is to be able to maintain composure and stay high even when you're in the lows. That way, when you hit the highs ,it'll be twice as killer.
+- You can tune your guitar funky, and something's gonna come out. There's no secret to it - either you got it, or you don't.
+- My first killer amp was a Sunn Beta Lead. It was solid-state, but that Sunn was incredibly loud. I used to say to my friends, 'Hey, check it out. It's only on two.'
+- I do some three-part harmonies on 'Throes of Rejection' and 'Hard Lines, Sunken Cheeks,' but I didn't go overboard with it.
+- Make your heart bleed! Put your soul into that damn thing. And try new things.
+- Pantera is the only band I've ever been in, and at the start we used to play covers to make a living.
+- Of all the grunge bands to come out of Seattle, Alice in Chains were the greatest.
+- I'm into sounds, man.
+- Using string bends instead of just playing regular, unbent notes can definitely help give certain riffs a cooler, heavier edge.
+- When you're a little kid, you have nerve. I'd walk right up to whoever was recording and say, 'Hey, dude, what's the lick of the week?'
+- If you improvise a riff and the crowd immediately reacts to it, you know you're on to something.
+- I've come to find out everybody loves ol' David Allan Coe, even people like Kid Rock.
+- Man, that first Leppard album really jams, and their original guitarist, Pete Willis, was a great player.
+- It kills me when I see some metal band trying to pass themselves off as an 'alternative band.'
+- I'm not gonna say it's all done, 'cause it ain't ever all done.
+- I would just listen to records and learn what I could, then just roll it over and over and over.
+- To me, a sure-fire way to get in a rut is by sitting around playing by yourself for too long. You've gotta get out there and jam, man! You don't have to necessarily be in a band, all you've gotta have are a couple of buds who play too. They don't have to be guitarists either; jamming with a bassist or a drummer is cool.
+- Some of my favorite harmonics are located between frets. There are two really cool ones between the 2nd and 3rd frets that I use a lot.
+- Sometimes it's cool to play major third and minor third diads back-to-back, or a minor third followed by a root/fifth diad - whatever combo sounds good.
+- Always have a collection of your favorite CDs with you.
+- I'll sleep anywhere!
+- Learn licks and songs from records.
+- I'm a spazzer, you know?
+- Each track has to be precise, and that is a problem on a rhythmically complex track like 'Slaughtered.'
+- Washburn built me the guitar that changed my life.
+- I've become more interested in creating a band sound than trying to outshine the other guys.
+- Man, don't get me started on Pat Travers. That dude writes killer blues rock and roll riffs.
+- I've tried to force a solo before, but sometimes it's like, 'That thing don't really fit, man!'
+- I love 'Dogman' by King's X and Living Colour's 'Stain.'
+- When I first started experimenting with harmonics, I'd sometimes hook up two distortion boxes just to get my strings 'frying,' which helped bring out the harmonics.
+- I was lucky enough to get to see guys like Bugs Henderson, Jimmy Wallace, all those great Texas blues players.
+- Way before we got a record deal, we were playing clubs seven nights a week, three one-hour sets a night. Then we got the record deal, and we took off on the road and stayed out.
+- Every song is different.
+- The most common power chord in metal is the root/fifth, but root/third diads are also worth checking out.
+- Towards the end with Pantera - although I was never unhappy with the music we were making - it became one-dimensional, and we wanted to open things back up.
+- I'm still the same cat I always was.
+- I really respect Zakk Wylde's guitar playing and his compulsive work ethic.
+- If you wanna get out of a rut bad enough, it'll always happen. It's up to you, though. No one else is ever gonna do it for you.
+- I'm not a super blues player, but I was exposed to the Texas blues sound while I was growing up, and that definitely rubbed off on me.
+- I'm into the whole song-as-a-piece-of-music thing: if it literally doesn't call for it, if it already has enough stuff going on, then it's okay not to play a solo.
+- Music drives you. It wakes you up, it gets you pumping. And, at the end of the day, the correct tune will chill you down.
+- I got food poisoning in Venezuela, and it sucked!
+- To get my sound in the studio, I double guitar tracks, and when it gets to the lead parts, the rhythm drops out, just like it's live. I'm very conscious of that.
+- I used to skip school and paint my face with Ace Frehley Kiss make-up.
+- The easiest place to get a natural harmonic on any string is at the 12th fret. All you do is lightly rest one of your left-hand fingers on a string directly above that fret and then pick it.
+- To me and my band, guitar riffs are what it's all about. We know that every time we jam on a great riff, we've got a fighting chance of writing a great song!

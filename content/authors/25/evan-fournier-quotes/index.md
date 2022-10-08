@@ -1,0 +1,106 @@
++++
+author = "Evan Fournier"
+title = "Evan Fournier Quotes"
+quotes_len = "100"
+description = "the best 100 Evan Fournier Quotes"
++++
+- I feel like that's one of my problems; I feel like I'm not consistent enough.
+- Playing for your country is special, especially in the World Cup.
+- I know who I am and know what I'm capable of doing.
+- I was born and raised in Paris.
+- I'm probably going to be more of a vocal leader, which is a challenge for me with English not being my natural language.
+- Denver will always be in my heart. It was my first city in America.
+- Closing games out in this league is hard. You have a lot of good players that you are facing, and fourth quarters are tough to handle because teams are going to make their run.
+- Since Day 1, I wanted to be in the best league.
+- Pressure is nothing to me.
+- I always try to stay in the moment. Never too high, never too low.
+- As a player it's always fun to play with young guys.
+- That's big to be able to speak another language on the court.
+- When you have so much pressure with basketball and the results in the NBA, to just go home and have a dog that loves you regardless of how well you played, it's great.
+- As an assistant coach, that's basically your role - to get close to your players, talk to them every day and get the most out of them.
+- There's no doubt in my mind. I think defensively, the number one thing is knowing the job and to compete.
+- When you have an open shot, it's an open shot and it's not about your role or the offense.
+- I watch the game. I can feel the game. I don't need to be finessed.
+- I was just focused on winning games for the Magic. I was just trying to play at a very high level, just trying to block out all the noise. I had some good games.
+- The best thing about my game is I'm able to do a lot of things. I can handle. I can pass. You can bring me off screens and pin-downs.
+- I did a television commercial when I was 12 back home with Diaw. I have known him a long time. We are very close.
+- Road trips are where you really build chemistry, spend a lot of time together and go to restaurants together.
+- It just feels good to talk to the coaches and know what they're expecting so I can get better and just be happy.
+- I'm not going to ask for a trade, because when I play for a city, I'm going to fight for it and I'm not going to quit.
+- I need to be the best player I can, score and play defense.
+- I'm just trying to get better day by day, year after year and try to give everything I have.
+- Growing up, my first interview when I was 14, I said, 'Yeah, I'm going to play in the NBA.' Everybody was like, 'Who is this kid? He is cocky.'
+- I have to keep working, keep getting stronger, keep shooting - every day, every day, to get better. That's how great players become great players.
+- Basically, I owe my parents everything.
+- Consistency is key.
+- I had to earn everything. So to have an opportunity to be a primary perimeter option on the offense is really something that I really enjoy.
+- I'm an only child and I'm the whole focus of the family. Basically, I'm proud that I'm making them proud.
+- Both of my parents were judo fighters from the national team. So I've always been around fighters my whole childhood.
+- I now realize that people in Paris are a little rude. In Denver, there were a lot of friendly people.
+- In judo, you get your arm broke. You get choked. You can tear your ACL.
+- When your mind is not right you're obviously not going to play good.
+- The thing is I'm with Nike and I don't want to wear any other player's shoe. No Giannis or LeBron - I'm not going to wear those, and it narrows what you can wear. But with the Kobe's, who cares because Kobe is Kobe. You can wear his shoe because it's Kobe. They look great, the feel great and it represents something.
+- I enjoy winning. I just think it's just how I was brought up from a fighters' family.
+- I like to handle the ball in the pick-and-roll.
+- Historically I've been really good in fourth quarters actually.
+- After every good win, you build momentum and confidence.
+- You can't waste energy or spend energy on things you can't control.
+- Nobody dreams of being on the bench or sitting in the corner.
+- Every team makes moves during the summer.
+- I'm comfortable with the ball in my hands and I try to make the right play.
+- My first NBA game was in Paris. It was Miami against the Nets, and Vince Carter was playing.
+- I'm trying to make the right play. Sometimes, I'm going to take contested shots and stuff, but it happens.
+- Obviously, as a player you want to win.
+- It feels great to be on the court. I'm not going to lie.
+- I have confidence in my work.
+- I just have always been ambitious.
+- If you're French, you definitely have to respect Tony Parker for what he did.
+- If I'm on the court, I can play.
+- It's not fun when you wake up in the morning and you see on the standings that you're in the last five positions.
+- When you know you're gonna have the opportunity to shoot the ball, because the coach draws up the play at the timeout, boom instantly you think about the play, you kind of like block away everything, and you think about the play and you kind of visualize yourself making the shot that you're gonna take.
+- I think I'm a good defender, for sure.
+- I'm very attached to Denver. I really love this city. Denver will always be special.
+- Preseason is preseason. It's actually made to make mistakes and to learn from your teammates and plays and stuff.
+- I'm a fighter and I'm definitely not a quitter.
+- That's basically what my parents taught me throughout my childhood, being intense and consistent. In my opinion, those are the hardest things to do in the NBA.
+- Obviously nobody takes preseason lightly. But there's not the same intensity, there's not the same focus.
+- I don't want to be a mediocre player or average.
+- Regardless of what's going on, I've just got to make the right play.
+- Being on the sidelines is no fun for me.
+- The Garden is my favorite arena.
+- I grew up with champions around me, so I knew what it was like to be ambitious and to work very hard.
+- I've seen my dad practice and, trust me, when you are 6 years old and you see that, it stays with you. My dad was a coach who taught the judo fighters and they would be throwing up because they would be so tired from working.
+- I think my English is pretty good, but speaking without thinking about what you are saying, you know, it's just different.
+- When you step on the court, you obviously think about basketball.
+- I don't really like the word 'dream' because that makes it seem like it's something that's never going to happen. Playing in the NBA, since Day 1, it's something that I've wanted to do and I'm realizing all my goals now.
+- I'm afraid of bees.
+- Basketball is huge in France, but not as big as soccer.
+- When I started playing basketball, it's about winning championships and being a great player.
+- I consider myself a guy that competes really hard, so I'm not concerned about the defense at all.
+- I like responsibilities.
+- In Denver, I was more of a stationary shooter for some reason.
+- The mentality that I have now comes from my parents, both of whom were judo fighters and they were very competitive.
+- Balto' was one of my favorite movies. Balto is the Disney character that's like half-dog, half-wolf. There's a statue of Balto in Central Park.
+- I play to win games, first of all.
+- I wish I could be as consistent as I am during my great games every night.
+- My mom told me that she dislocated her fingers three times. And my dad: four times.
+- I never wanted to stay overseas.
+- Basketball is a game; you don't have to be nervous.
+- I don't need soft talk. I'm not an old player, but a veteran. It's OK, my feelings won't get hurt.
+- You get hit a lot of times. With 82 games, it's hard. I want to be stronger so I can take the contact better.
+- I've been around a lot of coaches.
+- I really started from the bottom. When I got drafted, I was not playing. I had to work my way up. Then I got traded, came off the bench, then became a starter.
+- Once the season starts you start to get into a rhythm.
+- You get confidence with winning, but you win with confidence.
+- The wolf is my favorite animal.
+- That's what really motivates me, being great.
+- England is not really a basketball country.
+- I enjoy battling, and I enjoy competing.
+- If you're fighting someone, you're just not scared of too much.
+- I'm from Europe. Obviously, nobody knows what I was doing over there. So I can understand how people were kind of nervous about me. But I always felt like I was going to be an NBA player.
+- The thing that I focus on is giving all that I have every day and then if I become a great player, then great.
+- My parents are both professional athletes, so I always grew up in an ambitious way and I worked hard.
+- I'm a very dedicated guy.
+- I'm not someone who thinks ahead. I stay in the moment, or just try to.
+- If you are feeling pressure, it should be before you get a contract and not after it.
+- I want to play well. When I don't, I have to do better. I always try to look at myself first and how I can do things to get better and be out there.

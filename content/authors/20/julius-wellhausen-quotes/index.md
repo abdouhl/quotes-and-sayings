@@ -1,0 +1,24 @@
++++
+author = "Julius Wellhausen"
+title = "Julius Wellhausen Quotes"
+quotes_len = "18"
+description = "the best 18 Julius Wellhausen Quotes"
++++
+- It is only in the case of the Priestly Code that opinions differ widely; for it tries hard to imitate the costume of the Mosaic period, and, with whatever success, to disguise its own.
+- From the building of the temple of Solomon, which is also treated as a leading epoch in chronology, a new period in the history of worship is accordingly dated, - and to a certain extent with justice.
+- The stone which Jacob consecrated at Bethel the generation of the living continues to anoint, paying the tithes which of old he vowed to the house of God there.
+- To my thinking, this: - that the Priestly Code rests upon the result which is only the aim of Deuteronomy.
+- As we learn from the New Testament, the Jews and the Samaritans in the days of Jesus were not agreed on the question which was the proper place of worship, but that there could be only one was taken to be as certain as the unity of God Himself.
+- Until the building of Solomon's temple the unity of worship according to it had, properly speaking, never had any existence; and, moreover, it is easy to read between the lines that even after that date it was more a pious wish than a practical demand.
+- A judgment pronounced in accordance with the facts can therefore assign to it an historical place only within that movement of reformation which was brought to a victorious issue by King Josiah.
+- Jeremiah has to lament that there are as many altars as towns in Judah.
+- Solomon's temple also was designed to increase the attractiveness of the city of his residence.
+- The representation of the tabernacle arose out of the temple of Solomon as its root, in dependence on the sacred ark, for which there is early testimony, and which in the time of David, and also before it, was sheltered by a tent.
+- All writers of the Chaldaean period associate monotheism in the closest way with unity of worship.
+- It appears a bold thing to say so when one sees how much many a modern author who knows how to make a skilful use of the Book of Chronicles has to tell about the tabernacle.
+- The revision of the books of Judges, Samuel, and Kings, undertaken towards the end of the Babylonian exile, a revision much more thorough than is commonly assumed, condemns as heretical the whole age of the Kings.
+- One other fact is significant: the domestic feasts and sacrifices of single families, which in David's time must still have been general, gradually declined and lost their importance as social circles widened and life became more public.
+- For the earliest period of the history of Israel, all that precedes the building of the temple, not a trace can be found of any sanctuary of exclusive legitimacy.
+- The Priestly Code preponderates over the rest of the legislation in force, as well as in bulk; in all matters of primary importance it is the normal and final authority.
+- And finally, it was Deuteronomy that brought about the historical result of Josiah's reformation.
+- The Law is never weary of again and again repeating its injunction of local unity of worship.

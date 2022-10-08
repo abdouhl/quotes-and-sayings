@@ -1,0 +1,46 @@
++++
+author = "Jose Rizal"
+title = "Jose Rizal Quotes"
+quotes_len = "40"
+description = "the best 40 Jose Rizal Quotes"
++++
+- The youth is the hope of our future.
+- My countrymen, I have given proofs that I am one most anxious for liberties for our country, and I am still desirous of them. But I place as a prior condition the education of the people, that by means of instruction and industry our country may have an individuality of its own and make itself worthy of these liberties.
+- As God has not made anything useless in this world, as all beings fulfill obligations or a role in the sublime drama of Creation, I cannot exempt from this duty, and small though it be, I too have a mission to fill, as for example: alleviating the sufferings of my fellowmen.
+- Necessity is the most powerful divinity the world knows, and necessity is the resultant of physical forces set in operation by ethical forces.
+- Since it is necessary to grant six million Filipinos their rights, so that they may be in fact Spaniards, let the government grant these rights freely and spontaneously, without damaging reservations, without irritating mistrust.
+- Orientals, and the Malays in particular, are a sensitive people: delicacy of sentiment is predominant with them.
+- I have recommended in my writings the study of civic virtues, without which there is no redemption. I have written likewise (and repeat my words) that reforms, to be beneficial, must come from above, that those which come from below are irregularly gained and uncertain.
+- History does not record in its annals any lasting domination exercised by one people over another, of different race, of diverse usages and customs, of opposite and divergent ideals. One of the two had to yield and succumb.
+- The Spaniard is gallant and patriotic, and sacrifices everything, in favorable moments, for his country's good. He has the intrepidity of his bull.
+- If the Philippines secure their independence after heroic and stubborn conflicts, they can rest assured that neither England, nor Germany, nor France, and still less Holland, will dare to take up what Spain has been unable to hold.
+- I do not write for this generation. I am writing for other ages. If this could read me, they would burn my books, the work of my whole life. On the other hand, the generation which interprets these writings will be an educated generation; they will understand me and say: 'Not all were asleep in the nighttime of our grandparents.'
+- China will consider herself fortunate if she succeeds in keeping herself intact and is not dismembered or partitioned among the European powers that are colonizing the continent of Asia.
+- When there is in nature no fixed condition, how much less must there be in the life of a people, beings endowed with mobility and movement!
+- There can be no tyrants where there are no slaves.
+- Wealth brings with it refinement, the spirit of conservation, while poverty inspires adventurous ideas, the desire to change things, and has little care for life.
+- Experience has everywhere shown us, and especially in the Philippines, that the classes which are better off have always been addicted to peace and order because they live comparatively better and may be the losers in civil disturbances.
+- One only dies once, and if one does not die well, a good opportunity is lost and will not present itself again.
+- Justice is the foremost virtue of the civilizing races. It subdues the barbarous nations, while injustice arouses the weakest.
+- My mother is not a woman of ordinary culture. She knows literature and speaks Spanish better than I do. She even corrected my poems and gave me advice when I was studying rhetoric.
+- If the Philippines must remain under the control of Spain, they will necessarily have to be transformed in a political sense, for the course of their history and the needs of their inhabitants so require.
+- Perhaps the great American Republic, whose interests lie in the Pacific and who has no hand in the spoliation of Africa, may someday dream of foreign possession.
+- We young Filipinos are trying to make over a nation and must not halt in our march, but from time to time turn our gaze upon our elders. We shall wish to read in their countenances approval of our actions.
+- There now exists a factor which was formerly lacking - the spirit of the nation has been aroused, and a common misfortune, a common debasement, has united all the inhabitants of the Islands.
+- The Philippine races, like all the Malays, do not succumb before the foreigner, like the Australians, the Polynesians and the Indians of the New World.
+- The people no longer has confidence in its former protectors, now its exploiters and executioners. The masks have fallen.
+- While a people preserves its language; it preserves the marks of liberty.
+- It is a useless life that is not consecrated to a great ideal. It is like a stone wasted on the field without becoming a part of any edifice.
+- The batteries are gradually becoming charged, and if the prudence of the government does not provide an outlet for the currents that are accumulating, some day the spark will be generated.
+- Of what use are all the codes in the world, if by means of confidential reports, if for trifling reasons, if through anonymous traitors any honest citizen may be exiled or banished without a hearing, without a trial?
+- The government that governs from afar absolutely requires that the truth and the facts reach its knowledge by every possible channel, so that it may weigh and estimate them better, and this need increases when a country like the Philippines is concerned, where the inhabitants speak and complain in a language unknown to the authorities.
+- Spain, must we some day tell Filipinas that thou hast no ear for her woes and that if she wishes to be saved she must redeem herself?
+- The Filipino embraces civilization and lives and thrives in every clime, in contact with every people.
+- Routine is a declivity down which many governments slide, and routine says that freedom of the press is dangerous.
+- I may be what my enemies desire me to be, yet never an accusation are they able to hurl against me which makes me blush or lower my forehead; and I hope that God will be merciful enough with me, to prevent me from committing one of those faults which would involve my family.
+- He who does not love his own language is worse than an animal and smelly fish.
+- He who does not know how to look back at where he came from will never get to his destination.
+- To doubt God is to doubt one's own conscience, and in consequence, it would be to doubt everything; and then what is life for?
+- No one ceases to be a man, no one forfeits his rights to civilization merely by being more or less uncultured, and since the Filipino is regarded as a fit citizen when he is asked to pay taxes or shed his blood to defend the fatherland, why must this fitness be denied him when the question arises of granting him some right?
+- The divine flame of thought is inextinguishable in the Filipino people, and somehow or other it will shine forth and compel recognition. It is impossible to brutalize the inhabitants of the Philippines!
+- It is probable that England will look favorably upon the independence of the Philippines, for it will open their ports to her and afford greater freedom to her commerce.

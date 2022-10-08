@@ -1,0 +1,106 @@
++++
+author = "Shoojit Sircar"
+title = "Shoojit Sircar Quotes"
+quotes_len = "100"
+description = "the best 100 Shoojit Sircar Quotes"
++++
+- I lived in the south near Tughlaqabad. My father was in the Air Force station. I used to go to Tughlaqabad Fort, and there's a huge city park there a big city forest, near the ruins. They were so beautiful. So I have been to those parks.
+- All my stories are mainly slice-of-life and rooted to real issues and situations that I have experienced myself.
+- The first thing I control is the cost by not shooting for many days. It is not control, but somebody has to drive the whole thing. If I shoot unnecessary things, it will raise cost.
+- Enough of the formulaic stuff. I am not saying pot-boilers are going to stop coming, but there should be other quality-centric films to off-set them, to maintain a steady balance.
+- If I bother about the expectations how will I make a film?
+- I think actors do need some hand holding to know what they are doing.
+- When I made 'Vicky Donor,' people said it's not a family drama, it is for youngsters. But families also went and watched the film. Same happened with 'Piku' and 'October.'
+- Once the censorship board clears a film, there should not be any other obstacle for a film's theatrical run.
+- I hardly watch commercial films but I have nothing against them.
+- I am really influenced by normal, simple, everyday life and people, like the Biji and Dolly in 'Vicky Donor,' who used to drink and say whatever they felt like. These characters were so lively. I have seen these people around me.
+- My films are always a struggle to make and will remain so.
+- Actually the writer is the most important part of the filmmaking process. That's why I never hesitate in giving credit to a writer which I don't think even Hollywood does.
+- I never try and send messages through my feature films; it's always naturally woven in and comes through on its own, as that's the way I think about society.
+- Both 'Gulabo Sitabo' and 'Udham Singh' are cinematic experiences; nothing is less, nothing is more. It's all about creating good cinema.
+- My films are based on themes, so I always go for theme tracks and background score.
+- I am lucky that I am surviving in the industry despite the kind of films I have made, which are absolutely unconventional.
+- My films, sometimes, have my own reflections of life. They have life lessons I've had that I put across in a humorous or satirical way.
+- My dad was suffering with cancer for six years and my mum was in coma for three-and-a-half months. So, I have seen the hospital life.
+- When I shoot a film, I take my camera and put it among the characters and let it show you their world, their problems, their happiness and the little things that matter to them.
+- I never thought a film about a sperm donor could work with audiences in India, but it did.
+- In a satire, you need foolishness.
+- For me, 'Gulabo Sitabo' is a satire... I wanted to do satire and I think it's turned out exactly how I wanted it to be.
+- Slice of life comedy is something which I enjoy more. These moments make you smile when you think about them. And these moments work for a film as well, rather than slapstick comedy.
+- Women have initiated the change all by themselves. The credit goes to them. Men have had no role to play in the rise in women's representation on a film set.
+- I don't spend unnecessarily. The problem with the industry is we don't budget our films. Plus, we spend bizarre amounts on marketing. If you have a good film and a good trailer, you don't need to spend so much.
+- I stopped caring about industry rules after my 'Shoebite' did not release.
+- When I got to Mumbai, I missed the Delhi parks and grounds.
+- I decided that I have certain taste in cinema and I will take it forward. I know there is an audience for such cinema.
+- It doesn't matter even if I am slow or fast as long as my films are honest and carries my integrity.
+- You can understand the integrity of the filmmaker from his camera angles. You can't hide anything from it.
+- Delhi is not just India Gate and Lal Qila, its way beyond that. There are a lot of things that's Delhi, which only a Dilliwalla can understand.
+- The word 'cinema' itself means that you have to go to the cinemas and watch it.
+- Cinema leaves a deep impact on the society. As creative people and entertainment film-makers, we have to be responsible at some point as we are also the conscious citizens of this country.
+- Patriarchy is so ingrained in our psyche, that most us propagate it in small ways even without realizing.
+- Lucknow is a bustling city with warm, friendly people. 'Gulabo Sitabo' is the essence of this city.
+- Foremost is the casting; you need convincing faces. Most of our films suffer from casting.
+- 'Piku' is not at all a film in the Bollywood kind of way.
+- In my films writers are more important than actors.
+- A mother does a thankless job; they take care of their children unconditionally.
+- A lot of expectations come from a Shoojit Sircar film, especially after 'Piku.'
+- 'Vicky Donor' is now seen as a case study and the intelligentsias are looking at it from a strong academic point of view. I keep getting calls from medical practitioners who constantly thank me for making this film.
+- My set is an open forum. Anybody can comment on anything and I take all suggestions from everyone. I am not rigid. If someone convinces me, I take the suggestion.
+- 'Madras Cafe' is set against the backdrop of the civil war in Sri Lanka in the 1990s.
+- Documentary films have always been my passion, I have done documentaries.
+- Humor is a very personal, subjective thing.
+- I had a personal experience of my mum being in comatose state in 2004. I would go to the hospital every day but would not do anything. I would just meet the doctor for five minutes who would update me about her.
+- Any fictional story will take things from real events.
+- I remember watching an Iranian film, 'A Separation.' When the film ended, I felt like going to Iran, getting that family together, hug them and just being with them.
+- My major influence is Satyajit Ray; his film 'Shatranj ke Khilari' was set in Awadh and it gave us memorable characters. Ray's musical scores and soundtracks were an intrinsic part of his films. And music to me is important, too.
+- I've done a lot of ad films where an idea can be translated in 30 or 40 seconds. But in a movie, an idea needs to be stretched for two hours, and requires you to draw a bit from your experiences in life.
+- It is easier to make a film but difficult to make it on your own terms. In that sense 'Madras Cafe' was a very satisfying experience.
+- Women have shown their skills and that's why they have been accepted in the industry. It's through their skill that they have managed to make a mark for themselves and also earned respect.
+- It is difficult to make movies on your own terms and also to make a film and convince somebody to have faith in it.
+- I remember I used to play football in my childhood and my team had people from different faiths and backgrounds. It had the son of the person who would take us to the school on his rickshaw or the guy who came to pick up our garbage but I never knew this.
+- For all my films, location plays an important role because I like to give the authentic look of the place. And for that, one must go there and shoot at the right spots.
+- Normally my films have a single thread of an emotion, an insight or one single belief, and then I turn the entire story and build it around that.
+- I have lived in South Delhi amidst greenery.
+- Men have realized that when it comes to the workplace, both the sexes have equal stake because jobs are given based on talent and skill.
+- Human beings have become so insensitive to daily life, they don't remember what happened five minutes back.
+- I have been thinking of many subjects to work around football, but nothing has inspired me. 'Sports' is a good subject. But, nothing has inspired me to make a film.
+- I have seen many festival films and I will be blunt, I don't think 'Madras Cafe' was ready for festivals.
+- I am thankful for the fact that the audience doesn't expect common, run-of-the-mill films from me. But the fact of the matter is that if the subject doesn't hit me hard enough, I will not do it.
+- We make films because cinemas exhibit it, and they exhibit as we make films.
+- Making a film on Mary Kom means that people should be watching it across the globe; it should be that level.
+- Amitabh Bachchan is an intelligent actor.
+- I am mostly at home and I do my housework, I read and I love watching documentaries. In short, I love staying at home.
+- Whatever subject I choose, I do a PhD in it.
+- The unparalleled love of a mother is always there for the kids, specially when they're growing up and about to leave the family and go away.
+- Yes, I can be rigid and adamant about a point of view.
+- I purposely adopted a style in my storytelling wherein I don't have to explain everything or why the story is moving in a particular way.
+- I call it an ensemble cast or the world of 'Gulabo Sitabo' which is about the lifestyle of my characters. I just go and sit there in a corner and observe these characters through my camera. That's how I shot the film.
+- I don't watch films that are too unreal.
+- I am happy that I am back and with a great project like 'Vicky Donor.' I have had a hard time in the past with 'Johnny Mastana' getting stuck but I hope this film brings positiveness into my life.
+- 'Gulabo Sitabo' is a simple satire on life. It's a genre I have tried for the first time.
+- As men, we can never fully understand the experience women go through.
+- My first visit to Lucknow was perhaps in 1995-96. I was then working with theatre director Ranjit Kapur on the production of 'Court Martial' and we travelled to Lucknow on assignment.
+- I try not to shoot unnecessarily or spend on extra expenses that normally happen on a film set - like actors' fees.
+- I have been working on one film at a time. One film recovers a little cost and that helps me move on to the next one.
+- My films are completely offbeat.
+- If I had used real names, I don't think 'Madras Cafe' would have ever seen the light of day because it was a political film, an adaptation of a true incident.
+- It is very difficult to make films like 'Madras Cafe' in India, given the diverse nature of the country.
+- No one is bigger than cinema.
+- It is very difficult to explain poetry. You have to understand the poetry and figure out your own take and your relatability.
+- There is no definition to love. It is a feeling.
+- Even 'Piku' was quite an experiment in terms of storytelling because on the surface nothing happens in the film. If you ask me what was the film about, it was about father-daughter fighting and the narrative captured their daily life.
+- I never got interested in musicals.
+- Love is not just defined by making love or kisses or gifts. It is beyond that.
+- When you're not working, it does affect you. It destroys you if your film doesn't release.
+- I think Mary Kom should be an international star.
+- I think as the largest democracy in the world, we have self-conscious filmmakers who can handle sensitive themes.
+- If I am not able to go to theaters confidently and watch a film then I don't expect people to watch my film also.
+- Lucknow's architecture is a part of life in the city.
+- 'Gulabo Sitabo' is the biggest release for me. The film is going to 203 countries simultaneously and it is successfully being subtitled in 20 languages including Portuguese, German, Spanish, Russian, French and many more.
+- I love to do subjects that are very common, relatable.
+- I have worked with Amitabh Bachchan in 'Pink' and 'Piku.' As soon as one film gets over, he is behind me, asking 'Which is the next film you are going to do with me?'
+- When a film is made, its release is decided by its destiny. Nothing is bigger than that, not even me.
+- All my films were based on sensitive issues, and they were passed without any problems. I give full credit to the Censor Board for being capable enough to do their work well.
+- For me, it took a little time to understand the nitty-gritties of Lucknow.
+- I can't speak for other people but the budget of my films is super tight to an extent that people can't even imagine.
+- Cinema will not go anywhere. We want to watch movies in theaters. Cinema and digital will coexist.

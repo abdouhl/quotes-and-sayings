@@ -1,0 +1,39 @@
++++
+author = "Oren Peli"
+title = "Oren Peli Quotes"
+quotes_len = "33"
+description = "the best 33 Oren Peli Quotes"
++++
+- The less people know about 'Paranormal Activity,' the more they enjoy it.
+- It's always about finding the right balance between answering some questions and raising new ones to keep your story going.
+- I do not buy CDs any more; I usually stream Internet radio. For movies, I hardly every buy any DVDS. I have a DVR, so just record things off HBO, Showtime and so on.
+- I've never owned an Apple product. I like the fact that PCs are open architecture and not locked down like Apple products. I feel that Macs are also unjustifiably overpriced.
+- Not knowing the thing that's chasing you is a lot scarier than seeing it right in front of you.
+- Almost any movie, no matter how original, is borrowing from some other movies.
+- On 'Paranormal Activity,' it worked to my advantage not to have much of a crew, but on a bigger movie, where you have to work with a larger group of people who basically become your second family for a few months, it can be a great experience. Even though all of my projects are small scale compared to most Hollywood productions.
+- I believe that whenever I want to learn something I can learn it much better and faster by myself if I'm motivated to learn it as opposed to kind of doing it in more a standard, institutionalized way.
+- After I watched 'The Exorcist' I refused to watch any other movie that had anything to do with ghosts or demons. I didn't even watch 'Ghostbusters' until I was much older.
+- I feel like when you do things with such a small budget, it actually makes you be more creative... and allows you to concentrate more on the story and the characters. I think that there is something about dirty, gritty and raw filmmaking that makes it feel a little more natural and makes it easier to connect with the action.
+- I'm pretty content with what I have, but the one thing that I don't have is something like the iPod - but PC-based. I think that would be cool.
+- Don't know if I'm a nerd - I'm more of a geek.
+- One of the advantages of this found footage format is that you can have deliberately badly composed frames. Here we can put a camera in the weirdest angle and it kind of throws you off. You never know what you are supposed to be paying attention to. It's deliberate chaos.
+- Even if you look at the 'Paranormal Activity' movies, at the end of the movie things get really crazy and nutty, but they all start in a very mundane situation that people can relate to, and that's also to some degree what we tried to do in 'Chernobyl Diaries.'
+- The thing that scares me is a place like the Amazon - which is the size of the continental U.S. and mostly unexplored and has a different ecosystem, there are so many things in there that can kill you.
+- I've always had better luck learning things on my own. And I really love the challenge of doing it yourself and kind of being alone against the system.
+- The thing I find really scary about ghosts and demons is that you don't really know what they are or where they are. They're not very well understood. You don't know what they want from you. So it's the kind of thing you don't even know how to defend yourself against. Anything that's unknown and mysterious is very scary.
+- I'm just considering myself extremely lucky. All I wanted is to have 'Paranormal Activity' be released and become successful. And everything that's happened since then is just an enormous bonus.
+- In many cases your imagination is much more effective than what can be shown. It primes you to know something is about to happen - the anticipation and anxiety is worse than what ends up happening.
+- I think the tricky balance, the most important thing more than the horror is to have a compelling story, compelling drama, a show about great characters that you care about and you want to come back every week to see what they're up to.
+- I've been having a lot of fun exploring different aspects of filmmaking, like writing and producing. There isn't a specific plan and I usually don't know what's going to be the next thing I do.
+- There is so much misinformation out there. If you give people even a little bit, it gets blown out of proportion then you have to go put out fires. So it's much easier to say, 'No comment.'
+- The most pressure I felt was for the first 'Paranormal Activity,' because when it was released, whether it was going to be a hit or not, I knew it was going to be a life-altering event for me.
+- Our lives are pretty calm. Merging on the freeway in the closest you get to risking your life. So what's missing now is that primal emotion of being scared to death, and I think that's why people crave thrills like roller coasters or scary movies. They give you the chance to feel this very primal emotion in a very controlled environment.
+- I don't know if I would say that I'm specifically a history buff. I do find a lot of things fascinating, especially anything that's bizarre or mysterious and unknown and we don't have all the answers for.
+- 'Paranormal Activity' was a unique project in that I made it basically on my own, with a little help, and I had no exposure to the filmmaking world when I made it.
+- For a found-footage-style movie, there's a definite advantage in using unknowns, because it helps sell the illusion that it's real. A known actor would get in the way of the suspension of disbelief.
+- I think the traditional explanation is that demons just find someone, they pick on them and try to break down their spirit so they can... take control of their bodies. Why exactly? I don't know.
+- By trade, I am a software programmer, so I never really had any experience with movies before. I started out with 'Paranormal Activity.'
+- Gory stuff can be shocking but it doesn't really scare me. I'd say the kind of stuff that gets under my skin is the unknown. You hear a knock behind a wall and you don't know what it is. Is there something there or not?
+- I think that horror, in general, is fairly popular. It's definitely popular in film. There's just not a lot of good horror on TV, so whenever there is good horror on TV, people rush to it.
+- Even when I was making the first 'Paranormal Activity,' I didn't tell anyone I was making it, not my friends or neighbors or co-workers. I just kind of found that there was nothing to gain by announcing to the world that you're doing something.
+- I pay a lot of attention to box office because I understand it. TV ratings? I don't know how to interpret them, since I'm new to TV, so I'm just going to wait for somebody to tell me.

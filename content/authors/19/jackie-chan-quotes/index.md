@@ -1,0 +1,109 @@
++++
+author = "Jackie Chan"
+title = "Jackie Chan Quotes"
+quotes_len = "103"
+description = "the best 103 Jackie Chan Quotes"
++++
+- I went by myself to Hollywood, I spoke no English, every day I had to go to school.
+- I'm crazy, but I'm not too crazy.
+- I want to try something different in Hollywood, to tell the audience I am not just an actor star - I am an actor, too.
+- In the past when I was in Hollywood, I was like a dog. I felt humiliated. My English was not good. People would even ask me 'Jackie Who?'.
+- More understand China, then more people will have interest in China and more people will come to China to visit us because I am a tourist ambassador.
+- I like to give back.
+- I give the children education.
+- I know I have a responsibility to the fans.
+- For me the greatest source of income is still movies. Nothing - stocks, financial speculation, real estate speculation or businesses - makes more money for me than making movies.
+- Coffee is a language in itself.
+- Why did I become Jackie Chan? Mostly because I work very hard. When people were sleeping, I was still training.
+- I feel like I have lived all over the world since I get to go everywhere to film.
+- I have a metal plate in my head, and can pop my shoulder and pop it back.
+- I want to be an Asian Robert De Niro.
+- Speaking English is like tongue-twist for me. I can speak each word perfect, but then you have to string them together like, 'Blah, blah, blah.' That's when I get crazy.
+- When I make a film - I direct my own film, I write my own script - that's what I want to hear from the audience. 'Oh, thank you, Jackie!'
+- Jackie Chan is a myth.
+- If everyone does some good, think of what a good world this will be.
+- I'm afraid to fail again.
+- One day, I want to make a PG film.
+- I'm crazy, but I'm not stupid.
+- My affection for Taiwan... is witnessed by everyone. My wife is Taiwanese and I am a son-in-law of Taiwan. I am half Taiwanese.
+- I want to show audiences I can act.
+- I just want people to remember me like I remember Buster Keaton. When they talk about Buster Keaton or Gene Kelly, people say, 'Ah yes, they good.' Maybe one day, they remember Jackie Chan that way.
+- I've seen too many ups and downs in the movie industry.
+- My dream is to continue filming until my body tells me to stop.
+- Since the child knew his parents would give in, he tried the same trick again and again.
+- I hate interviews - but you have to do them.
+- When I was a child, I was very poor and wanted everything. So when I got money, I began buying things.
+- As a father, I always want my son to be perfect. When he was young, I tried to train him in martial arts, but he said, 'I don't want to become like Bruce Lee's son, with everybody telling me how good my father was.' I just think my son is too lazy.
+- In every movie I do have a dialogue.
+- I love wushu a lot and I would love to see it included in future Olympic Games.
+- The kids never listen to you, especially the youngest ones.
+- Besides entertainment and action, I want to educate. You know, as a producer or director, we do have a responsibility to society.
+- Chinese people need to be controlled; otherwise, they will do whatever they want.
+- I play a nobody in Japan.
+- A lot of people ask me when I do a stunt, 'Jackie, are you scared?' Of course I'm scared. I'm not Superman.
+- If you're too free, you're like the way Hong Kong is now. It's very chaotic.
+- It is totally different making films in the East than in the West. In the East, I make my own Jackie Chan films, and it's like my family. Sometimes I pick up the camera because I choreograph all the fighting scenes, even when I'm not fighting. I don't have my own chair. I just sit on the set with everybody.
+- I know I have to run 20 more minutes if I eat ice cream. Basically, I eat everything, but I just do more training.
+- Don't try to be like Jackie. There is only one Jackie. Study computers instead.
+- Of course I get hurt.
+- You cannot mix sports with politics.
+- Money for me today does not really matter.
+- I'm gradually beginning to feel that we Chinese need to be controlled. If we're not being controlled, we'll just do what we want.
+- American stuntmen are smart - they think about safety. When they do a jump in a car, they calculate everything: the speed, the distance... But in Hong Kong, we don't know how to count. Everything we do is a guess. If you've got the guts, you do it. All of my stuntmen have gotten hurt.
+- When I was young I didn't care about education, just money and box office.
+- Cinema reflects culture and there is no harm in adapting technology, but not at the cost of losing your originality.
+- I'm not sure if it's good to have freedom or not. I'm really confused now.
+- I've choreographed all of my movies.
+- I feel that there are a few things in the world without cultural barriers.
+- I do small things. I try to do good things every day.
+- My wish is to bring my heroes to the big screen, and many of them have already appeared in my films.
+- I loved cowboy movies when I was a kid. When I was five years old, I was already wearing a cowboy hat and suit. When I grew up, I knew John Wayne, Clint Eastwood, Kirk Douglas and so on.
+- When I got depressed, I watched Bruce Lee movies. I learned everything from Bruce Lee.
+- Sometimes, I'm very embarrassed.
+- Before I do a stunt, I have to make sure it is safe.
+- I really hope someday in Hollywood, some producer or director will hire me only to do drama.
+- The life of an action star is very short. I want to be an actor like Robert De Niro, like Dustin Hoffman or Clint Eastwood who in their 70s or 80s can still act.
+- I will make action movies, I think, for a few more years, another five years.
+- I'm tired of fighting. I've always known that I can't be an action star all my life.
+- I like to change characters and then, slowly I believe the audience treat me as, like an actor who can fight. It's not like an action star.
+- I want to play a fireman and a spy. I want to learn special effects.
+- Every country when they have Olympics, a lot of people come out opposed.
+- I don't want to be an action star; action star's life is so short. I want my life to get longer. I want my career to get longer.
+- If there really is a god, then he really looks after me.
+- Actor's life is very long.
+- I love to clean.
+- I sometimes just don't like to see the Ultimate Fighting. I just find it, as a martial artist, I just find it too violent.
+- I only want my work to make people happy.
+- Being a stunt coordinator, I have to take care not only of myself but I have to make sure everyone is safe.
+- In the real world, children love me.
+- Very difficult to understand American audience, what they like, what they don't like. Some movie I like very much, it doesn't work. Some movie I don't like, it gets big box office. Very difficult.
+- I hate violence, yes I do. It's kind of a dilemma, huh?.
+- I think the family movie is very important to everybody right now.
+- The movie business is a big gamble.
+- I never wanted to be the next Bruce Lee. I just wanted to be the first Jackie Chan.
+- Do not let circumstances control you. You change your circumstances.
+- Most of the time, I'm not even working; I'm just helping people, because I feel that I am too lucky.
+- I'm not a god - I do bad things.
+- Sometimes I do need to go to karaoke, sometimes I need to relax.
+- I want to be in 'Avatar'. I want somebody to hire me to be Superman, a Chinese Superman or Spider-Man.
+- I don't want to be an action star, an action star's life is so short. I want my life to get longer, I want my career to get longer.
+- I've got a very interesting background.
+- When I'm in meetings until 5am and then have to get up two hours later for filming, sometimes I ask myself 'why?'
+- Sometimes I'd like to play the bad guy and sometimes I'd like to die in a movie.
+- I now have two different audiences. There's the one that has been watching my action films for 20 years, and the American family audience. American jokes, less fighting.
+- Now I am older, I understand we have to accept who we are.
+- Olympics for me is love, peace, united.
+- When I give somebody something and see their face, it just makes me so happy.
+- We learn martial arts as helping weakness. You never fight for people to get hurt. You're always helping people.
+- In America there's no way I can make the kind of movie I like to make.
+- I make American films for American audiences and Asian films for Asian audiences.
+- When you are learning about a martial art, it is about respect.
+- I just make good movies. That's the way I thank my fans.
+- I really like children to watch my movies.
+- The ads all call me fearless, but that's just publicity. Anyone who thinks I'm not scared out of my mind whenever I do one of my stunts is crazier than I am.
+- The world is too violent right now.
+- Every time I make American film I just trust American directors and American writers.
+- After all those years in Asia, I don't have to do promotion anymore. We just release a Jackie Chan movie and - Boom! - people go.
+- My schedule goes: wake up, running, exercise, downstairs, running shoes off, then to the shower. That's the Jackie Chan diary.
+- When I'm making an American film, it's more safe because there are so many people on the set to watch me. Whatever I do, they say, 'What are you doing!? Tell me first!' There are so many restrictions.
+- Anyone can be a Superman, but nobody can be Jackie Chan.

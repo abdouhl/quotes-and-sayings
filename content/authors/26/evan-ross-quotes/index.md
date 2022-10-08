@@ -1,0 +1,38 @@
++++
+author = "Evan Ross"
+title = "Evan Ross Quotes"
+quotes_len = "32"
+description = "the best 32 Evan Ross Quotes"
++++
+- I always loved movies, especially watching some of my mom's films when I was younger, like 'Out of Darkness,' where she played a schizophrenic.
+- When you are a rapper, there's always hesitation in taking on certain roles because of creditability, but Rza is one of those guys who doesn't worry about what people will say. He's a talented guy and can dive into anything.
+- I never really saw my mom as Diana Ross. My mom was my mom.
+- I've seen all of my mom's films. She's the reason why I do almost anything.
+- I feel like, a lot of times, when you have a specific sound that you want and are searching for, you want the right group to help you put the kind of music out that you want.
+- My father had an amazing legacy, and so does my mother. I wanted to be able to have both names there. In my personal life, it's Evan Naess. In my career life, it's Evan Ross.
+- I feel like I've been very smart in the way that I carry myself and treat myself. I feel like my mom was a big part of that just because she's always let us make our own decisions, and we've known very much about the mistakes and the dangers already of whatever this Hollywood life may be.
+- I really just want to do the best at everything I do. I just want to have all the great people around me that I feel is family, as well as my friends, and I have an amazing girlfriend. I think having love in your life is most important.
+- Bruno Mars is great.
+- A lot of times, what people see is what they hear or what's on your Instagram.
+- Acting came easy to me, I think. There's something about it that's a lot easier for me in the sense that you're playing someone else. In music, you're giving somebody 'you.' Being able to do that and being willing to share that is an entirely different thing.
+- I like 'Vanderpump Rules.' I mean, it's chaos.
+- I like being around people.
+- Go see 'ATL' to really see the whole vibe of Atlanta.
+- I still love listening to the old stuff - Marvin Gaye, Michael Jackson, you know. I stick to the old school stuff, but I love Mark Ronson. I love John Legend.
+- Courtney Cox is one of my best friends.
+- Bathrooms on the plane are so small. Where are you supposed to change a baby?
+- Kerry Washington is phenomenal.
+- Both my mother and father worked for everything that they had.
+- I've been making music for a long time, but I've been waiting to do it right, because I don't want people to think it's just a stepping stone in my career. A lot of actors go that route as a way of building their careers. I don't want it to be seen as that.
+- Me and my mom are extremely, extremely close.
+- My mom liked to have us travel in first class with her. She's like, 'I work for my money, and I want my kids to live a certain kind of way.' My dad used to get so mad at my mom for flying us first class. So it was a clash on that.
+- I have many creative outlets. I sing, I like music, I like art, I paint, I draw. I like buying art. I read a lot, too. I love books. And I'm working on a clothing line, too.
+- The one worry that I always have with TV is that it's such a long commitment. You sign on to be there for a good amount of time, and then you can't go and do films and things like that.
+- Victor Rasuk is a good friend of mine.
+- I grew up in a family where I had a lot of different siblings from - you know, I grew up in a big family, and I think it's a beautiful thing.
+- I want to be remembered for the good work that I've done, for the positive work, and as somebody who was innovative and who people enjoyed.
+- I think that when you start rolling with an entourage, you attract attention, and you tend to create this whole big thing. My mom taught me that when you keep a low profile, most people tend to totally miss you because they're not expecting anything.
+- The way I choose projects is based on what I think is most real and most interesting, not on what's paying the most money or what's most popular.
+- I think in any relationship in this industry, there's a stress on relationships. I think that's reality, but in no way do I think that if a relationship is meant to be together and a marriage is meant to be together, that anything like a show or being in this industry can change that.
+- I don't think it's possible to ruin a relationship because of anything you do. I think it's about whether or not you're supposed to be together.
+- I'm a fan of Miguel's; he's a friend of mine. I like melodic music, you know?

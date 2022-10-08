@@ -1,0 +1,105 @@
++++
+author = "David Draiman"
+title = "David Draiman Quotes"
+quotes_len = "99"
+description = "the best 99 David Draiman Quotes"
++++
+- The Internet, sadly, has become a preying ground for trolls and just predators. And when you're in the position that I'm in, and you have a wife and a child who had just come into this world not too long ago, you start wondering whether or not that continued interaction and some of the threats and some of the nonsense are worth it.
+- I had a motorcycle accident, and I had my garage burn down with most of my vehicles. And I've had really bad relationships that I've been in and out of. They've left their mark.
+- To be perfectly honest with you, I think that The Darkness is a joke, and that's, unfortunately, exactly what the world wants.
+- We had a master sergeant present us with the Bronze Star of Valor he had gotten because he had felt we were the eighth men of the platoon.
+- I just wanted to do the things that all normal teenagers wanted to do. So I did become quite rebellious.
+- People who are divided are easier to control.
+- I formed my first band when I was going to Valley Torah High School in Los Angeles.
+- What makes you a rock star is what are you able to do when you get behind that microphone, when you put that guitar in your hands, when you wield those drumsticks, and when you raise your hand in front of twenty thousand people: do they respond? That's being a rock star.
+- When you record and tour year after year without a break, it starts to feel like you're on an assembly line.
+- I despise lackadaisical behavior when it comes to our music. I mean, this is heavy metal music. You must be involved. You're required to be involved.
+- I'm lucky that I've been able to do things in my career that is affording us the luxury of not having to travel in a van to tour.
+- Individuality is a personal thing. It's based on your own personal feelings and expression of self. So, really, it's nobody's business to judge you but yourself. And if you feel that you're expressing yourself as an individual, and you feel confident in it, then that really should be all that matters.
+- I'm liberal about everything that is issue-based as far as ideology, but I'm also of the opinion of a very small government.
+- I'm still a businessman. But what I do for my primary living and what is my life is music, and that will never change.
+- There's everybody in the world who is always trying, time and time again, to proclaim the death of rock, or hard rock and heavy metal. Not if I have anything to do with it, not if we have anything to do with it.
+- Oh, I'm going to raise him on Black Sabbath and Metallica and football and MMA and all things that should matter for a young boy, and discipline and strength and honor and courage and everything that I would hope to instill within my son.
+- 'Savior Of Nothing' calls out the would-be social justice warriors of the world who become so enveloped in fighting so passionately that they become exactly what they're trying to correct. They preach acceptance so much they become unaccepting.
+- 'Fade To Black' - just this amazing construct: a song that defied the definition of what Metallica was perceived to be at the time.
+- The way I sing is extremely physical, and it was causing acid from my stomach to wash up to my vocal cords and burn them.
+- The forces that precipitate the vicious cycle of conflict on this planet do not pledge allegiance to either the left or the right or the center. They take advantage of everyone.
+- The media continues to spin the State of Israel and Jews as war-mongering, evil people, which we are not.
+- I'm incredibly defiant against neo-Nazis and skinheads.
+- I would have no problem with a woman as president. I have a problem with Hillary Clinton as president. I think the right woman could be great. She's not the right woman. She's not the right anything. She's just a liar.
+- We've always used that as a goal - the record that literally every single track on it could be a hit. A record that breaks doors down, that opens up new opportunities to us, that helps you achieve true immortality as an artist.
+- The first record I ever bought was Kiss's 'Destroyer.' And those classic bands like Black Sabbath were my first loves.
+- Other music that 'Ride The Lightning' led me to discover was to start really kind of sinking my teeth into some of the thrash of the era that I literally had no exposure to - whether it was Slayer, whether it was Testament, whether it was Megadeth. It was the opening of a doorway, for me, to a whole new palette of music.
+- I'm all about freedom to go ahead and practice whatever kind of religions you want, have whatever sort of sexual preference you want, freedom in terms of being pro choice for women.
+- Ninety percent of the time, I'm a laid-back teddy-bear dude.
+- People make their own destinies.
+- I in no way, shape, or form envision myself as the modern-day Ozzy Osbourne - nobody can.
+- 'Creeping Death' - that was a special song for me as a kid, because that was the one that every single Jewish kid thought, 'Oh, Metallica wrote a song for us. He wrote it about the exodus of the Jews from Egypt under slavery.'
+- We are a metal band, period. To me, the 'nu' part infers some sort of a rap influence.
+- I support liberty; I support true freedom.
+- I'm a fan of good music, period.
+- The God's honest truth is that, being the singer, my body's my instrument.
+- 'The Sound Of Silence' taught us that we shouldn't be afraid of pushing the boundaries.
+- I love 'The Exorcist.'
+- I love hooks, but getting radio airplay has never been a concern to me while I'm writing. That would be a very stifling and imprisoning way of writing music.
+- We've put out records that consistently have been what the fans have been looking for from Disturbed. We've been consistent with our live performances. As long as we continue to maintain that level of trust with our fanbase, I think they'll still be there.
+- I really don't think that anybody's going to buy or not buy a Disturbed album and/or ticket because I am or am not wearing my labret piercings.
+- I think that seeing as much support as somebody like Obama as a black candidate running for president in a country that historically has had issues with the African-American people, and them having issues vice-versa, is a miraculous thing.
+- The fans who know us, and me in particular, know the type of people we are. I like the finer things. We've gone through our McDonald's and Burger King phase.
+- Music is meant to cross boundaries.
+- I'm done. Done with social media. Done.
+- I think there's no truer and more pure purpose than to be able to refine your art to a point where you feel it's as possible as it can be.
+- I think that we're more united than the media would care to admit. We're not as divided as the perception would relay - not in the United States, not anywhere, really, in the world.
+- We never enter the studio unless we feel like, right now, if these are the songs we record, that we would have an album that we're proud of and we're excited about. And we put everything under the microscope and examine it the best we can to make sure that we're prepared.
+- Look, it makes sense to be able to take part of what you've earned in this life and have it grow. And I hope that other musicians out there that do have their moments of profit and of success are wise enough not to squander those profits and that success.
+- 'Oppressed' is one of the terms that's very, very sellable and easily thrown around these days because everybody feels it, no matter what side you're on. We thrive on it. We're addicted to it.
+- 'Immortalized' is hopefully what music does for everyone in terms of emotions, in terms of experiences, in terms of being people who create it.
+- I'm a very active angel investor in a number of different companies.
+- I like the original 'Halloween.'
+- I will always be a proud defender of the Jewish people and of the State of Israel.
+- I do think about and do occasionally take my wife and son out with me on tour. It's difficult.
+- One of the degrees I have is in business, and I was a healthcare administrator that ran a 365-bed skilled nursing facility for years and generated several million dollars a year profit for them. So I have a background in business.
+- The level of study that I was at, I was probably only about two or three years away from being ordained as a rabbi, so I really needed to figure out in my head where I wanted to go with things. And I just couldn't do it habitually anymore.
+- I try not to mix the politics as much with the band, per se, because my political views are my own; they're not necessarily the band's.
+- It's impossible to utilize your right to free speech in the way you truly deserve and not suffer repercussions on any level.
+- At the end of the day, what people want from me is to get up there on that stage and make them feel powerful and give them a release for an hour and a half or two hours every once in a while. And if I'm still able to do that, hopefully I'm still making people happy.
+- I come from a classical background.
+- The world wants rock bands to be idiots.
+- I will never, ever apologize for being passionate about the things that I believe in, and it is just that, it is just an opinion, and people don't have to share my opinion.
+- I have a real estate development company. I have investments in all sorts of things, and I dabble all over the place.
+- I grew a very strong dislike for the organized aspect of religion over the course of time.
+- I'm a fan of the 'Underworld' films, but I don't necessarily consider them horror.
+- I hate all politicians equally.
+- What makes something pop? It's really just the bed it's placed in. If I grab melodies by Black Sabbath or Metallica and take them out of their musical bed and put them into a pop context, it's not like they wouldn't translate.
+- 'In Another Time' talks about our addiction to technology.
+- Don't get me wrong - we love our hip-hop, but in its own context. Rap has no place in our music. Is what we do rhythmic? Sure. Is it syncopated? Certainly. But our music has nothing to do with hip-hop.
+- I can't deny the impact of, obviously, becoming a father and having my son come into this world, and even becoming a husband. The irony is that, when people think that in certain ways it softens you, in many ways, I'm more defensive and more on guard and more frightened and more angry at everything in this world now that I have them to worry about.
+- All I can ever hope to be to my son is someone who's supportive, someone who listens and understands and points out possible other ways of thinking, ways of feeling, ways of approaching things, suggests rather than demands.
+- It used to be that, whenever I walked around without my old piercings, that I was very rarely recognized - it wasn't a common thing; I could be somewhat incognito.
+- I think that there's always a time to be tongue-in-cheek, and there's always time for humor, but there's a time to be serious and a time for emotional content.
+- I support the troops with every fiber of my being. I don't support them having their lives wasted.
+- Many people have eclectic tastes. Many people like to listen to all kinds of different music. I mean, I do; I'll listen to many different styles inside a day, a week, a month, a year. It doesn't matter.
+- I think that, in my humble opinion, that the world is divided, and the media has a very good, a very predictable habit of emphasizing whatever will keep people clicking.
+- I attended five different Jewish day schools as a teenager. I mean, I was trained as a hazan!
+- I'm a fan of Genesis prior to Phil Collins. I don't really like Phil.
+- Every time we put out a piece of art, it continues to define who we are. What could possibly be more important than that and require more of your focus and your time and your energy.
+- Obviously, what happened from the 'Immortalized' record was we achieved a level of success that, to be perfectly honest, was unpredecented in our career. Every track released from that record ended up going No. 1 at radio.
+- I think that people are too... They've become genre snobs.
+- I always feel it's not a parent's role to either allow or to deny, but merely to guide.
+- There are definitely confines within the style of Disturbed that we needed to stay true to, but we've always pushed that envelope. We always continued to develop with each successive record.
+- I'm a huge Kiss fan.
+- The Device experience was amazing. I enjoyed working with everyone that I was blessed with the opportunity to work with, and you learn so much going outside of your normal world and outside your box, so to speak.
+- There's nothing that can lock a memory in your mind more distinctly than with a piece of music. It's so easy to remember something so vividly and so perfectly when you score it to something.
+- I'll never forget getting my first Nirvana, Soundgarden, and Alice in Chain records, and hearing that wonderful, beautiful darkness. And the rhythmic intensity, that's what attracted me more than anything else.
+- There'd be no merit to replicating something, to repeating something. As artists and as musicians, you wanna continue to go in different directions and develop.
+- The power, the complexity, the aggression - there's so many things that would attract anyone to Metallica. I think that they are the prime example of a metal band.
+- Even though there is obviously a marked stylistic difference between the majority of our catalog and a cover like 'The Sound Of Silence,' it certainly isn't the first time we've done an acoustic track.
+- I'm pretty much done with political commentary. I've said everything I could possibly say. I've been a big mouth for long enough.
+- Social media has become a high school playground where the challenge is what idiot can come up with the best insult, and do you end up congratulating them for it?
+- Every politician, in order to be a politician, has to be adept at the art of one and one thing only, and that is lying.
+- I've been blessed with a platform and a voice, and I owe it to myself and my family and our people to use it responsibly.
+- There's still anti-Semitism everywhere, and unfortunately, what has happened with our people no longer being the underdogs in this region, peoples' perception of Israel has changed dramatically.
+- You have to decide what's important to you. For instance, myself, I mean, I lead a very, very straight-edge sort of lifestyle on the road.
+- I used to have, and I still do have, really bad acid reflux. I had a surgical procedure done... that repaired a valve at the top of my stomach that had completely burned away.
+- I was never the guy who was going to try to use my social media to be a source of promotion for myself... It was always trying to use whatever kind of a voice in the position that I have been blessed with for good.
+- For whatever reason, the mainstream media, for the most part, affixes itself to progressive or liberal propaganda.

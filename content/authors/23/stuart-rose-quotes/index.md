@@ -1,0 +1,33 @@
++++
+author = "Stuart Rose"
+title = "Stuart Rose Quotes"
+quotes_len = "27"
+description = "the best 27 Stuart Rose Quotes"
++++
+- I actually think the whole concept of retirement is a bit stupid, so yes, I do want to do something else. There is this strange thing that just because chronologically on a Friday night you have reached a certain age... with all that experience, how can it be that on a Monday morning, you are useless?
+- I was the chief executive once, I've been there. My recommendation to anybody is don't go backwards.
+- When I got married in my twenties, I had a happy marriage and happy kids but at some point in time I let it go off the rails; I let it go off the rails.
+- There is a responsibility on all companies to look at the quantum of pay and the relationship between the top and the bottom.
+- We live in a world where there are a hell of a lot of new inputs that need to be factored in to your business. It used to be just about your employees and your customers. Now there are all the issues about global warming, about sustainability, about ethics and now about gender and the distribution of wealth.
+- I'd go mad if I didn't have things to make me laugh.
+- I have always been an advocate and was, in my last job at M&S, a supporter of the Al Gore dictum that a sustainable business can be a profitable business. We were the first sizeable company in the U.K. to prove that was the case.
+- I don't believe in retirement.
+- My four criteria: I don't want to work with people I don't like; I don't want to work in a business I either don't like or don't understand; I don't want to work for nothing unless I choose to, and I do a fair amount of that already; and I want to have some fun.
+- If you wait for customers to tell you that you need to do something, you're too late. Good business leaders should be half a step ahead of what customers want, i.e. they don't actually quite know they want it. That's what innovation's about. With Plan A, we didn't wait for the consumers to tell us.
+- I think fashion is the best value way, the most affordable way in the 21st century, that men and women can express their personality.
+- Our world is moving at an ever-accelerating pace, and with the advent of social media, what happens in New York now can be reported across the globe 60 seconds later.
+- I've been an employee all my life. Would I wish, if I could rewind it, to have gone down a different route? Possibly, but I've had a great time. Anyway I'm not ruling it out; I could still buy a business.
+- I am absolutely a free marketeer and I believe the creation of wealth is a good thing and anyone who doesn't really needs to have their head examined - otherwise where are we going to get the schools, the roads, the universities, the third runway, dare I say it?
+- If you are not online, people look at you askance. I think in three to four years' time people will look equally askance at you if you haven't got the ability for consumers to buy what they want, where they want and how they want.
+- As retail goes through a fundamental shift into the digital world, I believe Ocado's model and the high standards of customer service it provides will see it emerge as a powerful online player.
+- I believe in a uniform for work, but why, because we're men, do we have to be ghettoised into grey suits?
+- Most employees want to be involved in a successful business and most employees are happy for people running successful businesses to be paid a reasonable wage and a market rate for it, provided they understand the reason. What they hate most of all is pay for failure.
+- I want to please every woman, every time.
+- I think that business leaders today have to be more rounded than they used to be, they have to be completely multi-functional and fast-moving.
+- We face a dilemma because although everybody is better off than they've ever been at any time in our history, we've also got the biggest gap between the rich and the poor that we've ever had, and we've potentially got a planet which is going to go bust any day.
+- I am the largest market shareholder of clothing in the U.K. and I am not a destination shop for food. If the clothing market is affected - and it has been - and I hold my market share mathematically, then fine, I am doing no worse than the market is doing, which is exactly the case, but I'm losing revenue.
+- We've got a bit of growth a bit earlier than expected.
+- Listen, it's not nice to have your mum kill herself, that is difficult. But at the end of the day, it happened a long time ago. My mother was, I hope, not the reason that I have been successful. It's not as simplistic as 'My mum killed herself; I've got to prove myself.' I was very lucky that my parents took an interest in me.
+- Customers want good value, but they care more than ever how food and clothing products are made.
+- When my mother died, my father was in a crisis, my sister was in a crisis, everyone was in a crisis. I went round the night my mother was lying in the kitchen, and I organised everything, from the undertaker to the funeral... I looked after everybody, I sorted it all out and I've done so ever since.
+- Was I the best husband? No. And I regret it.

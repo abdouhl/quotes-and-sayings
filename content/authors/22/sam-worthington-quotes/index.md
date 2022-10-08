@@ -1,0 +1,58 @@
++++
+author = "Sam Worthington"
+title = "Sam Worthington Quotes"
+quotes_len = "52"
+description = "the best 52 Sam Worthington Quotes"
++++
+- Some actors can create characters and leave them at 'Cut!', but I work the opposite way and drag them out of me. For me, it's about fixing your fabric to fit the role.
+- People care and are willing to help me out my desperate circumstances.
+- To supply people for ages in camps makes no sense... you have to rebuild that cabana that they rent out to tourists on the weekend. They need help getting their fields repaired and their boats repaired.
+- My private life stays private.
+- In the movies, they make you look good and tough, but in real life, it's completely the opposite. I do these ueber roles, I think, because in real life I'm quite shy and reserved. In real life, I'm a dork.
+- I like the Kardashians. I watch 'em. When Kim got the botox in her face, and it made her face go weepy, that was funny. I also watch 'America's Next Top Model.' I've always been a big fan.
+- I like to play board games a lot with my girl, things like that. We attempt to cook. And even if it goes wrong, it doesn't matter because it's the time you spend doing it that's important.
+- My dad had to work for everything in his life; so did my mum: she cleaned people's houses and looked after old people. You can be complacent and sit on the couch and complain about the dreams that you missed. Get off the couch!
+- When I was in my 20s, I thought I knew who I was. And then as soon as I turned 30, I realized that person has bruises and bumps and dark parts. And you kind of go, well, that's it. I'd rather embrace it than force myself to change.
+- You help families focus on the future through their children.
+- I've done a lot of roles where I'm the hero saving the planet.
+- Most actors go, 'I read the script and fell in love with it'; I fall in love with the directors.
+- Starting out, they told me: 'You're a good-looking guy. We'll put you in this role, and you can be a conduit for the audience into this side of the story.' But I've grown up, and that's not what I want anymore. My concept of the job I do has evolved. And it is a job, nothing more.
+- It's a fine line. If you withhold too much, you come across as wooden - as I've often been described in some movies. Fair enough. I believe that the best performances are the ones that an audience has to search for.
+- I do movies I would go to see.
+- I don't mind being in studios, and I don't mind being out in nature. They're two different ways of making movies.
+- Actors get to go to these amazing worlds. In 'Terminator,' I was a cyborg with feelings; in 'Avatar,' I lived for 15 months on a fantastical planet, and in 'Clash of the Titans,' I get to fight a scorpion the size of a dump truck. It's a bizarre job, but you explore yourself.
+- I do movies that I would like to go and see. I think that's a good barometer of how I choose films. I like going to these movies. Our job is to make sure the audience gets their $16 worth. That's my job.
+- The acting came about because of a girl. I was 19 and met a girl who wanted to go to the premiere drama school in Australia, the National Institute of Dramatic Arts, where Mel Gibson, Cate Blanchett and many others went. She had an audition, and I went with her for moral support - to cheer her on. I did an audition my way, and it kept going.
+- To film in water is three times harder than just on land.
+- If you get something like 'Avatar,' it opens up a lot of big blockbuster doors.
+- When I was young, my parents were these titanic, infallible figures. But Mum's illness and Dad's battles with diabetes and heart attacks had a ripple effect on me - reminding me of my own mortality and that these illnesses are genetic.
+- When I do my job, I dive into these characters and try to flush something out of myself into these characters, and hopefully that translates well.
+- Any actor wants their movies and their work to be seen. You don't make a movie or get into this profession for your work not to be seen and just to show them to your mates at home.
+- I'm Australian! How much more alpha can you get?
+- One of the best movies of the year was 'Rise of the Planet of the Apes.' That's not just an action movie - it's a prison film.
+- Oh, isn't it cool? It's so cool being an actor! It's so cool having my face on a bus.
+- You can write whatever you want about me in websites and newspapers, but no one really knows me. They get the idea that I'm a tough, heroic figure, but I'm a sensitive pussycat.
+- Making films is my hobby. It relaxes me; it is my life, and it's one of the best jobs in the world. I go to work and solve problems, fight robots, kill aliens, and kiss beautiful women. I'm a very lucky man.
+- Every actor fears unemployment - even me.
+- When you're in trouble, all you need is your bank card and passport, and you're fine.
+- I hate downtime.
+- I'm looking for things where, like with 'Ten,' I don't look like me, and I'm playing something a bit different. I'm just trying to flex a different muscle and see if it works. I've saved the world and killed monsters and done all that. Now I want to try something a bit different and a bit more challenging.
+- I think if they suddenly cut away and you realize there is a stunt guy, you're out of the movie.
+- I've lost love. I've tried to reclaim a lost love and didn't know how to do it.
+- I didn't set out to be famous; if I'd wanted that, I would have gone on 'Big Brother.'
+- Clothes have memories, and sometimes you don't want to remember. People remember where they bought the clothes, who gave them, or where they stole them from.
+- Any acting is a stretch of the imagination. That's your job. Acting is truth in imaginary circumstances. Acting with green screen or a motion capture stage, you're striving for absolute truth in absolutely imaginary circumstances.
+- I also care that the public are getting their 12 dollars worth when they go to a movie, and that they're not coming out not wanting to ever see a movie with me in it again. I don't care what people think of me as a person, but I do care what people think of my work, and whether I'm investing enough into it.
+- I don't have a real home. When I got 'Avatar,' I sold everything that I owned because I knew it was going to be a long journey. I've got two bags, and that was four years ago, and I've been working ever since, and I've still only got two bags - a bag of books and a bag of clothes. That's about it.
+- I auditioned for 'Avatar' in Australia. It was a 'blind' audition. I didn't know what the movie was about and whom it was for.
+- I installed anti-rust roofing into homes in Cairns. I packed boxes at Baby Barn. I was even a Manny! Mate, I know more about braiding hair and My Little Pony than most men, I can tell ya.
+- I don't mind running; I don't mind taking a few knocks. But hopefully, it's just not 'Sam's an action dude.' That, to me, is not what I wanted. I wanted to bring a sense of weight and emotionality of doing Australian films and bring that into a bigger blockbuster, so you're not just kind of grunting and groaning and running around.
+- Growing up, you tended to just go through school to get out, then figure out what you want to do in this big ball of mud.
+- I don't care what people think of me as a person, but I do care what people think of my work, and whether I'm investing enough into it.
+- I cry a lot, and I have no problem with that at all. Listening to your emotions is part of being alive.
+- Well, I think the world changes around you - I think you don't change. That's as simple as that.
+- A lot of these people were getting to where they didn't need help anymore. You have to start all over again.
+- You spend five months filming in outer space and saving the world, and suddenly that kind of family unit and story disappears, and you come crashing back down to Earth, and you have to do your own washing... and most actors are insecure that the last job they did will be their last job ever.
+- I sign on to any project because of the director: because they won't change, and you've got to feel confident that you're in good hands, in their vision.
+- I love my job; I love the world that it is. But I don't want someone who is just in love with that world. I want to be with someone who is in love with me, warts and all.
+- A mate of mine told me recently, 'It's the first time I've seen you work, Worthington.' I thought that was quite funny, but he was right.

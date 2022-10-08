@@ -1,0 +1,114 @@
++++
+author = "Sheryl Sandberg"
+title = "Sheryl Sandberg Quotes"
+quotes_len = "108"
+description = "the best 108 Sheryl Sandberg Quotes"
++++
+- I don't believe we have a professional self Monday through Friday and a real self the rest of the time. It is all professional, and it is all personal.
+- Women attribute their success to working hard, luck, and help from other people. Men will attribute that - whatever success they have, that same success - to their own core skills.
+- There's no one way to grieve, and there's no one path.
+- I wrote 'Option B' because I want other people to know it can get better, and I want to help people make it better.
+- We call our little girls bossy. Go to a playground; little girls get called bossy all the time - a word that's almost never used for boys - and that leads directly to the problems women face in the workforce.
+- If you ask men why they did a good job, they'll say, 'I'm awesome. Obviously. Why are you even asking?' If you ask women why they did a good job, what they'll say is someone helped them, they got lucky, they worked really hard.
+- I think there are things that we can all do to build resilience in ourselves, but also to build resilience in each other.
+- But I really believe that when you give people authentic identity, which is what Facebook does, and you can be your real self and connect with real people online, things will change.
+- I probably shouldn't admit this since I work in the tech industry, but I still prefer reading paper books.
+- Women don't take enough risks. Men are just 'foot on the gas pedal.' We're not going to close the achievement gap until we close the ambition gap.
+- Over the last 10 years, women have stalled out at the top.
+- Women have made tons of progress. But we still have a small percentage of the top jobs in any industry, in any nation in the world. I think that's partly because from a very young age, we encourage our boys to lead and we call our girls bossy.
+- Until women are as ambitious as men, they're not gong to achieve as much as men.
+- The No. 1 impediment to women succeeding in the workforce is now in the home.
+- I would love to meet J.K. Rowling and tell her how much I admire her writing and am amazed by her imagination. I read every 'Harry Potter' book as it came out and looked forward to each new one. I am rereading them now with my kids and enjoying them every bit as much. She made me look at jelly beans in a whole new way.
+- Most people assume that women are responsible for households and child care. Most couples operate that way - not all. That fundamental assumption holds women back.
+- I really don't have any plan to leave Facebook. I put it so many times on the record, and I just don't get what to do to say it as clear as possible: I'm staying in Facebook; I really love my job.
+- I would be better at my job if I were technical.
+- I spent most of my career in business not saying the word 'woman.' Because if you say the word 'woman' in a business context, and often in a political context, the person on the other side of the table thinks you're about to sue them or ask for special treatment, right?
+- I want women to get paid more. I want to teach them to negotiate so they get paid more.
+- Writing about joyful experiences for just three days can improve people's moods and decrease their visits to health centers a full three months later.
+- Judaism is my home. Judaism is super important to me, in death and in life.
+- There are so many kids in this country growing up in poverty, facing very, very hard challenges... We need resilience for all of them.
+- False news hurts everyone. It hurts our community; it hurts us as individuals.
+- I think it is too hard for men to talk about gender. We have to let men talk about this... because we need men to talk about this if it is ever going to change.
+- I go around the room and ask people, 'What do you think?'
+- What works for men does not always work for women, because success and likability are positively correlated for men and negatively correlated for women. That's what the research shows. As a man gets more successful, everyone is rooting for him. As a woman gets more successful, both men and women like her less.
+- I want people to help take care of each other at work. That's what I want. Do you know how many hours we spend at work? We spend more time at work than we spend at home. When people are suffering, we don't help enough.
+- I feel really grateful to the people who encouraged me and helped me develop. Nobody can succeed on their own.
+- I wish I could just go tell all the young women I work with, all these fabulous women, 'Believe in yourself and negotiate for yourself. Own your own success.' I wish I could tell that to my daughter. But it's not that simple.
+- When you suffer a tragedy, the secondary loss of having it bleed into other areas of your life is so real.
+- We can each define ambition and progress for ourselves. The goal is to work toward a world where expectations are not set by the stereotypes that hold us back, but by our personal passion, talents and interests.
+- I am a bigger-picture manager because I've lived through something that's a big picture.
+- We tap into something when we're honest about what's going on in our lives.
+- Pages on Facebook are allowed to be anonymous. That is really important. People start revolutions; we need anonymity.
+- And what I saw happening is that women don't make one decision to leave the workforce. They makes lots of little decisions really far in advance that kind of inevitably lead them there.
+- Kids are resilient. My kids are resilient.
+- I have a five year-old son and a three year-old daughter. I want my son to have a choice to contribute fully in the workforce or at home. And I want my daughter to have the choice to not just succeed, but to be liked for her accomplishments.
+- We have to work on treating ourselves like we would treat our friends.
+- What I tell everyone, and I really do for myself is, I have a long-run dream, which is I want to work on stuff that I think matters.
+- We need to build resilience together, rooted in religion, rooted in schools, rooted in our health care institutions.
+- I think when tragedy occurs, it presents a choice. You can give in to the void: the emptiness that fills your heart, your lungs, constricts your ability to think or even breathe. Or you can try to find meaning.
+- It turns out that a husband who does the laundry, it's very romantic when you're older. And it's hard to believe when you're younger. But it's absolutely true.
+- Our discomfort with female leadership runs deep. We call little girls bossy. We never really call little boys bossy, because a boy is expected to lead, so it doesn't surprise or offend.
+- It's more pressure on women to - if they marry or partner with someone, to partner with the right person. Because you cannot have a full career and a full life at home with your children if you are also doing all of the housework and child care.
+- I think we build resilience to prepare for whatever adversity we'll face. And we all face some adversity - we're all living some form of Option B.
+- I'm a pragmatist. I think, as a woman, you have to be more careful. You have to be more communal, you have to say yes to more things than men, you have to worry about things that men don't have to worry about. But once we get enough women into leadership, we can break stereotypes down. If you lead, you get to decide.
+- I think the U.S. needs a better safety net... If you're a single mum or even a dual-parent working family, what do you do if you've got a sick child?
+- I have never worked for a woman, and I have never worked with a lot of women.
+- We all have shortcomings.
+- I look forward to the day when half our homes are run by men and half our companies and institutions are run by women. When that happens, it won't just mean happier women and families; it will mean more successful businesses and better lives for us all.
+- We need to create areas to come together, where we can be there for each other.
+- People think that women don't negotiate because they're not good negotiators, but that's not it. Women don't negotiate because it doesn't work as well for them. Women have to say, 'I really add a lot of value, and it's in your interest to pay me more.' I hate that advice, but I want to see women get ahead.
+- I don't hold myself out as a role model. I don't believe that everyone should make the same choices; that everyone has to want to be a CEO, or everyone should want to be a work-at-home mother. I want everyone to be able to choose. But I want us to be able to choose unencumbered by gender choosing for us.
+- Having your house fill up with the people you love is comforting.
+- I want to tell any young girl out there who's a geek, I was a really serious geek in high school. It works out. Study harder.
+- Every company I know is looking for more women at the table. Every board is looking for more women at the table. There's a reason why men want to understand the challenges women face, address them, because then they're going to be better hirers, attracters and retainers of women.
+- We need women at all levels, including the top, to change the dynamic, reshape the conversation, to make sure women's voices are heard and heeded, not overlooked and ignored.
+- I believe very deeply that the world would be a better place if it weren't run as it's currently run, which is by men.
+- Self-compassion is how we recover.
+- I learned that when life pulls you under, you can kick against the bottom, break the surface, and breathe again.
+- We leave people alone when they need us most.
+- I try to appreciate every day.
+- I believe if we had half our companies and half our countries run by women, and half our homes run by men, things would be better. We know our companies would be more productive. If you use the full talents of the population, you're more productive. We know our homes would be happier.
+- Big businesses have always had a lot more voice. They can afford advertising; they can afford marketing. But for small businesses, being able to quickly and cheaply connect to customers is a big deal.
+- It is definitely true that adversity and hardship are not evenly distributed.
+- 'Option B' draws not just on my story but on the research and stories of many people overcoming all kinds of adversity. No one should have to go through challenges and trauma alone.
+- If more women are in leadership roles, we'll stop assuming they shouldn't be.
+- When I went to college, as much as my parents emphasized academic achievement, they emphasized marriage even more. They told me that the most eligible women marry young to get a 'good man' before they are all taken.
+- Success, for me, is that if my son chooses to be a stay-at-home parent, he is cheered on for that decision. And if my daughter chooses to work outside the home and is successful, she's cheered on and supported.
+- I lost my husband, and it's a horrific thing to live through.
+- It is the ultimate luxury to combine passion and contribution. It's also a very clear path to happiness.
+- We've got to get women to sit at the table.
+- So there's no such thing as work-life balance. There's work, and there's life, and there's no balance.
+- I think we would be stronger if half our countries and companies were run by women and half our homes were run by men.
+- When you're more valuable, the people around you will do more to make it work.
+- At Facebook, we try to be a strengths-based organization, which means we try to make jobs fit around people rather than make people fit around jobs. We focus on what people's natural strengths are and spend our management time trying to find ways for them to use those strengths every day.
+- Everyone needs more support than they are getting.
+- I don't pretend there aren't biological differences, but I don't believe the desire for leadership is hardwired biology, not the desire to win or excel. I believe that it's socialization, that we're socializing our daughters to nurture and our boys to lead.
+- In fact, my New Year's resolution every year, and I'm Jewish so I get two New Years a year, is to meditate, and I fail every time.
+- People who are underprivileged have more to grieve and have more to overcome.
+- I've definitely learned how hard it can be to lean in when you're struggling at home.
+- When my mother took her turn to sit in a gown at her graduation, she thought she only had two career options: nursing and teaching. She raised me and my sister to believe that we could do anything, and we believed her.
+- Every day is a gift.
+- It's easy to dislike the few senior women out there. What if women were half the positions in power? It would be harder to dislike all of them.
+- My grandfather had a paint store. It's what put my mom through college. Small business is part of my family history.
+- When I was in high school, I was voted most likely to succeed.
+- The most important thing - and I've said it a hundred times and I'll say it a hundred times - if you marry a man, marry the right one.
+- You can date whoever you want, but you should marry the nerds and the good guys.
+- Turning feelings into words can help us process and overcome adversity.
+- I don't believe we have a professional self from Mondays through Fridays and a real self for the rest of the time.
+- I'd like to see where boys and girls end up if they get equal encouragement - I think we might have some differences in how leadership is done.
+- I tell people in their careers, 'Look for growth. Look for the teams that are growing quickly. Look for the companies that are doing well. Look for a place where you feel that you can have a lot of impact.'
+- What about the rat race in the first place? Is it worthwhile? Or are you just buying into someone else's definition of success? Only you can decide that, and you'll have to decide it over and over and over. But if you think it's a rat race, before you drop out, take a deep breath. Maybe you picked the wrong job. Try again. And then try again.
+- As women get more powerful, they get less likable. I see women holding themselves back because of this, but if we start talking about the success-likability penalty women face, then we can do something about it.
+- We need to help people of all circumstance overcome the things in their life.
+- There are really good reasons to leave the workforce or work less or take a different job when you want to be with your children. I just want women - and men - to make that choice once they have the child. Not years in advance, because... they don't get the right opportunities. They give up before they even start.
+- When I wrote 'Lean In,' some people argue that I did not spend enough time writing about the difficulties women face when they don't have a partner. They were right.
+- My hope in writing 'Lean In: Women, Work, and the Will to Lead' was to change the conversation from what women can't do to what we can.
+- I'm not pretending I can give advice to every single person or every single couple for every situation; I'm making the point that we are not going to get to equality in the workforce before we get to equality in the home. Not going to happen.
+- Women are not making it to the top of any profession in the world. But when I say, 'The blunt truth is that men run the world,' people say, 'Really?' That, to me, is the problem.
+- I really think we need more women to lean into their careers and to be really dedicated to staying in the work force.
+- Before social media, if I, as an individual wanted to publish something to the world, unless I could get some local TV crew to interview me, or I wrote an op-ed or took out an ad, I had no voice.
+- I love how when I say the world is still run by men, and sometimes I say the world is still run by white men, people gasp as if that's news. That's not news. That's obvious.
+- I'm not telling women to be like men. I'm telling us to evaluate what men and women do in the workforce and at home without the gender bias.
+- I absolutely loved Tina Fey's 'Bossypants' and didn't want it to end. It's hilarious as well as important. Not only did I laugh on every page, but I was nodding along, highlighting and dog-earing like crazy.
+- For any of us in this room today, let's start out by admitting we're lucky. We don't live in the world our mothers lived in, our grandmothers lived in, where career choices for women were so limited.
+- Women are not making it to the top. A hundred and ninety heads of state; nine are women. Of all the people in parliament in the world, thirteen per cent are women. In the corporate sector, women at the top - C-level jobs, board seats - tops out at fifteen, sixteen per cent.

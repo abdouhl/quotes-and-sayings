@@ -1,0 +1,79 @@
++++
+author = "Dennis Muilenburg"
+title = "Dennis Muilenburg Quotes"
+quotes_len = "73"
+description = "the best 73 Dennis Muilenburg Quotes"
++++
+- President Trump has had business leaders at the table. He's listening; he's engaging and making decisions that will help us grow the economy and, ultimately, U.S. manufacturing jobs.
+- I think tax reform is the single most important thing we can do in this country to unleash economic energy. It's going to unleash growth.
+- First thing we're going to do with the benefits of tax reform is we're going to invest in innovation. We're going to invest in capital, new product lines. It's going to create more manufacturing jobs and our shareholders are going to benefit, too. We're going to improve dividends, share repurchase.
+- If the U.S. doesn't have an export credit agency, which is what the Export-Import Bank is, then we can't compete with other countries that do. Every other country in the world that competes in aerospace has an export credit agency.
+- Every airplane sale overseas generates U.S. jobs.
+- We know our future's not guaranteed, so every day, we have to relentlessly pursue additional actions to drive our competitiveness.
+- It's very important that we all have a common understanding of our purpose as a business - what we aspire to - and a strategy for achieving it.
+- I'm an avid bicyclist, so I catch some sun while I'm out bicycling.
+- It's vital to understand where you may have gaps in your knowledge or experience and to surround yourself with a team that complements that.
+- We're not going to see an exclusively robotic factory, but we will see the optimum use of robots and people.
+- It's really important for all of us to understand that healthy trade relationships between the U.S. and China are important.
+- Global traffic has become very networked, very connected.
+- Boeing has won in the marketplace for 100 years because of innovation, and we need to continue to invest in innovation for the future. And our cash generation strength is what allows us to do that.
+- I spent the first 15 years of my career in Seattle.
+- I think it's really important that we have a level playing field for global trade.
+- The energy that's going into autonomous vehicles is very significant, and we expect to continue to invest there.
+- We're not in the business of taking large operations in the U.S. and moving them overseas.
+- Our continued investment in productivity will add to our margins, and you'll see that reflected in the bottom line earnings.
+- We'll continue to take the right actions to make sure we're a profitable business.
+- Ambassador Kennedy brings to the Boeing board professional, diplomatic, and global perspectives that are highly valued in our rapidly evolving and increasingly competitive global business environment. Her diversity of experience and accompanying insights will broaden and strengthen our board in its deliberative and oversight roles for the company.
+- Lives literally depend on what we do.
+- I've witnessed firsthand the critical role suppliers - and especially the best ones - play in Boeing's success.
+- We can create opportunities to generate value by working across the entire breadth of Boeing.
+- The commercial airplane business is an incredible growth business.
+- The Max 10 will provide customers with even more flexibility in terms of airplane range and higher seat count.
+- We have ambitious goals for the future, and I know we will achieve them, in part, by working closely with our exceptional extended team.
+- I know things like a 20% corporate tax rate will allow us to be more competitive in the global marketplace. That's what our competitors enjoy today around the world. And when we're more competitive, we win in the marketplace, and that allows us to invest and grow for the future.
+- The thing I love about President Trump is he's really focused on helping business succeed.
+- Our first use of cash is invested organically, secondly returning values our shareholders - roughly 100 percent free cash flow. And then thirdly, mergers, acquisitions, partnerships that complement our organic strategy. We are going to continue down that path.
+- Unmanned airplanes - and more broadly, autonomy in space, in the air, undersea - is a big future area for Boeing and an area where we are continuing to build out collaborations. So we are always looking for partners in that arena.
+- This idea of mutual appreciation and partnerships and investment in our people is very important to me and will continue to be important.
+- We have very close relationships with our Canadian customers.
+- Our business thrives on free and open global trade.
+- We work on things that really matter.
+- We aspire to be a top performer in every area of our business, and that includes leading in the communities where our employees and their families live and work.
+- We're going to continue to invest to win in the narrow-body marketplace.
+- I think the work on tax reform, the work that's being done on regulatory reform is very important. And just having a seat at the table, I think, is so important for business today as we think about what's going to benefit the economy of this country, how we're going to create great manufacturing jobs.
+- As you begin to create more destinations, that will naturally create a stronger economic pipeline for space. And just as we have been the leader of commercial air travel for the first century, as we look to the second century of aviation, I would expect Boeing to be the leader in both air and space travel.
+- I think you're going to see an interest in space tourism, space travel for the sake of travel.
+- Standing up Global Services will accelerate our capabilities across all Boeing services and support areas - from our traditional parts, modifications, and upgrades business to strengthening our data analytics and information-based offerings.
+- Robots allow our employees to work safely, faster, and at less cost.
+- I've always thought of Boeing as the premier aerospace company in the world, so as I was coming up through school, it was the company I aspired to work for.
+- We continue to see acquisitions as an opportunity area for us. It's one of the tools that we use to grow.
+- We want to generate jobs in the U.S.
+- China is a very important growth market for us.
+- The opportunity ahead of us in terms of transforming how we design and build, how we manufacture, is even greater than some of the product innovation that we're going to bring to the table.
+- Substantial services growth is core to Boeing's strategy.
+- The employee relationships are important, investment in our people is important, and the ability to do work at multiple sites is important.
+- I think it's really important to have a long-term perspective.
+- By harnessing our teammates' unique skills and passion for giving, our professional networks and partnerships, and our financial resources, we will inspire the dreamers and doers of tomorrow and drive positive, lasting change in our communities across the globe.
+- As we deliver airplanes and we enable global travel and global cargo delivery, it provides overall economic growth around the world as well.
+- It makes no economic sense for the U.S. not to have an export credit agency.
+- I have always loved aeroplanes and spacecraft and the design element.
+- People have to realize that not having an Ex-Im Bank has a direct impact on U.S. jobs. Not only that, it has a direct impact on long-term competitiveness in a global world.
+- Eventually we're going to go to Mars, and I firmly believe the first person that sets foot on Mars will get there on a Boeing rocket.
+- Our commitment to integrity, our commitment to diversity and inclusion, to respecting our teammates - that's what makes this business work.
+- We treat the management-to-workforce relationship as very important and will continue to invest in that relationship.
+- Our enduring values as a company are the most important of our mission and purpose.
+- Our concept of One Boeing assumes an integrated business mix of deep commercial and military expertise applied across the global marketplace.
+- As we continue to drive the benefits of integrating our enterprise skills, capabilities, and experience - what we call operating as 'One Boeing' - we will find new and better ways to engage and inspire employees, deliver innovation that drives customer success, and produce results to fuel future growth and prosperity for all our stakeholders.
+- I'm a big fan of having a team with different thoughts and backgrounds and experiences; that makes for a better enterprise and better decision-making.
+- We expect to be a prime in the fighter jet business for the long run. This is not a business we're getting out of at all.
+- I believe you'll see a low Earth orbit space travel business begin.
+- In the long run, competition makes us better... it drives innovation.
+- We need to stay on the leading edge of technology, that technology in our products, in our internal process and manufacturing. But most importantly, we need the talent. It's multidisciplinary talent. It's talent that knows how to operate globally, that has technology savvy and a business savvy.
+- We like competition.
+- Aerospace services represents one of our biggest growth opportunities for the future.
+- When you think about our 13,000 small and medium businesses in America that are part of our supply chain, and that's more than 1.5 million manufacturing jobs. So it's a significant job generator.
+- If we ramp up capabilities in China, including additional 737-related work, the actions that we'll take are actions that ultimately allow us to grow jobs in the U.S.
+- We see the Super Hornet as an opportunity... to tie directly into the 'Make in India' strategy.
+- The future of innovation has to include not only the technology, but economic viability.
+- If the U.S. were to not reauthorize the Ex-Im bank, it's in essence unilaterally disarming in a globally competitive environment.
+- If you want to work in engineering and to have an impact that's global, come work in the aerospace sector.

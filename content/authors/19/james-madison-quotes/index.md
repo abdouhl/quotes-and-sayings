@@ -1,0 +1,78 @@
++++
+author = "James Madison"
+title = "James Madison Quotes"
+quotes_len = "72"
+description = "the best 72 James Madison Quotes"
++++
+- If Tyranny and Oppression come to this land, it will be in the guise of fighting a foreign enemy.
+- The number, the industry, and the morality of the priesthood, and the devotion of the people have been manifestly increased by the total separation of the church from the state.
+- We are right to take alarm at the first experiment upon our liberties.
+- War contains so much folly, as well as wickedness, that much is to be hoped from the progress of reason.
+- The truth is that all men having power ought to be mistrusted.
+- To the press alone, chequered as it is with abuses, the world is indebted for all the triumphs which have been gained by reason and humanity over error and oppression.
+- By rendering the labor of one, the property of the other, they cherish pride, luxury, and vanity on one side; on the other, vice and servility, or hatred and revolt.
+- Each generation should be made to bear the burden of its own wars, instead of carrying them on, at the expense of other generations.
+- Knowledge will forever govern ignorance; and a people who mean to be their own governors must arm themselves with the power which knowledge gives.
+- Any reading not of a vicious species must be a good substitute for the amusements too apt to fill up the leisure of the labouring classes.
+- All men having power ought to be distrusted to a certain degree.
+- America was indebted to immigration for her settlement and prosperity. That part of America which had encouraged them most had advanced most rapidly in population, agriculture and the arts.
+- Religion flourishes in greater purity, without than with the aid of Government.
+- The advancement and diffusion of knowledge is the only guardian of true liberty.
+- Every nation whose affairs betray a want of wisdom and stability may calculate on every loss which can be sustained from the more systematic policy of its wiser neighbors.
+- War should only be declared by the authority of the people, whose toils and treasures are to support its burdens, instead of the government which is to reap its fruits.
+- A sincere and steadfast co-operation in promoting such a reconstruction of our political system as would provide for the permanent liberty and happiness of the United States.
+- A well-instructed people alone can be permanently a free people.
+- In no instance have... the churches been guardians of the liberties of the people.
+- The class of citizens who provide at once their own food and their own raiment, may be viewed as the most truly independent and happy.
+- Learned Institutions ought to be favorite objects with every free people. They throw that light over the public mind which is the best security against crafty and dangerous encroachments on the public liberty.
+- The purpose of separation of church and state is to keep forever from these shores the ceaseless strife that has soaked the soil of Europe with blood for centuries.
+- Of all the enemies of public liberty, war is perhaps the most to be dreaded, because it comprises and develops the germ of every other.
+- In Republics, the great danger is, that the majority may not sufficiently respect the rights of the minority.
+- In framing a government which is to be administered by men over men you must first enable the government to control the governed; and in the next place oblige it to control itself.
+- It is a universal truth that the loss of liberty at home is to be charged to the provisions against danger, real or pretended, from abroad.
+- A well regulated militia, composed of the body of the people, trained in arms, is the best most natural defense of a free country.
+- Whenever a youth is ascertained to possess talents meriting an education which his parents cannot afford, he should be carried forward at the public expense.
+- Americans have the right and advantage of being armed - unlike the citizens of other countries whose governments are afraid to trust the people with arms.
+- What spectacle can be more edifying or more seasonable, than that of Liberty and Learning, each leaning on the other for their mutual and surest support?
+- Liberty may be endangered by the abuse of liberty, but also by the abuse of power.
+- The diversity in the faculties of men, from which the rights of property originate, is not less an insuperable obstacle to an uniformity of interests. The protection of these faculties is the first object of government.
+- Union of religious sentiments begets a surprising confidence.
+- Let me recommend the best medicine in the world: a long journey, at a mild season, through a pleasant country, in easy stages.
+- I should not regret a fair and full trial of the entire abolition of capital punishment.
+- And I have no doubt that every new example will succeed, as every past one has done, in showing that religion and Government will both exist in greater purity, the less they are mixed together.
+- Wherever there is interest and power to do wrong, wrong will generally be done.
+- A pure democracy is a society consisting of a small number of citizens, who assemble and administer the government in person.
+- The internal effects of a mutable policy poisons the blessings of liberty itself.
+- No nation could preserve its freedom in the midst of continual warfare.
+- The people are the only legitimate fountain of power, and it is from them that the constitutional charter, under which the several branches of government hold their power, is derived.
+- The Constitution preserves the advantage of being armed which Americans possess over the people of almost every other nation where the governments are afraid to trust the people with arms.
+- Philosophy is common sense with big words.
+- Religious bondage shackles and debilitates the mind and unfits it for every noble enterprise, every expanded prospect.
+- Ambition must be made to counteract ambition.
+- The rights of persons, and the rights of property, are the objects, for the protection of which Government was instituted.
+- A man has a property in his opinions and the free communication of them.
+- As a man is said to have a right to his property, he may be equally said to have a property in his rights.
+- The executive has no right, in any case, to decide the question, whether there is or is not cause for declaring war.
+- If men were angels, no government would be necessary.
+- The personal right to acquire property, which is a natural right, gives to property, when acquired, a right to protection, as a social right.
+- What prudent merchant will hazard his fortunes in any new branch of commerce when he knows not that his plans may be rendered unlawful before they can be executed?
+- All that seems indispensible in stating the account between the dead and the living, is to see that the debts against the latter do not exceed the advances made by the former.
+- I entirely concur in the propriety of resorting to the sense in which the Constitution was accepted and ratified by the nation. In that sense alone it is the legitimate Constitution.
+- If we are to take for the criterion of truth the majority of suffrages, they ought to be gotten from those philosophic and patriotic citizens who cultivate their reason.
+- What is government itself but the greatest of all reflections on human nature?
+- Where an excess of power prevails, property of no sort is duly respected. No man is safe in his opinions, his person, his faculties, or his possessions.
+- The essence of Government is power; and power, lodged as it must be in human hands, will ever be liable to abuse.
+- The means of defense against foreign danger historically have become the instruments of tyranny at home.
+- The operations of the federal government will be most extensive and important in times of war and danger; those of the state governments, in times of peace and security.
+- It will be of little avail to the people that the laws are made by men of their own choice if the laws be so voluminous that they cannot be read, or so incoherent that they cannot be understood.
+- As long as the reason of man continues fallible, and he is at liberty to exercise it, different opinions will be formed.
+- Despotism can only exist in darkness, and there are too many lights now in the political firmament to permit it to remain anywhere, as it has heretofore done, almost everywhere.
+- I believe there are more instances of the abridgement of freedom of the people by gradual and silent encroachments by those in power than by violent and sudden usurpations.
+- The circulation of confidence is better than the circulation of money.
+- The happy Union of these States is a wonder; their Constitution a miracle; their example the hope of Liberty throughout the world.
+- To suppose that any form of government will secure liberty or happiness without any virtue in the people, is a chimerical idea.
+- I have no doubt but that the misery of the lower classes will be found to abate whenever the Government assumes a freer aspect and the laws favor a subdivision of Property.
+- A popular government without popular information or the means of acquiring it, is but a prologue to a farce, or a tragedy, or perhaps both.
+- Commercial shackles are generally unjust, oppressive, and impolitic.
+- There is no maxim, in my opinion, which is more liable to be misapplied, and which, therefore, more needs elucidation, than the current one, that the interest of the majority is the political standard of right and wrong.
+- The capacity of the female mind for studies of the highest order cannot be doubted, having been sufficiently illustrated by its works of genius, of erudition, and of science.

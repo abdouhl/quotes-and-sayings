@@ -1,0 +1,20 @@
++++
+author = "Gabriel Mann"
+title = "Gabriel Mann Quotes"
+quotes_len = "14"
+description = "the best 14 Gabriel Mann Quotes"
++++
+- The only description for Nolan in the script was that he's a very bad dresser. I put on a red windbreaker and every other ugly, ill-fitting thing I could dig out. He was potentially written as a clean-cut nerd, but I wanted a darker spin.
+- Sometimes people ask me how old I am, and I have to stop and remember. I forget myself!
+- All I had, originally, were pages of Nolan's dialogue. I think his character serves the story in a nice way. He's a Greek chorus for the goings-on in the Hamptons.
+- Whenever somebody hates you too much it usually means they have deeper feelings for you because nobody bothers to hate you unless they actually feel something.
+- For most of my 20s, I looked like I was 12. Now that I'm pushing 40, I guess I look closer to... 15? It must be my macrobiotic diet. Oh, wait, except that I don't have one of those.
+- I think you kind of hope for people to gush over movies, but I think the opposite way is great sometimes, too. I'd rather have a movie that you're angry about and that you're talking about the next day, than something you forget about when the popcorn goes into the trash.
+- When I started in the mid-'90s, the goal was really to shoot for a film career and stay there.
+- My role models were always the Pacinos and the Oldmans, the guys who get dirty with their characters, and I arrived in L.A. during the big boom of 'Dawson's Creek.' I was getting cast as the boy next door, or the friend of the jock. I thought, 'Did I really have to do all that studying?'
+- But TV has changed completely. It's not until you come into people's homes that everyone says, 'You're a success now.'
+- Nolan has the strangest affect on people. You know, I think there's something very sad and little boy about him, but at the same time the way he goes about everything is so awkward and obnoxious. He can never say the right thing, you know? And I think if he just didn't try so hard and calmed down, people might actually like him a bit more!
+- I play Father Francis in 'The Exorcist Prequel.' It's fantastic. We are shooting in Morrocco and Rome. Paul Schrader is directing; Stellan Skarsgard plays the younger Max Von Sydow character. It's just a fantastic script. It's a very eerie, very scary script. It encomposes a growing dread that I think is really appropriate for the film.
+- My father is a college professor and that's about the extent of my college experience. I'm sort of a professional student forever. I think just as human beings we always have a student who is alive in us and is waiting to pop up and make us feel like we are 16 years-old again.
+- I do like to turn a phrase, but it's all about how you turn it.
+- I'm a late bloomer. I believe 40 is the new 19.

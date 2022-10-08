@@ -1,0 +1,31 @@
++++
+author = "John Tyler"
+title = "John Tyler Quotes"
+quotes_len = "25"
+description = "the best 25 John Tyler Quotes"
++++
+- A republican government can only be supported by virtue; and the end of all our legislation should be to encourage our fellow citizens in its daily practice.
+- A manufacturing nation is, in every sense of the word, dependent on others. Look to England! Cut off from the markets of the world, misery and ruin await her.
+- The tolling of yon dismal bell and the loud but solemn discharge of artillery hath announced to the nation the melancholy tidings - Thomas Jefferson no longer lives!
+- I should be pleased to see all the nations on the earth prosperous and happy and rich, for it would furnish to me the best evidence of the prosperity of my native land.
+- Nature governs man by no principle more fixed than that which leads him to pursue his interest.
+- I can never consent to being dictated to.
+- When the happy era shall arrive for the emancipation of nations, hastened on as it will be by the example of America, shall they not resort to the Declaration of our Independence as the charter of their rights, and will not its author be hailed as the benefactor of the redeemed?
+- Wealth can only be accumulated by the earnings of industry and the savings of frugality.
+- This Constitution was not made for a day, nor is it composed of such flexible materials as to be warped to the purposes of a casually ascendant influence.
+- Our wise men flattered us into the adoption of the banking system under the idea that boundless wealth would result from the adoption.
+- Liberty and equality are captivating sounds, but they often captivate to destroy.
+- We direct the destinies of a mighty continent. Our resources are unlimited: our means unbounded. If we be true to ourselves, the glory of other nations, in comparison to ours, shall resemble but a tale from the days of chivalry.
+- Pleasure has ever more been represented by poets and by painters as clothed in perpetual smiles and adorned with the richest jewels; and in real life, we have known many who, allured by her deceptions, blandishments, and hollow but showy temptations, have followed as she pointed until ruin has befallen them.
+- I am charged with violating pledges which I never gave; and because I execute what I believe to be the law, with usurping powers not conferred by law; and above all, with using the powers conferred upon the President by the Constitution, from corrupt motives and for unwarrantable ends.
+- Parties are continually changing. The men of today give place to the men of tomorrow, and the idols which one set worship, the next destroy.
+- On the coming of that tremendous storm which for eight years desolated our country, Mr. Jefferson hesitated not, halted not.
+- So far as it depends on the course of this government, our relations of good will and friendship will be sedulously cultivated with all nations.
+- The sailor's life is at the best a life of danger. He pursues honor on the mountain wave and finds it in the battle and in the storm, and never did more distinguished chivalry display itself than in the conduct of our seamen during the late war.
+- The applause of his native land is the richest reward to which the patriot ever aspires. It is this for which 'he bears to live or dares to die.' It is the high incentive to those achievements which illustrate the page of history and give to poetry its brightest charm.
+- Popularity, I have always thought, may aptly be compared to a coquette - the more you woo her, the more apt is she to elude your embrace.
+- My own personal popularity can have no influence over me when the dictates of my best judgment and the obligations of an oath require of me a particular course. Under such circumstances, whether I sink or swim on the tide of popular favor is, to me, a matter of inferior consideration.
+- Our form of government can no longer be considered an experiment in politics. Crowned with success, it stands forth an example to the world and exhibits the proudest triumph of reason and philosophy.
+- Were you a merchant, would you settle yourself in a rich or poor neighborhood? You would not be so blind as to locate yourself among persons who would not be able to purchase your goods. So with nations with whom we trade.
+- Let it be henceforth proclaimed to the world that man's conscience was created free; that he is no longer accountable to his fellow man for his religious opinions, being responsible therefore only to his God.
+- It is by these, the people, that I have been clothed with the high powers which they have seen fit to confide to their Chief Executive, and been charged with the solemn responsibility under which those powers are to be exercised.

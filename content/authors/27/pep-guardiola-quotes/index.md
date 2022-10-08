@@ -1,0 +1,105 @@
++++
+author = "Pep Guardiola"
+title = "Pep Guardiola Quotes"
+quotes_len = "99"
+description = "the best 99 Pep Guardiola Quotes"
++++
+- If I believed in it, and it wasn't productive for the team, I wouldn't do it.
+- To score four times against an Italian team when you trail 2-0 is a big deal.
+- I won't be training at 60 years old, because I want to do something else in my life.
+- I won 21 titles in seven years: three titles per year playing in this way. I'm sorry, guys. I'm not going to change.
+- I want to feel the team is playing like I want. If not, why am I here?
+- As time goes by, people get to know you better. They pose problems for you, and you have to come up with solutions.
+- You hear all these people saying, 'Oh, Pep, what a good manager he is.' Forget about it. Cruyff was the best, by far.
+- When you train a massive club or little third division outfit, when you go out to play football in any situation, it is always about winning.
+- I thank Manchester City for giving me the opportunity to train these amazing players.
+- If you want to win, you have to beat the big teams in Europe, and Juventus are awesome.
+- From my point of view, I always want to fight until the end of my last chance.
+- People talk about tactics, but when you look at it, tactics are just players. You change things so that the team can get the most out of the skills they have to offer, but you don't go any further than that.
+- You know what happens in all the big companies and business in the world. If something doesn't work, you have to find a solution.
+- At the end of the day, it's my players play against their players, and the end of the day, that's what's important.
+- People say, 'Pep won in Barca, but it was boring,' or, 'Pep won in Bayern, but it was boring.' I understand that. But games won, goals scored, goals conceded, titles... sorry, guys, it was good!
+- What I have to do to make sure I don't lose some games in a row; I don't know.
+- We cannot change absolutely everything in one season.
+- When you're out on the touchline, like a winger, it is easier to play. You see everything: the mess, the crowd, the activity is all inside. When you play inside, you don't see anything in there because so much is happening in such a small space and all around you.
+- For the last decade, the last 50 years, Barcelona dominate football matches. I love the way they play.
+- I will not be on the bench until I am 60 or 65 years old.
+- The people say I have to change? Well, the people have to tell me what I should do to change.
+- The fundamentals, what I want, which is to take the ball, try to play as offensive as possible and dominate the game through the ball, is the same. I grew up with that; I was a player with that idea, and I am a coach with that idea.
+- I am grateful to be here, and I will always be grateful for the opportunity Manchester City gave me.
+- Tactics are so important because everybody has to know what they have to do on the pitch. The relationships and behaviours off the pitch between team-mates have to be as good as possible.
+- The most difficult thing in football is to score a goal.
+- I don't want preconceptions. I want to learn as much as possible.
+- I need time, but as soon as possible, we are going to try to create team spirit. That is the most important thing. After that, you can create tactics, but we have to create something special with ourselves.
+- The players are coming to try every game, every weekend, so that the Manchester City people can be proud, and we will see what is our level to achieve our battles.
+- I want happiness for the players.
+- What happens in the Premier League is that when they arrive in the area, they punish you.
+- All the managers in the world, it doesn't matter how good you are, if your players don't understand what you are looking for or what you want, it makes no sense.
+- I don't like it when a player says, 'I like freedom; I want to play for myself.' Because the player has to understand he is part of a team with 10 other players. If everyone wants to be a jazz musician, it will be chaos. They will not be a team, and nothing will be possible.
+- People want to be entertained. They don't want to be cheated.
+- In Barcelona, Bayern Munich, in Spain and Germany we were able to do it. But people say, 'You only did it because you were in Barcelona and Bayern Munich. You will not be able to do it in England.' So, let's do it. We are going to try.
+- At Barcelona, I had the best players ever, and they helped me to be a successful manager.
+- When you are 10 points behind, you have to be focused just on the next game.
+- It doesn't mean my footballing ideas are special, different, better than the others. I am not saying it's my football, my ideas, and the other coaches are nothing. It's the way I believe. I'm not special.
+- I come here to be coach of Manchester City and train these players. That's the reason I am here.
+- I want the ball for 90 minutes. When I don't have the ball, I go high pressing because I want the ball.
+- You can win ten times, and then you are not able to win five times. I have to discover the reason why, and I am going to find that.
+- There are footballers who are very good playing on the outside but don't know what to do inside. Then there are players who are very good inside but don't have the physique, the legs, to go outside.
+- I have to understand the rules here in England.
+- The reason we are here is thinking, 'What can we do to make this club a better club?' I don't want the guys to think about what the club can do for them.
+- I want to win. I want to play serious. I want to be effective.
+- In football, the worst things are excuses. Excuses mean you cannot grow or move forward.
+- For my experience, my family. I will always be grateful for the people who brought me here.
+- We try to play football; don't forget it, right. My teams always in my career try to play football. I cannot control the other circumstances.
+- People always think the coach is the strongest person at a club, the boss, but in truth, he's the weakest link. We're there, vulnerable, undermined by those who don't play, by the media, by the fans. They all have the same objective: to undermine the manager.
+- I started playing football young, and my career was on the pitch.
+- Maybe Klopp is the best manager in the world at creating teams who attack the back four with so many players, from almost anywhere on the pitch. They have an intensity with the ball and without the ball, and it is not easy to do that.
+- In some times of the game, you have to be more simple.
+- Let us fight until the end. Let me try at least that - fight.
+- We have to cut out some of our mistakes, but the main thing in English football is controlling the second ball. Without that, you cannot survive.
+- I proved myself in Barcelona, and after I proved myself in Germany, I wanted to prove myself in England.
+- When Klopp speaks about his football being heavy metal, I understand completely. It is so aggressive. For the fans, it is really good.
+- I would like to involve and love to work with young players.
+- It's natural for players to be relaxed, so you have to be there to say, 'You have to do it again and again and again.'
+- Creating something new is the difficult part. To make it and build it and get everyone to follow? Amazing.
+- I think all managers have to be so demanding.
+- People usually think that it is the coach who has to raise the spirits of his players; that it is the coach who has to convince his footballers; that it is his job to take the lead all the time. But that's not always the case.
+- It's a pleasure. We are lucky guys to be there in front of the millions and millions watching us.
+- Will I be a success? I don't know.
+- I try to be positive. I speak to my players about how we have to play, respect the rules. What I have done is always be positive.
+- That unpredictable game here in England, that makes it so fascinating for the fans, because you never know what will happen.
+- We need the whole squad, every player of the team, if we are to be successful.
+- I know the people expect the best - good. The people expect we'll play fantastic football and win games - good. I can't control that. I accept that, and I just focus on my players in the games.
+- I'm sorry, but until my last day as a coach, I will try to play from my goalkeeper.
+- Sometimes when you miss out on points, it is a pity, it is a shame, because we tried to do everything in the game.
+- A perfectionist? That's part of my job.
+- I have a lot of respect for the careers of the players. They are with us, they are with me, and I treat them like professionals.
+- I am here just to learn, to improve, to help my team improve.
+- We all feel that hunger in football. With Cruyff, it was different. He deepened and changed the hunger so you became conscious of why you are getting better.
+- People say you must be pragmatic, more clinical. More pragmatic than me? I'm sorry.
+- I don't understand the lack of respect for amazing players when people say they are not good enough for me.
+- I am here to change anything. I'm here to adapt. The critieria between a yellow and red card. What is a foul and what is not.
+- The result is an empty thing. The result is I'm happy for the next two days because I get less criticism and more time to improve my team. But what satisfies me the most in my job is to feel emotions, the way we play.
+- The Premier League is so difficult.
+- I try to play in one way all my career and here, with high pressing, but it is different in England. Many times the ball is more in the air than the grass, and I have to adapt.
+- Manchester City has a really good academy, and they're winning titles at all ages.
+- I don't want players who don't want to stay.
+- Alexis Sanchez would fit in any team in the world.
+- The fans can accept a poor performance, but they won't take it when you choose not to put in the effort.
+- I want to win games; I don't want to lose games.
+- Our job is to convince guys that our way is the best way to cross the road. The tactics and training and facilities are important, but I still have to convince you.
+- I don't think in the big clubs in Europe you can find three strikers with an average age of 20.
+- I am so happy when I feel emotion about the way my team plays.
+- I feel what I feel, and in the Premier League, there are some special things, but the pitch is the same. What I believe is good and will be good.
+- Why am I here? Yes, to win titles, because then I will feel happy for the people. But the process is the reason why.
+- I want to play the football I feel.
+- I want to feel I can help the club to believe they are good, and I want to feel the fans knowing the team is good. Sometimes you don't believe that because in the past, you have not won as many titles like the other ones.
+- I am not a coach for the tackles, so I do not train them.
+- Barcelona are special in the way they play. They're a machine.
+- All the managers in the world are here to win games.
+- Sometimes I was wrong about my players. Sometimes I want more and more from them; sometimes I am so demanding, but they showed me how good they are.
+- Maybe one day I will work in Italy. If they want me.
+- I enjoy every day in Manchester. I am confident we can make a step forward to make people proud of us.
+- It is one of the best clubs in the world by far. I'm loving Manchester City.
+- I understand and accept that for the people of Munich, only the treble will do.
+- This was how Johan Cruyff worked. He was demanding a lot, but when you got there, and you were in his team, he was an incredible protector. He would push and push you, and then he would protect you. He was a master at handling players. He knew when you needed to be pushed or protected.

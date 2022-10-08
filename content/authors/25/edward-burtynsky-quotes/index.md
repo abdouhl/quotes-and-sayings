@@ -1,0 +1,45 @@
++++
+author = "Edward Burtynsky"
+title = "Edward Burtynsky Quotes"
+quotes_len = "39"
+description = "the best 39 Edward Burtynsky Quotes"
++++
+- These landscapes aren't breaking news or necessarily even illegal. These are intentional, purposeful landscapes, whether to extend our cities or build a mine or put a road in or clear a forest. I've been photographing that which has been intended by us; it's not an accident.
+- When I look at green trees on a sunny day, I don't know how to make an interesting picture of that.
+- All of my work comes out of a deep concern for human expansion into the landscape.
+- Like all animals, human beings have always taken what they want from nature. But we are the rogue species. We are unique in our ability to use resources on a scale and at a speed that our fellow species can't.
+- I love the tones of browns and grays - I love more neutral tones. That's why I like going to the desert and working in the desert. I find that green trees and things like that have a tendency to lock us into a certain way of seeing.
+- To me, Los Angeles was the invention of the suburb. They figured it out and perfected it and created a city that was dependent on the automobile.
+- I wish my artwork could persuade millions of people to join a global conversation about sustainability.
+- Water, like many other resources, is harvested, transported and used throughout all aspects of society. Unlike other resources, water is critical to the survival of all forms of life. The underlying question that sits at the core of my exploration is to what degree can we shape water before it begins to shape us.
+- I'm of the belief that you pursue your interests, you pull it all in, and you sort it out later.
+- If you look at photojournalism, it's largely driven by current events... always chasing a crisis or disaster. I follow a narrative that is much looser than current events.
+- My father was an amateur oil painter, so some of his oil paintings were on our walls. There was one above the piano of a famous Ukrainian poet, Taras Shevchenko, playing an instrument known as a bandura. I remember that one kind of resonated with me; it was always central in the living room.
+- Wherever you disrupt water from its natural cycle, there's always a winner and a loser. Whoever is the one it's directed towards is the winner, and whoever loses that water is the loser.
+- I wish I could create an IMAX film that would make my work accessible to a broader audience.
+- I had to work to put myself through school, so I always worked in the heaviest industries I could find because that's who paid the best.
+- As artists, we can help, visually and intellectually, to make people understand that, at some point, we have to accept that it is our collective impact that is putting the whole planet in jeopardy.
+- I have always been interested in following the technology that I feel are presenting themselves as true industry and innovation.
+- Berlin has a uniquely haunting nature, symbolic of a problematic system that was created to oppress and divide a nation.
+- I'm trying to photograph an old offshore oil city that is lying in decay in the Caspian Sea, but I've been having a hard time getting there.
+- I think the environmental movement has failed in that it's used the stick too much; it's used the apocalyptic tone too much; it hasn't sold the positive aspects of being environmentally concerned and trying to pull us out.
+- I came out of a blue-collar town, a GM town, and my father worked at GM, so I was very familiar with that kind of industry and that also informed my work.
+- I can go into the wilderness and not see anyone for days and experience a kind of space that hasn't changed for tens of thousands of years. Having that experience was necessary to my perception of how photography can look at the changes humanity has brought about in the landscape. My work does become a kind of lament.
+- We have extracted from the land from the moment we stood on two feet. We are working to supply the kinds of materials that are necessary for the lives we've built for ourselves.
+- Humans can really reveal themselves through what they choose to see as the most important or meaningful detail in an image.
+- I remember the first roll of film I took. It was wintertime, and I wanted to shoot a roll of film to practice processing it, so I took an entire 36-exposure roll of my dog, Tippy.
+- I no longer see my world as delineated by countries with borders or language, but as seven billion humans living off a single, finite planet.
+- The bigger question is how does a rogue species called humans - whose population just blew through the seven billion mark on it's way to nine billion members - manage to survive the next century on a planet with finite resources, without destroying its delicate balance in the process.
+- In our ephemeral information age, people think we've left behind the stone, bronze, and iron ages. But they're all still going on - we use tonnes of this stuff every day. You just have to look.
+- Good governance takes behavior that is negative or not helpful to the greater good of society, whether it's polluting behaviour, plastics, or whatever, and taxes the behaviour.
+- I have a fondness for when the landscape becomes surreal.
+- I like to think of Photography 1.0 as the invention of photography. Photography 2.0 is digital technology and the move from film and paper to everything on a chip. Photography 3.0 is the use of the camera, space, and color and to capture an object in the third dimension.
+- Somebody referred to what I do as subliminal activism, which I like.
+- I wish we could launch a ground-breaking competition that motivates kids to invent new ideas in sustainable living.
+- No water equals no life. We can have no oil; it's fine. No water - there is no plan b with no water.
+- Our planetary system is affected by a magnitude of force as powerful as any naturally occurring global catastrophe, but one caused solely by a single species: us.
+- Digital photography and Photoshop have made it very easy for people to take pictures. It's a medium that allows a lot of mediocre stuff to get through.
+- One thing that's consistent in all of my work is that these aren't accidents; they're all conscious landscapes. They're all things that we're doing and that we have done through our legal and social systems and structures of capitalism.
+- In film, you can create the illusion of time and space. People speak; characters reveal their feelings. You can use music, which informs how you should be feeling, and it carries you to the right emotional space.
+- Sometimes you don't know why you're doing something. You're intuitively following, to see where it leads.
+- I'm working in this very complex set of issues having to do with who we are as a species and how much we can do to the Earth before it starts to buckle under. My work can easily read as an indictment, but I don't see it as that simple a problem.

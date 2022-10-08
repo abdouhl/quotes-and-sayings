@@ -1,0 +1,105 @@
++++
+author = "Steven Wilson"
+title = "Steven Wilson Quotes"
+quotes_len = "99"
+description = "the best 99 Steven Wilson Quotes"
++++
+- If I want to do an orchestral record, if I want to do an acoustic record, if I want to do a death-metal record, if I want to do a jazz record - I can move in whichever direction I want, and no one is going to get upset about that. Except maybe my manager and my record company.
+- I wanted people to say that our music sounds like Porcupine Tree, not that it sounds like King Crimson.
+- 'Routine' was written on piano, and you can hear that. But then you listen to 'Happy Returns,' and you can tell it's definitely been written on guitar, with that singer-songwriter-y strumming quality.
+- I've always been the sort of person who likes to look forward and live in the present.
+- I think the rock audience still likes to have a physical product. The demand for owning a physical copy is still there.
+- You cannot please everyone, and I think that what's important, ultimately, is to make sure you please yourself. If you start trying to please other people, you'll just go around in circles.
+- Certainly for some time, people used to think of my solo career as somehow a side project to Porcupine Tree. No. If anything, the opposite would now have to be the case.
+- One of the beauties about going solo was being able to start from scratch and say, 'What do I really want? What kind of band do I really want? What kind of live show do I really want to stage?' Without any of the baggage of being something with history.
+- The definition of an artist, for me, is someone who is quite selfish about their creativity.
+- The nature of music fandom and music fans is that, very often, they fall in love with a band or a particular artist, and they really would like... I'm talking generally; that's not everyone. But a vast majority of the fan base would prefer the band to keep making the same record and the same style of music over and over again.
+- My favourite chord? Bb6th with added 9th.
+- The one thing I do believe is, if you make the songs about the human aspects of things, you've got a much better chance of having the music transcend the times. If you make them very political and very topical, it's going to date very quickly.
+- When it comes to being in a band or going solo, one is collaborative, and one is not. But generally speaking, when going solo, I am the boss. People can contribute ideas, but I am the boss. When collaborating, you make compromises and look for a common ground.
+- My first love is making records, and whatever's necessary in order for me to achieve that, I'll learn how to do it.
+- I never claimed to be a generic artist, period. I never wanted to be a generic artist.
+- My fifth record is, in many ways, inspired by the hugely ambitious progressive pop records that I loved in my youth.
+- It's something I've recognized in the careers of those people who have been inspiring to me over the years - Neil Young, Kate Bush, David Bowie, Frank Zappa, and Prince. These are all people who constantly redefined themselves, and had to deal with the difficulty of trying to take their audience with them when they did that.
+- It's too easy now to find music, and it's therefore too easy to dismiss music, particularly music that doesn't hit you the first time you hear it.
+- It's nice to be in the position where you're the guy with the vision, but you're able to work with people who can bring your vision to life - and then some.
+- Ultimately, I'd like to create a body of work where every album has its own personality and a reason to exist within the catalog, not just 'more of the same.'
+- Ultimately, I don't think you can be a character who's completely alien or divorced from your own personality. It's probably true of every writer - it's probably true of every filmmaker, every songwriter - that, ultimately, every character you create is a facet of yourself.
+- You forget, living outside of a country, that the actions of the government are not the actions of the people.
+- I never made a distinction, really, between music and sound. Let me explain what I mean by that. I grew up near to a train station, and the sound of the trains became a very important part of my world. It was a very musical sound to me.
+- We are living in dystopia, in a world that is dominated by technology and disconnect, alienation, loneliness, and dysfunction.
+- I always wanted to create my own musical world. That takes time and must be earned, and it does mean sometimes confronting the expectations of the audience.
+- I am a great believer that you should record more than you need and then use the absolute best.
+- Every time the mainstream media talk about progressive rock, they wheel out a clip of Rick Wakeman in a cape. For me, it's one of the most ambitious forms of music. The problem is that when it doesn't work, you end up with Emerson, Lake and Palmer doing symphonies with 60-piece orchestras and revolving pianos, which I think is ridiculous as well.
+- There are certain topics that I've come back to time and again throughout my career. On 'To the Bone,' there are certain subjects I have touched on before.
+- I have a thing for major 7ths. They've got a very mournful, nostalgic quality to them.
+- I left school, and I went to work in a computer company. I was in my late teens.
+- When I was a very young kid, the first music that really turned me on was a new wave of British heavy metal - big, dumb rock music. There was a band called Diamond Head - they were basically the band that inspired Metallica. But I also liked bands like Saxon and Iron Maiden.
+- Pink Floyd, the most successful progressive rock band of all time, have stood the test of time because the emphasis was always on melody and atmosphere.
+- When I was younger, I worked for several years composing music for commercials, but I was very happy to give that up. I didn't really like it, it was a way of financing my bands.
+- When I did 'Hand Cannot Erase,' I didn't have a specific singer in mind.
+- It's always lovely to discover that the people that you kind of look up to are actually very down-to-earth people.
+- The city can be the loneliest place of all.
+- I get really frustrated - actually, it almost makes me angry - when I see, sometimes, magazines will publish a musician's playlist. They'll go and they'll ask, I don't know, somebody from Aerosmith or whoever, Coldplay, to list their five favourite albums. And it's always the same stuff!
+- Israel is a wonderful country, especially Tel Aviv.
+- Owning vinyl is like having a beautiful painting hanging in your living room. It's something you can hold, pore over the lyrics, and immerse yourself in the art work.
+- That's what made me fall in love with music in the first place was the idea of being able to take listeners on a journey across forty or sixty minutes.
+- I've never been one of those people who say, 'Oh, well, if you play this kind of music, you can only like these kinds of bands.'
+- I think having artwork, lyrics, credits and such like are things that people really value. It's hard work to come up with something like that, but I think it's worth it.
+- It's one thing to fail with something you utterly believe in, but to fail with something you don't believe in? You just feel so sordid.
+- One thing I have found over years is that if you change direction, the initial reaction tends to be very polarized, but as the music gradually filters through and fans start engaging with it on its own terms rather than comparing it to what went before, the appreciation and acceptance of it increases.
+- I've seen a fair amount of concert DVDs - some of them are great, some of them are not. If there are problems with them, it's usually because of budget limitations and camerawork.
+- I really love the combination of Israel and England. They are completely different. The British are very private and keep things to themselves, while Israelis aren't that way. In England, I couldn't make friends with people in the supermarket or people who work at my bank or post office, but in Israel I can, and I like that.
+- I think I've become a better storyteller over the years.
+- I grew up at the very tail end of the vinyl era, and at the time, I remember, we couldn't wait for CD to come along because vinyl was so frustrating. You would buy the record, take it home, and it would have a scratch, and you would have to take it back again.
+- Ever since I was a kid, I've always been interested in the poetry of melancholy, if you like.
+- Pop shouldn't be a comfortable slipper. It should shock and surprise you and confront your expectations.
+- I've always wanted to make some kind of music that was universally appreciated.
+- I think most people can relate to the feeling of love spilling over into obsession.
+- When I was growing up, I was always looking for the most willfully uncommercial music: Whether it was Captain Beefheart or Frank Zappa or King Crimson, that's what attracted me.
+- In the mid- to late '70s, there was no one better than ABBA at writing and producing great pop.
+- So many things influence me in one way or another. Some might be surprising, but that's OK.
+- I think anybody who likes Cardiacs, they tend to be quite evangelistic about them for obvious reasons. They're not a band you can be on the fence about.
+- I grew up listening to a lot of very smart pop records by artists like Kate Bush, Talk Talk, Peter Gabriel, Prince, Depeche Mode, Tears for Fears, The The.
+- I myself lived in London for 20 years, and I never knew my next-door neighbors. I never knew what they did. I never knew their names. They didn't know what I did for a living, and they didn't know my name.
+- There's always something special playing in your home country in front of your home audience.
+- People who like progressive music tend to sneer at the idea of a kind of punk aesthetic, and people who like alternative indie rock or punk rock tend to sneer at what they see as the pretentiousness and pomposity of progressive music.
+- I loved disco music, and I still count Donna Summer as one of my favorites of all time.
+- When you're in a band, you're all in it together. You're always available. You're always available for the albums; you're always available for the tours. There's no question of that.
+- I think there's something very peculiar about living in the city and not part of the major metropolis; that actually makes it remarkably easy to disappear.
+- I think 'genius' is an overused word.
+- I think that's part of the battle of defining yourself as an artist. You're constantly fighting the pressure from outside to be pigeonholed and deliver more of what people already liked.
+- Every time I make a new record, some of my existing fans are going to like it, and some are not. It's inevitable, and it's part of the deal. It's part of the job description.
+- Jazz drummers traditionally are not always prepared to just hold down the beat; it's like they're soloing the whole time.
+- It's a cliche that music rises above it all, and it's a cliche for a reason - it's very often true.
+- I never wanted us to be an exercise in nostalgia, living in the shadow of other artists.
+- It's possible that Israel will be my second home, but it won't be my only home.
+- I grew up listening to bands like the Cure, Joy Division, Cocteau Twins, Dead Can Dance - these are the bands that I actually grew up with, and I always had these things in my taste, too. And I always loved industrial music as well: I listened to Throbbing Gristle, SPK, Cabaret Voltaire. And shoegaze bands like Slowdive and My Bloody Valentine.
+- The whole notion of an alternative truth is a paradox. How can you have an alternative to truth?
+- We had an extreme reaction to Storm Corrosion. We were proud of it, but it divided the audience. The metal fans were divided. Some went with it. Some hated it, since it wasn't the progressive metal supergroup they were waiting for.
+- My autobiography would be 'Loves music, loves art, works hard, writes music, tours the world, makes records.'
+- I grew up with vinyl records and remember the pleasure and the kind of buzz that I got from buying a beautiful vinyl record with the sleeve and the lyrics - all that kind of tactile experience that you could get from an old vinyl record.
+- People have asked me about doing an autobiography, but I don't think my life is that interesting.
+- I think my fans are much more open-minded than some other bands' fan bases are.
+- If you want to be an entertainer, then go be an entertainer and give people what they want. If you want to be an artist, then you have to be true to yourself, and you have to be prepared to confront expectations - and you have to be prepared to disappoint your fans, too.
+- Is it sad that Storm Corrosion needs to be explained to people before they can accept it? I don't think it's sad; I think it's inevitable. I think it's just human nature.
+- I've played to audiences where people are sitting there with their arms crossed, just kind of watching. Although they might be having a great time, and they might be really enjoying the spectacle, if I'm not getting anything back, it does affect the way I perform and project.
+- My musical tastes are very diverse. I just never felt like listening to certain kinds of bands. There's too much great stuff out there.
+- I like artists that tend to be more interested in reinventing themselves, in experimenting.
+- Porcupine Tree is a band, and it's not up to me where the band goes - it's between the manager, our agent, and the band as a whole.
+- Human beings find change very difficult. They find change is something that can be quite an awkward thing to adjust to. It applies to music. It applies to life. It applies to everything.
+- If you want to be an entertainer and just keep your audience happy, that's one thing. But to be an artist, I think, means ultimately primarily pleasing yourself, and in that respect, you constantly have this sense of confronting the expectations of your audience.
+- If you live in the city, you only have to look out your window to see enough that would make you feel that you don't want to step outside your front door ever again.
+- Some musicians feel they have to provide what their audiences expect. They lose the distinction between an artist and an entertainer. I am not an entertainer.
+- What I do is I basically make records to please myself first and foremost, and so one of the most important things for me as a musician and a writer and a producer is to feel like there's always a sense of evolution and reinvention with each record.
+- You will hear ambient in our music. You will hear trip-hop.
+- Being English, we're polite and reserved, we don't express our opinions; we're very private people.
+- There was a time when pop music and rock music were really reaching for the stars and were not ashamed to be experimental. You think of a song like 'Shout' by Tears for Fears. That's a massive global No. 1 hit, and yet the subject matter is very dark.
+- The truth is I got rid of 100% of my vinyl in the '90s. All the vinyl I have is re-bought.
+- I've put out records over the years, whether it's with Blackfield or No-Man or Bass Communion or Porcupine Tree, that are pop records, ambient records, metal records, singer-songwriter records.
+- The real artists are ultimately people who don't consider their audience and are almost incapable of considering their audience. They can do what they do and fire themselves up.
+- We live in the physical world, the age of the Internet, and it's very easy to disappear from view and isolate ourselves from the rest of world and become invisible.
+- Like anybody, I look around at the world that we live in, and I find it hard to be completely positive about everything that's going on.
+- We live in a world dominated by fear and paranoia.
+- I think there is something about the Internet which gives people almost an opportunity to role play and to create a facade, an image. I see that as quite a dangerous development because I think what we call social networking, Twitter, Facebook, etc., is actually quite antisocial.
+- I'm not one of those guys who can just take a guitar into a room and come out with a song. I need all my instruments dotted around.

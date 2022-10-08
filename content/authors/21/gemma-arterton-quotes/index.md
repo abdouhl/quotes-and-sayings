@@ -1,0 +1,36 @@
++++
+author = "Gemma Arterton"
+title = "Gemma Arterton Quotes"
+quotes_len = "30"
+description = "the best 30 Gemma Arterton Quotes"
++++
+- Especially with girls, people always want to put them in little brackets.
+- I love strange things; my favorite movies are weird, eclectic, and intriguing.
+- I'm always surprised at what I actually end up doing because I don't have a strategy or a game plan, especially now that I'm making my own choices.
+- I was born with six fingers on each hand.
+- I don't want to be about the way I look - my body, my hair, my makeup, all those boring things.
+- I've done about four deaths in films now, and I think it's quite good because then it's sort of a memorable moment in the film.
+- I'm always listening to music; I can't live without it.
+- Never in my short career, I've never had that experience where I wasn't sure if I was acting or if it was real.
+- You can't connect with something you're not passionate about.
+- I don't know why it's still a taboo to be a feminist.
+- I am terrible at video games and I am really competitive. And if I am not the best at something, I go absolutely crazy!
+- I was in lots of dodgy bands growing up and I always fancied myself in a band. But, you know, I was rubbish at writing music. So maybe one day I'll play a rock star, or punk rocker.
+- I don't go out and go to parties and do all of that.
+- My family are very down-to-earth people. We are not showbizzy at all.
+- My mother, she had a very good attitude toward money. I'm very grateful for the fact that we had to learn to save. I used to get like 50 pence a week, and I'd save it for like five months. And then I'd spend it on Christmas presents. I'd save up like eight pounds. It's nothing, but we did that.
+- I probably should get a bit more star-struck but I never do.
+- I'm looking at working with people I get on with, that respect me, that don't just see me as a piece of ass. Which I have experienced as well. I've nearly walked off very big films before, and I would, because I don't want that in my life. I want to enjoy the work I do.
+- It's such a male-dominated industry. You can be a feminist, it's just difficult because it sometimes comes back at you.
+- I always thought I was going to end up an old spinster, with my cats and fur coats.
+- The industry is quite chauvinistic generally. Expectations of women, girls, what they should look like, how they should be, what they should say, what they should wear, how their hair should be, what colour their skin should be.
+- When I watch myself in movies I go, 'My God.'
+- I wouldn't change a thing in my own life, but I'd like to go back in time anyway though, just to some sort of eras that I wish I'd lived in - like the '60s. I'd love to have been in London in the '60s, partying away.
+- It's interesting for me to always make myself look very different.
+- Music is my biggest passion aside from anything else.
+- I was quite naughty at school.
+- I've never been to the opera; I've only seen opera on DVD.
+- I was born with lots of deformities.
+- I actually had a cockney accent before I went to drama school. It's softened up a bit.
+- My family was never cultural in that we never went to see plays, my mum wasn't very into films.
+- It's difficult for a young girl like me. Because there's a certain time for young actresses, which is like a really juicy period when all the parts are love interests and young heroines. Of course, there's always work for men whatever age they are.

@@ -1,0 +1,41 @@
++++
+author = "Gene Cernan"
+title = "Gene Cernan Quotes"
+quotes_len = "35"
+description = "the best 35 Gene Cernan Quotes"
++++
+- People try to typecast astronauts as heroic and superhuman. We're only human beings.
+- We don't have the capability today to put a human being in space of any kind, shape or form, which is absolutely, totally unacceptable when we got the greatest flying machine in the world sitting down at Kennedy in a garage there with nothing to do.
+- We found out the Gemini spacesuit was, well, oxygen was flowing to keep me cool as well as to breathe, and it wasn't good enough. My visor got fogged.
+- Neil Armstrong was probably one of the most human guys I've ever known in my life.
+- Chemical propulsion is obsolete to go anywhere other than the moon. Three days - that's acceptable. But for Mars, we need propulsion technologies to get us there in, say, 60 days - then spend whatever length of time we want to spend and return when we want to come home.
+- One of the most important things about the geology on the moon is your descriptions of what you see, comparing them to things that you've seen on Earth so that the geologists and the scientists on the ground would know what you're talking about; and then take pictures of them.
+- I was a child of World War Two . I saw films of pilots taking off from aircraft carriers and decided that was the only thing I wanted to do. And it had to be flying from sea carriers. Airfields were not enough.
+- The countdown reached ten seconds and I could almost hear an invisible crescendo of stirring background music. 'Anchors aweigh!' Five, four, three, two, one... and we had ignition!
+- As we leave the Moon at Taurus-Littrow, we leave as we came, and God willing, as we shall return, with peace and hope for all mankind.
+- When you head on out to the Moon, in very short order, and you get a chance to look back at the Earth, that horizon slowly curves around in upon himself, and all of sudden you're looking at something that is very strange, but yet is very, very familiar, because you're beginning to see the Earth evolve.
+- NASA has been scattered to the four winds.
+- We will certainly see teachers, journalists, artists and poets in space. Whatever it takes to the be the best is what it will take to get you into space.
+- To become an astronaut, someone has to have a dream of his own to do something that he or she has always wanted to do, then commit himself to making that dream come true.
+- Today, we are on a path of decay. We are seeing the book close on five decades of accomplishment as the leader in human space exploration.
+- Get the shuttle out of the garage. It's in its prime of its life. How could we just put it away?
+- It's our destiny to explore. It's our destiny to be a space-faring nation.
+- I walked on the Moon. What can't you do?
+- We went into darkness after being in daylight the whole time on the way to the Moon. And then we went into darkness. And we're in the shadow... of the Moon.
+- Mom was always doing something for somebody. She came from a Czech background, one that made her a devout Catholic and gave her a strong belief in the family.
+- After Apollo 17, America stopped looking towards the next horizon. The United States had become a space-faring nation, but threw it away. We have sacrificed space exploration for space exploitation, which is interesting but scarcely visionary.
+- Here I am at the turn of the millennium and I'm still the last man to have walked on the moon, somewhat disappointing. It says more about what we have not done than about what we have done.
+- Nobody can take those footsteps I made on the surface of the moon away from me.
+- I think America has a responsibility to maintain its leadership in technology and its moral leadership in the world, to explore, to seek knowledge.
+- If you begin to think you're something you're not, you're looking in the wrong mirror.
+- The moon is bland in color. I call it shades of gray. You know, the only color we see is what we bring or the Earth, which is looking down upon us all the time. And to find orange soil on the moon was a surprise.
+- Am I willing to go to Mars? Yes, but I'm not willing to spend nine months getting there, then wait 18 more months until the planets align to come home.
+- We leave as we came and, god willing, as we shall return, with peace, and hope for all mankind.
+- Some of the most exciting space education in the country is not coming out of Washington or New York or California or even Texas. It's coming from a place in Kansas called the Cosmosphere.
+- I do believe there is life in outer space. Mathematically, there has to be, and if you believe as I do that there is a creator of the universe, then how can we be so arrogant to believe he created life here and nowhere else?
+- If the guidance failed or started to stray or went somewhere we didn't like or the ground didn't like, I could flip a switch, and I could control seven, over seven and a half million pounds of thrust with this handle and fly the thing to the Moon myself.
+- Some astronauts describe the routine flushing of urine into space, where the freezing temperatures turn the droplets into a cloud of bright, drifting crystals, as being among the most amazing sights they saw on an entire voyage.
+- Perhaps the two greatest moments of my life were standing on the moon and being outside of the room when my granddaughter was born! We tend not to remember the worst.
+- Curiosity is the essence of human existence. 'Who are we? Where are we? Where do we come from? Where are we going?'... I don't know. I don't have any answers to those questions. I don't know what's over there around the corner. But I want to find out.
+- I hold the world speed record downhill, in a Rover. I think it was 17 kilometers per hour, downhill.
+- I'm quite disappointed that I'm still the last man on the moon.

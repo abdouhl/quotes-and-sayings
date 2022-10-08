@@ -1,0 +1,102 @@
++++
+author = "Edmund Burke"
+title = "Edmund Burke Quotes"
+quotes_len = "96"
+description = "the best 96 Edmund Burke Quotes"
++++
+- Education is the cheap defense of nations.
+- Flattery corrupts both the receiver and the giver.
+- Slavery is a weed that grows on every soil.
+- Applause is the spur of noble minds, the end and aim of weak ones.
+- Good order is the foundation of all things.
+- The effect of liberty to individuals is that they may do what they please: we ought to see what it will please them to do, before we risk congratulations.
+- He that wrestles with us strengthens our nerves and sharpens our skill. Our antagonist is our helper.
+- Nothing is so fatal to religion as indifference.
+- Laws, like houses, lean on one another.
+- In effect, to follow, not to force the public inclination; to give a direction, a form, a technical dress, and a specific sanction, to the general sense of the community, is the true end of legislature.
+- Politics and the pulpit are terms that have little agreement.
+- The march of the human mind is slow.
+- He had no failings which were not owing to a noble cause; to an ardent, generous, perhaps an immoderate passion for fame; a passion which is the instinct of all great souls.
+- Your representative owes you, not his industry only, but his judgment; and he betrays instead of serving you if he sacrifices it to your opinion.
+- Whilst shame keeps its watch, virtue is not wholly extinguished in the heart; nor will moderation be utterly exiled from the minds of tyrants.
+- Custom reconciles us to everything.
+- But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.
+- What ever disunites man from God, also disunites man from man.
+- The most important of all revolutions, a revolution in sentiments, manners and moral opinions.
+- It is, generally, in the season of prosperity that men discover their real temper, principles, and designs.
+- Society can overlook murder, adultery or swindling; it never forgives preaching of a new gospel.
+- There is a boundary to men's passions when they act from feelings; but none when they are under the influence of imagination.
+- People will not look forward to posterity, who never look backward to their ancestors.
+- All government, indeed every human benefit and enjoyment, every virtue, and every prudent act, is founded on compromise and barter.
+- Whenever a separation is made between liberty and justice, neither, in my opinion, is safe.
+- Beauty is the promise of happiness.
+- Frugality is founded on the principal that all riches have limits.
+- It is the interest of the commercial world that wealth should be found everywhere.
+- Magnanimity in politics is not seldom the truest wisdom; and a great empire and little minds go ill together.
+- Toleration is good for all, or it is good for none.
+- All tyranny needs to gain a foothold is for people of good conscience to remain silent.
+- To tax and to please, no more than to love and to be wise, is not given to men.
+- But the age of chivalry is gone. That of sophisters, economists, and calculators has succeeded; and the glory of Europe is extinguished forever.
+- Under the pressure of the cares and sorrows of our mortal condition, men have at all times, and in all countries, called in some physical aid to their moral consolations - wine, beer, opium, brandy, or tobacco.
+- You can never plan the future by the past.
+- If we command our wealth, we shall be rich and free; if our wealth commands us, we are poor indeed.
+- Facts are to the mind what food is to the body.
+- If the people are happy, united, wealthy, and powerful, we presume the rest. We conclude that to be good from whence good is derived.
+- Bad laws are the worst sort of tyranny.
+- The tyranny of a multitude is a multiplied tyranny.
+- Ambition can creep as well as soar.
+- People crushed by laws, have no hope but to evade power. If the laws are their enemies, they will be enemies to the law; and those who have most to hope and nothing to lose will always be dangerous.
+- Nobility is a graceful ornament to the civil order. It is the Corinthian capital of polished society.
+- Example is the school of mankind, and they will learn at no other.
+- A spirit of innovation is generally the result of a selfish temper and confined views. People will not look forward to posterity, who never look backward to their ancestors.
+- To make us love our country, our country ought to be lovely.
+- Our patience will achieve more than our force.
+- Free trade is not based on utility but on justice.
+- He that struggles with us strengthens our nerves, and sharpens our skill. Our antagonist is our helper.
+- We must all obey the great law of change. It is the most powerful law of nature.
+- A State without the means of some change is without the means of its conservation.
+- There is but one law for all, namely that law which governs all law, the law of our Creator, the law of humanity, justice, equity - the law of nature and of nations.
+- I venture to say no war can be long carried on against the will of the people.
+- I have never yet seen any plan which has not been mended by the observations of those who were much inferior in understanding to the person who took the lead in the business.
+- The people never give up their liberties but under some delusion.
+- The person who grieves suffers his passion to grow upon him; he indulges it, he loves it; but this never happens in the case of actual pain, which no man ever willingly endured for any considerable time.
+- Never despair, but if you do, work on in despair.
+- To innovate is not to reform.
+- The traveller has reached the end of the journey!
+- To read without reflecting is like eating without digesting.
+- The true danger is when liberty is nibbled away, for expedience, and by parts.
+- Nobody made a greater mistake than he who did nothing because he could do only a little.
+- Religious persecution may shield itself under the guise of a mistaken and over-zealous piety.
+- Mere parsimony is not economy. Expense, and great expense, may be an essential part in true economy.
+- The first and simplest emotion which we discover in the human mind, is curiosity.
+- Among a people generally corrupt liberty cannot long exist.
+- The arrogance of age must submit to be taught by youth.
+- It is the nature of all greatness not to be exact.
+- A disposition to preserve, and an ability to improve, taken together, would be my standard of a statesman.
+- When the leaders choose to make themselves bidders at an auction of popularity, their talents, in the construction of the state, will be of no service. They will become flatterers instead of legislators; the instruments, not the guides, of the people.
+- Falsehood is a perennial spring.
+- Beauty in distress is much the most affecting beauty.
+- No passion so effectually robs the mind of all its powers of acting and reasoning as fear.
+- In a democracy, the majority of the citizens is capable of exercising the most cruel oppressions upon the minority.
+- Justice is itself the great standing policy of civil society; and any eminent departure from it, under any circumstances, lies under the suspicion of being no policy at all.
+- Circumstances give in reality to every political principle its distinguishing color and discriminating effect. The circumstances are what render every civil and political scheme beneficial or noxious to mankind.
+- When bad men combine, the good must associate; else they will fall one by one, an unpitied sacrifice in a contemptible struggle.
+- Hypocrisy can afford to be magnificent in its promises, for never intending to go beyond promise, it costs nothing.
+- If you can be well without health, you may be happy without virtue.
+- Poetry is the art of substantiating shadows, and of lending existence to nothing.
+- Kings will be tyrants from policy, when subjects are rebels from principle.
+- Tyrants seldom want pretexts.
+- One that confounds good and evil is an enemy to good.
+- It is ordained in the eternal constitution of things, that men of intemperate minds cannot be free. Their passions forge their fetters.
+- Whenever our neighbour's house is on fire, it cannot be amiss for the engines to play a little on our own.
+- Superstition is the religion of feeble minds.
+- By gnawing through a dike, even a rat may drown a nation.
+- Liberty must be limited in order to be possessed.
+- Religion is essentially the art and the theory of the remaking of man. Man is not a finished creation.
+- Passion for fame: A passion which is the instinct of all great souls.
+- It is a general popular error to suppose the loudest complainers for the public to be the most anxious for its welfare.
+- The greater the power, the more dangerous the abuse.
+- All human laws are, properly speaking, only declaratory; they have no power over the substance of original justice.
+- The only thing necessary for the triumph of evil is for good men to do nothing.
+- It is not what a lawyer tells me I may do; but what humanity, reason, and justice tell me I ought to do.
+- Nothing turns out to be so oppressive and unjust as a feeble government.

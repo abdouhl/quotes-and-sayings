@@ -1,0 +1,27 @@
++++
+author = "Santhosh Narayanan"
+title = "Santhosh Narayanan Quotes"
+quotes_len = "21"
+description = "the best 21 Santhosh Narayanan Quotes"
++++
+- I was unsure if people would like the music of Kabali' and had even booked tickets to Sydney on the day of its release. I didn't want people to come and throw stones at my house!
+- There are several forms of oppari, but cinema largely uses only one format.
+- I was an independent musician for ten years before I became a musician for movies.
+- I am delighted to be joining hands with Colors Tamil for a path breaking show like Singing Stars' and this is an exciting way to mark my debut in the TV space.
+- We grow up with certain cultural references but we need empathy to understand other people.
+- I have no fears or inhibitions while composing. It's a way of expressing myself.
+- I have recorded with a 60-piece orchestra, and it gives me satisfaction to have done an album entirely with acoustic instruments.
+- So, my first film with Karthik was Pizza,' and that in itself was like a dream. I would call it one of my most favorite scores.
+- It's a very fun project as a composer to work on a movie that has music in its core.
+- I've been a live musician since I started my musical career.
+- 'Kolamey' is very special to me as it was created in total isolation and I could reinvent myself and travel back to my older sound.'
+- It's so easy to create a controversy.
+- I listen to my songs so many times that I tend to lose objectivity. After I hear a tune around 30 times, I keep it aside, and revisit it after a while. Then, it starts sounding fresh again.
+- Karthik hasn't aged or changed since I met him.
+- A movie like Mercury' is a once in a generation opportunity for me. It doesn't come easily to a music director and I am privileged to have gotten this opportunity.
+- Music is an essential part of any film, but when it comes to Mercury' it actually became a medium of communication.
+- Spending a lot of time in London not only gave me inspiration, but also the opportunity to meet in person some great collaborators, who I'd earlier interacted with only remotely.
+- My biggest inspiration was the music of Slumdog Millionaire.' The music that Rahman tried had such an Indian sound, but that didn't stop it from winning two Oscars.
+- I love Tamil, and needless to say, I love my state.
+- Music helps many to channelize energy into creating beautiful things and push boundaries.
+- 'Mercury' being a silent film needed a strong background score that could give you chills down the spine.

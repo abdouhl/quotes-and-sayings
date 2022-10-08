@@ -1,0 +1,62 @@
++++
+author = "Vivek Wadhwa"
+title = "Vivek Wadhwa Quotes"
+quotes_len = "56"
+description = "the best 56 Vivek Wadhwa Quotes"
++++
+- No matter how well things are going, failure and disaster are just around the corner. So celebrate the good, but be ready for the bad.
+- One of the biggest problems that software developers face is that technology changes rapidly. It is very hard to stay current.
+- If anyone tells you that you're too old to be an entrepreneur or that you have the wrong background, don't listen to them. Go with your gut instincts and pursue your passions.
+- A key to achieving success is to assemble a strong and stable management team.
+- My message to students is that if you want to become an entrepreneur and save the world, definitely don't skip college. But go to a school that you can afford. You'll be freed from the chains of debt and succeed on your own ambition and merit.
+- Outsourcing was the bogeyman of the '90s. Protectionists portrayed it as an evil that would take American jobs away. Yes, some jobs did go offshore as people feared, but it made the global economic pie grow bigger.
+- You will find that every successful entrepreneur has suffered many setbacks. These entrepreneurs just forget to mention these when they are doing interviews with the 'Wall Street Journal' or Bloomberg TV.
+- The most valuable lesson I learned in dealing with the ups and downs was to invest in my employees - to do all I could for them when the times were good.
+- What you want in a mentor is someone who truly cares for you and who will look after your interests and not just their own. When you do come across the right person to mentor you, start by showing them that the time they spend with you is worthwhile.
+- When my generation grew up, our only sources of knowledge were books, teachers, parents and friends. The encyclopedia was an item of luxury. We faced big limits in what we could learn, where we could be and who we could reach.
+- In the U.S., PC-makers have no incentive to lower prices because it kills their profit margins. They keep adding new features like high-end retina displays and faster processors to justify their high prices.
+- You have to live in Silicon Valley and hear the horror stories. You go and hang out at the cafes, and you meet entrepreneur after entrepreneur who's struggling, basically - who's had a visa problem who wants to start a company, but they can't start companies.
+- When I became an entrepreneur, I had the knowledge to develop and manage budgets, market products and review legal contracts.
+- I advise all of the entrepreneurs that I know to attend at least one entrepreneurship event every week. The worst thing an entrepreneur can do is to confine his or herself to a cubby hole.
+- You may not believe in anything called a work-life balance, but your body certainly does. You need to monitor and nurture your body.
+- Business executives need to start by spelling out and communicating their values. Then they need to lead by example. This means getting rid of the bad apples and declining opportunities that bring instant wealth at the cost of selling one's soul.
+- Big companies such as Google and Facebook buy startups at ridiculously high prices - not for their products, but for their people.
+- Recruiting talent is no different than any other challenge a startup faces. It's all about selling.
+- When I start getting embroiled in heated debates and feeling stressed, I just turn everything off and disconnect from the world. I simply tell my colleagues and friends that I am not well and need to cancel all meetings for a day or more. I take it easy - go for a long hike, take a vacation somewhere, or just stay at home and read.
+- The fact is that you are never too old to innovate.
+- The fastest way to get kicked out of a venture capitalist's office is to say that you want to build a business that grows steadily, focuses on employees, and creates wealth over the long term. Entrepreneurs with such ambitions are considered pariahs.
+- Ask any venture capitalist, and they will tell you that they consider the experience and completeness of the founding team to be a more important factor in their investment decision than the technology that is being built.
+- The IPO is no exit for the entrepreneur; it's the start of purgatory.
+- In my first company, Seer Technologies, where I was chief technology officer, we shied away from the media. We watched every word and were guarded in front of journalists.
+- What the tech industry often forgets is that with age comes wisdom. Older workers are usually better at following direction, mentoring, and leading.
+- Hiring foreigners is more expensive and more difficult than hiring locals, because of the visa fees and long lead times for visa processing. And companies face a backlash by anti-immigrant groups for hiring foreigners. So they do it only because they have to.
+- Most successful entrepreneurs share their knowledge as a way of giving back. They do not demand compensation. Those who do are usually trying to take advantage of you.
+- The stereotypical successful entrepreneur is Mark Zuckerberg - the young college dropout who dreamed up a crazy idea while in his dorm room.
+- Once we increase the proportion of women in technical roles, the challenge is to retain them and ease the transition to senior positions.
+- I became an academic so that I could share my knowledge and experience with students.
+- Entrepreneurship is like a computer game in which you have to master every level before achieving success. Startups repeatedly stumble and have to go back to the drawing board. The best way to skip some levels and to increase the odds of survival is to learn from others who have already played the game.
+- My advice to fledgling entrepreneurs is always the same: build a company that you plan to be with for the next 10 years - that is the best way to increase your chances of success.
+- During the dot-com days, one could take just about any company public and reap fortunes. All you had to do was to make sky-high projections for growth, say you were in the Internet space, and go along with unscrupulous investment bankers and their analysts.
+- Writing a book is usually a full-time job that takes years. I didn't have years. So I decided to crowdsource content for the book.
+- The mentor-mentee relationship is ideally like that of the guru and disciple: motivated by the desire of the guru to impart knowledge to the disciple.
+- I have no doubt that my M.B.A. from New York University's Stern School of Business was one of the best investments I ever made. It helped me climb the corporate ladder and become an entrepreneur.
+- Despite what some investors say, older age is an advantage in the startup world. You know more about industries and markets, and have ideas for products that the world actually needs and a better ability to motivate and manage than a kid out of school does.
+- The best way of dealing with the press, customers, and critics is to come clean when things go wrong and admit when you make a mistake. We are humans, and no one expects us to be perfect.
+- The harsh reality is that if you are middle-aged, write computer code for a living, and earn a six-figure salary, you're headed for the unemployment lines. Your market value declines as you age, and it becomes harder and harder to get a job.
+- Building a company isn't that different from climbing a big mountain. You need people helping you traverse treacherous paths and to lift you up when you fall.
+- Student loan debt is the reason I don't advise students who want to become entrepreneurs to apply to elite, expensive colleges. They can be as successful if they go to a relatively inexpensive public college.
+- An open-minded and diverse population that readily shares information, encourages experimentation, accepts failure and dispenses with formality and hierarchy is what makes Silicon Valley the successful hub that it is.
+- Corporate executives and business owners need to realize that there can be no compromise when it comes to ethics, and there are no easy shortcuts to success. Ethics need to be carefully sown into the fabric of their companies.
+- Most business schools are geared toward churning out investment bankers and management consultants.
+- The goal should be to build a sustainable lifestyle business that does good for employees and customers - and that steadily builds wealth.
+- I used to have an obsession with building businesses and forgot about building health. I was focused on the destination instead of the journey. I caution you to not do the same.
+- Innovation is all about people. Innovation thrives when the population is diverse, accepting and willing to cooperate.
+- If you don't have savings, and your co-founders are as poor as you are, and if Mom and Dad won't loan you money, then your best bet is to find people that know you - your friends. If they, too, won't help, then you're stuck seeking out angel investors.
+- Whenever I write about immigration, I hear heart-wrenching stories of computer workers who are unemployed and facing severe hardship.
+- The natives of Silicon Valley learned long ago that when you share your knowledge with someone else, one plus one usually equals three. You both learn each other's ideas, and you come up with new ones.
+- I realized that, after tasting entrepreneurship, I had become unfit for the corporate world. There was no turning back. The only regret I had was having wasted my life in the corporate world for so long.
+- A key ingredient in innovation is the ability to challenge authority and break rules.
+- After my health suffered due to the stress of running my second company, I had to switch careers. But I still didn't want to go back to the corporate world. So I became an academic.
+- In the technology world, you have to execute fast or you're out of business.
+- The truth is that entrepreneurship is more like a roller coaster ride than a cruise.
+- The lesson is, because there will be many lemons in life, to learn to make the proverbial lemonade - and be open and honest. That's the best way of doing damage control and positioning yourself for success.

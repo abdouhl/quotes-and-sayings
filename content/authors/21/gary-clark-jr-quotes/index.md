@@ -1,0 +1,25 @@
++++
+author = "Gary Clark, Jr."
+title = "Gary Clark, Jr. Quotes"
+quotes_len = "19"
+description = "the best 19 Gary Clark, Jr. Quotes"
++++
+- The guys in my band buy instruments and sell and trade them. But if I have something I hang onto it. Everything is sentimental to me.
+- There's nothing like a music festival. People are ready to have a good time. I don't think anyone comes to a festival going, 'I'm gonna be a complete bummer today.'
+- For a black male, the sound of the blues is pre-Civil Rights. It's oppression.
+- When I was growing up, I would go hang out with older guys at night in blues clubs.
+- I'm obsessed with fuzz pedals.
+- I know that I'm capable of moving around on the guitar. I can express myself the way I want to and feel good about it. But as far as technical chops, I'm not a learned musician.
+- The blues is the foundation for a lot of things. Things have branched off. It's cool how music grows, but the foundation is always there. It's not going anywhere. The blues is always going to be relevant.
+- You know, I've never done karaoke, ever. It makes me nervous - I think it's the lack of the guitar and just a microphone.
+- There's so much music in Austin, and it's all so different.
+- I failed public speaking in grade school, 'cause I was so nervous and scared.
+- I am the type of artist where you can't tell me anything. I have always been that way. I am right. I don't need any input.
+- I don't think anything can touch the expressive range of the guitar.
+- I'm somewhat of a hoarder. I keep everything.
+- I never expected to be approached for an ad campaign.
+- My mom always told me I should have a Plan B. I said that if I'm not going to play guitar I'm going to play drums. And if I'm not going to play drums, I'm going to play bass. I always just wanted to play music. I was completely obsessed.
+- Most of my songs start out as being very aggressive and guitar-driven.
+- You could say I'm a laid-back kind of guy.
+- When I got my first guitar, I played along with everything I heard that had guitar in it, like the Ramones, Nirvana and Sublime, as well as whatever hip-hop and R&B stuff was on the radio.
+- I've been called 'musically schizophrenic,' and some people think that's a cool thing.

@@ -1,0 +1,51 @@
++++
+author = "Peter Steele"
+title = "Peter Steele Quotes"
+quotes_len = "45"
+description = "the best 45 Peter Steele Quotes"
++++
+- I'm a 'specist.' I hate the human race. Of course, therefore, I hate myself the most, because I am the least of the human race. I'm the product of 6 million years of evolution? Come on, man.
+- I don't really like to play live. I don't like to be on stage. I feel very self-conscious.
+- As far as humor goes, I've always been a very insecure person and I've always wanted to be liked.
+- I just like being a social experiment sometimes. I really should not be allowed in public. But I just go out into the public just to see people's reaction. The thing is, I can do anything I want, virtually, within reason, just to see people's reaction.
+- Instead of slashing my wrists, I just write a bunch of really crummy songs.
+- I think I've changed a lot as a person.
+- I also like to eat very much, so I like all different types of foods.
+- I guess I've learned that there's really no such thing as a bad label, there is only a bad contract.
+- I hate the human race. Of course, therefore, I hate myself the most, because I am the least of the human race.
+- I like to put on hardcore when I have to clean my apartment, which I hate to do, but it's motivational. I like old heavy metal when I'm outside working on my car. Music has definite functions for me.
+- I don't know what to say to that, but I have to agree with Johnny that, yeah, we do touch upon things that most men would rather not admit: That we feel pain, we cry, get sad and sometimes don't deal well with disappointment.
+- I'm the product of 6 million years of evolution? Come on, man. I crawled out of a swamp yesterday.
+- We're the only species who hunts for sport.
+- I stay way from that area, and there's only so many songs you can write about love, sex and death.
+- To see someone 70 years old with dyed black hair, you're like, 'Hmmm, I dunno. Is that a wrinkled teenager? What is that?' So at some point, I'm going to have to stop doing this. It's gonna look ridiculous. I don't wanna look like Elvis Presley at 60 years old.
+- Sometimes, I write '60s or '80s style pop songs.
+- I'm a big fan of the effects of alcohol.
+- One of the things I've always personally tried to stress with this band was to have some kind of visual aspect and to be consistent with it - like, not to change.
+- I find that different types of music are good for certain activities.
+- Well, darkness with humor... I'm not an extremely suicidal or sad person.
+- Finding fresh song topics can sometimes be quite difficult.
+- I think anyone who has an opinion, and voices it, will offend someone.
+- When I wrote songs like 'Everyone I Love is Dead,' I never thought about how I was going to execute them live.
+- I don't believe in, and I am a devout non-believer, in playing new songs live if the subjected and pathetic crowd has not heard them before because I consider it like mass psychosis and genocidal.
+- If I wasn't bound to Brooklyn, due to my own personal reasons like taking care of my mother and the fact that this is where the band is based, I would probably move to Iceland.
+- It's bad poetry executed by people that can't sing. That's my definition of Rap.
+- I used to try to run five miles every other day, which I worked up to and I was doing it, but I was subjected to my own thoughts for forty minutes without any sensory input, and I couldn't stand what I thought.
+- I've always been very image prone, along the lines of bands like Black Sabbath and even Devo.
+- I want to stay away from politics, or else I'll probably end up putting my size fifteen foot into my mouth.
+- I just like being a social experiment sometimes. I really should not be allowed in public. But I just go out into the public just to see people's reaction.
+- So, I simply switched over to wine because it was not carbonated.
+- Yes, there are times when I get extremely depressed and how I sublimate those feelings is through music.
+- I feel that I've grown up a little bit and I'm actually ready to settle down.
+- If they weren't laughing with me, okay; if they want to laugh at me it's better than nothing.
+- Most bands don't even last fourteen months let alone fourteen years.
+- If someone told me when I was 16 or 18 years old that I'd be doing a side project with Tony Iommi, I wouldn't have believed it.
+- It seems to be that southern Europeans are just more intimate socially, whereas I like a lot of personal space - like, a mile from the nearest person is fine for me.
+- Technically, at this point we're no longer with the label; we've fulfilled our contract.
+- So I don't cry anymore, I just beat people up. It's a lot more fun.
+- I've been told by people that it's okay to cry but, you know what, it's been used against me.
+- I drink for the effect, because it loosens up the tongue a little bit.
+- I think aerobics are great, of course, but it just bores me out of my mind.
+- There's a lot of things that go on when you're on tour that cannot be controlled. I'm not even talking about myself, but of course there's sexual activity and drugs, fighting and language; it is certainly not a place to raise a family.
+- I think all recent music sucks, and that includes Type O Negative.
+- There are no atheists in foxholes, they say, and I was a foxhole atheist for a long time. But after going through a midlife crisis and having many things change very quickly, it made me realize my mortality. And when you start to think about death, you start to think about what's after it. And then you start hoping there is a God.

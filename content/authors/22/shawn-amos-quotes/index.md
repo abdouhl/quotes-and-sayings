@@ -1,0 +1,89 @@
++++
+author = "Shawn Amos"
+title = "Shawn Amos Quotes"
+quotes_len = "83"
+description = "the best 83 Shawn Amos Quotes"
++++
+- At its best, American music is the soundtrack of our long - and often painful - march toward a more perfect union.
+- We all know the record biz don't pay. All musicians have day jobs - no matter how big they are.
+- My father's very public life as Famous Amos was the opposite of that of his ex-wife, my mother Shirley, who was fighting a very private, solitary battle with mental illness.
+- In the '60s, my father, Wally Amos, had been a talent agent and a personal manager before taking a major career detour in 1975, when he opened a store selling chocolate chip cookies.
+- The blues is deceptively simple. Verse and chorus. Sometimes not even a chorus. Four bars that repeat, no Auto-Tune, electricity optional. It is the most direct, bare-bones of content. There is no interference between the head and heart.
+- There was a time when a musician was forced to act in a video. Seeing a singer step too far outside of his comfort zone to pour all of his high-school-drama angst into a poorly scripted scenario was a sight to behold.
+- Memphis is the place where rock was born and Martin Luther King, Jr., was killed. It's full of contradictions, abject poverty, and riches that only music can provide.
+- For years, I've felt like the loneliest brother on the planet. I don't play basketball, I can't dance, and I'd rather listen to Harry Nilsson than hip hop.
+- There is a difference between a hand out and a help up. Brothers need to help brothers. They don't do it enough.
+- The combination of cheaper and more widespread broadband and increased mobile usage is turning us all into independent viewers.
+- Schizoaffective disorder is a big mental mash-up of a disease. It combines just about every disorder, from depression, delusions, and paranoia to mania, schizophrenia and hallucinations. My mother bounced between all of these regularly while raising me alone in our Hollywood home.
+- There's a reason for Art Garfunkel's oddly shaped hair. It hides a very big brain.
+- As a child, I experienced black culture as many people did in America: on the TV, radio, and stages.
+- Early 1900s Hollywood was full of farmers battling to hold onto their land against a new influx of filmmakers who dug Hollywood's reliable weather and diverse landscape.
+- The rise of digital technology put marketers in a bind. No longer a captive audience, consumers were splitting their time across devices, social networks and websites.
+- Thomas Dolby is part mad scientist, part nature boy, and entirely moved by the power of music.
+- Social media is social. We're looking to touch one heart at a time. With one great story at a time.
+- We all love to sing along with our favorite songs. We sing in the car, in the shower, and at the karaoke bar. The problem is that half the time we don't know what we're singing. We're making up lyrics as we go along and hoping no one will notice.
+- Brands frantically tried to compete for users' fragmented attention, spraying content on every platform in a 24/7 race to stay relevant.
+- Like any self-governing group of people, the Recording Academy has made missteps over the years. Still, it has corrected course and done more to open its arms to the future than nearly any other industry group around.
+- Chrissie Hynde is the coolest woman alive, and no man can have her.
+- In Los Angeles, parenting is a competitive sport. From Beverly Hills baby boutiques to kids' yoga classes, L.A. fuses high style, industrial-strength materialism, and parental outsourcing into our own unique version of child-rearing.
+- At the height of his popularity in 1977, Cat Stevens converted to Islam and dedicated his life to educational and philanthropic causes.
+- In my early performing days, I played gigs under the pseudonym Whitey McFearsun. I painted my face blue, wore crimson lipstick, and strung on some tight silver latex pants.
+- Musicians burn through more cash than the Federal Reserve.
+- Many cities make music, but no city breathes music quite like Memphis. The songs and sounds that come from here are uniquely American.
+- When I started Amos Content Group in 2009, I made a simple bet: our handmade, contextual, and authentic content will stand out in an increasingly information-saturated world.
+- I take my kids to a farmers' market each Sunday to buy organic produce.
+- The world moves fast. Business moves fast. Digital media moves extremely fast. It is far too easy to allow ourselves to be constantly blown from one trend to the next.
+- The Bangles are proof that short skirts and electric guitars go hand-in-hand. They are one of the great all-girl groups, backing up their looks with a serious pop-rock pedigree.
+- The Republicans need all the entertainment help they can get. When Charlie Daniels was one of your convention headliners, you know you need some serious help.
+- Despite the sometimes sordid turns his life took, Michael Jackson always held my fascination, like he did for most of us.
+- When I was growing up in L.A. in the late '70s and early '80s, Michael Jackson's was the first face on TV that looked like mine.
+- I live in the social purgatory of the San Fernando Valley, while my eldest daughter is bused to a charter school in the fantasy land of Bel Air.
+- Technology has the benefit of being easily scalable. A few weeks or months of coding can result in solutions that reap huge benefits. The global success of Facebook, Twitter, and Google are all triumphs of technology.
+- I know plenty of Hollywood kids who still struggle with being whole. Their lives are never fully their own - always in the grip of a parent who put celebrity ahead of them.
+- Depending on your political orientation, the Dixie Chicks are either the great defenders of free speech or American traitors.
+- Black people cannot look to government to solve their problems.
+- From chain gangs to folk songs to intelligent soul, America has created musicians dedicated to truth, justice, and a better American Way.
+- Woodstock was a business. A very poorly run business.
+- Her makeup, hair and general quirkiness overshadow the fact that Cyndi Lauper was one the most soulful chicks to come out of the '80s.
+- Every major summer blockbuster that is released is essentially a product line being launched across multiple verticals. However, the centerpiece of the product launch is a big, beautiful story whose job is to entertain.
+- Long before Wesley Snipes decided he didn't need to pay the IRS, Willie Nelson was dodging the tax men.
+- While my six-song EP is unlikely to set any sales records, it's one of my biggest personal achievements - on par with starting my own company. On par with selling my own company.
+- Every single tune you know from the 1940s until the 1970s was written, arranged, and demoed in the Brill Building. OK, maybe not every song, but writers from Benny Goodman to Lieber & Stoller to Neil Diamond all kept offices there.
+- Google+ will never have a user base to rival Facebook's. It just won't. Not even if you include the 'users' who create accounts so that they can use other Google services.
+- Susan Boyle having a meltdown is not controversial. It's human for a 48-year-old recluse to get a little wigged out when she finds herself on the world stage overnight.
+- Harlem's Apollo is probably the most well-known music hall in the world.
+- Protest is patriotic. Since the beginning of musical time, American singers and songwriters have used their talent and bully pulpits to show us America's strengths and shortcomings.
+- The Famous Amos Chocolate Chip Cookie was an unexpected, unplanned pop culture phenomena. My father went from star-maker to star.
+- Men of my father's generation were perpetual hustlers, always on the make and always on the move.
+- We are more than the work we perform. In fact, I'd say that our work is a mere representation of who we are underneath.
+- New York City has more rock history in its 305 square miles than most of America combined.
+- The same basic tools we've used for thousands of years to connect with people, to draw them in and to hold their attention will always work, even if we're telling our stories 140 characters at a time.
+- Despite all of our technological advances, content creation still requires time, inspiration, and a certain amount of sweat. There aren't any shortcuts. You can't write an algorithm for it. You can't predict it. You can't code it.
+- Music and philanthropy have a long, benevolent relationship with one another. Record bins are rife with charity singles, and concert history is filled with benefit shows for every imaginable cause. Musicians like to give back.
+- From their '61 Cavern Club debut to their last rooftop concert eight years later, The Beatles gave every serious artist in their wake the songbook and sound for their career. It's the musical trough from which nearly every musician drinks.
+- The late, great Janis Joplin could drink ten men under the table, then sing loud enough to shake the teeth out of their head.
+- Fresh content doesn't exist to game the SEO system. It's the words, images, and stories that truly engage us, make us want to share with others, and creates a bond between us and a brand.
+- Brands' products should be the manifestation of a company's values. Those values should be the subject of all sorts of wonderful stories that comprise your company's narrative.
+- You can talk about Michael Jackson all you want, but John Hughes was the soundtrack to my 1980s life.
+- If you're going to write an anthem for an old man who's up at political bat for the last time, give him a decent song. Send him off with something that creates some chills or something.
+- The Woodstock dove on the iconic poster is really a catbird. And it was originally perched on a flute.
+- I get my clothes from three sources: Target, thrift shops, and friends. It's simple and it's cheap.
+- Somewhere along the line, a concert became a variety show. It was no longer enough for four dudes to play together in front of some guitar amps. Costume changes, an army of dancers, and Broadway theatrics suddenly became standard for a 'concert.'
+- Throughout the '50s, tons of unknown locals came through Sun to record their demos. Elvis Presley, Johnny Cash, and Jerry Lee Lewis all made their first recordings at the former Memphis Recording Service.
+- Just as many people flee Hollywood as those who flock to it. Hollywood can be an acquired taste.
+- A few performances have been left out of the various Woodstock soundtracks and film edits over the years, most notably The Grateful Dead.
+- In the world of celebrity, there is one universal law: if there's a scandal or death, Al Sharpton will be there.
+- Leave a movie audience inspired, and they will want to ingrain that movie into their lives with the toys, branded food products, soundtracks, and clothing they buy.
+- We're all posting and clicking and sharing, but we're not devoting enough attention to get anything meaningful from it all.
+- While not a musician, my father was a music agent for years before becoming pop culture icon Famous Amos.
+- Rock stars should be able to tune their own guitars, apply their own eyeliner, and pick out their own leather pants.
+- Blues became rock, rock became soul, and all of it was colorblind.
+- Year after year, we see a new crop of musicians who do their best to look tough in lipstick and makeup. Maybe it's a cry for help, an admission of their strong feminine side, or the realization that they don't look so good any other way. Whatever the reason, makeup is as rock n' roll as a Marshall stack.
+- Of course, screwed up families are not the exclusive province of the famous. Still, most families get to screw up in private.
+- The Dolls were the forefathers of glam. You never knew if they were going to kiss you or punch you. More than likely, they'd do both.
+- 'Morsel' is a perfect word. Forming those six letters on the lips and tongue prompts an instantaneous physiological reaction. The mouth waters. The lips purse.
+- If I were a rock star, I'd design my own clothes. I'd do it because that's the mark of a true rock star.
+- I spent years shaking the damage that comes with being burned by living near someone else's spotlight.
+- When Woodstock ended on Monday morning, over 600 acres of garbage was left behind on Max Yasgur's farm. It took over 400 volunteers and $100,000 to remove it all.
+- Chrissie Hynde is the blueprint for any teenage pop star wannabe looking to have some real cred.
+- My stroller of choice is the Graco Classic. It's the '70s Buick of strollers, bulky with a complete absence of style. There are no good lines on the Graco. Yes, it has cup holders, like any self-respecting car or stroller does these days, but the luxuries stop there.

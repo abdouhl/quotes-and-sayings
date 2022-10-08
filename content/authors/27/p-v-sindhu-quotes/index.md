@@ -1,0 +1,106 @@
++++
+author = "P. V. Sindhu"
+title = "P. V. Sindhu Quotes"
+quotes_len = "100"
+description = "the best 100 P. V. Sindhu Quotes"
++++
+- You have to keep on learning all the time unless and until you become perfect in all the strokes.
+- The year 2017 has been really good for me. Definitely, a lot of positive things to learn from.
+- Whoever plays well on a given day, that player wins.
+- I just can't do without music.
+- Hard work is the key for success.
+- Each tournament is different.
+- I am thankful to my parents. They have done many sacrifices.
+- Against each player, I will give 100 per cent. I give my best in every game.
+- I went to school like any other regular student till Class VIII, and my favourite subject was math. From Class IX, things got a little difficult to manage. I was inclined towards studies, but then I also had to give time to badminton.
+- Injuries are part of life. We can't decide on that.
+- When I started, I didn't think I would become a great player. It was my passion; I had interest. My parents supported me. In that way, I continued.
+- I have to keep moving and keep working hard.
+- I was lucky to get good coaches and infrastructure that I needed. To become a champion, it is not just a few months' practice: it takes years to make a champion.
+- I think judging a shuttle is different everywhere, so there is a drift, but you have to be used to it. We can't complain, as I think it is same for all.
+- Nagpur to Kanyakumari and Kashmir, future Olympic medallists can come from anywhere. It is the passion that drives you, not the city, provided you get enough facilities.
+- There is always scrutiny and pressure from the media. I am always told that I have to win.
+- I had once thought I would become a doctor but gave up on the thought soon enough. I took up the racquet instead. Later, when I saw my sister studying so much to become a doctor, I was like, 'Thank God I am a shuttler!'
+- I have been playing with boys, which is helpful for me.
+- I put the good playing and game first, and money, prizes are secondary.
+- There were many struggles, but my parents supported me a lot. Whenever I wanted anything, wherever I wanted to go, practice session etc., they were there for me.
+- Most of the times, when I actually have rest time, I am travelling.
+- If it makes me happy, it definitely adds to my well-being.
+- One tournament win doesn't make you perfect.
+- Tennis, at times, I follow, but not much.
+- Each tournament is equally important.
+- We can't play if we are ill or not completely fit.
+- A small cold and cough can actually stop you from going where you are.
+- I was 18 when I was presented with the Arjuna Award. To say it feels really good would be an understatement. But I don't know how else to convey the feeling. I am grateful for having received this prestigious award at such a young age.
+- Definitely, the aim is to become No.1.
+- Women's badminton has become so competitive.
+- Win or lose, I always focus only on giving my 100%.
+- I love to experiment with my looks and dresses on and off the court because I love to turn out very well. But, I must add here that just good-looking athletes can't do anything for their sport.
+- It is never the case that I will push myself more for the World Championships and play differently in a Super Series or vice-versa.
+- Playing for Hyderabad Hunters is a very good feeling.
+- Every tournament is important for me.
+- Since I'm the youngest in the family, I sulk when my parents deny me something, although I come around when they explain why it was denied.
+- There will be many obstacles in the pursuit of your dreams. I had long hours of training, balancing studies and badminton.
+- I don't fear anyone. I just concentrate on giving my best.
+- I have a lot of hunger to win the big titles.
+- I think you can never be a complete player.
+- It is very important to be confident and strong even if you lose, because you know there are tournaments coming up next, and you have to be prepared for it.
+- It was important for me to get a super series title.
+- Fitness is the key. You need to have strokes and stamina and agility; you need to exercise really well. On-court and off-court are equally important.
+- I love making friends and make others happy. But I also love to be happy all the time. All that aggression that you see remains on the court only.
+- Sometimes you don't play up to the mark, and you win even then.
+- I train for six days in a week for eight to ten hours of practice per day.
+- When you are injured, you need to strengthen yourself very well to make a comeback very confidently.
+- Many players are of the same standard; it all depends on how your strokes land on the other side of court.
+- While there are many good courts in the country, we need to have good coaches for more players to come up. Not everyone can go to Gopichand Academy, and everyone cannot afford international tournaments.
+- I would love to act in a film if it is based on my life. But then it all depends on who is making it and how much time it would require for me to shoot.
+- Life has changed after Rio. Winning a silver medal was a huge moment for me. It has come with a lot of responsibilities.
+- I like Telugu movies, then comes Bollywood and then English movies. In Tollywood, I like Mahesh Babu and Prabhas. But no, I don't watch all their movies. I first find out if the movie is nice. If it's a flop, I don't watch it.
+- There are many defining moments in my journey.
+- Life has changed both on and off the court after the Rio Olympics medal. I have a lot of confidence on the court now and feel anything is possible. I also feel that I have improved my game. Off the court, I do get recognised more now.
+- We need to be always prepared for every match.
+- You have to keep working all the time. How much you learn, there is always room for learning; you will have to keep improving all the time.
+- Since the Rio Olympics, the expectations are always high, and the responsibilities are also high. I am used to it now. You have to keep going and keep working hard.
+- I will keep working on different aspects of my games. It's not so easy, and I need to work on every stroke.
+- Ups and downs will be happening; coming to the final and losing by a point or so should not matter.
+- Some tournaments maybe are important for others, while some are important for me.
+- I think the coaches have to play a big role in the players' development.
+- I love dressing up, and I'm aware that people do say that it can take your attention away from the game. But I disagree with this notion!
+- Every time I go on to the court, people expect me to get a medal. It is tough, and I can't win always, but I still have to go out there and give my best.
+- Previously, people were like, 'She might win the tournament,' but now it's like, 'She should win the tournament.'
+- In my early years, I would travel 56 km. from home to the training institute and back every single day.
+- I think each player has a different style of play, and every match is different.
+- I have no tension. I only play to give my best.
+- Be it 'Mary Kom,' 'Bhaag Milkha Bhaag,' or 'Dangal,' each one was inspiring in its own way. But my favourite is 'Bhaag Milkha Bhaag.'
+- You can't compare one tournament with another.
+- I prepare the same for every opponent.
+- I was at the Gopichand Academy since I was 10.
+- My coaches have always been on my side, motivating me to try harder and harder every day, which is not easy.
+- My parents have been volleyball players, and my dad is an Arjuna awardee in volleyball.
+- I am really lucky that I got such good coaches and everything I wanted, right from the infrastructure to proper coaching.
+- While I am training, I don't go out for events, so rest days, in a way, take away that time. Apart from that, I just stay at home and rest, maybe relax at home and spend time with family.
+- The Olympic medal gave me a lot of confidence, and I went and won my first Super Series in Hong Kong. So in that regards, what Rio did was give me extra motivation and the confidence that now anything can happen.
+- I have worked really hard since the age of eight, so each phase of my life is equally important.
+- Sometimes it does upset you when you lose in the finals, or even in a quarterfinal or semifinal, especially when you think, 'Maybe I could have played better,' or even if you gave your 100 percent, and even then, you lose.
+- My long-term goal is to become the world number one player.
+- Talking about world-class player, no player is easy to play at this level. Each player has a different style of play.
+- You win some and lose some. It's all part of the game. You have to take it in a very positive way.
+- My period days didn't make me falter: they made me more determined to pursue my dreams.
+- It is hard to lose for everybody.
+- When you lose, you keep thinking, 'I could have done things differently,' but at that moment, you can't do anything, so it is important to let go.
+- It's always good to win a title.
+- It takes years of practice to become a World No. 1 or 2.
+- Your dreams are what define your individuality. They have the power to give you wings and make you fly high.
+- Saina is not someone special player that I have to win against. It's not like that I must beat her. She is one of the players.
+- When you lose in the quarterfinals or semifinals, you actually learn a lot from those mistakes.
+- Winning a tournament at the end of the year boosts your confidence a lot.
+- I didn't think I would have an Olympic medal at 21, but I knew I would give my best and play my game. I just viewed it as my first Olympics and that I would take it one match at a time, but to bring a silver home made me very, very happy.
+- I consider the All England as like any normal super series tournament.
+- The competition is tough at the international level. There are very good players.
+- I am aggressive only on court.
+- I should not think that I have to win every match and what others will think; that will create extra pressure. I just have to give best on court.
+- The key is not being overconfident. You should not think that because I'm a top-ranked player, I will win this game. You have to be focused.
+- I have learnt many things, but there's more to learn. Every day is a new start.
+- Every tournament I have won has been memorable.
+- What hurts most is whenever I am leading, and then I lose the match, it is disappointing, and there are so many such matches.
+- I want to beat everyone I'm playing against.

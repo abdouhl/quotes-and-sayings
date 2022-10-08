@@ -1,0 +1,43 @@
++++
+author = "Jim Caviezel"
+title = "Jim Caviezel Quotes"
+quotes_len = "37"
+description = "the best 37 Jim Caviezel Quotes"
++++
+- I think you can't be passive in making this film - or in watching it.
+- I try to be the best man I can for the day.
+- No, the people standing before Christ and Pilate during the judgment scene do not condemn an entire race for the death of Christ anymore than the actions of Mussolini condemn all Italians, or the heinous crimes of Stalin condemn all Russians.
+- Anything that I undergo, I look at as redemptive suffering.
+- I came from a town of maybe 30,000 people.
+- I always believed in God, I would go to mass most of the time, but I had no idea of the calling to holiness.
+- I felt unworthy to play Jesus. I just accepted the responsibility and said, 'What actor wouldn't want to play this role?'
+- I do what I do, and I do it well, and focus and take it one moment at a time.
+- I know we didn't make an anti-Semitic film. This is what the Gospels are. And it's none of my business what other people think of me.
+- We all have a cross to carry. I have to carry my own cross. If we don't carry our crosses, we are going to be crushed under the weight of it.
+- Every day I'm trying to be more humble and how do you do that? I guess, every day, we have mass. Every day, I pray the rosary. That's what I do.
+- In the world we make good as evil and evil as good.
+- I also hope that I am occasionally involved in projects that touch other people in ways that make their lives a little better, more interesting for the moment that makes them think.
+- What actor wouldn't want to work with Mel Gibson?
+- Mel Gibson doesn't need your judgment, he needs your prayers.
+- In my 33rd year, I was called to play Jesus.
+- Working with Mel Gibson is a little like waltzing with a hurricane. It's always exciting, and you're never quite sure where it's going to take you.
+- You know, my point in being an actor is to get people to believe that this is not about me, but something else.
+- I'm a craftsman. I'm an actor.
+- Christ died for the truth.
+- I just try to be the best Catholic.
+- Conversion is a daily thing.
+- I don't want people to see me - I want them to see Jesus.
+- I married a woman who is much better than me, I'm very fortunate to be with her and I know I'll be happy with her the rest of my life.
+- A woman in Mexico wanted me to heal her. But I can't heal anybody. I just put my hand on her and said, 'Thank you for seeing the film.'
+- I was freezing in that loincloth.
+- The point I'm trying to make is that you go to church on Sunday. But the real Christ is out there in your life every day, whether it be the guy you help on the street, how you live your life, and your countenance that makes people want to be you.
+- I meditate on God's life and I read the scriptures. I read something about Him, go through it and spend a lot of time by myself.
+- I always look for reality. I look for plain truthful roles.
+- My faith doesn't go over real well in Hollywood.
+- We are all culpable in the death of Christ. My sins, your sins put Him on that cross.
+- It's very hard to accept that stoning still exists in the world today.
+- I didn't want to be an actor.
+- I know I'm not an anti-Semitic person.
+- Everyone was thinking it was going to be a bust. I felt redeemed.
+- I still put my pants on the same way. I still walk on my pool twice a day.
+- I don't really prepare for each role the same way.

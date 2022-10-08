@@ -1,0 +1,50 @@
++++
+author = "Joe Mantello"
+title = "Joe Mantello Quotes"
+quotes_len = "44"
+description = "the best 44 Joe Mantello Quotes"
++++
+- My associate director, Lisa Leguillou, is remarkable: flying around, visiting all the companies. She is truly the unsung hero of 'Wicked'. She has been by my side from day one, and she is invaluable. I frankly don't know how she does it.
+- I understood that I was not the best director in the world nor the worst director in the world. I realized that there is a very mysterious element to what works and what doesn't work in the theater. And it's good to know that from the beginning.
+- I think, as written, 'Assassins' simply acknowledges the very human need to be acknowledged. As director, I've got to put aside any particular biases or prejudices that, as a moral human being, this is not an appropriate or acceptable way to get what you want.
+- I like to hire the kind of people that I would want to be on stage with.
+- 'Blackbird' is the only one I've ever wanted to redo. It just haunted me, this play. There was a sense of unfinished business because at the time we did it at Manhattan Theatre Club, there was real momentum to move it to Broadway.
+- One of my favorite experiences was '9 to 5,' for one reason: Dolly Parton. I learned what it means to really work hard and do it with a sense of humor about yourself. Every day was joyful.
+- My preference is for people who come to rehearsal and get into the ring. I like a muscular actor who's playful.
+- I'm able to think more clearly when I don't have clutter and stuff around.
+- I have a responsibility to diversity onstage, but one of the things I've heard about our production of 'Boys' is that it's a bunch of white guys. Well, race is a component of this play. You can't just drop people in willy-nilly and say, 'Well, we're going for diversity.'
+- In 'The Humans,' there's a gay character, and the fact that she's gay is probably the least interesting thing about her.
+- I become involved with things that speak to me and move me and make me laugh and frighten me.
+- I don't believe really good plays - interesting plays, complicated plays - can mean just one thing to every single person in the audience.
+- I don't think of gay writers. I mean if you were to say to me who are the straight writers, well, you wouldn't ask me that question. So for me to identify a little tribe of gay writers, I don't know.
+- If I hadn't gone into the theater, I would be a painter.
+- I do not resent Sarah Jessica Parker. We've been friends for decades. I just do not like what 'Sex and the City' did to my neighborhood.
+- But there is a process that happens when you're making something, be it a musical or a new play. That process takes time, and mistakes will be made along the way, and you will go down and hit dead ends. But it is so public now. Any yahoo with a computer can start a firestorm.
+- Theater isn't there to provide answers. Only possibilities. I just ask the questions. But I believe hope comes from the fact that there is a potential for redemption. At the core, that's what matters in the theater I'm attracted to. Do we dare to hope? Do we allow ourselves to hope?
+- I'm comfortable with bad news. I feel confident in my ability to solve the problem if I know that there's a problem.
+- I'm tenacious. I work hard. I like people that I collaborate with to work as hard as I am.
+- I know there are different kinds of actors, but I tend to have less effective relationships with actors who have a very private process - who really need to do lots of internal work, so that I become merely a witness until they're ready to share.
+- I get to be in a room with other actors, but I never, or very rarely, get the chance to be in a room with another director.
+- I tend to go toward things that make me afraid.
+- Alison Pill is the unsung hero of 'Three Tall Women' to me. She's extraordinary in this part, and she makes it look easy. I'm just in awe of her.
+- I think actors are brave souls that have to use parts of themselves that I'm just not comfortable doing anymore.
+- There are plenty of other actors who are wonderful that just don't work in a way that I work, or our methods aren't necessarily compatible. But then there are those you instinctually just are drawn to.
+- As a director, you're incredibly proud when an individual steps up to the podium and is acknowledged for their work. But to have an entire company acknowledged, there is just no higher honor ever paid for that company - or for the director, for that matter.
+- I'm friendly with Laurence Luckinbill. He's a great man.
+- I was never in the closet as an actor. It never occurred to me that my sexuality was something to be ashamed of.
+- Jayne Houdyshell and I - when I was 17 years old - did summer stock together at the Timber Lake Playhouse in Mt. Carroll, IL. She was the leading lady of the company, and I was an intern.
+- I think the audiences in Chicago are really open. They're engaged and eager, and they don't feel cynical to me. Sometimes in New York, there's a sense of, 'Prove it to me; prove this is worth my time.' I never felt that in Chicago.
+- I was always the person in our class who was fascinated by new plays. I would go to the library all the time as new plays would come out.
+- I think that from day one, when it became clear that 'Wicked' was going to have a life, that we have set a standard for ourselves that we are never going to shortchange the audience; that every person that we put into that musical is going to be held to the highest standards; and that nobody is going to be coasting.
+- I think good actors - good, collaborative actors who see themselves as leaders in a given production - can and should offer ideas that have nothing to do with wanting to direct themselves.
+- One of the jobs of a director is to ask questions. One of the jobs of the director is to stand in for the audience until they get there.
+- Is it perfect? Absolutely not! But there was an audience for 'Wicked,' and our producers were smart enough to reach that audience.
+- My first real job as a director was working with Robbie Baitz on his play 'Three Hotels.' It was an incredible collaboration.
+- I want to do something very surprising next. I don't know what that is - something that has a high degree of risk.
+- I was always rather outspoken. I worried about what people thought of me but there really wasn't room for a lot of self-doubt.
+- For some reason, I was deeply ashamed of the theater early on. I think it had to do with this growing sense I was gay, although I couldn't have put a word to it back then.
+- I have a concentrated period of work for about five months, and then I take a bunch of time off. That's just the way I work.
+- I was probably the only 10-year-old who adored Sandy Dennis.
+- I am a very fortunate man, and I don't take it for granted.
+- I was a member of Circle Rep; I had done a little bit of directing there. I remember that I had a vacation from 'Angels', in which I remounted a play that I had done out of town called 'Three Hotels.' That's how I spent my week vacation.
+- The way I feel about rehearsals is that the best idea wins.

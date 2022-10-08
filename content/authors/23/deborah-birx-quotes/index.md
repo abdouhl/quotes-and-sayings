@@ -1,0 +1,30 @@
++++
+author = "Deborah Birx"
+title = "Deborah Birx Quotes"
+quotes_len = "24"
+description = "the best 24 Deborah Birx Quotes"
++++
+- These guidelines are extraordinarily important. It's about social distancing, it's about washing your hands. It's about ensuring that you're protecting yourself and protecting others. It's not about partying on beaches during spring break.
+- When I see something wrong, I just rail against it.
+- When you are confronted with a level of devastating disease and death, you never lose that sense of unbelievable humility.
+- When you're trained in medicine and it's the '80s and you've got all this hi-tech stuff and this ability to diagnose everything, when you not only couldn't make a diagnosis, you didn't know what the problem was, and you didn't know how to treat it, it was devastating.
+- Obviously, I come out of the military - I know the amazing work of the men and women in uniform and the work that they can do.
+- There are other countries that if you had a preexisting condition, and let's say the virus caused you to go to the ICU and then have a heart or kidney problem, some countries are recording as a heart issue or a kidney issue and not a COVID-19 death.
+- I am the mom of two wonderful millennial young women who are bright and hardworking, and I will tell you what I told them: They are the core group that will stop this virus. They are the group that communicates successfully, independent of picking up a phone. They intuitively know how to contact each other without being in large social gatherings.
+- I just want to recognize, the HIV epidemic was solved by the community, the HIV advocates and activists who stood up when no one was listening and got everyone's attention.
+- The millennials are incredibly good about getting information out in a clear way, but more importantly, they are incredibly good about understanding how to protect one another, how to protect their parents and how to protect their grandparents.
+- The faith community has a really critical role to play. Both giving out accurate and important information and ensuring that everyone in the household feels engaged in their community even though they're at home themselves.
+- I've had to confront a lot of pandemics and infectious diseases around the globe.
+- We want combination solutions at the state level, at the local level - whether we've learned from the Chinese about creating what we've been calling COVID wards - creating the ability to actually care for larger numbers of clients and patients in a more concentrated way which allows more oversights so we could really track patients.
+- I don't really expect anything from anyone else that I wouldn't do myself.
+- You cannot isolate a group and say you're not going to serve their needs.
+- But what has been pretty good about the coronaviruses in general is they keep their structural pieces very similar. What do I mean by that? There's certain - the outer coat, the envelope, and the inside part of the virus has stayed very constant.
+- A company like Nike can convince people to buy Air Jordans even though they never saw Michael Jordan play.
+- As soon as President Bush announced PEPFAR at the State of the Union, I had already been working in Africa for about five or six years.
+- Whether you happen to be a gay man in Tanzania or someone who's imprisoned in Tanzania, it's your human right to have access to health care.
+- I want to be incredibly clear: The United States stands for a public health approach to the HIV/AIDS pandemic.
+- If you had a Starbucks that never sold coffee, you wouldn't keep the site open. It's not that we're abandoning sites, but we're saying, 'Let's go where there's HIV, focus our resources there.'
+- In a majority of hospitals, in a majority of places, it is the nurses that are on the frontlines. They're the ones working every moment with the patients to ensure that they do well.
+- I think we'll come to both bringing America together and learning how to interact with each other in a different way that maintains social distancing and that we care.
+- Every day we go over data and use science and data to drive policy and decision-making.
+- I will never speculate on data. I always need to see data.

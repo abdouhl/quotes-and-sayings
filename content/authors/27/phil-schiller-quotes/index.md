@@ -1,0 +1,37 @@
++++
+author = "Phil Schiller"
+title = "Phil Schiller Quotes"
+quotes_len = "31"
+description = "the best 31 Phil Schiller Quotes"
++++
+- There's a role for the Mac as far as our eye can see. A role in conjunction with smartphones and tablets that allows you to make the choice of what you want to use. Our view is, the Mac keeps going forever, because the differences it brings are really valuable.
+- Every company that made computers when we started the Mac, they're all gone.
+- I was pretty shocked at the appearance of the Galaxy S phone and the extent to which it appeared to copy Apple products and the problems that would create for us.
+- With every project, there are things that surprise you with the meaning they take on as you start to use them.
+- There's just something so amazing about being anywhere, and some music starts playing, and you just hold up your phone and can find out what it is. You never again have to say, 'That's a great song! Who is it by?'
+- There are times when we have to add resources to Apple, grow talent to do something that we weren't able to do before.
+- Any aluminum product may scratch or chip with use, exposing its natural silver color. That is normal.
+- The iPad is far and away the most successful product in its category.
+- There were many things that led to the iPhone at Apple. We were searching for what to do after iPod that would make sense.
+- We got rid of parallel ports, the serial bus, floppy drives, physical keyboards on phones - do you miss the physical keyboards on your phone?
+- When the economy is difficult, people care a great deal about the things they spend their money on. Customers have come to understand that Apple's products aren't priced high - they're priced on the value of what we build into them.
+- I'd prefer not to tell confidential information about future products.
+- When you take an Android device out of the box, you have to sign up to nine accounts with different vendors to get the experience iOS comes with.
+- I use a lot of the Web 2.0 apps that I've seen out there, and I think there is incredible work going on there.
+- Sure, the labels and publishers get the rights for songs to be remade into a ringtone. So part of what we do is to work with those content owners to make sure that there are rights in place for every piece of content to be made into a ringtone.
+- There were so many things of value in the original Mac that it is still recognizable.
+- Our approach at Apple has always been to make products we're proud to own and use ourselves.
+- It's always been about making the best Mac we know how. Among the many benefits are making it easy to use and affordable, with great features.
+- Sooner or later, the headphone jack is going away. There are just too many reasons aligned against it sticking around any longer.
+- It's really cool having the news in your pocket.
+- Android is often given as a free replacement for a feature phone, and the experience isn't as good as an iPhone.
+- If you want a product that's thicker with a bigger battery, it's also heavier, more costly, takes longer to charge.
+- It's a little counterintuitive to people, that doing what people don't expect ends up being what people do expect. But that is true of Mac.
+- From the beginning, the Mac has been about Apple taking responsibility for the whole thing: hardware, software, how applications can work, and, increasingly, Internet services.
+- The belief is more and more as we use iCloud services for documents and our photos and videos and music that perhaps the most price-conscious customers are able to live in an environment where they don't need gobs of local storage because these services are lightening the load.
+- You increasingly are seeing more Macs than PCs.
+- That's the Apple I want - I want an Apple that's bold and taking risks and being aggressive.
+- It's a world where you're going to have a phone, a tablet, a computer - you don't have to choose. And so what's more important is how you seamlessly move between them all... It's not like this is a laptop person and that's a tablet person. It doesn't have to be that way.
+- We try to find better solutions - our customers have given us a lot of trust.
+- The job of the iPad should be to be so powerful and capable that you never need a notebook.
+- There's a little bit of pain in every transition, but we can't let that stop us from making it. If we did, we'd never make any progress at all.

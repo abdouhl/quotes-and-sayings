@@ -1,0 +1,26 @@
++++
+author = "Edward Dahlberg"
+title = "Edward Dahlberg Quotes"
+quotes_len = "20"
+description = "the best 20 Edward Dahlberg Quotes"
++++
+- Men are mad most of their lives; few live sane, fewer die so. The acts of people are baffling unless we realize that their wits are disordered. Man is driven to justice by his lunacy.
+- Genius, like truth, has a shabby and neglected mien.
+- A strong foe is better than a weak friend.
+- To write is a humiliation.
+- Writing is conscience, scruple, and the farming of our ancestors.
+- Ambition is a Dead Sea fruit, and the greatest peril to the soul is that one is likely to get precisely what he is seeking.
+- Herman Melville was as separated from a civilized literature as the lost Atlantis was said to have been from the great peoples of the earth.
+- The bad poet is a toady mimicking nature.
+- It takes a long time to understand nothing.
+- We cannot live, suffer or die for somebody else, for suffering is too precious to be shared.
+- The machine has had a pernicious effect upon virtue, pity, and love, and young men used to machines which induce inertia, and fear, are near impotent.
+- When one realizes that his life is worthless he either commits suicide or travels.
+- Always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter. Walt Disney Every decision you make is a mistake.
+- The ancients understood the regulation of power better than the regulation of liberty.
+- Every decision you make is a mistake.
+- Man hoards himself when he has nothing to give away.
+- Nothing in our times has become so unattractive as virtue.
+- The Americans have always been food, sex, and spirit revivalists.
+- So much of our lives is given over to the consideration of our imperfections that there is no time to improve our imaginary virtues. The truth is we only perfect our vices, and man is a worse creature when he dies than he was when he was born.
+- We can only write well about our sins because it is too difficult to recall a virtuous act or even whether it was the result of good or evil motives.

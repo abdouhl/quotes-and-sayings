@@ -1,0 +1,35 @@
++++
+author = "Gilda Radner"
+title = "Gilda Radner Quotes"
+quotes_len = "29"
+description = "the best 29 Gilda Radner Quotes"
++++
+- I had been a fan of Gene Wilder's for many years, but the first time I saw him in person, my heart fluttered - I was hooked. It felt like my life went from black and white to Technicolor.
+- I'm so full I can't hear.
+- Comedy is very controlling - you are making people laugh.
+- I grew up in front of a television. I guess I'll grow old inside of one.
+- I think clothes should make you feel safe. I like clothes you want to go to sleep in. I sometimes stand in front of a mirror and change a million times because I know I really want to wear my nightgown.
+- I think dogs are the most amazing creatures; they give unconditional love. For me, they are the role model for being alive.
+- When Gene makes a movie, the people who work on it have such a love for him that the set is always a happy place.
+- My father had a hotel, and people in show business used to stay there. He loved peformers and entertainment, and I grew up knowing that.
+- Adopted kids are such a pain - you have to teach them how to look like you.
+- Having cancer gave me membership in an elite club I'd rather not belong to.
+- While we have the gift of life, it seems to me the only tragedy is to allow part of us to die - whether it is our spirit, our creativity or our glorious uniqueness.
+- You feel completely in control when you hear a wave of laughter coming back at you that you have caused.
+- I'd much rather be a woman than a man. Women can cry, they can wear cute clothes, and they're the first to be rescued off sinking ships.
+- Did I become an entertainer because my father died and I wanted to be what he loved? I don't know.
+- When the journalists asked Gene, 'Why didn't you marry the beautiful girl in 'The Woman in Red'?' he would always reply, 'I did!'
+- I can always be distracted by love, but eventually I get horny for my creativity.
+- The goal is to live a full, productive life even with all that ambiguity. No matter what happens, whether the cancer never flares up again or whether you die, the important thing is that the days that you have had you will have lived.
+- I'm not really an impersonator.
+- Life is about not knowing, having to change, taking the moment and making the best of it, without knowing what's going to happen next.
+- In our show we know, if we're not getting a response, you see it in our face... we either do something to get a laugh, or the audience is in on it with us.
+- We were married in the south of France because Gene loved France. If he could have been born French, he would have been - that was his dream.
+- I base most of my fashion taste on what doesn't itch.
+- Sportswriting is fascinating - descriptions of the opponents and the details of an event in which someone is going to win and someone is going to lose. Life is much longer and more complicated, and the outcomes are less clear-cut.
+- I would say that Lucy, 'I Love Lucy,' she was my idol.
+- Dreams are like paper, they tear so easily.
+- There is no real security except for whatever you build inside yourself.
+- Some stories don't have a clear beginning, middle and end.
+- I don't miss 'Saturday Night Live.' I feel less of a need for the fulfillment that performance used to give... I don't have to do everything right away. As long as I can walk and jump, I'll still perform, but I no longer feel such a compulsion.
+- Fame changes a lot of things, but it can't change a lightbulb.

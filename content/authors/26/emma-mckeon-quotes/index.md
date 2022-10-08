@@ -1,0 +1,46 @@
++++
+author = "Emma Mckeon"
+title = "Emma Mckeon Quotes"
+quotes_len = "40"
+description = "the best 40 Emma Mckeon Quotes"
++++
+- I guess you never have any clue how many people are in your corner until something tough happens.
+- We had a backyard pool. There was often a bit of fun rivalry between us.
+- To do a PB in an Olympic final - I'm pretty happy - you can't ask for more, that's the fastest time I have ever swum.
+- I just want to try and keep getting quicker.
+- I was always faster than David when we were younger probably up until I was about 15. And he hated that.
+- You can do as much training, the hardest training, and you might get there and not perform how you wanted, not because of lack of training but maybe the pressure you are putting on yourself. That's a major part of being a resilient athlete - it's not just physical, it's mental.
+- With the 200m free it just changes all the time whoever is at the top.
+- Learning to swim is an essential service.
+- I love seeing other people swim quickly, it gives you a bit more motivation to keep pushing and get the best out of yourself.
+- I think it's just having grown up around all that, it inspires you to excel in the sport that maybe your parents did. We grew up all around the water, and that sort of set our direction.
+- I am pretty pleased. I will be on the Olympic podium, so you can't be more happy.
+- When I decided to keep swimming I made the decision to just do it based off enjoying it and making lots of friends out of it.
+- Mentally, I need the hard work behind me. That's what gives me confidence.
+- I'm so proud of myself.
+- If you work hard and enjoy what you are doing and go after your dreams anything is possible.
+- That's what the Olympics is about - getting your name on the wall, and that gold medal.
+- I remember when I was much younger maybe about five, mum, dad, David and I would all race each other one lap of the pool and I remember coming last every time.
+- I never really thought that the 100 would be one of my specialities I guess, but I think that's because of my 200 work - it gives me a good back end and allows me to hold on.
+- If I'm just doing the sprints and not have such a massive program, I can really pour everything into it.
+- I can't believe that I just won a gold medal. I think it will take a bit to sink in.
+- I grew up watching swimming and amazing athletes in Australia and grew up wanting to do the same.
+- I am going to keep pushing myself and I would love to get an individual gold medal. That would be amazing.
+- I've been at these meets before where the emotions are so up and down.
+- I've always been a proud member of all the relays - and we've had such success in that - but to get that gold individually, I'm very proud and very honored.
+- I'm a racer and I'm competitive.
+- I never thought I would win two golds in one session.
+- I want to go higher and higher and keep improving.
+- I tried out for the London Olympics, missed it by a little bit, gave it away for a while, and wasn't sure I wanted to wait for another four years.
+- I wasn't sure if I was going to do Pan Pacs because I wanted to focus on other things, like getting my shoulder right again and getting my strength back in the gym.
+- If I was satisfied I wouldn't keep swimming.
+- Growing up in sport, it is a pretty cool thing to be a part of.
+- My first 100m comes quite easily for me and I can hold my high speed, that is how I approach it.
+- I always love racing the 100 fly, it has just always been an event that I enjoy.
+- After getting a gold medal I could celebrate but also was trying to keep the emotions at bay.
+- Once me and David were older I think he got sick of me beating him so he started training and then just wanted to beat all of my times, which he did pretty quickly.
+- That would be nice, to become more of a leader in the team.
+- I'm a 100m/200m swimmer so I have the early speed.
+- I look at the athletes who have come before me and been so impressed with what they have done and been inspired by what they have done, but I've never really looked at the stats of medal counts.
+- Getting relay medals is just as amazing I feel just as proud to be a part of that as well. But it's a different feeling, I think, getting an individual gold.
+- I got an Olympic medal.

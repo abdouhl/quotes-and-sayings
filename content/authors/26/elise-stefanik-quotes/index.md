@@ -1,0 +1,105 @@
++++
+author = "Elise Stefanik"
+title = "Elise Stefanik Quotes"
+quotes_len = "99"
+description = "the best 99 Elise Stefanik Quotes"
++++
+- The American Health Care Act is not perfect, but it is an important step in reforming our broken healthcare system to help families in our district.
+- In addition to advocating for smart policies that best serve our heroes, it is also my role as a Member of Congress to advocate for our veterans when working with federal agencies.
+- Things won't change unless we have new types of candidates.
+- As a woman candidate myself, I know how important it was to be encouraged to run, to think outside of the box.
+- Millennials don't believe that government is the most effective in solving problems, and that lack of faith in big government is an opportunity for Republicans to win over millennials.
+- Throughout my first term in office, we have taken many steps to keep my commitment to make my work in Congress as transparent and accessible as possible.
+- Women are bipartisan. We bring a different perspective on every issue. And I believe that every issue is a woman's issue.
+- In reality, victims of human trafficking are often left voiceless and completely unseen by society.
+- I didn't think I was ever going to run for office.
+- Overwhelming, student loan payments are holding millions back from buying homes, starting families, and saving for retirement.
+- I'm honored to sit on the House Intelligence Committee and am proud to chair the House Armed Services Subcommittee on Emerging Threats and Capabilities.
+- For too long, the producers of non-dairy beverages, such as almond and soy products, have unfairly benefited from the ability to label their products as milk.
+- As the first member of my immediate family to graduate from college, making higher education more affordable and accessible is a top priority of mine.
+- In the 114th Congress, I had the privilege of serving on two of the most important Committees in the House of Representatives: the House Armed Services Committee and the Committee on Education and the Workforce.
+- As the proud home of Fort Drum and the Navy Nuclear Site at Kesselring, our district is home to countless military spouses who make enormous sacrifices on behalf of our nation.
+- No clean energy development is complete without extensive environmental protections, and I've been proud to work in a bipartisan fashion with my colleagues in Congress to protect our most precious natural resources.
+- When you get out of Washington, you realize how much of a Beltway bubble exists.
+- Military spouses serve, too, and it's critical we work together to ensure our country's military spouses have the jobs they need and deserve.
+- I've been really humbled by other women who've reached out to me across the country. Not just women who are running for Congress and federal office, but elementary school students running for student council or high school students who are their class presidents.
+- Congress should live by the same laws it passes on to the rest of the nation.
+- One of my key issues is economic empowerment.
+- Women have different challenges. You have to be willing to put in the hours and work harder.
+- A traditional college education works for many students, but for others, this path isn't the best choice.
+- Standing beside each brave servicemember is a spouse with their own unique professional dreams and career goals that shouldn't be stifled by the constant transitions that our military families are subjected to.
+- Our most important job in Congress is to provide for our national defense, and therefore, every year, Congress allocates funds and determines defense priorities in a bill known as the National Defense Authorization Act, or NDAA.
+- We must keep the promises and commitments we've made to our military veterans by ensuring needed services and care are always available and delivered in a timely fashion.
+- I was singled out by other girls for participating in classroom discussions and physically bullied.
+- Serving our district and military families is a tremendous honor, and as our work continues in Congress, I will continue fighting for a strong national defense.
+- Increased access to broadband expands our ability to do commerce and will help bring our farmers' operations into the 21st century.
+- I usually try to wear stuff that is versatile, pretty classic.
+- As a millennial in Congress, I believe it's very important that we're educating our colleagues.
+- As a member of the bipartisan Climate Solutions Caucus and the Co-Chair of the Invasive Species Caucus, I'll continue to be an independent voice for our district.
+- Zebra mussels like to hitch a ride on boats when they're transferred from one body of water to another. It's important to make sure to thoroughly clean your boat each time it leaves the water to ensure these invasive mussels are removed and that you are not spreading them to your next location.
+- As military spouses move from state to state with their servicemember on military orders, it is important that we do what is necessary to make sure they have the opportunity to maintain their hard-earned professional licensing and certification.
+- The United States must continue to support efforts made by Middle Eastern governments to educate Muslim youth and steer them away from violent radicalization.
+- As the youngest woman ever elected to Congress, I certainly would not be here today without the passion, dedication, and activism of Elizabeth Cady Stanton.
+- I am committed to helping our farmers in any way that I can.
+- As a member of the bipartisan Climate Solutions Caucus, I'm committed to finding consensus on legislation to address our environmental and energy challenges.
+- We must continue to ensure that the legacy of the Greatest Generation is preserved and protected so that all Americans can work to embody the ideals and values of those that came before them.
+- President Obama's greatest failure is his failure regarding foreign policy and national security.
+- I was rowing the boat alone against a tide, running against an incumbent in 2013.
+- As the first member of my immediate family to graduate from college, I understand the importance access to high quality education plays in preparing our children to learn and compete in a competitive, global workforce.
+- It is imperative that Congress provides adequately funded and stable budgets which allow us to support Afghan personnel and ensure that Afghanistan does not become a breeding ground for terrorists again.
+- I first decided to run for Congress when I was 29 - and became a Representative at the age of 30.
+- I was so disappointed by the 2012 election that I decided I had to do something. And I thought, 'I have something to offer - I should be able to have a seat at the table.'
+- I read 'Lean In' at a really important time as I was deciding to run for office.
+- Our country is eternally grateful for the sacrifices our men and women in uniform make each day.
+- I was in the same class as Mark Zuckerberg at Harvard. So we really experienced Facebook in a unique way. It launched our sophomore year, and we were also the first class where it became a recruiting tool.
+- We need to encourage young women to run for office and become civic leaders in their own communities.
+- I understand firsthand that Washington is broken.
+- In Congress, I have worked with my colleagues to pass the 21st Century Cures Act.
+- One of the first bills I introduced in Congress was the Be Open Act, legislation to help ease an unnecessary, duplicative and punitive burden placed on employees and employers under the Affordable Care Act.
+- You have to embrace your authenticity and your unique perspective as a woman.
+- Technology is the foundation of the empowerment economy.
+- I support religious liberty, but I also think it is very important as a Republican Party that we bring a compassionate tone when talking about women's health care issues, when we talk about pro-life and pro-choice.
+- The powers that technology and independent contracting give to workers enables them to take greater control of their careers to preserve work-life balance.
+- In Congress, I've advocated for an all-of-the-above energy policy that identifies and promotes alternative energy sources such as wind, solar, biomass and hydropower.
+- I had this perception based on my own frustrations with Washington, but I didn't realize until I launched this campaign how much people are looking for a new generation of leadership and a new approach in Washington.
+- When our natural habitats become overrun by species that are not native to these areas, they can damage the environment, pose health risks, and even hurt our local economy.
+- I will continue to work in Congress to support Lyme disease research and education through funding for the National Institutes of Health and the CDC.
+- Our district is home to the Adirondacks, and we know firsthand that clean energy development and environmental protection are critical to our economy.
+- Children especially deserve our support after they are rescued from those who have victimized them.
+- In a 21st-century economy, it is critical that we equip our nation's children with the tools they need to compete in a global marketplace.
+- Thank you to our farmers for all you do to keep food on our tables.
+- The Millennial Generation is being crushed by soaring college costs and student loan debt, and as lawmakers, we must find solutions to address affordability and flexibility in higher education.
+- There is still much work to be done to help our students secure good-paying jobs and achieve their ultimate goals, and in Congress, I'll continue to support Career and Technical Education programs.
+- Luck favors the brave.
+- President Obama has piled on more taxes, more regulations, more debt for future generations and higher health care costs - hurting our Main Street economy.
+- The Capitol Police have a very tough job.
+- I think the more women we have in leadership positions, the more women will see examples, can see themselves in those roles.
+- I've been a skier since I was 2 or 3, skiing with my dad in northern New York and Vermont.
+- Members of Congress who want to get things done, they need partners who want to move the ball forward on big issues like fundamental tax reform, on regulatory reform, on putting together a replacement package for Obamacare.
+- We ask our brave men and women in uniform to risk everything to protect us.
+- I've had honor of meeting hundreds of servicemembers from our region and across the globe, all fighting for our freedoms.
+- I don't look like a normal congressional candidate.
+- Pell grants are critical tools for lower- and middle-income students to access higher education, and by expanding access to year-round courses, we can help non-traditional students complete their education sooner, allowing them to start their careers and pay off their loans.
+- Standing beside each one of our brave soldiers, sailors, airmen and marines is a loving, supportive, and dedicated family whose sacrifice is a true service to our great nation.
+- I use Facebook on a daily basis to share information about my work in Congress and across our great district. I put information about constituent meetings, video of various Congressional hearings, and share local news stories from around our region.
+- I'm an avid Instagram user, and I do it myself.
+- I think the more women we have running for office the better.
+- The more we know about Lyme, the more we can do to treat patients and educate families to stop the spread of this debilitating disease.
+- Military families are resilient through countless relocations, leaving friends, networks and transitioning to new schools and new jobs while fitting in to new communities.
+- Our nation truly owes a debt of gratitude to all who have served and sacrificed on behalf of this great country.
+- The H-2A guest visa program has been prone to excessive delays and is too rigid to fit the changing needs of farmers and their employees.
+- I think being a young woman is a strength.
+- Whether you're a high school student, attend traditional college, or take night classes while working full-time, it is imperative that you are given the tools necessary to become competitive in the workforce.
+- What few realize is the unique role the North Country of New York played in advancing women's rights in the United States.
+- One of my ideas is that we post every vote on Facebook and on social media so that voters have an opportunity to hold their elected official accountable.
+- I was the first candidate to announce my run on Instagram. So that was kind of cool.
+- We need candidates who are able to reach out to young voters, women voters.
+- The North Country of New York is a region steeped in rich military tradition. Our corner of this country stands out for the remarkable tradition of brave men and women putting themselves in harm's way for our nation.
+- To be at the apex of the executive branch and understand that there are lot of moving pieces and the importance of working with Congress to get things done - I think that gave me a unique perspective as a young person.
+- People told me several times during my first campaign to hide my youth and the fact that I was a nontraditional candidate - a 29-year-old woman. Instead of taking that bad advice, I really leaned in to who I was and wrapped my arms around the fact that I was young and female and that we needed representation for multiple generations in Congress.
+- The challenges military families face from frequent relocations and deployments are themselves patches of service, and that's why supporting our military families is one of my top priorities in Congress.
+- When I travel throughout the district speaking with families and educators, I frequently hear of concerns with our K-12 education system.
+- If you see a tick on your body, be sure to remove it immediately. Use tweezers to pull the tick's body away from your skin, being careful not to crush the tick's body.
+- When I was elected to Congress, I made a commitment to my constituents that my office would set the standard to be open and transparent.
+- Social media is a powerful tool to connect constituents with the policy making process.
+- Nothing replaces hard work.

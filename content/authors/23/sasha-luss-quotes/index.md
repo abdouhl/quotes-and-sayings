@@ -1,0 +1,18 @@
++++
+author = "Sasha Luss"
+title = "Sasha Luss Quotes"
+quotes_len = "12"
+description = "the best 12 Sasha Luss Quotes"
++++
+- During the day I use a bronzer and highlighter and lip balm. But I always bring a full cosmetic case, just in case.
+- Love your four-legged friends. They are the only friend that you can buy.
+- Believe it or not, it's normal to have eight people working on me at the same time!
+- I knew there were going to be a lot of fighting scenes, and I'm not a very sporty person, I have a dancing background, which I thought would help; it did not.
+- The eyes of dogs are surprisingly humanlike.
+- I drink a lot of water.
+- Glamorous and casual are both good options.
+- Fashion week is very tiring, so I take a little nap backstage before the hair and make-up madness starts.
+- I don't really do much on holiday with my skin, however I do apply face creams that I mix with aloe vera as that is helpful for dealing with sun exposure.
+- Like many women, my first lip color belonged to my mum. It was bright orange and very fashionable at the time.
+- I always feel a little bit nervous and excited at the same time.
+- A lot of actors get the leading role after doing a bunch of smaller things and people get to know them. I came out of nowhere.

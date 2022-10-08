@@ -1,0 +1,60 @@
++++
+author = "Stephen Karam"
+title = "Stephen Karam Quotes"
+quotes_len = "54"
+description = "the best 54 Stephen Karam Quotes"
++++
+- I think that I'm going to write a bigger thing, and then I end up writing about people, and the bigger thing recedes into the background, and hope that it's still there.
+- I've always viewed 'Sons of the Prophet' as the first part of a larger trilogy - not three plays dependent on each other but three stand-alone plays connected by theme and, likely, further adventures of the Douaihy family.
+- To be totally honest, I thought I would have a Broadway debut in the distant, distant future, maybe in my 60s or 70s when somebody revived one of my off-Broadway plays with a star.
+- Janet Carroll and Robert Pine, Chris Pine's dad, were in my first play, and they were so astonishingly good, I felt it raised my game instantly.
+- I like creating the illusion that suddenly I've just done five things at once.
+- If there's ever a moment when I am an Anglophile, it's when I see so many theatres in this country that have what I would call federal funding.
+- To see professional actors do my work, to take it seriously - that was the thing that made me think playwriting could actually be what I do. It's not a profession that has some sort of clear career track, like, 'This is what you do to be a playwright.'
+- I lived in a basement duplex on 96th Street on the Upper West Side.
+- If you fail on your own terms, that's a pretty good way to go down.
+- Because I didn't go to graduate school or have mentorship out of college, meeting other playwrights and developing those friendships as a result of being a 'grown up' playwright - that's become an essential community for me. My contemporaries are all my mentors whether they know it or not.
+- I had spent four months in Cedar City, Utah, right after graduation as an intern at the Utah Shakespearean Festival. It's a town that has many people living the polygamous lifestyle.
+- I don't know how to produce work if it's not something that's deeply scaring me or troubling me.
+- When you're the artsy, weirdo, introverted outsider growing up, you don't fit into your community.
+- Coming home for me isn't, like, one family dinner. It's about am I gonna see 50 relatives, or am I gonna see 85?
+- The human condition is endlessly fascinating to me, and the existential horrors of life are what drive our imaginations and theater in general.
+- I think the best directors aren't afraid to ask questions.
+- I was sending off my plays almost like an 8-year-old would send letters to Santa Claus. So it was a bit of a miracle when the Blank Theatre Company actually called and selected a terrible little play that I wrote.
+- I don't think I could write a good play if I was setting out to write about the death of the American middle class.
+- I hope to be known as a writer who told the truth.
+- Traditionally, I like to watch my plays from the very back.
+- Until I have a family or a mortgage, I'm trying to keep my lifestyle simple and my apartment affordable so that I can continue to focus on theater. That's as good as it gets for me.
+- 'Sons of the Prophet' is a dark comedy about human suffering. The play explores the particularly messy portions of life - the times where you find yourself coping with multiple life issues, and before any of them can be resolved, two more show up on your plate. We've all been there, I'd wager.
+- Everyone will always have ideas about how to make your work better. Everyone has advice about how to end your play differently. Start it differently. And it's not about right or wrong. At the end of the day, it's your baby, and you know what's best.
+- I was talking to so many teenagers for so long that I started to feel like, 'I have my own story I want to tell, and I need to do it soon.' So I started to store away pieces that eventually became 'Speech & Debate.' I felt this burning need to write it while I still had not only all of the ideas but the passion to do it.
+- I don't come from a family of artists.
+- I definitely prefer to write under my own volition and see what happens.
+- I think it's scary to be alive, but also exhilarating and joyful.
+- I like going absurd pretty quickly. You don't waste any time when you're doing theater of the ridiculous.
+- I was the worst-dressed person in Scranton. I was a total nerd. Obviously, I got picked on, but I was also able to find my own cluster of friends, and I think when that happens, you get by just fine.
+- My own journey as a writer has been the discovery of different theatrical voices. Chekhov was a revelation. Tennessee Williams was another one. We read 'The Glass Menagerie' in high school, and I still remember the cover.
+- Under Todd Haimes' leadership, Roundabout created a black-box theater whose sole mission was to house premieres by writers who are just starting out and have zero name recognition.
+- To be honest, it's more fun being the underdog.
+- I didn't quite fit in in any particular, specific way. I was a gay teenager who was into drama.
+- I don't go into rehearsal for a production unless I've figured everything out.
+- All of my plays are deeply autobiographical. But it's not straight autobiography.
+- The best thing about being nominated in a category like best new play is realizing there were enough new plays to make a category.
+- Chekhov would have been an excellent screenwriter. He is singularly good at dipping in and out of a group of people's lives, like Robert Altman did.
+- 'Columbinus' was four years of my life, collaborating with a lot of people and gathering lots of information.
+- Sometimes you realize you don't give people in your hometown enough credit.
+- That the best piece of art a person is capable of making is the one that only they could create.
+- In writing 'The Humans,' I obsessed over the financial district and the architecture.
+- Good actors can tell you more about your play than 1,000 hours alone at your desk.
+- I think 'Speech & Debate' surprised people because it's a play about teenagers that took the teenagers very seriously. They are very real. People wanted to see if they identified with one of the kids, that loneliness, that yearning for something bigger. That feeling of being stuck, it's very adolescent, but those kinds of feelings linger on.
+- The older I get, the more appreciative I am of where I came from.
+- In terms of smaller changes over time, I think good plays are like poems. Every syllable counts. So I wrestle with word choice, rhythm in final drafts.
+- I was not exposed to a lot of culture. The shows we saw in high school, like 'Phantom of the Opera' and 'Miss Saigon,' were thrilling. But my love affair with theater started with seeing a production of 'Little Shop of Horrors' that my sister was in.
+- I think being gay has resulted in gay characters standing front and center in all of my work.
+- I'm drawn to writers with skill sets I don't have.
+- 'The Cherry Orchard' is a masterpiece, and there can never be too many adaptations.
+- To me, 'Glee' is totally fantastic.
+- With 'The Humans,' I've found that because it's related to very familiar forms - the family play and the thriller, almost a genre-collison play - some people want it to be one or the other. Either less dark and more of a family comedy or a full-fledged thriller with blood and ghosts jumping out of closets. Everyone's taste is different.
+- Writing a play to get to Broadway and have a national tour is a sure way to write a terrible, terrible play.
+- Without a conscious effort, all of my plays have all featured gay characters. I'm proud of that.
+- I worry that I will lose control over the projects I get to work on.

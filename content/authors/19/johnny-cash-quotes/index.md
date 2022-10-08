@@ -1,0 +1,31 @@
++++
+author = "Johnny Cash"
+title = "Johnny Cash Quotes"
+quotes_len = "25"
+description = "the best 25 Johnny Cash Quotes"
++++
+- For you I know I'd even try to turn the tide.
+- I read novels but I also read the Bible. And study it, you know? And the more I learn, the more excited I get.
+- When my wife died, I booked myself into the studio just to work, to occupy myself.
+- It's like a novelist writing far out things. If it makes a point and makes sense, then people like to read that. But if it's off in left field and goes over the edge, you lose it. The same with musical talent, I think.
+- Success is having to worry about every damn thing in the world, except money.
+- You build on failure. You use it as a stepping stone. Close the door on the past. You don't try to forget the mistakes, but you don't dwell on it. You don't let it have any of your energy, or any of your time, or any of your space.
+- That was the big thing when I was growing up, singing on the radio. The extent of my dream was to sing on the radio station in Memphis. Even when I got out of the Air Force in 1954, I came right back to Memphis and started knocking on doors at the radio station.
+- Of emotions, of love, of breakup, of love and hate and death and dying, mama, apple pie, and the whole thing. It covers a lot of territory, country music does.
+- I wear black because I'm comfortable in it. But then in the summertime when it's hot I'm comfortable in light blue.
+- God gives us life and takes us away as He sees fit.
+- You've got to know your limitations. I don't know what your limitations are. I found out what mine were when I was twelve. I found out that there weren't too many limitations, if I did it my way.
+- How well I have learned that there is no fence to sit on between heaven and hell. There is a deep, wide gulf, a chasm, and in that chasm is no place for any man.
+- My father was a man of love. He always loved me to death. He worked hard in the fields, but my father never hit me. Never. I don't ever remember a really cross, unkind word from my father.
+- Sometimes I am two people. Johnny is the nice one. Cash causes all the trouble. They fight.
+- I knew I wanted to sing when I was a very small boy. When I was probably 4 years old. My mother played a guitar and I would sit with her and she would sing and I learned to sing along with her.
+- The things that have always been important: to be a good man, to try to live my life the way God would have me, to turn it over to Him that His will might be worked in my life, to do my work without looking back, to give it all I've got, and to take pride in my work as an honest performer.
+- I'm very shy really. I spend a lot of time in my room alone reading or writing or watching television.
+- I am not a Christian artist, I am an artist who is a Christian.
+- You've got a song you're singing from your gut, you want that audience to feel it in their gut. And you've got to make them think that you're one of them sitting out there with them too. They've got to be able to relate to what you're doing.
+- People call me wild. Not really though, I'm not. I guess I've never been normal, not what you call Establishment. I'm country.
+- I was wearing black clothes almost from the beginning. I feel comfortable in black. I felt like black looked good onstage, that it was attractive, so I started wearing it all the time.
+- When I record somebody else's song, I have to make it my own or it doesn't feel right. I'll say to myself, I wrote this and he doesn't know it!
+- I love to go to the studio and stay there 10 or 12 hours a day. I love it. What is it? I don't know. It's life.
+- God's the final judge for Elvis Presley and Johnny Cash too. That's solely in the hands of God.
+- I start a lot more songs than I finish, because I realize when I get into them, they're no good. I don't throw them away, I just put them away, store them, get them out of sight.

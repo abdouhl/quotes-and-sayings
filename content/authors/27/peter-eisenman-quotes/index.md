@@ -1,0 +1,30 @@
++++
+author = "Peter Eisenman"
+title = "Peter Eisenman Quotes"
+quotes_len = "24"
+description = "the best 24 Peter Eisenman Quotes"
++++
+- My wife has her stuff and her taste, and I have my stuff and my taste.
+- I truly believe that the great heroes that create the history of architecture are people who take risks and write to tell about it.
+- I don't design houses with the nuclear family idea because I don't believe in it as a concept.
+- I use the NordicTrack every other day for 20 minutes. I don't listen to music or watch TV while I do it. I count to myself. I count to 25; I count to 25 backwards, that sort of thing.
+- My father went to Rutgers, and I grew up in New Jersey, so I'm a great Rutgers fan. I have season tickets.
+- I would never live in anything I design. Life and art are different. My life is very precious to me - my art is precious to me. I love designing things for other people, but I don't like designing things for myself.
+- Conservation destroys the present. If we are only busy preserving the past, we are not living in the present and unable to look forward. I am against conservation. We should let young people move forward, whether we agree with them or not. We should let new things happen.
+- Architecture is definitely a political act.
+- I really don't even think of myself as being Jewish except when I'm in Germany.
+- I'm a Larry David fan, right? And it seems to me that Jewish history from the Talmud on has been a self-deprecating, self-critical kind of humor.
+- I don't believe that classical architecture is enough to engage people anymore. They say: 'So what else is new?'
+- In New York, a Jew is a Jew, an Italian is an Italian, a Muslim is a Muslim: Nobody's going out of his way to treat you in a special way.
+- The guy who sits in front of the TV set with headphones on has lost the capacity to react to the tactile environment.
+- The more centralized the power, the less compromises need to be made in architecture.
+- If you were a son of mine, I wouldn't want you to be an architect, because it's a tough way to be in the world.
+- There's no such thing as an absolute openness. Openness is relative, I think, in all societies.
+- Architects design houses. I live in a home.
+- I don't know how to use appliances. I mean, I use the coffee maker. But that's it.
+- I'm not a fashion architect. I don't dress in Ralph Lauren and Gucci. When I buy a suit, I buy it at J. Press. I have a blue blazer that I wear 80 percent of the time.
+- I am very different as a parent to new kids. My work changed from being rooted in the sky to being rooted in the earth.
+- The problem with digital architecture is that an algorithm can produce endless variations, so an architect has many choices.
+- I am immersed in architecture all day, working in my office or teaching.
+- I didn't know I was Jewish until I encountered anti-Semitism at the age of 10, when my best friend told me I couldn't come to their house because I was a Jew.
+- I was in Jungian analysis for 20 years, 1976-96.

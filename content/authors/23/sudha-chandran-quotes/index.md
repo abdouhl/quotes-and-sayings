@@ -1,0 +1,106 @@
++++
+author = "Sudha Chandran"
+title = "Sudha Chandran Quotes"
+quotes_len = "100"
+description = "the best 100 Sudha Chandran Quotes"
++++
+- My character of Ammaji in 'Solhah Singaarr' is that of strict matriarch who adheres to her values.
+- I shifted my attention to South because I felt I was being overexposed in the TV medium and my characters were also getting repetitive.
+- No one can point fingers at my professionalism.
+- I am very happy that TV is going back to where we belong and what we believe in, the traditions.
+- My bindis were undoubtedly a fashion craze, but I was zapped to see a woman in Nagpur use a curtain ring to glam up her pallu, as I had done in 'KKR!'
+- I am a Malayali. My ancestors are from Tamil Nadu, but they settled in Irinjalakuda.
+- If people don't want to cast you, they give you this stupid excuse that it's because you don't fit into a certain image.
+- We can't be dependent on the police all the time. We can't turn a blind eye to the crime taking place in the country because we are personally not affected.
+- I think when people look upon somebody as a role model it is the biggest honor.
+- The negative characters made me very popular but were getting too monotonous.
+- I only saw myself as a dancer and an actor but to be a host is also a wonderful experience.
+- I plead the almighty that I leave this world with ghungroos on my feet.
+- The BJP has a positive outlook towards the country and that is my philosophy towards life.
+- Picking up new languages is fairly easy since it's my passion.
+- The concept of 'Naagin' has always interested me and I think even the audience is intrigued by it.
+- People like you in negative roles, they want to see you only in negative roles and thus you get typecast. At the end of the day, what matters is whether the audience loves you or not.
+- Two things happened - One, I was already in search of a positive role for a long time when I came across 'Shastri Sisters.' Two, I missed being a part of Hindi television.
+- I am required to shoot for 'Jaiyam' only for five days in a month. Being able to speak Tamil fluently, I complete 25 episodes each time I visit Chennai.
+- I would go to school, then go for my dance training and be back home only by 9:30 P. M... and that's what my early life was about.
+- Since my childhood I always knew that India was a land of scarcity but this has changed ever since the BJP started ruling our country.
+- I am very excited about doing 'Shastri Sisters.'
+- Today, there's a lot of competition in the industry and so one must be open to do all kinds of roles.
+- My effort in the whole thing was the basic determination, the burning desire in me to prove to this world that a physically handicapped girl is in no way inferior.
+- I never attend calls when I am shooting.
+- My bedroom is my favorite chill out zone, where after a hectic day, I sign off to land in my dreams.
+- I have been wanting to do a substantial role for quite sometime.
+- I would love to act in more Malayalam films.
+- When I sleep at night I wonder what life is all about.
+- More than any of my achievements, I feel it's a real honor that children are learning about me, that I'm a source of inspiration.
+- I was not doing really nice work on television because I was busy doing assignments down South.
+- People would be surprised to see the real Sudha. I am gawky and not well dressed in my real life.
+- Gujarat is very close to me. I won my first best actor award for my Gujarati film 'Kadla Ni Jod.'
+- Along with my will power, it was my parents who stood by me like a pillar of strength in my most challenging phase of life.
+- The content in TV has become more mature and relatable.
+- I have worked with National award-winning artiste Upendra Limaye in a film and he is a fantastic actor.
+- Failure has always made me a very strong person.
+- With 'Crime Alert's first season, the channel gave me the opportunity and also pushed me to become a producer. That was something new that I explored.
+- Priyadarshan asked me during the shooting of 'Maalamaal Weekly' 'where are you from, Kerala or Tamil Nadu?' I told him 'I am a Malayali just like you.'
+- Dance is my life and I am happy to keep my passion alive.
+- I want to have tried at least once and got out of my comfort zone in Mumbai. I know that Hindi serials are waiting for me there.
+- I had a horrifying experience but what the world fails to understand is that the handicapped need no sympathy, they need to be encouraged in whatever they do.
+- I can only say, don't be a victim of stress and distress. Just go out in the world and strive what you want to become.
+- Dance means everything to me; it is like fresh air that rejuvenates my life.
+- I have done good work in television and wouldn't want to mess it with a wrong move.
+- Ekta Kapoor, the producer of 'Kaahin... ' once told me that you've got to keep breaking the mould to keep yourself in the game. Hence, I dare to do something different. For instance, after years of essaying flamboyantly dressed negative roles, I took on one of a demure singer in Zee TV's 'Sanjog Se Bani Sangini.'
+- I'm coming back to Ekta Kapoor's Balaji Telefilms. And I feel pampered, protected with them.
+- People already had labelled me a 'one-film wonder' and that's when TV came to my rescue.
+- I have never done homework and have always left the details to the director. This holds true from my first film 'Naache Mayuri' to 'Naagin.'
+- You can't cheat the audience anymore and roles that are honest and edgy are liked by the viewers.
+- TV is changing for good. I'm glad that the leveling is happening when we are blending the fiction with real-life treatment.
+- When people commend me on my success, I know I didn't just get it. I actually earned it.
+- I began learning how to dance when I was 3 and a half years old.
+- Chennai seems to be the base for the South Indian film industry in general.
+- I have never been typecast.
+- I feel loved and grateful for all the love people have given me over the years.
+- We may be living in a modern world but people still believe in 'Icchadhari Nagins' and still visit temples to rid themselves of 'sarp dosh.'
+- Initially my makeup for the character of Ramola Sikand in TV serial 'Kahin Kisi Roz' raised eyebrows of many who were of the opinion that my looks were too gaudy. But soon I was appreciated by the viewers as well as the industry.
+- Playing the role of the 70-year-old woman is quite an experience.
+- I was determined to return to Bombay on two legs and not on crutches and dance again.
+- I agree that not everyone knows who I am. I am not that famous.
+- I have worked with other production houses, but Balaji feels like homecoming.
+- So even when I am not around for many, many generations, I will continue to motivate a lot of people... Wherever my soul would be, it will give me a lot of satisfaction that people will be talking about me and following me in their life.
+- I like taking up exceptional characters.
+- I love wearing my color faded clothes; I feel connected.
+- If we talk about character actors they are always in demand. Actress like Aruna Irani will always be needed in a script.
+- I'm totally a supernatural freak in real life.
+- Throughout my acting career by far, I have chosen roles that are not only challenging but unique at the same time.
+- My role as Chitra is synonymous to my character in real life. If Chitra is crying or shouting or reacting in a certain way then Sudha would have reacted in the same manner.
+- Although the general format of a reality show requires judges to dish out the nastiest criticisms possible, we are only human, after all. Sometimes emotions get the better of us and you just can't help but get attached.
+- I am happy that I have landed 'Shastri Sisters' because I was always wanted to be a part of Colors family.
+- I have done films before and I would love to be a part of one. But the role should give me a platform to act.
+- I'm a director's actress.
+- Being a dancer myself, I can understand the travails of youngsters performing in 'Magadheera.'
+- When I did 'Kaisa Yeh Ishq Hai,' I wanted to challenge myself by doing a Haryanvi role.
+- Frankly, I would never like to write an autobiography because my life is an open book.
+- When I do negative characters on screen, people love it. In fact, people look forward to it.
+- In my 10th exams, I stood first with 80 percent but instead of picking science for my further studies, I chose arts... just so that I could continue to dance.
+- As an actor you should be able to store and recollect your experiences and work on them as an actor as and when required.
+- I was fed up with doing vampish negative roles, dolled-up with heavy makeup all the time.
+- Culture knows no boundaries.
+- TV is what made me a star. It rescued me when I had no work and gave me recognition.
+- I remember my father used to beg for a loan to buy a house. He had to beg the banks for a loan.
+- I don't know if being stereotyped is good or bad. But, that is the trend industry follows.
+- Mostly we are addicted to television shows for two reasons; whether it's because we get to connect with the story-line as somewhat similar is faced by all of us, or otherwise it gives you something which is totally fictional, unrealistic but catchy.
+- There were a lot of things that my parents could not do or afford. And when they put all that dreams into me and when I could not fulfill them, I felt very disappointed. And that was the only reason I wanted to dance with an artificial leg.
+- I have a dance academy in Mumbai that my husband takes care of.
+- An actress of my calibre is not afraid of playing a grandmother!
+- I am keen on doing a comedy in a full-fledged positive role.
+- If my journey encourages and inspires people to never give up trying to do what they really want to do, I will be truly satisfied.
+- Dance is my passion and something that comes naturally to me.
+- I have joined the BJP to help disabled people.
+- Never ignore someone with a disability, as we don't realize how much they can inspire.
+- My life itself is a message and I know it has changed a lot of lives.
+- Crime is a subject that needs to be looked at in-depth since the percentage is on the rise.
+- When I started my TV career, I was totally jobless.
+- I don't see any difference in Hindi and Telugu television.
+- I may not believe in long-drawn rituals but I believe in a supernatural force that gives me strength. This can take the form of my mum, my father, my husband or my failures.
+- I started with light hearted comedies and good stories with real-life treatment; then TV went glossy, especially with the K-series.
+- The artificial leg was like an alien body, fitted to mine. Both had to respond to each other.
+- Once I got the Jaipor leg, it took me 3 years of physiotherapy to recover and feel normal again.

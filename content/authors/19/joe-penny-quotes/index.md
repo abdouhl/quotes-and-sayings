@@ -1,0 +1,29 @@
++++
+author = "Joe Penny"
+title = "Joe Penny Quotes"
+quotes_len = "23"
+description = "the best 23 Joe Penny Quotes"
++++
+- I'm one of those workaholics, the kind of guy who may drop with a cardiac arrest around 55.
+- I was once described as being mediumly handsome, and that's a right-on analysis for me.
+- In a series, you have the luxury of time to establish the character and build a rhythm. In a TV movie, you've got to come up with the rhythm now. Right now.
+- I've been building a future for myself outside of acting.
+- My mother always wanted a boy. My father never did.
+- You get used to that work mode, get used to always doing something.
+- With films, you are not so much on a schedule. TV is all about scheduling.
+- I really have to pace myself. I work about 75 hours a week.
+- I grew up very fast. I was always hanging around with older kids.
+- I guess being a hunk is a lot better than being a chunk.
+- Most of the time I play heroes, guys who don't have an edge.
+- I never had any formal voice training, but it's something I always wanted to do. 'So I negotiated a deal with a recording studio after I gathered enough material for a record. I put a group together and just went ahead and did it. What the hell.
+- If you've got a shot at having some 30 million people give you thumbs up or thumbs down every week, you take it.
+- There are a lot of actors out there who don't have an arena to present their stuff.
+- I'm not changing because I'm part of a hit. People around me have changed in their attitude toward me, but I haven't changed. And I won't.
+- The day I came in and found another actor's name on my dressing room door, and my stuff out in the hall, that was the day I learned my lesson.
+- Working in TV films has a lot of advantages over the daily grind of doing an hour series.
+- We all are so serious when we are younger.
+- I save my money, brother. I don't spend what I don't make.
+- I was surrounded by a lot of people not doing what they wanted to do.
+- I think you could turn on any channel and see a sexy guy, depending on your barometer of what sexy is.
+- In TV films, it's nice to get out of town for six weeks or two months, whatever it is, do your thing, and you're out, ready for the next assignment.
+- I definitely want to go the route of feature films.

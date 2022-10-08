@@ -1,0 +1,26 @@
++++
+author = "Pericles"
+title = "Pericles Quotes"
+quotes_len = "20"
+description = "the best 20 Pericles Quotes"
++++
+- The bravest are surely those who have the clearest vision of what is before them, glory and danger alike, and yet notwithstanding go out to meet it.
+- Those who are politically apathetic can only survive if they are supported by people who are capable of taking action.
+- We do not imitate, but are a model to others.
+- It is more of a disgrace to be robbed of what one has than to fail in some new undertaking.
+- Our love of what is beautiful does not lead to extravagance; our love of the things of the mind does not make us soft.
+- Trees, though they are cut and loped, grow up again quickly, but if men are destroyed, it is not easy to get them again.
+- We regard wealth as something to be properly used, rather than as something to boast about. As for poverty, no one need be ashamed to admit it: the real shame is in not taking practical measures to escape from it.
+- Fishes live in the sea, as men do on land: the great ones eat up the little ones.
+- Your empire is now like a tyranny: it may have been wrong to take it; it is certainly dangerous to let it go.
+- What you leave behind is not what is engraved in stone monuments, but what is woven into the lives of others.
+- Time is the wisest counselor of all.
+- For famous men have the whole earth as their memorial.
+- All who have taken it upon themselves to rule over others have incurred hatred and unpopularity for a time; but if one has a great aim to pursue, this burden of envy must be accepted, and it is wise to accept it.
+- A woman's greatest glory is to be little talked about by men, whether for good or ill.
+- The whole earth is the tomb of heroic men and their story is not given only on stone over their clay but abides everywhere without visible symbol woven into the stuff of other mens lives.
+- Having knowledge but lacking the power to express it clearly is no better than never having any ideas at all.
+- It is right to endure with resignation what the gods send, and to face one's enemies with courage.
+- Freedom is the sure possession of those alone who have the courage to defend it.
+- Time is the king of all men, he is their parent and their grave, and gives them what he will and not what they crave.
+- Just because you do not take an interest in politics doesn't mean politics won't take an interest in you.

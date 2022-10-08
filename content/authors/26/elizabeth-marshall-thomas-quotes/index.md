@@ -1,0 +1,49 @@
++++
+author = "Elizabeth Marshall Thomas"
+title = "Elizabeth Marshall Thomas Quotes"
+quotes_len = "43"
+description = "the best 43 Elizabeth Marshall Thomas Quotes"
++++
+- This was what you did in the '50s: You get married, get a job, put your husband through graduate school, and have two kids - a girl and a boy.
+- When I was very young, my nanny was a big Newfoundland dog... whose task was to keep me from drowning.
+- People are perfectly glad to accept the idea that dogs love us, so they must be able to love each other.
+- Barring some competition from whales, wolves are probably America's most popular wild animal. Wolves are also contenders for America's most unpopular wild animal, with perhaps some competition from coyotes.
+- If you don't have manufactured items or anything we think of as 'civilization,' then you're living according to your species.
+- As far as I'm concerned, I own my dogs as I own my body. My legs are with me when I take a shower, and I feel no shame. If I were to lose one, I'd grieve, and people would send sympathy cards, but it would be my condition that evoked the sympathy, not the fate of the leg. That's like losing a dog.
+- Besides individual things like thunder and gunshots, what dogs fear most is not belonging, being alone.
+- Cats and dogs are a very good window into the natural world: a chance to see how another species lives and deals with its problems, what they like and what they don't like.
+- We are surely the primary agent of death for all members of the cat tribe. For many if not most cat species, our depredations must surpass accidents, disease, and even starvation by a considerable margin.
+- Primates feel pure, flat immobility as boredom. But dogs feel it as peace.
+- The story of cats is a story of meat.
+- Dogs like to learn stuff, if not from another dog, then people are OK... They love activity, playing, interesting walks, and just belonging, being together.
+- Veterinarians are essential allies to the millions of us who experience the human-animal bond.
+- All the members of the dog family - domestic dogs, wolves, coyotes, dingoes - are very aware of territory. A group must control its own territory - you can't have others taking it from you, because then you won't have enough food.
+- Every dog might wish to be Dog One, but like us, most dogs want membership in the group even more than they want supremacy over others.
+- We used to go in the woods by ourselves, and you can't help noticing the world then, especially animals. People used to know a lot about the natural world, especially in the country.
+- One of the best and most responsible things a scientist can do is to write for the popular press.
+- People didn't think animals thought or remembered or had minds! They most certainly do: any pet owner knows more than a lot of scientists about animals.
+- When I write about animals, I use anthropological techniques and the language you would use for a person. You don't have to anthropomorphize animals, just acknowledge their individuality.
+- The dogs and I are a single thing, and thus we share our interests. With them, I'm bigger and better than I am without them, and vice versa.
+- Not even a maggot is an it, and to refer to any animal in that manner is an affectation, an ignorant stab at science-speak.
+- I would like to visit a dog's mind to know what he's thinking and feeling.
+- To sit idly, not doing, merely experiencing, comes hard to a primate.
+- No other creatures of the savannah sleep as deeply or as soundly as lions, but after all, lions are the main reason for not sleeping soundly.
+- I always thought of deer as solitary animals that weren't very interesting. But my goodness, that was very wrong. The big eye-opener for me was that they're social. They have family groups.
+- The relationships we have with dogs seem simple enough and often are taken for granted. But these relationships can be deep and mysterious, and not at all simple.
+- Many expressions of a cat's feelings seem deeply related to the capture of live prey.
+- When we became sedentary, lived indoors, and started to raise livestock, we began to see wolves not as occasional fur-bearers or fellow hunters but as robbers.
+- You can look at your dog and see that it's thinking and has strong feelings. And if it does, so do wolves. And if wolves do, so do elephants. People aren't the only beings that think and feel.
+- Dogs are a window on the natural world.
+- Animals need to understand other species, if only to prey on them or escape from them.
+- Dogs who live in each other's company are calm and pragmatic, never showing the desperate need to make known their needs and feelings or to communicate their observations, as some hysterical dogs who know only the company of our species are likely to do.
+- With all due respect to the nation's fish and game departments, more deer die because people hunt them than because people feed them.
+- We may never find a way to live in suburbia with deer as we do with raccoons, say, or squirrels. So for this reason, it's very important that we make sure always to save enough wild or open land so that they can live in their normal manner.
+- I don't mind aging - I'm glad to be aging. I'll never die young.
+- Every day, the humane societies execute thousands of dogs who tried all their lives to do their very best by their owners. These dogs are killed not because they are bad but because they are inconvenient. So as we need God more than he needs us, dogs need us more than we need them, and they know it.
+- You have to be able to love members of your own species before you can branch out and apply that to other species.
+- People acquire a dog, don't understand it, can't train it, get fed up, and... offer it for adoption, hoping to pass on the problem to somebody else. But nobody wants a problem dog.
+- We fill the woods with invasive primates camouflaged to look like piles of leaves who sneak around, sprinkling estrus doe urine and manipulating gadgets that sound like antlers clashing.
+- From the very dawn of time until now and well into the future... human-animal companionship is at the very core of our instincts not only for mutual survival, but mutually rewarding relationships.
+- In my cosmology, indigenous wild deer are more important than exotic ornamental shrubs.
+- Hundreds of species are facing extinction due to human impacts on the environment.
+- Once you're known to be an alcoholic, that's how many people identify you, which could be a reason not to talk about it.

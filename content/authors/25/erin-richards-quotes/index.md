@@ -1,0 +1,15 @@
++++
+author = "Erin Richards"
+title = "Erin Richards Quotes"
+quotes_len = "9"
+description = "the best 9 Erin Richards Quotes"
++++
+- I'm good at keeping secrets. My friends always tell me their secrets because I keep them well.
+- I do love doing stunts; I was in a film called 'The Quiet Ones,' which was quite a spooky film, and I had to be hung upside down, which was good.
+- I've always been a massive fan of Batman. He didn't have any powers, so it meant that anyone could be Batman.
+- In real life, you don't know what's going to happen to you, so why would your character know? It's liberating to play the emotion your character is feeling at the time and not know what's coming up. I like it.
+- I'm not the marrying type! But if I did get married, I definitely wouldn't be a bridezilla.
+- I do have a bit of a gravelly voice; people have told me I've got a good voice for radio.
+- I'm so laid back and not high maintenance in the slightest. If I did get married, I'd probably be dancing down the aisle with the groom. I'd like something unconventional!
+- I love low-budget projects with great acting and great stories you can really get your teeth into.
+- I always used to put on plays when I was younger for my family to watch, when I was 10 or something. I used to force older members of my family to watch the plays and younger members of my family to be characters in the plays - and my personal favorite was Batman.

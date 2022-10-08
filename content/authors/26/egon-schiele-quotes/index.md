@@ -1,0 +1,16 @@
++++
+author = "Egon Schiele"
+title = "Egon Schiele Quotes"
+quotes_len = "10"
+description = "the best 10 Egon Schiele Quotes"
++++
+- I don't know whether there is anyone else at all who remembers my noble father with such sadness.
+- At present, I am mainly observing the physical motion of mountains, water, trees and flowers. One is everywhere reminded of similar movements in the human body, of similar impulses of joy and suffering in plants.
+- Art cannot be modern. Art is primordially eternal.
+- All beautiful and noble qualities have been united in me... I shall be the fruit which will leave eternal vitality behind even after its decay. How great must be your joy, therefore, to have given birth to me.
+- I believe in the immortality of all creatures.
+- I am so rich that I must give myself away.
+- Everything is dead while it lives.
+- To restrict the artist is a crime. It is to murder germinating life.
+- I do not deny that I have made drawings and watercolors of an erotic nature. But they are always works of art. Are there no artists who have done erotic pictures?
+- My mother is a very strange woman... She doesn't understand me in the least and doesn't love me much either. If she had either love or understanding she would be prepared to make sacrifices.

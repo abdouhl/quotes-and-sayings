@@ -1,0 +1,53 @@
++++
+author = "Stephanie Beatriz"
+title = "Stephanie Beatriz Quotes"
+quotes_len = "47"
+description = "the best 47 Stephanie Beatriz Quotes"
++++
+- Bisexuality often needs an explanation. It isn't something you can often 'read' on a person, and because of that, bi people sometimes feel like an invisible part of the LGBTQIA community.
+- I think, so many times in society, women are expected to behave a certain way. You are raised to say 'sorry' and 'excuse me', and get out of the way.
+- I'm not really a super-serious person. I guess in some ways I am, but I do like to have a lot of fun. I mean, one of my favorite places in the world is Disney World, so that'll tell you a little bit about me.
+- I think the first concert I ever went to was maybe a Five Iron Frenzy concert or something when I was in high school.
+- I used to be on dance team in high school; it was called drill team in Texas. And when I started doing theater sophomore year, I had to make a decision which thing I was gonna follow. It was a big shift because I sort of had all these friends on dance squad, and when I started to do theater, my whole identity shifted.
+- I lived in New York for a long time. Right after college I went there. So I got my first cell phone in New York. Back when you would flip the phone up. Way back when.
+- I know all the words to 'I'm on a Boat.'
+- You can't live in fear all the time.
+- I've worked in predominately male sets my entire life. Shakespeare? Let's talk about that.
+- A lot of animated movies in the past have sort of relied on these archaic tropes on what the female characters in those movies can be and who they are.
+- The majority of my job is being an open channel, and if I'm not being very authentic with who I am in myself, then it doesn't feel like I can dig down deep and get to really vulnerable stuff, or stuff I have never felt before.
+- Luckily, I have great agents who are sending me out for great stuff.
+- As a kid, I really, truly believed that if you swallowed a watermelon seed, something really bad was going to happen.
+- I made good grades in school.
+- There are lots of different sides to Brooklyn. It has so much character.
+- If you're writing a bi character, did you look at a lot of bi actors for the role? Did you really go and find people that identified as queer? If you did, then great, and if you didn't find anyone you liked in that pool, well, that's surprising. If you write a character that's trans, the time is now - cast a trans actor.
+- I literally used to stare at my face in the mirror with hate and anger. I'd focus on those gigantic zits and just wail about what a monster I was, how I would never have a career because of my gross skin. I couldn't pass a mirror with out thinking about how hideous my skin was and how I wished I was someone else, someone with perfect skin.
+- I remember watching 'Sesame Street' as a kid and loving that there were Latino characters on there.
+- There is no one artform that is going to satisfy all human beings, and there's no one way of talking about difficult stuff that is going to satisfy people, period.
+- When you label somebody and put them in a box, then you put the lid on the box, and you just never look inside again. I think it's much more interesting for human beings to look at each other's stories and see each other. Really see each other and then see themselves through other people's stories. That's where you start to break down stereotypes.
+- I feel like my agents are really amazing and smart.
+- People's sexuality is often defined by who we're partnered with at any given moment, which can be a frustrating limitation for me. I've had countless tiny 'coming out' moments in my life, often simply to explain to someone else that they have misjudged my sexuality based on who they saw me dating.
+- 'Brooklyn Nine-Nine' is an idealized, fun comedy world in which feminism is an underlying value that all the characters have. Equality is a value all the characters have. I mean, I want to live in that world. I'd like to make the world feel more like that, but I understand that it's a fantasy.
+- When you're 22, 23, living in New York, you're just scrambling to live on people's couches and in rooms that you're sure you're not supposed to be in. You're not on the lease; you're paying weird amounts of money every month trying to make it happen.
+- The majority of guys that I've met, that I consider confident and sexy, are pretty well rooted in who they are. They know their values and their worth as a person. They know they are intelligent, caring men, and that generates confidence.
+- I lived in Park Slope, which is probably one of the most homogenized areas of Brooklyn. No offense to Park Slope.
+- I do a lot of laughing at my own self in life, so I think I come at things with a pretty easygoing view.
+- I love stories that exist in this amped-up, personal world - sort of like 'Pee-wee's Big Holiday,' actually. That world really only exists inside that movie, but what a wonderful little world it is.
+- I remember watching 'Colombo' a lot with my dad. That was one of the first detective shows I remember watching. And I remember my dad turning to me - my dad loves to turn to me and explain why things are funny. He used to do that with 'Seinfeld' all the time. He did it with 'Colombo', too, set the scene.
+- Weird stuff, for me, is not that weird. I guess if it were other people, they'd think it was weird. I eat nutritional yeast. And sometimes I take clay shots to help pull toxins out of my body. I eat weird L.A. food, so I guess that's probably weird in other people's eyes.
+- The playing ground is so uneven, and there have been so many straight characters for such a long time, and so many gay actors that have had to hide their sexuality to get the parts they want to play.
+- I've been lucky enough to be part of some great ensembles in theater - I'd been doing theater since college.
+- I wouldn't say 'Brooklyn Nine-Nine' is a really 'delicate' show. I would probably use a word more like 'zany.'
+- I think you can tell the difference between 'swagger' and real confidence immediately. You can smell it, like bad body spray versus nice cologne.
+- I'm glad to see on a first-hand basis how both Andre Braugher and Andy Samberg work. They're both pretty esteemed in both of their fields, respectively - comedy-slash-dramatic acting work.
+- I'm pan-Latino, or whatever that phrase is. It's not a sexy phrase, but it is a sexy, cool thing. That's how I feel.
+- The amount of coordination it takes to shoot a television show is mind-numbing. There are so many things that have to be exactly right to create the correct environment for a single shot, let alone a whole scene or the full episode.
+- I utterly respect that there are lots of people who do service jobs and deserve our respect, because they make our world function.
+- What I would love is for a normalization of queer characters on TV.
+- I think most actors like to do things that are right outside of their comfort zone.
+- Nannies are amazing human beings.
+- I do think that, as an advocate for myself on set, I'm very direct.
+- I am the kind of person that wants to get up in front of crowds of strangers and perform monologues. To each their own.
+- I moved to New York to be a theater actor. It's what I studied and what I thought I wanted to do forever, as you do when you're 18 and think you know exactly what you want. I was lucky enough to start working right away.
+- Hollywood is crazy because if you're working, you're constantly working. There's all sorts of scheduling and stuff, and maybe you have a day off, but you don't have the whole day. You've got a photo shoot or whatever.
+- That's, to me, the ultimate goal - to disappear inside another character and bring them so fully to life that I've convinced other human beings that it's a real person.
+- It's hard to make friends as an adult. You gotta work at it, you know? You have to ask people to lunch, and if you don't know them, it's weird.

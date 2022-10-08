@@ -1,0 +1,130 @@
++++
+author = "Guillermo Del Toro"
+title = "Guillermo Del Toro Quotes"
+quotes_len = "124"
+description = "the best 124 Guillermo Del Toro Quotes"
++++
+- You cannot convince a Buddhist to become a Protestant any more than you can convince a person who embraces realism as the highest form of art that fantasy is an equally important manifestation. It's impossible.
+- 'Crimson' is written in a very particular style, and it's very precise in the way it graduates into a gothic romance. The souls that will connect with it will connect deeply.
+- I think looking is the essential act of loving. Brothers, fathers and sons, lovers, whatever. What you do when you love someone is look at that person as that person is.
+- There is art and beauty and power in the primal images of fantasy.
+- I'm a huge David Fincher fan, and to me, 'Zodiac' is a masterpiece. I re-watch that movie all the time.
+- When I did 'Mimic,' it was such a difficult experience to try to make. Believe it or not, I did try to make a really adult giant bug movie. And then, in the course of the process, it kind of died a horrible death and gave birth to the movie that exists now, which now, in retrospect, I like. But it's not the movie I set out to do.
+- I'm not that interested in recreating reality. I'm interested in recreating an emotional truth.
+- I truly try to create beauty and reflection and all of that as conscientiously and judiciously and minutely as I can.
+- I'm a book guy first, and my education came from two encyclopedias. One was an encyclopedia of health, so I became morbidly obsessed with anatomy, and I thought I had trichinosis, an aneurism, jaundice! And then an encyclopedia of art.
+- But I think we are seeing a resurgence of the graphic ghost story like The Others, Devil's Backbone and The Sixth Sense. It is a return to more gothic atmospheric ghost storytelling.
+- I think when we wake up in the morning, we can choose between fear and love. Every morning. And every morning, if you choose one, that doesn't define you until the end... The way you end your story is important. It's important that we choose love over fear, because love is the answer.
+- I have a lot of artifacts - books on witchcrafts and talismans. I have a big, big collection of original occult books from the 1800s and 1700s, and some of the oldest books on apparitions and vampires. All original printings. It's not that I'm a crazy believer, I just find it to be amazing research material.
+- The movie has to have some essence where you connect with it. The reason I'm doing 'Blade 2' and not 'Alien 4' is because I connect with the universe of 'Blade.' I don't connect with the universe of 'Alien.' Besides, I already did 'Alien 4': It's called 'Mimic.'
+- To me, movies are books. They are texts to be consulted.
+- I love what many of my contemporaries are doing, especially people like Terry Gilliam, David Cronenberg, P. T. Anderson, and Alfonso Cuaron.
+- They're getting more and more experience on what to expect, and the Hellboy audience is such a faithful and fanatic audience as I am, and you have to really be very open about what you do.
+- I had nightmares as a kid. As an adult, I have very prosaic dreams.
+- I'm having a lot of fun on Twitter, tweeting about books.
+- When I was a child, I was raised Catholic. Somewhere, I didn't fit with the saints and holy men. I discovered the monsters - in Boris Karloff, I saw a beautiful, innocent creature in a state of grace, sacrificed by sins he did not commit.
+- The way I love monsters is a Mexican way of loving monsters, which is that I am not judgmental. The Anglo way of seeing things is that monsters are exceptional and bad, and people are good. But in my movies, creatures are taken for granted.
+- I think Hollywood has a habit of developing 100 times more than they actually shoot.
+- Any actor I admire and enjoy working with - Sergi Lopez as the bad guy in 'Pan's Labyrinth,' or the little girl who played young Mako in 'Pacific Rim,' it makes no difference - I like actors with a very strong centre.
+- What is scary to me is silly to somebody else. CG isn't scary to me. It's like comedy - comedy and horror are quite similar, in that there'll always be somebody who'll say, 'I don't think that was funny.' And it's the same with things that are meant to be scary.
+- I don't think there is life beyond death. I don't. But I do believe that we get this clarity in the last minute of our life. The titles we achieved, the honors we managed, they all vanish. You are left alone with you and your deeds and the things you didn't do.
+- I wrote a screenplay for 'The Witches,' which Alfonso Cuaron was producing, but we couldn't get it made! The studio just wouldn't greenlight that movie. It's my favorite Roald Dahl book, 'The Witches,' because I grew up with my grandmother a lot of the time, and the relationship between the boy and the grandmother speaks volumes to me.
+- I was part of a group that had a cinema club so every week we would project two or three movies on 16 or 35mm.
+- I started seeing in the monsters as a more sincere form of religion because the priests were not that great, but Frankenstein was great.
+- I've been going through immigration all my life, and I've been stopped for traffic violations by cops, and they get much more curious about me than the regular guy. The moment they hear my accent, things get a little deeper.
+- I like John Carpenter. I like some of his films more than others.
+- I think the greatest giant insect movie ever made is 'Them!'
+- There are two levels of vampirism: one is the regular vampire, which is just like it has always been; and then there's the super vampires, which are a new breed we've created.
+- Every project that you write about or read about, it goes through years of hard work. We write a screenplay; we design. Then you submit those and the budget, and it's out of your hands.
+- I love the entire 'Constantine' mythology, the 'Dead Man' mythology, the Alex Holland 'Swamp Thing' mythology.
+- As a director, I design every movie to be true to itself, and damn it if they like it, and damn it if they don't.
+- To me, art and storytelling serve primal, spiritual functions in my daily life. Whether I'm telling a bedtime story to my kids or trying to mount a movie or write a short story or a novel, I take it very seriously.
+- It's only in modern times that we have come to glorify vampirism.
+- More and more, as I grow older, I find myself looking for inspiration in painting, illustration, videogames, and old movies.
+- I'm very grateful of my life and my career and the movies I've been able to make.
+- The problem with 'Don't Be Afraid of the Dark' was that it was designed to be a PG-13 movie. It was literally a horror movie for a younger generation. I was trying to do the film equivalent of teenage, young adult readers, and when they gave it an R rating, the movie couldn't sustain an R.
+- I have a schizophrenic career. I have 'Cronos' and 'The Devil's Backbone' on one hand, and then I have 'Blade 2' and 'Mimic' on the other.
+- What happens to me is that I am first and foremost a film geek.
+- There is beauty and humility in imperfection.
+- When I was a kid, monsters made me feel that I could fit somewhere, even if it was... an imaginary place where the grotesque and the abnormal were celebrated and accepted.
+- I was directing before I knew it was called that.
+- I hope to continue doing TV, and I think that what I've learned on 'The Strain' will come in handy.
+- I think that The Eye is a particularly Americanized take on horror.
+- Well, the first thing is that I love monsters, I identify with monsters.
+- I don't try to sanction other people's joy in monsters. I mean, I think the fact is, humor, fantasy - you know, like fear, desire or laughter - create genres of their own: comedy, melodrama, or erotic films or horror films... The boundaries cannot be defined. It's to each his own.
+- Ultimately, you walk life side-by-side with death, and the Day of the Dead, curiously enough, is about life. It's an impulse that's intrinsic to the Mexican character.
+- I was a kid when I read Jane Eyre and fell in love with that universe. I didn't have the acumen to say the prose is old or the prose is too complex. I just fell in love with Jane's very lonely soul, much the same way I fell in love with Frankenstein's creature for the same reason. Those old souls exist in every decade in every century.
+- I love to travel, anywhere in the world. Wherever it is... India... Tibet... wherever. I'll go anywhere.
+- There is a heavy Mexican Catholic streak in my movies, and a huge Mexican sense of melodrama. Everything is overwrought, and there's a sense of acceptance of the fantastic in my films, which is innately Mexican. So when people ask, 'How can you define the Mexican-ness of your films?' I go, 'How can I not?' It's all I am.
+- As a craftsman, I bust my butt as much for 'Blade 2' as I do for 'Devil's Backbone.'
+- I have a very promiscuous relationship with all my objects.
+- I think love is the greatest force in the universe. It's shapeless like water. It only takes the shape of things it becomes.
+- I'm always very, very careful when the movies happen and where they happen.
+- The way they control a population is by pointing at somebody else - whether they're gay, Mexican, Jewish, black - and saying, 'They are different than you. They're the reason you're in the shape you're in. You're not responsible.' And when they exonerate you through vilifying and demonizing someone else, they control you.
+- I like monsters, and when the monster is a superhero, it's a byproduct. Like Hellboy, the Hulk, Man-Thing, Swamp Thing, Sandman, Constantine, Demon, Dr. Strange, Spectre, Deadman. Those are the superheroes I followed as a kid religiously.
+- Well I think effects are tools.
+- In Mexico, you're close to death all the time.
+- I feel that your ambitions should always exceed the budget.
+- I'd love to come back as the most annoying ghost ever.
+- I'm a lapsed altar boy.
+- It's so much easier when you're promoting a movie that you like!
+- Every movie, I complicate. I make the hard choices. I remember when I was pitching 'Pan's Labyrinth:' An anti-fascist fairy tale set in Civil War Spain, where the girl dies at the end. It's not easy.
+- I loved when the superhero genre crosses with horror. Morbius. Those are the guys I gravitated towards. Blade. So for me, to be interested in doing a superhero movie, it would need to be on the dark side or a Jack Kirby property. Kamandi, Demon, Mr. Miracle - I love any Kirby.
+- Every Sunday on Channel 6 in Guadalajara, where I lived, they dedicated most every Sunday to black-and-white horror films and sci-fi. So I watched them. I watched 'Tarantula.' I watched 'The Monolith Monsters.' I watched all the Universal library.
+- I don't think that Argentinian cinema is well-known outside Argentina the way it should be.
+- Monsters are evangelical creatures for me.
+- I saw a martyr in the Wolf Man, who is the very moving essence of outsiderness, with which I identified fully.
+- 'Hellboy 1' was such a huge, huge overperformer on Blu-ray and ancillary markets. It was one of the first movies on Blu-ray; it has multiple editions. All the ancillary markets overperformed everywhere. And the second one did good on all ancillary markets, which now do not exist.
+- I love monsters the way people worship holy images. To me, they really connect in a very fundamental way to my identity.
+- I was very attracted to doing 'The Wolverine' in Japan because that's my favorite chapter in the story of Wolverine. But I'm not a superhero guy.
+- The creature from the black lagoon - I drew that creature almost every day, two, three times a day, for probably my first ten years of life, you know.
+- The other thing that I started doing for myself was, I went through my diary of ideas that I keep and made sure that the translation of the comic to the movie was good.
+- It's never hard to cast kids; it's only ever hard to direct them.
+- If you give an actor a green screen, the shot may work, but that green screen will not inspire you on the set as a director or as an actor.
+- When I was a teenager there was no video in my country. Betamax came to Mexico very slowly.
+- I believe that we, every day, 24-7, all the days of our lives, we are, all of us, agents of construction and agents of destruction.
+- I see horror as part of legitimate film. I don't see it as an independent genre that has nothing to do with the rest of cinema.
+- Everything I do, I do it with the hope that people will watch it more than twice. Whether it's 'Pan's Labyrinth' or 'Pacific Rim' or the opening of 'The Simpsons,' I do it with that hope.
+- Most of the time - in 'Pan's Labyrinth' or 'Devil's Backbone' - I'm talking about my childhood.
+- In the case of 'Shape Of Water,' I want it to feel like a song. I wanted people to come out of the movie humming the movie.
+- When you start with Super 8, you are everything. You're the DP, the sound man, the effects guy. And what I started understanding, by working for other people, is that the best type of director is someone who rose through the ranks.
+- As a producer, I learned not to declare anything about a movie I'm not directing.
+- I love producing other people's work, but presenting is a very serious business. It's a marriage.
+- A lot of Mexican Catholic dogma, the way it's taught, it's about existing in a state of grace, which I found impossible to reconcile with the much darker view of the world and myself, even as a child.
+- I would have killed to do 'Beauty And The Beast' at Warners, which went away. I would have killed to do 'The Witches' at Warners that went away. God knows there are many, many of them. All I can do is diligently do the screenplay, diligently do the design work, deliver a budget, and then await a decision.
+- I think there are movies that are so gigantic that you need a second unit.
+- You cannot dictate what people find funny, what people find attractive, or what people find scary. There is not a norm.
+- I'd grab the camera and tell people what to do, and when I was 14, someone told me that it was called directing.
+- I like actors that are good with pantomime and that can transmit a lot by their presence and attitude more than through their dialogue.
+- I have said no to many, many Day of the Dead projects in the past, about 10 or 15, because every time I heard a take it was from someone who didn't know the celebration.
+- Monsters are the patron saints of imperfection.
+- The reason there's a 'Hellboy 2' is not because the studios were passionate about the first one; it's because the numbers made sense.
+- To me, the thing love and cinema have in common is that they are about seeing. The greatest act of love you can give to anyone is to see them exactly as they are. That's the greatest act of love because you wash away imperfections.
+- I think there is a very quiet power in things that are not on screen.
+- For Devil's Backbone I loved it but I felt very pressured but so I was neurotic on the shoot.
+- I believe that we will elevate and differentiate the discourse of cinema the more we discuss image creation in specific terms.
+- I think that evil is a spiritual engine in our world, our lives, our universe, that functions in order to create good.
+- If you ask me, I alternate between truly bizarre, what you would call 'Hollywood' movies and truly bizarre, what you would call 'arthouse' movies.
+- Shooting a horror story with kids, I always explain really simply. They may be scary to watch, but they're a lot of fun to shoot. You know, the kids have a great time shooting these movies. Whether you let them watch it is another matter.
+- In that, Blade 2 is very much like a rock concert... if it's too loud, you're too old.
+- I started when I was eight, doing super 8 films.
+- It is unnatural to deny effort, adversity, and pain.
+- I would like to avoid dying if possible. I do like living! The worst, I think for me, though, would be a really bedridden death.
+- I think that most of the monsters I dream of, I dreamt of as a child.
+- Mike Mignola's 'Hellboy' was influenced by Lovecraft big time. He wanted to make his monsters Lovecraftian. But I think many other films have been influenced by Lovecraft - like 'Alien,' which is almost an outer-space version of 'At The Mountains Of Madness.'
+- Making a film is like raising a child. You cannot raise a child to be liked by everyone. You raise a child to excel, and you teach the child to be true to his own nature. There will be people who'll dislike your child because he or she is who they are, and there will be people who'll love your child immensely for the very same reason.
+- I have 7,000 DVDs and Blu-rays. I have thousands of books - thousands - and roughly 15,000 comic books or something like that, hundreds of books about different art movements - the symbolists, the dadaists, the Pre-Raphaelites, the impressionists - you know, that I consult before I start every movie.
+- Love is love. And it's much better than hatred and fear.
+- I think Roald Dahl had the rarest combination of talking to kids about complex emotions, and he was able to show you that the world of kids was sophisticated, complex, and had a lot more darkness than adults ever want to remember.
+- I'm fortunate enough that my personal life falls into whack with my professional life. My kids love visiting the sets; they love the monsters.
+- Hellboy is the first movie where both ends of the spectrum are combined.
+- For eight years I did effects for other movies until I got my movie made.
+- If you want to know how to handle a crew, it's great to be part of a crew.
+- I want to live in a space that I designed, that is for me.
+- I see myself as a perennial expatriate because, frankly, I don't think I fit comfortably in any conventional form of filmmaking, and I feel at the same time, depending on the project, I fit into many different ones.
+- The great thing about Roald Dahl is he tackled the big questions of life without any fear of being shocking or brutal, because he knew the kids could take it.
+- Insects are living metaphors for me. They are so alien and so remote and so perfect, but also they are emotionless; they don't have any human or mammalian instincts. They'll eat their young at the drop of a hat; they can eat your house! There's no empathy - none.
+- I think we live in a culture that is actually hedging all of it towards comfort and immediacy, things that scare me. All the things that they sell us as a way of life scare me.
+- TV now, you have to plan it: you structure it for binge watching, meaning you structure the whole season like a three-act play. You have a first act - the first third of the season - second act is the middle third, and you structure it like that.
+- There's nothing more political than fantasy.
+- For me, real life is hard work. Making movies is like a vacation for my soul.

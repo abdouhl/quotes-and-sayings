@@ -1,0 +1,106 @@
++++
+author = "Johnny Van Zant"
+title = "Johnny Van Zant Quotes"
+quotes_len = "100"
+description = "the best 100 Johnny Van Zant Quotes"
++++
+- John 5 - he's weird. He's a freak. I'm just kidding. He's a great guy.
+- Some people would do anything just to get a break; that's where the bad guys get you.
+- I think people relate to Skynyrd; it's a working class band. They're just songs with messages. To this day, there's never been a song written that didn't have a message.
+- We have fans that come up all the time and say, 'This song helped me through this tough time in my life' or whatever. The music helps us through it, too.
+- Look at Montgomery Gentry. If those boys came out in the '70s, they'd be Southern rock.
+- I like George W. At a time when this country was hit hard, he stood up for America. He's been the leader of the free world during the hardest time America's ever had.
+- A lot of groups get dirty deals. They work hard and have to get a job after their career is over.
+- I want to be there for the last note of 'Freebird' when that happens.
+- We have a lot of friends who are hunters. And you know what? Come hunting season, man, they head to the woods, you know. And again, this country was built on God and guns, folks. I mean, it really was.
+- I've never met a person who doesn't like music, and we may vary in what styles we like, but everybody likes some form of music.
+- We've done shows with Tim McGraw, Hank Williams Jr., Montgomery Gentry, Shooter Jennings.
+- It's all these young country bucks doing Skynyrd songs, which is pretty cool to us.
+- Two of my favorite bands, Blackberry Smoke and Black Stone Cherry, I just think both of those bands are a good new progressive kind of Southern Rock that's a little different than us but still has a rootsy thing going on.
+- We write stories about common people and common things. That's what Skynyrd always is about - the real working class of America.
+- It's for the common people, people who have made this great country of ours. That's what the heck I say we always write about.
+- Who knows what the heck the future will bring.
+- Don't sign your publishing away.
+- We always joke that our road crew will have to wheelchair us up onstage soon because this is what we do. This is what we love to do. This is what God put us on earth to do until the day we take our last breath.
+- People are asking us, 'Why have you gone country?' And we say, 'Man, we were born country.' They gave us the tag 'Southern rock' years ago as a way of not saying country.
+- I didn't know if Skynyrd fans were going to throw rocks at me or eggs or what.
+- I always try to relate a song to something what is going on, the working man, the times, how life goes.
+- I don't think you can erase history.
+- In my opinion, the only people who should have handguns are the police.
+- Families do not stop living. We have got to keep going on. This is what people do.
+- Rich people know how to party, too.
+- If it wasn't for Al Kooper, there might not be a Lynyrd Skynyrd. He's the one who found us at Pinocchio's in Atlanta, Georgia, and signed us to Sounds Of The South through MCA, brought the band to attention.
+- When we were kids, we said the Pledge of Allegiance because we were proud of this country, and we said prayer. You know, we thanked the good Lord above.
+- I'd rather sit in Jacksonville and do a different kind of work than get messed over.
+- Skynyrd is a big family. We have argued, fussed, and fought.
+- My favorite singers in the world have been black singers, and you can go to any church and hear the best singers in the world - and I'm a singer, and I love singing!
+- Some of the country stuff in the past has been so polished - if you were a guy with a nice pair of jeans, a big belt buckle and nice hat, you were country.
+- Skynyrd's not just a band; I think it's a lifestyle. It's iconic.
+- Hank Junior fans are Skynyrd fans.
+- You have people ask us how you get through all the stuff that Skynyrd's been through, and I think it's the music; it really is.
+- When you set a goal for yourself, you do what you need to.
+- I'm a Republican myself, though I think there are actually some Democrats in Lynyrd Skynyrd.
+- The fans have always been there for us, and they've realized when we were going through a hard time.
+- On our Web site, we have people complaining about us not playing new stuff. But there's so many classic Lynyrd Skynyrd songs, you can't go out and just do a bunch of new things.
+- We go to Europe, and they think we're totally prejudiced 'cause we hang the bars and stripes. But for us, the bars and stripes doesn't mean we want to see anybody in slavery or anything like that. It's just our heritage. To us, the bars and stripes means grits, 'y'all,' and the beauty of the South. There's no prejudice at all in that with us.
+- If people want to own a rifle or something like that for hunting purposes only, I tend to agree with that. But semi-automatic weapons and handguns, that's just unreal. I mean, what good are handguns?
+- I saw B.B. King in concert one time where he had this guy that would bring him out a glass of water and towel to wipe his forehead with.
+- We didn't grow up rich people.
+- You don't go to some other country and bash our president.
+- Our newest member is Johnny Colt, who was bass player with The Black Crowes. Colt fits right in with us. He's loony as heck, and so are we. We have a great time and love doing what we do. I hope Johnny is with us for a long, long time. He is quite the guy.
+- When you're 17, touring is fun.
+- I was a Skynyrd fan all along. But I was also the brother of the lead singer who passed on. I just didn't want to do anything that would harm the band's name.
+- To me, making a CD is like writing a book.
+- We're musicians; we're not politicians or anything.
+- We've got to take some drastic steps in this country. We can't keep spending and spending.
+- When we are out on the road, running up and down the road playing shows, you have to be not only a member of a band but, especially with Lynyrd Skynyrd, you have to be a part of the Skynyrd nation. You have to be a part of the family.
+- My dad was a truck driver, and from the time I was knee high to a grapevine, I was driving a truck.
+- I'm very proud to be from Jacksonville.
+- The last thing we want to do is disappoint the fans.
+- If people can't relate to something, there's no use of the song being there.
+- Most of our fans are the hardworking people of the world. They are the people who have made this country great.
+- 'Free Bird' is timeless, 'Sweet Home' is timeless. They're just timeless songs.
+- We are not saying that every idiot out there should own a gun - and there should be better background checks on guns. Not everybody should have the right.
+- Look at Gretchen Wilson. If she came out in the '70s she'd be the queen of Southern rock.
+- Rock & roll has kept us alive for all these years. But we just love country music. It's in our blood.
+- I was a Skynyrd fan before I was approached to be a part of Skynyrd, and they always ended it with 'Free Bird,' so I've been watching it since I was a kid.
+- Skynyrd just hasn't gotten its just due.
+- I just love going out and playing my brother's songs.
+- If nothing else, we grew up loving the old blues artists and Ray Charles.
+- I'm always going to keep my eyes open.
+- Lynyrd Skynyrd has always been about writing songs and talking to people through them. That's what we do, and that's what we'll keep doing for as long as we can.
+- We write about things that we've done or things that have happened to people around us.
+- So many artists try to be something that they're not.
+- Everybody in Lynyrd Skynyrd loves different styles of music, and our minds are very open when it comes to writing our songs and making the band true to what the band is, but also stepping out and doing something current.
+- This is America, and everybody should have a right to say what they want to say. But I think there's a time and a place for it.
+- Whatever people want to say, we go out there every night, and we give tribute to the songs that my brother wrote, to Ronnie and Allen Collins and Steve Gaines and Leon Wilkeson and everybody. We pay tribute every night to those people who have gone on.
+- Music is a great healer.
+- I'm a lover of old traditional country - George Jones, Merle Haggard, Tammy Wynette, Marty Roberts.
+- If you're only a fan of the old music, that music's gonna wind up sounding even older.
+- Some of the songs on the radio are really outrageous. I listen to the lyric. If the lyric doesn't make sense, I don't like the song.
+- My dad was a truck driver. We all used to ride along with him. And the way he'd keep awake was to sing while he was going down the road. So we all joined in.
+- We don't get home enough.
+- When you're dealing with a big amount of money, you should have your own accountant and your own lawyer.
+- Not every song of Lynyrd Skynyrd's was a single, but songs like 'Tuesday's Gone' and 'The Ballad of Curtis Loew' and 'Made in the Shade,' 'I Need You,' people learned those songs from the radio because radio played albums, not just singles.
+- We have doctors and lawyers and CEOs as fans.
+- Every redneck's dream is to write a song and have it go on a fishing show.
+- Lynyrd Skynyrd has always been a bunch of rowdy, crazy people, but we love our fans, and that's what the music is all about: touching them. Touching them touches us.
+- We have to make a living, sure, but it's about the legacy of Lynyrd Skynyrd and what it stands for, what the fans are all about.
+- David Allan Coe actually went to jail one time. Some fan cursed Lynyrd Skynyrd, and David Allan Coe kicked his teeth in. He ran and kicked a guy's teeth in for saying something about Lynyrd Skynyrd.
+- I kinda feel that my brother wrote some of the best country lyrics ever - 'The Ballad of Curtis Loew,' 'Mississippi Kid' and that little hit 'Sweet Home Alabama.'
+- We always pay tribute to what the old Lynyrd Skynyrd has done - I'm very proud of that.
+- I think country music is Lynyrd Skynyrd. I think a lot of the country music is what we do, but I don't think rock & roll is dead at all.
+- Nothing was easy for us coming up. But we were rich in family.
+- Johnny Colt is a character, and most people in Lynyrd Skynyrd are characters, so he fits in great with us. He's got an attitude, man, and I love it, and that's what we need.
+- They're great songs. How many bands wouldn't like to have a 'Freebird' or 'Sweet Home Alabama' to play every night?
+- If you're going into music, work on your music and do it as well as you can. And look at it as a business. I'm in it to make a living, too.
+- We have a song called 'Skynyrd Nation.' It's just about what our fans are, what they do in getting ready for the show.
+- There's nothing like getting out there playing a great show with Skynyrd and seeing people love this music.
+- I actually quit the business. I went and drove a truck for a year and a half.
+- My father was a Democrat.
+- It is a scary world out there, and believe me that if someone were to try to come into my house, I want to be able to protect myself.
+- If rock & roll is dead and gone, man, I am missing out on it.
+- I think, hey, everybody has a right to change their mind.
+- As Christians, it's our duty to stand up for what we believe - that's called testifying.
+- That's your end goal anyway, is to make the fans happy.
+- I think it's just that Skynyrd songs are timeless.

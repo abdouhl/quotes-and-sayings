@@ -1,0 +1,105 @@
++++
+author = "James Degale"
+title = "James Degale Quotes"
+quotes_len = "99"
+description = "the best 99 James Degale Quotes"
++++
+- I'm scared of failing. I'm scared to lose.
+- If I won another gold medal in 2012, in my home city, imagine that. To be the face of 2012, that'd be unbelievable.
+- Don't worry, everyone - I'm not going to be just this silly little idiot who thinks he's 'it,' who has been to the Olympics, won a gold medal and come back thinking he's 'it.' That isn't me, trust me.
+- Calzaghe and Mayweather both got booed in the early part of their careers and look where they are now. I'm used to it, though, in the Olympic final I got booed by the Cubans and the Chinese so I'm ready to deal with it, do what I do and beat what is in front of me.
+- When you're not happy doing your job, it's hard work, right?
+- A lot of things I did were cringy. I look back at interviews, seeing the way I talked and the way I am, and it is embarrassing. I came back from the Olympics, I was shoved in the spotlight and I couldn't cope that well.
+- I'm lucky that I have got good parents behind me.
+- We have had no bonuses for winning Olympic medals, I haven't even had a call from the ABA. I was on assisted performance funding, but I had that stopped.
+- By 2012 I'm going to be a world champion or knocking on the door for a world title.
+- I'd like to win the British belt outright.
+- Al is loyal, a loyal guy. He has treated me extremely well and he likes that I have been loyal to him as well. He runs things but he has treated me extremely well. I speak to Al Haymon whenever I want. He is a mysterious guy but he is the main man. He is the most powerful man in boxing.
+- I've boxed all around the world.
+- Andre Dirrell is known to be a good fighter.
+- I only want the big fights.
+- Money comes and goes.
+- 99.9% of fighters would do anything to have the career I've had, yet people keep telling me to make changes. What for?
+- In this country, I don't get the respect. And that's not me being stupid, or bitter about it.
+- If it's got to be boring, it will be boring. Hit and run. I'll take that.
+- The worst thing is having to make weight before a fight. It's hard to cut down.
+- Against Dirrell I was thinking: 'Hold up, he's not as fast as me.' I can hit him with my left hand. It's a wonderful feeling.
+- Groves is a fool. Groves is a fake. I will never let him belittle me like he's done with Carl Froch.
+- I was 80-1 to win Olympic gold.
+- I'm not really a reader, but every Thursday and Friday I read my Boxing News. I read the papers every day, but I'm not really a book reader.
+- There were talks about going into the jungle, 'Strictly' and 'Big Brother' - and I'm a good dancer so I'd smash 'Strictly.'
+- The right shoulder is vital, being the one with which the southpaw employs his fast, and very effective, jab, which remains the cornerstone of his work.
+- I said Lucian Bute is a world-class fighter.
+- I'm a good boy, I eat up all my vegetables.
+- Prior to a fight when I have to make weight, obviously I can't eat all the rubbish - chocolate and stuff like that. Straight after I can relax and eat what I want.
+- I boxed for the British title in my ninth fight.
+- I'm the Marmite of boxing.
+- I had cartilage sticking out my nose. I couldn't breathe out of my left nostril.
+- A mega fight to me is a fight that I am in and people think I am going to lose. I am the underdog. Golovkin, it's a perfect fight. It's a hard fight, but a fight that I think I have a fantastic chance of beating him. He's not the biggest middleweight, so if he moves up in weight, I am going to have the size advantage.
+- There is a pressure in this country that comes from being a boxer with an Olympic medal and then turning pro.
+- A lot of greats from England have fought in New York. I remember when Naseem Hamed fought at Madison Square Garden against Kevin Kelley and knocked him out.
+- All I get on my Twitter is 'Please fight Groves again' and 'Why won't Froch take the fight?' and 'Get in the mix... ' But it's just so hard to do that. I wish it were easy.
+- Don't let the good looks and the playboy image fool you. I'm very serious.
+- Badou Jack ain't a trash-talker. He's very respectful.
+- I love all the attention I've got since becoming Olympic champion and being asked to go to different events, but boxing is what I do.
+- Listen, if anyone hits you on the chin you are probably going to get hurt.
+- When I won my world title people used to say I worked hard and that I was fit; now they say I'm a good fighter but I love a drink and a party!
+- I will take on any super middleweight in the world.
+- People are saying I hold and spoil, but you don't get to win Olympic gold without a bit of power and ability.
+- Losing weight for me is about eating healthy and training hard and the weight falls off me.
+- I've done it the hard way - first Olympic gold medallist from Great Britain to win a world title, the 'road warrior.' I love that tag because I do travel.
+- I've done everything, I've boxed at the Barclays Center in front of 15,000 people, I've been in a unification fight... I've done everything.
+- I'm hard to beat when I'm at my best. I'm telling you, I'm hard to beat.
+- When I won the world title against Andre Dirrell, I was edgy and a bit scared that I didn't want to lose, but you saw I was on my game.
+- I've got the 'fat gene' in my family, so I've always got to watch what I eat.
+- I was fighting on PPV for British titles, making good money from pretty much day one, so how can people who I've never ever met before tell me that I've made wrong decisions in my career.
+- I like nice things, I love money really, don't I? But I don't love the fame side. All I care about is my world title, being in big fights and being known for that.
+- It's been a successful and enjoyable career for most of the time. I've lived the dream and done everything in boxing but sometimes it feels like I don't get the credit I deserve.
+- Lucian Bute had the world title for five years, he made nine defenses and he's a good, good fighter. The fight before that, I beat Andre Dirrell, who comes from a good pedigree and is a hell of a southpaw. It just shows you the kind of fighter I am when I focus and do my job.
+- I want the biggest fights, the biggest risks, the biggest money. All the titles. That's what I want.
+- Hit and move, that's amateur boxing and that's what I'm good at.
+- It's a tough business, boxing, but I've got my family and a great team.
+- I can beat anyone in the world.
+- I'm ready for the best in the world.
+- I believe in myself and maybe people take that as cocky and flash but in this game you have to believe in yourself or you won't get anywhere.
+- All boxers are OCD. You can see a bit of OCD in me before I go into the ring. I can't put on my right boot before my left. It's the same with my gloves. It's got to always be the left foot and the left hand first. I would freak out if I did it differently. I have to do the left first because that's the way I done it when I won the Olympics.
+- I think once I win this fight against Andre Dirrell I will get a lot more respect.
+- When I retire, if people see me on the street and remember me, just give me a smile. That's all I want.
+- I train very hard in the gym and that's the thing that people don't see.
+- I had something called Gilmore's groin.
+- Boxing is fantastic in the States.
+- I had a 180-degree tear around my shoulder, my AC joint needed stabilising and a tear in my rotator cuff.
+- I'm not good with jokes, no. I don't know a joke at all. I like being told jokes, but I can't tell one myself.
+- Just because you are a good amateur, it doesn't mean you're going to be a good professional.
+- Of course, it means something to beat George Groves to winning a world title.
+- It is a difficult decision, either to turn pro or stay amateur.
+- I love watching old fights. It's hard to watch the black-and-white footage, although I know about Randolph Turpin and people like that, but I'm talking about Hearns, Haggler, Leonard, those guys. Sugar Ray Leonard, he was way before his time, throwing bolos and all that, those big wind-up bolo shots.
+- I'm a big Gooner, a die-hard.
+- Dirrell is a very good opponent. He's very talented. He's hard to beat.
+- I always said that I am all wrong for Froch. I have huge respect for him, but when we fight I am very confident in beating him.
+- I could have ended up in a gang or in prison because Harlesden is real rough and I was always a naughty boy. That's how I got into boxing.
+- Anthony Joshua has smashed it, he's one of the biggest sportsmen in the world but when you talk about boxing careers I've done just as well as him.
+- I used to love tap, that was favourite, and a bit of street dancing. Ballet I tried to avoid.
+- I know what is best for me. Sometimes it's nice that people care and want to help out, but look where listening to only myself and those close to me has got me.
+- My whole career, all I've been building up to is winning a world title.
+- Coming out of the Olympic Games, I was the golden boy and I got put up on a pedestal. I got stuff handed to me.
+- I actually like boxing away from home. It takes the pressure off you a little bit.
+- I'm a victim of my own success.
+- I've been saying for years, Froch is an easy fight, chin's up in the air, feet are all over the place, technically terrible. But he's tough, he's strong, he's fit for 12 rounds, he comes on strong the last few rounds.
+- The only difference between me and Anthony Joshua is that he's made more money. He's a heavyweight and thats the blue ribbon division but that's the only difference.
+- Family is paramount, I am the baby of the family, I get looked after, everyone spoils me and I couldn't live without them. They are my life, and they keep me grounded. If I get out of line, my mum will tell me off.
+- When I've made enough money so that my family never have to work again, I will retire.
+- People think I'm tough and arrogant but I've got feelings.
+- I think that's one of my main attributes. My movement, my speed, my feet.
+- When I'm not preparing for a fight, I like to chill, go to the cinema and socialise with my mates.
+- Boxing is a hard sport, I've been doing it for a long time since the age of 10.
+- Eubank is tough, he's game, he's strong. He's just like his dad. But he struggles with the boxing bit.
+- I will be a world champion, I'm going to do it.
+- The first couple of years of my career were going fantastic, everything running smoothly. I was the next best thing. Obviously there were problems that were out of my hands, changing promoters and all different things behind the scenes that people don't see.
+- Dirrell was very skilful. He'd only lost once before me - to Carl Froch in Nottingham - and he gave Froch so many problems. So I was very nervous before that one.
+- I want to fight Andre Ward, Arthur Abraham, Gilberto Ramirez, I want to box the best.
+- The fight with Groves is in the past.
+- In life most of us are only really good at one thing - and with me it's boxing.
+- Amateur boxing is like a game but you have to be spiteful as a pro. I've got that spiteful streak. I've always had it - just ask my mum and dad.
+- Believe it or not, I do get a lot of love on the streets.
+- It's an unbelievable feeling. I'm world champ. I'm world champ! I made history.

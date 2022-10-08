@@ -1,0 +1,111 @@
++++
+author = "Eric Schneiderman"
+title = "Eric Schneiderman Quotes"
+quotes_len = "105"
+description = "the best 105 Eric Schneiderman Quotes"
++++
+- When the trust between the police and the communities they serve breaks down, everyone is at risk.
+- Prosecutors are all used to persons who commit fraud making wild accusations when they're caught.
+- Exercising the right to vote is essential to our democracy.
+- Abandoned homes become magnets for vandalism and crime. They drag down the property values of neighboring homes.
+- We've got to do more to ensure that people who work full time are not living in poverty and that the massive gap between rich and poor - which is fundamentally un-American, as far as I'm concerned - is somehow dealt with.
+- I'm very interested in the more grass-roots consequences of the economic meltdown: issues related to mortgage foreclosures, debt collection, and the practices of credit card companies and others who hold a lot of consumer debt.
+- Prosecutors are all used to people who commit fraud making wild accusations when they're caught.
+- Trump University had neither a license nor a charter from New York State certifying it as an institution of higher education.
+- Once they are charged, too many poor New Yorkers find themselves trapped by our unjust bail system. Unable to pay for bail, they languish in Rikers Island or other jails while they await trial, regardless of guilt.
+- Very few checklist liberals will focus on transformational work if they are rewarded or punished only for their transactional work.
+- Our investigation has found that, unlike traditional fantasy sports, daily fantasy sports companies are engaged in illegal gambling under New York law, causing the same kinds of social and economic harms as other forms of illegal gambling and misleading New York consumers.
+- When I was in the Senate, I worked to pass Women's Health and Wellness Act, which bars insurance companies from discriminating against the health care needs of women.
+- The right to vote is one of our nation's most important civil rights.
+- We can prevent unfair advantage, and we can avoid the destabilizing effect that high frequency trading can have.
+- We're going after the possibilities of tax fraud, insurance fraud, securities fraud. We're going to look at this stuff very closely. We have the jurisdiction, we have the resources, and we have the will.
+- For more than a century, states have sought to protect the integrity of the democratic process at the state and local level by regulating corporate spending in elections.
+- A staunch abolitionist, Hamilton was one of the founding members of the New York Manumission Society. He was a trustee and namesake of Hamilton-Oneida Academy, an upstate New York school dedicated to educating Native-American boys.
+- I look forward to continuing to serve the people of New York and making our state a safer place to live, work and raise families for many years to come.
+- Unlike most traditional, season-long fantasy sports sites, which make most of their money from administrative fees and advertising, FanDuel and DraftKings take a cut of every bet. That is what bookies do, and it is illegal in New York.
+- The credit reporting system suffers from inaccuracy and often from outright injustice.
+- There are few people who exemplify the ideals of opportunity, entrepreneurship and commitment to the collective good than the great New Yorker and the face of the $10 bill, Alexander Hamilton.
+- If you have faith in the public sector, as I do, you must be the harshest critic of corruption, waste and fraud in government.
+- High-frequency traders are firms all around the world. They're massive investments. And there is an incredible race for speed now. People are paying hundreds of millions of dollars to shave milliseconds off.
+- Morally bankrupt wage practices and laws cannot hold.
+- The secret's out: New York's Labor Law provides the power to help low-wage workers earn enough to meet their basic needs.
+- You're not allowed to lure people into spending their money or betting their money based on false representations.
+- We're very interested in seeing what science Exxon has been using for its own purposes because they're tremendously active in offshore oil drilling in the Arctic, for example, where global warming is happening at a much more rapid rate than in more temperate zones.
+- Daily fantasy sports is neither victimless nor harmless, and it is clear that DraftKings and FanDuel are the leaders of a massive, multi-billion-dollar scheme intended to evade the law and fleece sports fans across the country.
+- The Supreme Court should follow settled precedent and allow states like New York to manage our own labor relations to achieve labor peace and government efficiency and to continue our long tradition of support for workers.
+- Anyone who believes in the essential role government can play in improving people's lives must also be the toughest critics of those who abuse the public trust.
+- Organizing gives workers the power to lift themselves out of poverty and build a better future.
+- In 1980, a young Senator Al Gore held the first Congressional hearings on global warming.
+- In the 1960s, the public demanded seat belts in cars, but automakers balked. Not until government intervened did seat belts become standard equipment. Now, no one would consider buying a vehicle without this basic safety feature.
+- My job is to enforce the law, without fear or favor.
+- A factory-installed security measure - one that phone owners would have to opt out of, rather than opting in - could automatically render purloined devices inoperable on any network, anywhere in the world. No resale value, no thefts.
+- Transformational politics requires us to challenge the way people think about issues, opening their minds to better possibilities.
+- You wanna know people are held accountable if they engage in misconduct and that no one is above the law.
+- Thieves sell to unscrupulous merchants who pay hundreds of dollars for phones - no questions asked - and then 'jailbreak' them. They unlock the units, erase their data, reprogram them, and put them up for resale.
+- By cracking down on wage theft, we can make sure workers and taxpayers are not getting ripped off by crooked employers.
+- Throughout my career, I have made rooting out public corruption a top priority.
+- I believe that in New York, we must have one set of rules for everyone - and that means women cannot be unfairly denied health coverage.
+- After the 1970s, when President Nixon's illegal campaign cash was used as a secret slush fund to pay for the Watergate burglary and cover-up, Americans have demanded to know where the money fueling our elections is coming from.
+- Every day, in every city and town across the country, police officers are performing vital services that help make their communities safer.
+- In New York, we have laws against defrauding the public, defrauding consumers, defrauding shareholders.
+- Our elected representatives wisely enacted laws to protect our state and local governments from undue outside influence.
+- If the Treasury Department should not remove Hamilton from the $10 bill, what should they do? The answer is fairly simple: Replace Andrew Jackson on the $20 bill.
+- When a donor is asked to contribute to a group whose innocuous-sounding name makes it appear to be doing work in the public interest, that donor should have a clear picture of where his or her money is going.
+- Exxon Mobil and JPMorgan Chase each made more in profits in the first quarter of 2012 alone than the entire state budget of Montana. Without a doubt, multinational corporations like these have the resources to overwhelm the voices of the people.
+- That is the definition of equal justice under law: everyone gets a fair shot, everyone pays their fair share, and everyone plays by the same set of rules.
+- The 2006 federal Internet gaming statute is not ambiguous. It does not prohibit gambling on fantasy sports.
+- Our review concludes that DraftKings'/FanDuel's operations constitute illegal gambling under New York law.
+- The workers who harvest our food have been systematically denied the basic rights that are granted to all other American workers. They can be fired for trying to form a union or for attempting to improve their working conditions. They are not eligible for overtime pay, disability, or even unemployment insurance.
+- History teaches that the overwhelming majority of elected officials follow movement builders outside government when it comes to the new and risky... Once you recognize it, demand it and reward it, it will happen.
+- We must use every tool at our disposal to lift the living standards of low-wage employees.
+- As Attorney General, my most important responsibility is keeping New Yorkers safe by enforcing the laws that protect our people from harm. But another fundamental part of my job is to seek to advance the basic American principle of equal justice under law.
+- From the Bronx to Buffalo, cities and towns in New York have been plagued by what are commonly called zombie properties. These are homes that residents abandon - often after they have received a foreclosure notice - which then languish, uncared-for, until the foreclosure process is complete.
+- As the state's chief law enforcement officer, it's my job to see that perpetrators of fraud are brought to justice.
+- In 'Citizens United v. FEC', the Supreme Court ruled that sections of the federal campaign finance law known as McCain-Feingold imposed unconstitutional restrictions on the First Amendment rights of corporations.
+- Equal justice means that there is not one set of rules for the powerful and another for everyone else.
+- Right here in New York, people are struggling in working conditions not much safer or fairer than the sweatshops of 1911.
+- Games of chance often involve some amount of skill; this does not make them legal. Good poker players often beat novices. But poker is still gambling, and running a poker room - or online casino - is illegal in New York.
+- I'm going to go after crime and corruption wherever it is. But I did focus particularly on the need to restore public confidence in essential institutions of both the public and private sector.
+- I don't think it's any secret that the public has lost confidence in the state government, and there's a lot of work that needs to be done on issues related to public integrity.
+- You can't have some institutions that are protected by the law, not allowed to fail, and not held to account, and all the other companies in America are allowed to fail. You can't have equal justice under law and too big to fail.
+- I have the highest possible regard for the district attorneys in the State of New York.
+- We must never stop fighting for a vision of American democracy in which we strive for and encourage the highest levels of voter turnout and participation.
+- More money is being spent on our elections, with less disclosure of where that money is coming from, than ever before.
+- I don't like conflicts of interest; they should be eliminated or disclosed. I believe in transparency: that people have to really not just know but understand what they're buying and selling.
+- High-frequency traders are firms all around the world. They're massive investments.
+- My actual statement during the campaign was I want to be the sheriff of Wall Street, Albany and Main Street. I'm going to go after crime and corruption, wherever it is.
+- Fraud is fraud. And consumers of any product - whether you want to buy a car, participate in fantasy football - our laws are very strong in New York and other states that you can't commit fraud.
+- Lawmakers zealously guard their prerogatives, and as much as some might oppose a minimum-wage increase, they will not want to see the issue taken out of their hands.
+- Transactional politics requires us to be pragmatic about current realities and the state of public opinion. It's all about getting the best result possible given the circumstances here and now.
+- My commitment to gender equality is rooted in the quintessentially American principle of equal justice under law.
+- Just as we demand that people take responsibility for their actions, we as a society must take responsibility for fighting injustice.
+- Ninety-five percent of the work in the attorney general's office is civil litigation and regulatory work, and I think I certainly have a lot more experience in that than most of the folks who have served in the office.
+- New Yorkers have been fortunate to have Andrew Cuomo as our Attorney General - protecting working New Yorkers against the banks, insurance companies and big corporations.
+- When someone makes a claim against the state, that person must legally verify that the facts in the claim are true.
+- Obviously, Nevada doesn't prohibit all forms of gambling, but you have to submit yourself to a very rigorous regulatory process to run a gambling operation in Nevada.
+- I am not in the entertainment business; I am in the justice business.
+- Abandoned homes are everyone's problem, afflicting communities all over the state.
+- As the state's top lawyer, I am empowered to protect nonprofit donors from fraudulent solicitations and charitable assets from misuse.
+- I have three very simple principles. I don't like conflicts of interest; they should be eliminated or disclosed. I believe in transparency, that people have to really not just know but understand what they're buying and selling. And that you have to have enough capital to back up your promises.
+- The memory of the 146 people who lost their lives in the Triangle Shirtwaist fire stands as a reminder that legal protections and workplace safety standards were won through a long struggle for social justice and at great human cost.
+- Here in New York, we are already seeing how climate change contributes to increasingly violent and extreme weather that has cost us dearly, in both damage and in lives.
+- In a system that disproportionately harms poor people and people of color, too many Americans have lost faith in the essential American principle of equal justice under law.
+- I am running for Attorney General because I believe there is no higher calling than the pursuit of justice.
+- There's nothing wrong with advocating for your own company.
+- Unions go hand-in-hand with a strong middle class.
+- The bottom line is clear: Climate change is a reality, and it is having a real impact.
+- Daily fantasy sports is much closer to online poker than it is to traditional fantasy sports.
+- We've sued out-of-state power plants that are polluting our air and led a coalition of attorneys general from Connecticut, Delaware, Maryland, and Massachusetts against efforts in the U.S. House of Representatives to remove critical environmental regulations that protect New York communities from toxic pollution.
+- Manufacturers must accept responsibility for their customers' safety.
+- A statute that lets some wrongfully convicted individuals seek restitution but denies that right to others is an unjust and unequal application of the law.
+- New Yorkers must be able to trust the men and women of the NYPD. They must come forward to report crimes. And they must come forward as witnesses.
+- Gambling is entertainment. People go to casinos to be entertained.
+- Language has historically stood as a barrier for some voters seeking to participate in the electoral process.
+- These facts are clear: Trump University was an unlicensed enterprise promising students that they would become wealthy by learning Trump's real estate tips and strategies, taught by his handpicked instructors.
+- No woman should have her personal health care decisions dictated by the religious beliefs of her boss.
+- Every New Yorker has the right to clean air, safe drinking water, and healthy communities to raise their children - and you can rest assured that I will aggressively protect that right, not just on Earth Day, but every day.
+- My office is committed to tearing down unlawful barriers to voting to ensure that all eligible voters are able to freely cast a ballot.
+- People plead guilty or admit to crimes they didn't commit for various reasons. Certain interrogation procedures produce high rates of false confessions.
+- The right to organize is a fundamental right for American workers.
+- The president and I had much more important stuff to talk about than Donald Trump. I've never discussed Mr. Trump with the president of the United States.
+- As New York's chief law enforcement officer, I have taken a hard line against those in state government who abuse the law they have sworn to uphold.

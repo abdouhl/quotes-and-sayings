@@ -1,0 +1,31 @@
++++
+author = "Sol Lewitt"
+title = "Sol Lewitt Quotes"
+quotes_len = "25"
+description = "the best 25 Sol Lewitt Quotes"
++++
+- You shouldn't be a prisoner of your own ideas.
+- During the '70s I was interested in words and meaning as a way of making art.
+- The system is the work of art; the visual work of art is the proof of the System. The visual aspect can't be understood without understanding the system. It isn't what it looks like but what it is that is of basic importance.
+- Artists of many diverse types began using simple forms to their own ends.
+- In my case, I used the elements of these simple forms - square, cube, line and color - to produce logical systems. Most of these systems were finite; that is, they were complete using all possible variations. This kept them simple.
+- Every generation renews itself in its own way; there's always a reaction against whatever is standard.
+- Artists teach critics what to think. Critics repeat what the artists teach them.
+- Minimal art went nowhere.
+- The artist is seen like a producer of commodities, like a factory that turns our refrigerators.
+- Minimalism wasn't a real idea - it ended before it started.
+- A blind man can make art if what is in his mind can be passed to another mind in some tangible form.
+- Conceptual art became the liberating idea that gave the art of the next 40 years its real impetus.
+- The thinking of John Cage derived from Duchamp and Dada. I was not interested in that.
+- All of the significant art of today stems from Conceptual art. This includes the art of installation, political, feminist and socially directed art.
+- The other great development has been in photography, but that too was influenced by Conceptual art.
+- Unless you're involved with thinking about what you're doing, you end up doing the same thing over and over, and that becomes tedious and, in the end, defeating.
+- Buying books was a way anyone could acquire a work of art for very little.
+- The narrative of serial art works more like music than like literature.
+- I was not interested in irony; I wanted to emphasize the primacy of the idea in making art.
+- When artists make art, they shouldn't question whether it is permissible to do one thing or another.
+- I didn't want to save art - I respected the older artists too much to think art needed saving. But I knew it was finished, even though, at that time, I didn't know what I would do.
+- I became interested in making books, starting about 1965, when I did the Serial Project #1, deciding that I needed a small book to show how the work could be understood and how the system worked.
+- I believe that the artist's involvement in the capitalist structure is disadvantageous to the artist and forces him to produce objects in order to live.
+- Also, since art is a vehicle for the transmission of ideas through form, the reproduction of the form only reinforces the concept. It is the idea that is being reproduced. Anyone who understands the work of art owns it. We all own the Mona Lisa.
+- Just as the development of earth art and installation art stemmed from the idea of taking art out of the galleries, the basis of my involvement with public art is a continuation of wall drawings.

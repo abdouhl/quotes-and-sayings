@@ -1,0 +1,49 @@
++++
+author = "Giancarlo Esposito"
+title = "Giancarlo Esposito Quotes"
+quotes_len = "43"
+description = "the best 43 Giancarlo Esposito Quotes"
++++
+- I want a body of work; I want a good story after a good story.
+- I came from a divorced mother and father, obviously mixed race.
+- I have from time to time been a double A or triple A personality. I'm not anymore. I'm more lenient on myself.
+- Yoga is a big part of my life now. There's not a day that goes by where I don't do an Asana and meditation practice.
+- It feels amazing to work with writers that write really well.
+- I love the smell of fried chicken.
+- For me, I've lived a life as an athlete.
+- I'm impatient sometimes.
+- I feel that we have come a long way as American people, and we have to start looking at ourselves as human beings.
+- I'm not someone who is a fan of a lot of violence.
+- It's certain that the death of an actor can be on a television screen playing the same thing every week.
+- I don't think anyone is black and white and I think we change our minds and our attitudes about certain things as we grow to our maturity.
+- I'm interested in spirituality and in religion and our relationship to the divine.
+- I always wanted to be a boy scout but was too poor. Couldn't do it.
+- The more I get connected to my own breath and my own yogic experience and my own prayer and my own idea, the ideas that have existed for so long - that we all belong to each other and we could live a deeper spiritual existence - the more I get connected to that, the more I shun this world.
+- After 'Breaking Bad,' people are very frightened of who I am. They back away from me on the street.
+- I know from teaching that actors want to act. Even the subtlest actors can do a little too much.
+- I had to work from a young age.
+- People aren't able to make decisions anymore because there's too many choices within that decision.
+- When you're with another actor and doing something very intense, often you pull them over to your side, or they pull you over to theirs. But if you stay in your own truth, you can play that perfect tennis match. I always want to bring my power, but not in a way that eliminates the whole game!
+- I can fish from a stick and a string.
+- I'm not too into fast food, but you know if I was, it would be chicken.
+- Luis Bunuel made great movies.
+- I think many people have contradictions to them and I love characters that deal with those contradictions.
+- For me, what I try to heal is the major thing that I think all of us go through, where we came from. From our family of origin.
+- I do play villains.
+- What I love about 'Breaking Bad' is the reflection of many people's - it's more real in terms of people have faults, people have character traits that they don't like about themselves. It resembles more of what the human journey really is and it's less fantastic and hero-driven than other characters and shows that we watch.
+- People who have not done their research on me do not know that I am European, born in Copenhagen, Denmark to an Italian father from Napoli and a mother from Alabama who was singing opera and went to Europe, met my dad, fell in love, and then moved back to Rome, where I was raised, between Rome and Hamburg.
+- There is a price to pay for most of our actions. For every action, there is a reaction.
+- I look at 'Breaking Bad' as a show about the American family.
+- When you're speaking Spanish, you're thinking in a different way.
+- I believe acting is very physical, and when you have to fight or do those kinds of things, it takes a lot of respect not to allow yourself to go off and hurt yourself or someone else.
+- I never like to refer back to anything I've done when I'm working on a character, even if that character has the same occupation.
+- I often think about, 'How do we return to a simpler way of living? Is there some way that we can start to think of each other as human beings again, instead of worshiping money, instead of worshiping electronics, instead of worshiping getting ahead just for me?'
+- I try to be careful with my persuasiveness. When my heart is really behind it, and when I have no ulterior motive, then I know I'm truly persuasive.
+- Yoga has allowed me to bring my complete spirit together, which allows me to do less, which is more.
+- When I perform on stage, you have to remember my performance or buy another ticket to the party! In television and film, you can see it over and over again.
+- Well, with each character that I play in my life as an actor, I try to figure out how to find the challenge.
+- I'm a big fan of period pieces, and I'm a big fan of the old-time westerns.
+- I feel that sometimes, holding yourself as black, saying that is your sole identity, can sometimes stand in your way of being a member of the humanity of man, being a member of the family of the divine.
+- To be a character actor is to be open, to be a chameleon.
+- I love to read, and I like the fact that there's some silence in my life.
+- Middle-class people are becoming desperate. It can cause a moral man to break bad.

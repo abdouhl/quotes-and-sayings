@@ -1,0 +1,76 @@
++++
+author = "Gabriel Batistuta"
+title = "Gabriel Batistuta Quotes"
+quotes_len = "70"
+description = "the best 70 Gabriel Batistuta Quotes"
++++
+- I will certainly continue in football in a different role. I will continue with my contractual, publicity and managerial commitments and finish my studies for coaching.
+- All the best players wanted to come to Italy.
+- I love the game and everything that goes with actually playing. What I don't like so much are the interviews, the controversy, and all the external stuff.
+- I've always liked England.
+- It is a great pleasure for me to take on this important role as bid ambassador for the Qatar 2022 Bid, which I believe represents an essential expansion of the FIFA ideals to a new part of the world.
+- Messi, even if technically is same or more, he doesn't have more charisma than Maradona had.
+- In Argentina, everyone knows Manchester United, but the only ones who've heard of Fiorentina are people who follow me.
+- I can see that the UAE is growing a lot as a football country, and there is plenty of opportunity to keep going and improve.
+- If I ever leave Fiorentina, I would very much like to go to Manchester United because out of the three best teams in Europe - United, Lazio, and Barcelona - Manchester, in my opinion, is the best.
+- Sometimes the logic of football has no value at all.
+- I am fascinated by English football.
+- I know where I come from and what my roots are.
+- I came to Roma because the president here and the coach have a great will to win, and that's what I have, too.
+- It's difficult to find gaps with 20 players in 20 metres.
+- English football is different: always on the attack. Although one thing is clear. The best football is the Italian.
+- The Islamic culture is a question mark for many people across the world, but Qatar opens its doors to supporters all over the world so they can learn from this old culture.
+- This is the World Cup, and you need all the elements in place: a good coach, luck, and a cohesive team unit are fundamental requirements.
+- In my heart, it is possible that I would like to have an experience in England. I will wait for the right moment. I would like to give my utmost for the Florentines and then leave.
+- I'm content with what I have done in my career.
+- I will end my career with Roma.
+- I want to broaden my horizons, speak a new language, meet new people, and experience a different culture.
+- Messi is a winner.
+- You don't celebrate a goal differently just because it's scored against one team or the other.
+- Messi is a player who can play in any team.
+- For me, practice and discipline are the magic words to become big in any sport, especially soccer.
+- Bielsa knows everything about everything.
+- I received many offers - namely from Real Madrid, Manchester United, and Milan - but I preferred the tranquillity of playing for Fiorentina.
+- I lived and breathed football. Now I have difficulty walking because of that: because I gave much more than I actually had to give.
+- I know perfectly well that in football, you have good times, and you have bad times.
+- Having played in U.S.A. in 1994, in France in 1998, as well as the 2002 World Cup in Korea and Japan - the first on the Asian continent - I have witnessed the excitement and passion unleashed in those different parts of the world.
+- I like Higuain very much, but unfortunately, he isn't contributing the way he does in Europe. He's playing very well for Juve and is in the running for a lot of trophies, but if he needs a rest, then why not give Icardi a chance?
+- I've made a lot of sacrifices to play for Roma and Argentina, but I don't seem to get thanked for it.
+- It goes without saying that I love the game, the tactics, the training, and everything that happens on the pitch.
+- I want to win the Italian league. That's why I said no to Manchester United.
+- I left football, and overnight, I couldn't walk. I wet the bed even though the bathroom was only three meters away. It was 4 A.M., and I knew if I stood, my ankle would kill me.
+- My thoughts on Balotelli? He's the kind of player who infuriates me. I was not born a footballer like him. I achieved what I did because of all the hard work I put in. I had to make sacrifices.
+- I'm playing for the team. If I've got four goals, it's because the team are playing well.
+- When Leo takes the record from me, it will hurt a little. But it's not just anyone taking it away. It's not a normal person. A Martian is taking it from me. That makes me feel a little better.
+- I never enjoyed being the star-man because as soon as you become the focal point of the team, you assume an extra burden of responsibility.
+- The number 9 has to be the one who scores the goals.
+- My family grew up in Florence. There I became what I am now, and those are things that cannot be forgotten.
+- I want to expand my horizons and mix with different people.
+- To be in the national team is wonderful in it's own right. For me, playing against Brazil or Venezuela is the same.
+- I do not like football. It is just my profession.
+- I never said I was going to play for Boca but rather that, if I went back to Argentina to play, I would do so for only one team, and that's Boca.
+- Balotelli, and a few others, have everything that I would have liked to have. It angers me that he does not use his talent to his full advantage.
+- A season with Fiorentina in Serie A? I could certainly try again.
+- I've always considered Florence as my girlfriend. I don't have to explain my love for this city.
+- I go out to score goals, but I don't go out thinking about records.
+- Although I have never won a major trophy, I consider myself a winner because I helped Fiorentina to compete with the big boys.
+- I have no intention of coaching Boca Juniors, and no-one from the club has approached me to do so.
+- Looking from the outside at English football, at Spanish football, it's more interesting, and they have the champions and the celebrities that they want to see. But with the passion that Italians have for football, the pride that they have, I don't think the game will stay that way.
+- I felt terrible when I went to Roma because I hadn't fulfilled the expectations of the Florentines.
+- My problem is that I have no cartilage or tendons. My 86 kilos are supported by bones alone. That's what generated the pain.
+- You have to win before anything else.
+- I would like to give my best and score as many goals as possible.
+- You go around the world, and you say, 'I'm the top scorer for the Argentina national team.' I liked that.
+- My relationship with the national squad is a separate thing; I've always been lucky in that, for Argentina, I've always performed well, independently of what's been going on at any club.
+- It would be spectacular if I could be the top scorer and win the World Cup with Argentina.
+- It's fun to have wingers that cross the ball for you, but when two intelligent No. 9s play together, they understand each other better than with the wingers.
+- From my playing experience in Qatar, I know that it is a country and a region which will host a spectacular and passionate World Cup in 2022.
+- I could have become an E.U. player if I'd wanted to, but I am, and prefer to remain, Argentine.
+- Argentina have always had the best strikers in the world.
+- If I had gone to Madrid, I would have scored more than 200 goals, but I knew I would have got bored.
+- I wasn't that excited about football when I was young, but it did become my passion.
+- I am preparing myself to leave football. I have always thought that once you get past 30, it is time to reflect on when you should go, and that is what I have done.
+- Personally, I can't take the blame for what politicians did in 1982. I can't take on some kind of revenge or change history. I want to beat England because I want to win every game I play, but not because we went to war in 1982 or because we played against each other in 1998.
+- England's is a very solid squad, but I can't name a particular player; a team is all the players, and they're good.
+- I have had a positive experience in Qatar. It has not been too challenging, and it has given my ankles a rest!
+- Scoring a goal is just the best feeling for a striker.

@@ -1,0 +1,59 @@
++++
+author = "Earl Weaver"
+title = "Earl Weaver Quotes"
+quotes_len = "53"
+description = "the best 53 Earl Weaver Quotes"
++++
+- The easiest way around the bases is with one swing of the bat.
+- In baseball, you can't kill the clock. You've got to give the other man his chance. That's why this is the greatest game.
+- In my mind, the home run is paramount because it means instant runs.
+- I stand by my belief that individual performances are the most important part of baseball.
+- The key step for an infielder is the first one, to the left or right, but before the ball is hit.
+- I wanted no part of losing. Why play if you can't beat the other guys more often than they beat you?
+- I became an optimist when I discovered that I wasn't going to win any more games by being anything else.
+- People always make a lot about how I don't carry grudges. That's my religious upbringing. I went nine years without missing Sunday school. Lutheran. I can't live with hatred inside of me. That's what I learned. I ain't scared of dying, either.
+- I really don't like confrontations. One of the reasons I'm retiring is that I'm tired of hurting people's feelings.
+- You win pennants in the off season when you build your teams with trades and free agents.
+- I used to be a pretty good hit-and-run man when I played in the minors. I handled the bat well and could hit the ball to the right side of the infield. Nevertheless, I know that you often give the opposition an out on the hit-and-run play.
+- The only thing that matters is what happens on the little hump out in the middle of the field.
+- I think there should be bad blood between all clubs.
+- Most of the umpires, it's amazing: 98 percent of them will not hold a grudge. I always felt a couple of them did. I never wanted to argue with an umpire in my life.
+- When you play for one run, that's usually all you get. I have nothing against the bunt in its place, but most of the time, that place is in the bottom of a long-forgotten closet.
+- A winning player is nothing more than a player on a winning team. A losing player is a guy who played on a losing team that year.
+- On my tombstone just write, 'The sorest loser that ever lived.'
+- The guy who says, 'I love the challenge of managing,' is one step from being out of a job.
+- A manager wins games in the winter when he picks his team.
+- Until you're the person that other people fall back on, until you're the one that's leaned on, not the person doing the leaning, you're not an adult.
+- Nobody likes to hear it, because it's dull, but the reason you win or lose is darn near always the same - pitching.
+- The key step for an infielder is the first one... but before the ball is hit.
+- This ain't a football game, we do this every day.
+- A manager has to convince his hitters that they have to get on base for the next guy and that no player can do it by himself. Sometimes that isn't easy. In the playoffs, you can get into trouble because everybody wants to be a hero.
+- The worst thing about being on the road is all you want to do when you get home is to stay home, but as soon as you get back, all the wife wants to do is go out because she's been stuck home all the time you've been stuck on the road.
+- Playing baseball is fun. If I could play, I'd never retire. But managing is work. It's constant decisions of whose feelings you want to hurt all the time.
+- Pitching keeps you in the games. Home runs win the game.
+- Judging ballplayers and turning in reports, giving my opinion of who will get to the big leagues and who will not... I think my baseball judgment was really good.
+- No one's gonna give a damn in July if you lost a game in March.
+- A manager should stay as far away as possible from his players. I don't know if I said ten words to Frank Robinson while he played for me.
+- I had a successful career: not necessarily a Hall of Fame career, but a successful one.
+- Don't play for one run unless you know that run will win a ballgame.
+- A manager's job is simple. For one hundred sixty-two games you try not to screw up all that smart stuff your organization did last December.
+- If you want to steal a base, steal a base. Don't make the hitter swing at a bad pitch trying to protect the runner.
+- There are only three outs an inning, and they should be treasured. Give one away, and you're making everything harder for yourself.
+- I think the National League has better biorhythms in July.
+- You must remember that anyone under 30 - especially a ballplayer - is an adolescent. I never got close to being an adult until I was 32. Even though I was married and had a son at 20, I was a kid at 32, living at home with my parents. Sure, I was a manager then. That doesn't mean you're grown up.
+- The only thing I'd ever wanted in my life was to be a major-league ballplayer, but I had to admit to myself that I wasn't good enough. It broke my heart.
+- Bad ballplayers make good managers.
+- Your most precious possessions on offense are your twenty-seven outs.
+- There ain't no genius here. Strategy in baseball is overrated. People say, 'That Weaver, he plays for the long ball too much.' You bet I do. Hit 'em out. Then I got no worry about somebody lousing up a bunt, I got no worry about the hit and run - and that's really overrated - I got no worry about base-running errors. And I can't screw it up myself.
+- I don't want to spend my whole life watching the sun go down behind the left field bleachers.
+- Coaches are an integral part of any manager's team, especially if they are good pinochle players.
+- The key to winning baseball games is pitching, fundamentals, and three run homers.
+- The Orioles made me. I didn't make the Orioles.
+- You can't sit on a lead and run a few plays into the line and just kill the clock. You've got to throw the ball over the damn plate and five the other man his chance. That's why baseball is the greatest game of them all.
+- If an umpire misses a called third strike and the other side ends up scoring because of it, I'm not going to forget it. If there are runners on second and third and two out, and if the umpire has just given the hitter an extra strike and the next pitch goes into the hole and both runs score, I've got to say something to the guy.
+- A manager gets in the Hall of Fame by what his players have done for him.
+- The job of arguing with the umpire belongs to the manager, because it won't hurt the team if he gets thrown out of the game.
+- To keep your job, you fire others or bench them or trade them. You have to do the thinking for 25 guys, and you can't be too close to any of them.
+- Don't worry, the fans don't start booing until July.
+- What else does a manager do but push buttons? He doesn't hit, he doesn't run, he doesn't throw, and he doesn't catch the ball. A manager has twenty-five players, or twenty-five buttons, and he selects which one he'll use, or push, that day. The manager who presses the right buttons most often is the one who wins the most games.
+- Momentum? Momentum is the next day's starting pitcher.

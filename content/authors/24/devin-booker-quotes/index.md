@@ -1,0 +1,61 @@
++++
+author = "Devin Booker"
+title = "Devin Booker Quotes"
+quotes_len = "55"
+description = "the best 55 Devin Booker Quotes"
++++
+- It's hard because, throughout your whole career, you're known as the top player, the best on your team, you're playing the most minutes, and then you might not get in the game. You don't know when you're going to get in the game.
+- I don't ever want to be carried off the court.
+- Even when I wasn't a shooter, when I was younger, I used to watch Rip Hamilton. He was one of my favorite players with the way he moved without the ball.
+- I feel like I'm cultured enough to fit into any environment.
+- I like players that play off IQ.
+- If it's playmaking, I'll do that. If it's scoring I'll do that. I'm trying to figure out that balance.
+- I always try to outsmart my defender.
+- My dad always taught me the fundamentals of the game: dribble, pass, shoot. So I never relied heavily on any one thing until I got to college, when I was just adjusting to the team.
+- I always messed around a little bit growing up, just shooting with my left hand, but now I'm actually getting real work in with my left hand. I think it's going to be a big help.
+- A lot of people say Klay Thompson. I get that comparison a lot. I like that.
+- There's still a lot of athletes in the NBA, but shooters are very valuable. I take a lot of pride shooting, so I feel like it's going to be big for me.
+- I don't watch much TV at all, but I did like 'Narcos' on Netflix a lot.
+- It was a culture shock at first, moving from Michigan to Mississippi. But it ended up being the best decision I ever made.
+- You want to win when you go to college.
+- I want to be the best in life. In all parts in life, not just basketball.
+- There's no nights off in the NBA. That's what makes it so special. That's why everyone loves the game.
+- I'm blessed beyond measures to play the sport that I love and hopefully have longevity.
+- If you're not my coach, I don't know you. Don't say anything to me.
+- I don't want to rely on one thing. Being good at everything, that's how you earn your spot on the floor.
+- I'm not the strongest, I'm not the fastest, I can't jump the highest, so for me, it's doing it in other ways: changing paces, using your body to get open, knowing your defender. A lot goes into it. You have to study the game.
+- Just knowing your dad is a professional basketball player, it just makes you feel like you're destined for.
+- When I moved to Mississippi, I was playing in high school, and there wasn't a lot of talent around me. I figured out that I wasn't going to be able to get to the bucket a lot anymore.
+- I seen an interview with Kobe; he said what separated him from a lot of people was everyone thought 30 points was a lot. He said he never set himself a limit, and that always sticks in my head. He said he'd score 100 if he could. So he never had a limit, I don't put a limit on anything.
+- I wouldn't limit myself to nothing. I feel like I am limitless.
+- A lot of people in my class were one to two years older than me.
+- My whole career except for the NBA, I've been a winner. I want to get back to that.
+- I didn't understand going to practice two hours early, going hard in practice, and then staying an extra hour after that. But once I started doing it, my game didn't feel right if I didn't do it.
+- I think the NBA just, overall, when you need somebody to blame, the first person that you go to is the coach. But at the end of the day, you need the right players that match each other. Not just the best players. Chemistry helps.
+- Just because you miss shots, you can't doubt yourself. It's easier said than done.
+- It's not ideal for me to miss any time. I love the game. I want to be out there. I can't stand sitting the back watching games. I want to be out there fighting with my team.
+- I'm growing into my manhood body.
+- All teams need good shooters. You can never have enough shooting.
+- I'd like to build a superteam. I'd like the superteam to come to me.
+- I'd say I'm the best 19-year-old ever, and I still feel that way at 21.
+- I play to be the best.
+- I think Phoenix is a place where people see the potential. They see the young core that we have. They see the fan base, the wonderful city.
+- That's the true meaning of being a leader: being able to deal with the consequences and take the responsibility for it. That's who I want to be.
+- For me, I grew up watching really good Detroit Pistons teams.
+- If you play bad, people are going to let you know.
+- Once I got that chance to play, I never wanted to look back. And that's what I did.
+- I like to think of myself as somebody who heals fast and can play through pain, but I'm not going to rush it at the same time. A sprained ankle, those are things I can fight through.
+- All good teams have that trust and that chemistry where you're able to get on each other and know it's for a better purpose.
+- People can say what they want, but at the end of the day, I'm going to keep working on my game. I always know I have things to work on.
+- It's tough at first. You realize in the NBA, it's not easy. Each and every night, you're playing against that player that was the best high school player, that player that was the best player on his college team.
+- I've been around older guys most of my life; I feel like that's definitely an advantage for me.
+- Michigan's been recruiting me since the eighth grade, so they have a special place in my heart, I'd say, because I've visited there seven times, and my mom lives in Michigan, still, and she'd probably like me to stay closer to home and play.
+- Some people are born and train their whole life to be an NBA player. But some people, if it doesn't work out, then they have no other option.
+- That's something I pride myself on, playing every single game.
+- These first few years, it's more trying to figure it out. What's going on in the NBA? Where do I fit in? Then my second year, I'm a player. 'Can he actually start?' I played pretty well my second year. My third year, now I gotta solidify myself. Now I'm here, and it's about winning for me.
+- People don't realize how talented the NBA is.
+- Once people put that title on me as one of the better shooters, I just wanted to be the best shooter. That's what I feel like I was out to prove.
+- I respect everybody who goes to Kentucky. You know that once you sign with Kentucky, the same thing with Duke. You know each and every night it's going to be a team's Super Bowl. You're going to get their best.
+- I always wanted to be the best at everything. All my friends knew it.
+- For me, when I was in high school, that was my ultimate dream, was to make it to the NBA.
+- I think people are always nervous for your first game.

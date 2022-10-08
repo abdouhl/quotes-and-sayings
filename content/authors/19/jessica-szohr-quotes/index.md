@@ -1,0 +1,37 @@
++++
+author = "Jessica Szohr"
+title = "Jessica Szohr Quotes"
+quotes_len = "31"
+description = "the best 31 Jessica Szohr Quotes"
++++
+- I don't like it when you look too styled and wear one designer from head to toe.
+- I have a very close relationship with my mom, and I'm able to talk to her about anything.
+- When you're working on a lake and it's dark and cold out and you can't see what's underwater, it is freaking scary!
+- Whenever I do my own makeup, I usually only do foundation, bronzer, and mascara.
+- I do a lot of dry shampoo. My hair just works better when it's not as clean!
+- There's a very small percentage of people that take limos to school and have $2000 handbags - no one in my high school had that!
+- One product that you can never go wrong with is sunglasses because they are easy to misplace. I always get a couple of pairs every year.
+- I don't read blogs, I don't have MySpace, I don't have Facebook or Twitter - none of that.
+- You do a film for a short time period - you put it all out there and move on.
+- My personal style is kind of tomboy-boho chic! Sort of funky but simple.
+- Just don't pull out your phone at all on the first date.
+- I'm from Wisconsin, and I love snowboarding, hiking, yoga and soccer.
+- I'm a huge fan of Cheetos.
+- A lot of people say about 'Gossip Girl,' 'Well, how do you feel about gossip?' Well, who really likes gossip? No one likes to be talked about if it's not flattering or a compliment.
+- I'm not the healthiest eater, but I try to watch what I eat during the week. I kind of splurge on the weekends and eat french fries and pizza.
+- I'm just a normal girl who really enjoys her job, and so you have to take the other things that come with being in the public eye.
+- The fact of the matter is that when there are feelings involved and you like someone, it doesn't matter if you're an actor, a teacher, a doctor, a lawyer, a receptionist - you can't really help it when you have feelings for someone.
+- With things in my personal life, if I talk about it, it doesn't stay personal.
+- I love seeing live music.
+- I want to entertain.
+- I enjoy yoga a lot, not even for the workout.
+- That's the great thing about New York, there's always something to do.
+- So basically, I graduated high school a semester early.
+- The sexiest thing about style is if you kind of just take your personality and put it in what you wear. That's what I think is cool.
+- I'm going to have fans and I'm going to have people who don't like everything I do. All I can really do is go to work and do my job.
+- My schedule can be hectic, so I'm always trying to find time to see my friends and family.
+- Ghost stories always creep me out and weird me out. Those are always interesting to watch.
+- A lot of times when I'm not at work I like to let my face breath and not put makeup on.
+- My style has definitely grown since moving to New York and working on 'Gossip Girl.' I'm more aware of a lot of designers and I'm more aware of fashion.
+- I'm always appreciative of fans.
+- After being in a gym, you're super hungry all the time because you're burning all these calories.

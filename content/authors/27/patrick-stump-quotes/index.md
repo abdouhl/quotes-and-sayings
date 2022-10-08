@@ -1,0 +1,52 @@
++++
+author = "Patrick Stump"
+title = "Patrick Stump Quotes"
+quotes_len = "46"
+description = "the best 46 Patrick Stump Quotes"
++++
+- As far as criticism, I don't mind critics. I mean, I wrote for 'Rolling Stone' for a hot minute. I like criticism. I enjoy criticism. The thing I don't like is cruelty for cruelty's sake. You don't have to be a jerk to say something negative. You can say something in the negative sense and have class.
+- Drums were my first instrument, my first love. I need rhythm, something that moves.
+- We're so busy broadcasting our latest cultural disdain that we scantly notice anything we enjoy. 'Oh man, this Rebecca Black kid is terrible! Let's laugh at her!' has become more culturally relevant than, 'I really love this new Bilal record.'
+- There's a certain fear of simplicity. I think that's the thing, when you're younger as an artist, you get this idea in your head that complexity equals quality. The more notes you're playing, the better.
+- Between Prince and my dad's fusion-jazz records, I didn't have a choice in being funky.
+- For some people, home is family and their mom's house or their girl or whatever, and I have those experiences as well, but the biggest thing for me is Chicago.
+- I love Korean food, and it's kind of like home to me. The area that I grew up in outside Chicago, Glenview, is heavily Korean. A lot of my friends growing up were Korean and when I would eat dinner at their houses, their parents wouldn't tell me the names of the dishes because I would butcher the language.
+- All of the agreed-upon pariahs throughout pop-culture history put their identities into the thing we decry. And yet we derive our own identities from the act of hating. We connect on the things we are disappointed in. Some may argue that nothing in history gathers a crowd like complaining about Lady Gaga's meat dress.
+- I lost about 60 pounds. I don't really have a moment specifically that made me do it. I remember little things, like, when I was in Japan, I remember looking around at the portion sizes of a fast food restaurant and being like, 'Well, this has something to do with it.' Americans definitely eat too much.
+- When you make art, you get really invested in it. When art happens by accident and you were just along for the ride? It's way more fun.
+- I am genuinely into soul, R&B and hip hop - all these genres that get slapped under the 'soul' genre. That spoke to me more than it did to my punk-rock friends. And punk spoke more to me than it did to my soul friends. I basically didn't fit comfortably in either world.
+- There's no amount of money that makes you feel better when people think of you as a joke or a hack or a failure or ugly or stupid or morally empty.
+- When you're a little kid, you just like music that makes you happy and is fun. As you get older, you reach college or your 20s and you decide that music should be challenging and all art should be smart. So you start to think it makes you like high art more to put down things you consider low art. I don't even think things are low art.
+- I used to work in a record store. I'm kind of a record nerd.
+- I think when you're 17 and you're angry, you're angry about very short-term things. And there's nothing wrong about writing that record. It's a very real record to write; it's the realest record I could write when I was 17. The problem is, when you're 28, it's not the same thing; it can be a put-on.
+- Lyrically, I personally lean towards venting.
+- Why do we make records? Because we want to say something. Why are you in art? Because you want to say something. The second you don't have anything to say, you stop making art - you might start making product. And I'm interested in being an artist.
+- Good music is good music, regardless of where it comes from. I think that's a really important thing to carry with you.
+- There's no first impressions anymore. You go to a job interview, and they'll probably Google you. It's a shame - people should play it a little closer to the chest as far as what information they release to the world. If I'm angry about something, I'm not going to take to my Twitter.
+- Written by the ancient Chinese philosopher of the same name, the 'Zhuangzi' is one long perplexing puzzle of a rambling collection of enigmatic short stories. It's a strange feeling to laugh at a joke written by someone in the 4th century B.C.
+- One of the things that always was Fall Out Boy was trying new things and kind of pushing ourselves in different directions.
+- The music business is one of a few places where everything you've heard about it seems entirely cliche, but it's true.
+- I never really ate that bad, I just ate too much. It wasn't like I had to switch to whole wheat bread or something like that. I really just had to eat less of what I was eating, and I had to exercise more.
+- 'As Long As I Know I'm Getting Paid' is a satire. Lyrically, I want to be direct. With my history in Fall Out Boy, there's some expectation that I'm going to be lyrically obtuse. But that song is a straight-faced satire of consumerism.
+- Touring on 'Folie' was like being the last act at the vaudeville show: We were rotten vegetable targets in clandestine hoods.
+- I didn't want to give up my Illinois driver's license and was unaware that was a crime. It is, by the way, in the state of California. Lesson learned. I technically broke a law, so technically I deserve whatever I get.
+- I think you can totally be a totally normal kid from the suburbs of Chicago and go off and play shows. It's one of those things that when you go home, you're still the nerd you were when you left, and your parents still get to yell at you about cleaning up your room, and your girlfriend still drags you to the pet store.
+- Whatever notoriety Fall Out Boy used to have prevents me from having the ability to start over from the bottom again.
+- Quiet is the new loud.
+- When I eat something like vegetable bibimbap, I get that warm and fuzzy feeling of eating stuff that I grew up with.
+- When you're No. 1 or No. 300, you still get to play and write the songs.
+- 'Punk' doesn't mean Mohawks and safety pins. It's about not conforming.
+- I wasn't necessarily frustrated in Fall Out Boy, but there were things that didn't get satisfied, desires left wanting. We didn't all meet on the same kind of music. When bands break up, there are all these buzz words that get tossed around to maintain a front for the audience, but in this case there literally were creative differences.
+- Steven Tyler isn't in Aerosmith anymore, but his gravestone will probably say something about Aerosmith.
+- I definitely love kimchi. The biggest influence that eating so much Korean food growing up had on me was that I have no limit for spiciness. The hotter the better.
+- In Fall Out Boy, I noticed that I wasn't putting all that much soul into it. It was just kind of screaming, I guess. I was just dying to get out of there!
+- Everyone wants to pretend like they sprang out of the ground with an Animal Collective record in their hands and a David Bowie haircut, and that's just not the case. You discover these things gradually.
+- I write really scathing, angry stuff when I'm in a better mood, and then uplifting and happy stuff when I'm at the absolute bottom.
+- In Fall Out Boy, we were all playing with our pop punk influences, so that was always within that kind of framework.
+- Gym Class is a band I am more directly involved with than any other band except for Fall Out Boy.
+- I always thought 'Stump' was kind of like, you dropped something on your foot. It's not the most exotic rock-star name.
+- Yoko Ono never deserved any of the hate she got. Paul McCartney and John Lennon weren't getting along.
+- I was going to record a solo album when I was 15 on a four-track. I started working on it, but then Fall Out Boy happened. The band was awesome and took me in a totally different direction. I don't regret it at all, but the band delayed the record I had been planning.
+- I moved to L.A. and really didn't dig living there until I found places like Koreatown and Little Tokyo. I really like hanging out in the grocery stores and restaurants.
+- The song that's affected me the most profoundly is probably Michael Jackson's 'Thriller,' or, more specifically, the couple seconds of instrumental break before Vincent Price starts 'rapping.'
+- I don't like to Google myself. I try and avoid it whenever I can.

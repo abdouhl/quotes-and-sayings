@@ -1,0 +1,99 @@
++++
+author = "Elizabeth Edwards"
+title = "Elizabeth Edwards Quotes"
+quotes_len = "93"
+description = "the best 93 Elizabeth Edwards Quotes"
++++
+- If people think that you're throwing babies out, dissecting children, to do stem-cell research, I'm not for that.
+- Whenever anyone pulls out of the race, you know, unless they've just been trounced in the days before, there's also - always a lot of questions about why that happened.
+- Everybody has their burdens, their grief that they carry with them.
+- You never know when something's going to hit you in a particular way and just knock you loose.
+- I think that it is our intention to deny cancer any control over us.
+- I'm a recovering lawyer. The practice of law has changed. Every agreement is a fight.
+- I think being an effective First Lady is first of all being the partner that your husband needs.
+- I'm not worried about me or what's going to happen to me.
+- I have three living children for whom this is a father who I want them to love and on whom they're going to have to rely if my disease takes a bad turn.
+- Part of what I want to do is sort of reclaim my story - it belongs to me and to my children, who have to live with whoever their mother is.
+- Successful health reform must not just make health insurance affordable, affordable health insurance has to make health care affordable.
+- I hope I have important things to say.
+- I took my son's name. I didn't take my husband's name.
+- The military is already sexually integrated.
+- I've often said that the most important thing you can give your children is wings. Because, you're not gonna always be able to bring food to the nest. You're... sometimes... they're gonna have to be able to fly by themselves.
+- The days of our lives, for all of us, are numbered. We know that. And yes, there are certainly times when we aren't able to muster as much strength and patience as we would like. It's called being human.
+- We were never a family that had a lot. We had enough, but not a lot.
+- Every parent has gone through a period when their child wasn't so happy with them.
+- A lot of sad stories in a row - that wears on you.
+- Either you push forward with the things that you were doing yesterday or you start dying.
+- Honestly, I get energized by the crowds. They feed me emotionally.
+- I grew up in a Navy family.
+- Tabloid news is tabloid news.
+- But I have found that in the simple act of living with hope, and in the daily effort to have a positive impact in the world, the days I do have are made all the more meaningful and precious. And for that I am grateful.
+- You wouldn't know I was sick unless you knew I was sick.
+- My father had gone to Vietnam.
+- You recognize a survivor when you see one. You recognize a fighter when you see one.
+- I'm part of a community that holds each other up, and it's been great to be held up too.
+- People find it a great blessing if their child left behind a child.
+- I've had experiences that, you know, really couldn't be replaced.
+- Everybody makes personal decisions that are right for them and if you're in political life, you're used to having those analyzed.
+- Growing up in an Italian family, you use a harsh tone and 10 minutes later everybody forgets about it.
+- I think I did marry a marvelous man.
+- What happened after Katrina is that people were stirred to action; there were an enormous number of contributions by people trying to make a difference. But then we forget. We've forgotten Katrina victims, we've forgotten the face of poverty.
+- I loved campaigning.
+- I do think voters do take into consideration - particularly early state voters - take into consideration a wide range of factors, including electability, and they know that part of electability is the total package that you're presenting.
+- Almost everybody embraces life.
+- I'm actually one of those people who get up energetic in the morning.
+- I've had to come to grips with a God that fits my own experience, which is, my God could not be offering protection and not have protected my boy.
+- I love children, love spending time with them; I love getting things for them.
+- Having bought furniture for my own house, and bought furniture for our house in Washington, a furniture store seemed like a good idea, and it also played into my personal history.
+- There is nothing about resilience that I can say that my father did not first utter silently in eighteen years of living inside a two-dimensional cutout of himself.
+- I have a husband who adores me.
+- I have a lot that I intend to do in this life.
+- Sometimes you get politicians who dig their feet into the sand and aren't willing to listen to another voice.
+- To be perfectly frank, there is an odd place after losing a child, where you think somehow your life is worth less.
+- My job as the mother of daughters is to make sure my children see that every opportunity is available to them.
+- I don't expect to get yesterday's medicine. If I can help it, I'd like to get tomorrow's medicine.
+- I was an English major in college, and then I went to graduate school in English at the University of North Carolina for three years.
+- It takes a lot of work to put together a marriage, to put together a family and a home.
+- I have an obligation to try to live as long as I can for my family.
+- I don't know why someone else's marriage has anything to do with me.
+- My job is to stay alive until the medicine and research catch up.
+- I'm not just a cuckolded wife.
+- A lot of people have great hope, and a lot of people who have great hope live. And, some of them who have great hope die. So it's not that hope is going to save you.
+- Maybe we all change over time.
+- In a sense, having cancer takes you by the shoulders and shakes you.
+- My heart goes out to the grieving parents who lost their two-year-old or their newborn.
+- Concentrate on the things that matter to you.
+- The way campaign funds are distributed are all a matter of record.
+- I'm completely comfortable with gay marriage.
+- I want to reclaim who I am.
+- I'm not a victim - I never want to be perceived that way.
+- I can't turn on the television without seeing me, or open the newspaper without seeing me and, honestly, I'm sick to death of me.
+- I think self-knowledge is the rarest trait in a human being.
+- It's just a part of our nature to hope.
+- You know, I once read a short story about how much you could tell about people from their shoes. You could tell where they had been, what they did, whether they were real walkers.
+- I'm a puzzle doer.
+- I've spent a lot of words on my own mortality.
+- Cancer is not a straight line. It's up and down.
+- A positive attitude is not going to save you. What it's going to do is, everyday, between now and the day you die, whether that's a short time from now or a long time from now, that every day, you're going to actually live.
+- Life is this great big blackboard, and on it you write all the things that you do.
+- Part of resilience is deciding to make yourself miserable over something that matters, or deciding to make yourself miserable over something that doesn't matter.
+- I am imperfect in a million ways, but I always thought I was the kind of woman, the kind of wife to whom a husband would be faithful.
+- I come out of real life.
+- The worst thing to me would be that you put on the face you think people want to see, and then they don't like it and you think, Would they have liked the real me?
+- I could be wrong, but I think heterosexual marriage is threatened more by heterosexuals. I don't know why gay marriage challenges my marriage in any way.
+- One of the things that I think you see sometimes in politics is a certain degree of caution. It's usually advised by consultants who don't want to see you march to the end of a limb.
+- You have to have enough respect for other human beings to leave their lives alone. If you admire that life, build it for yourself. Don't just try to come in and take somebody else's life.
+- Resilience is accepting your new reality, even if it's less good than the one you had before.
+- By what you do, you teach your children how to respond to difficult information.
+- I want to live.
+- You know, there are no guarantees on prognosis.
+- I love my books.
+- I think that we're foolhardy to not be engaging in federal funding of stem-cell research in the most aggressive way we possibly can.
+- I'm not praying for God to save me from cancer. I'm not. God will enlighten me when the time comes. And if I've done the right thing, I will be enlightened. And if I believe, I'll be saved. And that's all he promises me.
+- We're all going to die.
+- I have less energy than I did when I was a younger parent, although I was never really a young parent.
+- You know, everybody knows some of what politicians say is malarkey, and having somebody there to call them on it is good. I'd be happy to do that any time and any place.
+- What we hope to achieve is a society that doesn't value a white man because he's a white man, but also doesn't value a woman because she's a woman, or a black because he's a black.
+- Brave people are the firemen who run into the burning building. That's brave.
+- I was a 16-year-old girl at one point, so of course I wrote poetry.
+- You all know that I have been sustained throughout my life by three saving graces - my family, my friends, and a faith in the power of resilience and hope. These graces have carried me through difficult times and they have brought more joy to the good times than I ever could have imagined.

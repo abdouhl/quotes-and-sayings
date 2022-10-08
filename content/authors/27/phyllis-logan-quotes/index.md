@@ -1,0 +1,25 @@
++++
+author = "Phyllis Logan"
+title = "Phyllis Logan Quotes"
+quotes_len = "19"
+description = "the best 19 Phyllis Logan Quotes"
++++
+- I think it's healthy to say, 'I'm 58 and, do you know what, this is what a 58-year-old woman looks like.'
+- If you find yourself caring for a relative with dementia, the chances are you'll need help.
+- Why do people want to kill and maim and pillage? We're all in it together.
+- Sadly, my father died before I graduated, so he didn't see any of the success at all.
+- Because I came from a small town outside Glasgow, nobody from my school had ever gone into the acting profession. It was just something you didn't do. You joined the bank or became a teacher or whatever you did.
+- Normally I will have five or six cups of tea a day, and if I can have them poured from a teapot, then all the better. I think tea tastes so much nicer from a pot.
+- I am not much of a TV addict, and if I have a day off, and I'm pottering around at home, I will always listen to Radio 4.
+- Working is a great distraction technique.
+- When I go out, I love to put on mascara and lipstick, but I simply don't have time for leisurely facials and treatments. Going to the beauticians is not a priority for me, as when I'm off work, there is always so much catching up in the house to do.
+- 'Downton Abbey' about upper-class posh people: of course it is.
+- There is nothing quite like a freshly brewed pot of tea to get you going in the morning.
+- I don't think you can underestimate how much carers need some support.
+- I worry about the world.
+- It's true as a woman, particularly: the older you get, the parts get thinner on the ground and not quite as interesting, that's for sure.
+- I spend long days wearing a corset - but no pain, no gain.
+- I think everyone knows someone who's battling with dementia or caring for a relative affected by it. I've been staggered by how commonplace it is.
+- When somebody's calling you 'Mommy,' it's a wonderful thing. But also to have that responsibility and to know that you and your partner have this little thing that's totally relying on you - and it made me, I suppose, less selfish. Not that I was mega-selfish to start with, but it's lovely having that responsibility. It's scary.
+- If you're going out for a meal with friends, and they say they can't afford to go to such and such a place, you can't force them to afford it.
+- It's great playing a mature character. It adds something.

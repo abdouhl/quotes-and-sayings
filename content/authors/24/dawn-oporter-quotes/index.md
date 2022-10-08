@@ -1,0 +1,105 @@
++++
+author = "Dawn O'Porter"
+title = "Dawn O'Porter Quotes"
+quotes_len = "99"
+description = "the best 99 Dawn O'Porter Quotes"
++++
+- I'll admit, my fascination with Lesley Hornby is entirely about her looks. I don't feel unfeminist saying that, because she was a professional model at a moment in history that I am mildly obsessed with.
+- I do haggle. It's easier when you buy in bulk, so I will up my arms and then tell them what I think I should pay. We go back and forth until we find something we are both happy with.
+- When the mini skirt arrived on the scene in the 60s it was both hailed and hated. It represented female liberation, but also encouraged exploitation. It was the uniform for a new breed of feminist, even though most of them didn't even know it.
+- Got a zip that is catching and not running smoothly? It often happens with old metal zips but it doesn't always mean you should change it. Try running a candle along the teeth.
+- Wiggle dresses today are certainly around, but variations have been made to make them more practical. A genuine wiggle really does make walking a challenge, so often you find them with a vent in the back so you can at least move your legs, or cut more like a pencil skirt.
+- My aunt and uncle, who bought me up, were big players in the fashion industry in London during the 60s. They were furriers and designers, and my aunt dressed some of the major windows on Oxford Street.
+- We exist in a media that's obsessed with feminism, but as soon as there's an opportunity to bring down a woman at the top, we'll do it.
+- The older I get, the less I care, but when I was a teenager and throughout my 20s being liked was very important - exhaustingly so.
+- When someone has told me they have the 'world's worst knees' I've done all I can to find them a hem line that hides them. Luckily, as my shop is predominantly vintage, I have clothes from all decades and therefore pieces of all length.
+- When you're writing in first person you have to be honest about how people think.
+- So many designers now look to the past for their inspiration when creating new looks, but if you get one from the past, it won't go out of fashion.
+- I was very ready to be a mum, so was ready for the challenge.
+- After the baby boom of the second world war 40% of the population were under 25, and it was London that realised they needed to be dressed for their age and state of mind.
+- When I feel down I put on my most bonkers vintage dress and it always cheers me up. The way we dress is an expression of who we are, and I use clothes to let people know that I don't care about fitting in.
+- I read a lot until was about 12, then as a teenager I was more interested in kissing boys. But I kept a diary for a few years, so words were a big part of my teenage years.
+- Art or no Art, 2015 was already going to be the busiest year of my life. I'm not sure how I'll make it all work yet but I'm feeling like a warrior and I'm prepared to work hard.
+- I love the life in LA, it really suits this point in time, but London is home. I feel like I'm lucky that I get to have a bit of both, so rather than have to choose life just works out where I have to be in one place.
+- I still love chips. Chips are still my favourite potato dish. I struggle not to have chips every day.
+- So my advice is always buy essentials, like jeans, on the high street or designer if you are willing to invest. Get a pair that fit you perfectly then put together the rest of your outfit with vintage finds.
+- Some might say the mini skirt is a whimsical piece of clothing, worn only by good time gals who just want to have fun. Well, the latter might be correct, but whimsical? Never! The mini skirts positioning in fashion history is highly significant.
+- Working in the shop has taught me how utterly ridiculous the female fear of knees is. It's a bloody knee. It's bone. We can't control our knees, our knees are not our fault. We cannot let this continue, we have to abandon this ridiculous new obsession and set the knee free.
+- But as the years have gone by, I've got such a thrill out of shopping for other people. Every time someone tells me they have purchased something, I feel so happy.
+- I'd love to whip back to the 20s for thirty minutes, just to have a look.
+- Couture is also a term used for top-of-the-range, to-order clothing - but not to the level of intricacy and expense as haute couture. And without the 'haute', the word 'couture' itself isn't protected.
+- We didn't ask for our wombs and ovaries, and this presumption that we have to use them because otherwise it's a waste, otherwise we're not emotional or not sensitive in some way, it's a really cruel diagnosis of a woman's character.
+- I think the fact that all women get branded as the same, desperate for love, desperate for children, is just a really unmodern attitude.
+- Women of the 60s revolutionised fashion for us. They took the hem lines up so we could feel young, and free, and do things like run for a bus.
+- I can't imagine living in a time where us women had to dress like 'ladies' because that is what was expected of us.
+- I love to think of some of the greats like Dior, or Chanel, lying in bed at night unable to sleep because the image of a dress came creeping into their minds and they couldn't let it go, so on went the bedside light as they reached for their pen and paper to translate that vision into an image.
+- There's a lot of criticism of brands getting involved with political messages, people sometimes don't like that, but I think it's really important. They have massive audiences and they have a huge reach.
+- In my opinion the essence of the 'wiggle' shape is one of the most flattering styles a woman can wear, and I urge you to give it a go even if it terrifies you.
+- Chuck away all of those unsightly wire hangers that damage your clothes, and invest in some thicker wooden ones and some padded fabric ones for your more delicate pieces.
+- I recently discovered that Karl Lagerfeld sketches every single design in the Chanel collections. This made me so happy. I know it seems obvious, that the head of a fashion house such as Chanel would do this, but it isn't always the way.
+- I'm often asked who my style icon is, and almost every time I try to think of someone current who excites me. And although there are a few women who interest me - Tilda Swinton, Michelle Williams, Julianne Moore - the real answer is Twiggy.
+- Online vintage shopping is the best way to find something really unique with minimal effort.
+- Selecting what gets sold in smaller shops and online is a long and artful process, it takes precision and care. The people who stock the successful vintage shops are great buyers, and you pay for their skill as well as the quality level at which they sell their clothes.
+- I live in 50s/60s/70s sundresses with cardigans.
+- I was living in a house in the West Village of New York and trying to be Carrie Bradshaw. I wrote a whole 5 pages about this character who wasn't going to wear high heels because it was not empowering. I've read that article 1000 times, it's so boring! I was writing really cliched women's stuff which is exactly what I didn't want to write.
+- I love winter fashion like woolly coats, hats and boots and being cosy by the fire. Autumn and early spring walks in the park are lovely, but rainy walks with our dog Potato every morning are just too much.
+- At school, I had academia shoved in my face, but it was just stunting my creative development.
+- I do think a lot of brands shy away from politics, and that's a shame. I want BOB to be political, despite us being a small independent company.
+- I love 80s fashion. I love it because it's what my mum and aunties looked like when I was a little girl. It's what I imagined myself looking like when I was a grown up.
+- There are two things that I really love; vintage clothing and books. Mash the two together and I pretty much peak on personal joy levels.
+- I think Brits are more confident probably, and don't rely on self help in the way a lot of Americans do. But we've certainly got our share of hang ups.
+- One thing you have to accept with vintage clothing is that is has very probably been worn before and will, by nature, be quite old. So small signs of wear and tear are normal, and that's just the way it goes.
+- A lot of sites offer free postage over a certain amount and are pretty cool with you sending stuff back, if you do it within a particular time frame. However, occasionally some sites don't accept returns on vintage items, so make sure you know that before you spend your cash.
+- Unfortunately here in the UK we have got into the habit of being nasty about people in the public eye. It's all so vicious. In the States they are happy to just say people are great or that they look nice.
+- Cooking and writing were my two forms of personal therapy and when I was doing over one or the other, I was in control of my day.
+- They are wild animals that live in your house - that's the only way to describe a toddler.
+- When lockdown happened, and I didn't have that focus to sit down and write a novel, which is what I was supposed to be doing. I still found myself having to write: It was a really interesting thing to learn about myself, that this is a part of who I am, and without it I get frustrated.
+- I couldn't keep up with trends, I couldn't really be fashionable. But I really loved clothes. And then I discovered a vintage shop, and realised that I could dress for myself rather than for an industry or trend.
+- There are many wonderful things about 80s trends. The clothes were emulating what was going on in society at the time, women were elbowing their way into the work place, earning big cash and being boss.
+- I've never really spent money on or known how to wear coats, so I'll ruin outfits by putting a coat on.
+- When you're writing in first person, like I do, you can't give a fluffy version of someone's thoughts because even the most prudish woman in her head will go to dark places, whether she says it out loud, you can still have these kind of thoughts.
+- I've always had this 'carve out your own existence' attitude and I'm always encouraging other people to do this, if they can. Of course not everyone has the choice. I've been lucky.
+- It's really important for women in the public eye to be open - these pop stars who don't look, behave, speak like real women - that's not fair on women. Being real, honest, authentic - too many women in the public eye are afraid to be authentic because they are afraid they will be judged.
+- When I wrote 'Goose' I gave my assistant my password, she locked me out of Twitter, and I wrote the book in five weeks. Sometimes I fantasise about how wonderful life would be if I went offline, but I can't - because I really need affection and adoration from strangers!
+- I want people to fall back in love with clothes like they did in the old days, and value what they buy a little more, and look after clothes better.
+- The British fashion industry had major players, Mary Quant and Biba to name but a few, who were making incredibly stylish and youthful clothing for a generation who didn't want to emulate their parents.
+- I used to hide behind doors pretending to be a mouse listening to the grown up's conversations. I always wanted to hear them plotting peoples deaths so I could dob them in to the police. unfortunately there were no murderers in my family.
+- It's hard to find genuine 20s vintage in good condition, but it is out there. One tip would be to look in the 70s rails. When the first Gatsby film came out in 1974, it promoted a 20s trend, so you often find 20s style pieces, that were actually from the 70s.
+- One of the main reasons I wanted to write about female friendship is because it's so powerful and underestimated.
+- I just want to clear something up... vintage doesn't mean cheap.
+- It's amazing to think that every item of clothing we wear began as an idea in somebodies head. Whether it's a designer dress or a cheap remake, someone somewhere had an idea and brought it to life.
+- I have literally wanted a vintage business for as long as I can remember, but I am glad I waited. I've learned so much over the past ten years. So much about quality, shape and how to spot what truly is vintage and what isn't.
+- I have an odd relationship with motherhood. I've never had that relationship of this unconditional friendship, deep bond that you have with somebody, but I have it now with my son.
+- I guess I want men to understand how hard it is to be a woman.
+- I thought we were getting more liberal as a society, more inclusive and I'm gutted racism has come back stronger with Brexit, devastated and I feel Brexit promotes a racist attitude.
+- The vast diversity of looks from the 80s are why we mustn't ignore it completely, there is plenty to build a modern and relevant wardrobe around, and I am enthusiastically kicking my leg warmers in the air in its defence.
+- I think that's what vintage offers people - there's no point in trying to follow fashion if you're trying to do vintage.
+- I'm not sure what came first, the hemline or the Charleston, but skirts needed to go up so the gals could kick their legs out.
+- It really is the very top of the fashion world; nothing comes above haute couture. But not any old designer can create something magical and call it haute couture; the term is strictly protected for a very special few.
+- In Hollywood most of the films we see are all about the relationships between lovers, but as massively important as that is in someone's life, my relationships with women have always been really dramatic and powerful.
+- I hold Twitter completely responsible for why I always just make deadlines. But at the same time, as someone who spends most of my working time alone, I couldn't live without it.
+- I love designers sketches, they're like poetry. A vision of an idea intended to make someone feel wonderful.
+- I trawl online for great designer pieces and basically never stop. I try to be very selective, I don't just want the site full of stuff, I want it full of great pieces that all sorts of people can wear.
+- How lovely for a woman to feel her husband fancies the pants off her.
+- Not every woman thinks that their mother is a nice person. I feel like when you really examine a woman's relationship with her mother, any child and their mother, you can really get to know them, because it's such an important relationship in your life and if it's not positive, that's something you definitely carry with you.
+- BOB is a luxury brand. The prices are lower than designer prices but higher than high street. We sit on the cusp of paying proper money for excellent quality without having to charge thousands for a dress.
+- More women have come out of the changing rooms slagging off their knees than any other body part. I recently developed a complex about my own knees, so I totally get it.
+- When you lose your parents when you're a kid, you kind of get this freedom and sense of independence way younger. And obviously I wish my mum had never died but I like the way my life turned out because of who that turned me into.
+- The 1920s was the beginning of the media age. For the first time people were taking influences from the radio, Vogue and Hollywood.
+- I treat writing like a nine to five job.
+- The 60s was nuclear for women. New laws gave them stronger standing in both marriage and divorce. They went back into the workplace so had their own money, and the pill spurred a sexual revolution that they needed to dress appropriately for.
+- If you can't afford the prices at one store, go to a store you can afford. There are plenty of options for all budgets in the vintage world.
+- I write well in LA, because the pressure is off and I'm surrounded by ambitious people who are really encouraging.
+- If I buy anything for personal use or for BOB that has even the slightest hint of moth damage, I put it straight into the freezer for a few days. This might sound odd, but its the best and most efficient way to kill moth eggs.
+- I'm not used to performing in front of people. When I make TV it's very intimate. In front of a crowd I get so nervous and I'm not that great at it.
+- When I read my own diary, a lot of those feelings came flooding back, such as the idea that the first boy you fall in love with will be your last. You can never imagine that you could ever love anyone else and that they're just the one.
+- Delicate fabrics should not be ironed. But if you don't have a steamer, next time you take a hot shower hang the item in the bathroom with you. The steam from the shower will help get the creases out.
+- Love is something we should all be saying yes to. If you're willing to love someone then people should support that. In a world full of such hate and so much negativity, it feels like love is something we should all just be sharing.
+- I have ended up with quite a conventional marriage and family. But I still hold on to my younger self who didn't know if that's what I wanted to do or not.
+- I love the charm of fashion from the past, I love how the clothes were revolutionary and how they changed the way that women lived their lives.
+- It was Yves Saint Laurent who realised the high-end design houses could make a lot more money if they sold more accessible clothing than the usual couture, when he opened his pret-a-porter store, Rive Gauche, in 1966.
+- But deleting work is sometimes the best decision you that you can make. Because you try and make this thing, that you know in your gut isn't right, and you just have to let it go. You have to be brutal.
+- Apparently only a third of us know our partners phone PIN, so the majority of people keep it secret. I find that really surprising, I think if my husband's PIN was secret I'd be so suspicious of what he was hiding.
+- My aunty used to dress windows on Bond Street in the 60s and my family were furriers by trade, talking to me about dress making, quality, the 60s and shops in general throughout most of my childhood.
+- One of the big things that I have realised since styling people is was how many women, size 14 and above, think that covering up in lots of fabric is the best way to dress. I literally could not agree less.
+- So when people tell me that dressing curves is hard, I tell them to look to the 50s as there is an entire decade dedicated to it.

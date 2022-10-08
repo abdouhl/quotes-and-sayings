@@ -1,0 +1,30 @@
++++
+author = "Doug Stanton"
+title = "Doug Stanton Quotes"
+quotes_len = "24"
+description = "the best 24 Doug Stanton Quotes"
++++
+- As I traveled around the country on a book tour for 'In Harm's Way,' I began learning how certain Indianapolis survivors had heard these voices - not necessarily the voice of God, but often that of someone who had fostered them and imparted an identity as a person who doesn't quit.
+- When I first met the survivors of the Indianapolis in 1999 while writing a book about them, their story - the last major action of World War II - was rarely mentioned in high school textbooks. This is despite the fact that, before its torpedoing, the ship had delivered components of the atomic bomb Little Boy to Tinian Island.
+- Traverse City sits halfway between the North Pole and the Equator, and our summer days are long. The light seems to take forever to vanish from the sky, and when it does, it goes out like someone folding a white sheet in the dark. A flare on the horizon. Then a rustle: Goodnight.
+- Winters are so long in northern Michigan - nearly nine months of gray skies and deep snow - that summer comes as a fresh burst.
+- I wanted to write 'In Harm's Way' from the young men's point of view of being in a raft, or hanging in a life vest with just their nose poking above the water.
+- The action of 'Horse Soldiers' is back-dropped by the story of how America went to war with little time to prepare - but with a lot of moxie.
+- I'm really interested in how people face existential crises and either overcome them or don't, and in how the human psyche responds.
+- Robert Frost had a house in Bennington, Vermont, and I had a friend, the poet Mary Ruefle, who was the caretaker of it when it was owned by Norman Lear, the TV producer. She got a grant to go to Scotland, and she had to be gone six or nine months, so I moved in, and my job was just to make sure the ravage didn't overtake the place.
+- Most audiences are being attracted to '12 Strong' because of what they might expect to see from a movie like this, which is that the Americans arrive, they march into the camp, they take it over, and take charge. It's like, 'Everything's going to be fine now. We're here.' That's not how these guys operate. They're very different.
+- 'Horse Soldiers' is the untold story of how a small band of U.S. Special Forces soldiers secretly entered Afghanistan in 2001, just five weeks after September 11, saddled up on horses, and rode to an improbable victory against a vastly larger Taliban and Al Qaeda army.
+- Instead of large-scale occupations, we should rely on small units of Special Forces who have proved it's infinitely more effective to work with a country's soldiers and citizens at eye level.
+- One of the reasons I wrote 'Horse Soldiers' was to understand the world my children would inherit after the events of 2001.
+- Of all the places I've been while talking to audiences about the U.S. Army's 5th Special Forces Group and their story in Afghanistan, one of the most rewarding was an appearance before the 5th Group soldiers themselves at Ft. Campbell, their home, and the place from which they had launched their historic mission in Afghanistan in 2001.
+- I'm very dogged and patient.
+- Each summer, as Lake Michigan finally begins to warm, I think of the men of the World War II cruiser Indianapolis and the worst disaster at sea in United States naval history. I go down to the lake, and I wonder: How would I have survived what they experienced?
+- Writing about conflict has provided these dramatic opportunities to talk about really substantial moments in a person's life. I'm not writing about superheroes; I'm writing about ordinary people.
+- I like to tell stories about people trying to make the right, difficult decision at the least opportune moment... People in a crucible of an extraordinary circumstance. And then, how that experience changes their life.
+- I don't think it's healthy to have 68-year-old men, 70-year-old men thinking regularly about a traumatic experience that happened to them and thinking that they cannot talk about it with anybody, and no one wants to listen.
+- When I was writing my first book, 'In Harm's Way,' I witnessed the sense of sacrifice that those WWII veterans possessed. I was surprised that sometimes their grandchildren hadn't talked to them about the historic events of that night in July 1945, when the USS Indianapolis went down.
+- During the writing of all of my books, I've learned that, most of all, people want to know that someone is listening and - this is the tricky part - remembering.
+- Simple words of encouragement subsequently saved many of the Indianapolis' sailors during their ordeal in the summer of 1945, and those men took the lesson to heart.
+- That's the potential power of a single voice - a neighbor's, a teacher's, a parent's, a friend's. It can change you, make you feel as if you have a place in the world.
+- While researching 'Horse Soldiers,' I conducted over 100 interviews in the U.S. and in Afghanistan, and in Afghanistan, I walked and studied key sites that appear in the book. I was able to capture not only the Americans' point of view but the Afghans' as well.
+- When I look at Lake Michigan each July, I imagine the men of the Indianapolis visible on the horizon; dark heads, struggling arms, a cry and whirl of a world being remade. I feel an overwhelming sense of sadness, accompanied by a desire to yell out that they will be rescued.

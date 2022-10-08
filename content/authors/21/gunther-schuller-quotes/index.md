@@ -1,0 +1,20 @@
++++
+author = "Gunther Schuller"
+title = "Gunther Schuller Quotes"
+quotes_len = "14"
+description = "the best 14 Gunther Schuller Quotes"
++++
+- After the war, once the bop revolution had taken hold, there were all kinds of young musicians, talented young musicians, who were ready for this fusion of classical and jazz.
+- You know, I'm not gonna take my money with me to heaven or hell, wherever I'm going. So I want to do something good with it even though my means are very limited. I'm no millionaire!
+- As long as I'm healthy and can keep going that's what I'll do.
+- So this anchoring in some way, in some important way in the past without repeating the past, but on the basis of the past building something new: that is what is important.
+- That was more or less coincidental in the sense that my parents wanted me to come back to New York because that's the center of musical activity still to this day, more or less, and so I auditioned for the Metropolitan Opera.
+- I would like to read some books: I don't have time; I would like to continue working on my autobiography.
+- So now, thirty years, forty years later, I mean, I could find a whole orchestra of a thousand to put these things together in New York City alone. In those days, if I could scrape up twenty musicians to do this it was something extraordinary.
+- I don't hate work, composing is not work for me, it's my pleasure; it's my life. So why should I stop? If something is pleasurable and exciting and rewarding, why should one stop?
+- But somehow, I felt no inclination to be interested in it in any amateur way, let alone professional, until suddenly I became interested. And the first thing I did was to compose: not play an instrument, but to compose.
+- And it is this sense that some of us have to contribute to the culture, to the society in ways that may hurt financially, so what? We do it because we are born to do it, we feel we have no other choice and so be it.
+- As rich as Cincinnati was in live music, New York was even more.
+- The record company started as an adjunct to that, to give young composers their first recorded performances; to give young musicians their first debut on a recording. These are all things that big record companies would never touch because there is no money in it!
+- Because I have sixty years of being a professional composer, conductor, musician, whatever, and you develop a lot of friendships and you get involved with a lot of sort of long-term commitments and obligations.
+- Well, because music is my life and music is not work for me.

@@ -1,0 +1,47 @@
++++
+author = "Paloma Elsesser"
+title = "Paloma Elsesser Quotes"
+quotes_len = "41"
+description = "the best 41 Paloma Elsesser Quotes"
++++
+- It's not that that I'm not comfortable being naked, but when you grow up fat, you can't take away the shame or embarrassment even though you're a model. It's not just erased.
+- At times, the curve/fat/plus convo tends be this 'out of the dark' story, like, 'I used to be insecure, but now here I am.' But that is not my reality, and for most of the people, that isn't their reality, either.
+- New York has influenced me a lot in terms of my own independence. I'm really struck by the idea of authenticity, and I think New York embodies that idea, even though people are like, 'I miss the old New York.' But at its core, it has this natural, authentic energy. L.A. lacks that idea; it's painted over.
+- I die wearing a bootie for three hours. I'm like, get these off of me!
+- I am trying to be the girl I didn't have. That's important to me. I have to be conscious of that. In this weird, dark, small, very intimate way, there's a girl out there who relies on me. And that's super important to me, and I don't want to let her down.
+- I think I felt pretty alienated, being bigger, being mixed race, being of lower socioeconomic standing.
+- I remember going to the Gap when I was in the fifth grade, and I desperately wanted a pair of blue jeans. I was with my dad, and I remember picking up the jeans, looking at them, and thinking that they had to fit me. But there was nothing that fit me. This was before the age of stretch, so I was trying on adult Gap.
+- I'm happy to sparkle like a glazed disco ball.
+- I have to remind myself when I'm on a job and I'm feeling a lull in attitude or confidence or whatever, I'm there for a reason. I have to constantly remind myself of these almost corny Pinterest mantras, like 'You are worthy.'
+- The more and more I got into writing, the harder and harder it became for me. I still love it, but it became much more problematic than I thought it would be.
+- Beauty means expression and being your most authentic self.
+- Wearing too much makeup definitely makes my skin worse.
+- It's important to see color. We are not the same. We have very different experiences.
+- I went to small liberal schools my whole life, and I was also a bad girl in high school; I went to, like, five schools.
+- When I started Instagram, I kind of just did what I like to do or to show the things I like, whether it be sneakers or weird flowers, have the little drops of myself and my style kind of fluidly throughout. That was really helpful in starting and carving out my own place.
+- I think self-love isn't some destination you get to and you are then incapable of feeling those feelings, but a journey in which you adapt your experiences to make for a happier life.
+- For makeup, I swear by a base of Embryolisse, Nars concealer, that Bobbie Brown foundation stick, Pat's highlighter, a brow fill-in with dark brown eyeshadow and angle brush, a groom with Anastasia brow gel, an eyelash curl, and two swipes of drugstore mascara.
+- I wasn't scouted in the mall as a kid; it just kinda happened naturally 'cause of Instagram and New York and being visible, which is cool. Things just started rolling in. Timing was in my favour 'cause the Internet acted as a catalyst for the fashion industry to change and be more open 'cause people demanded it.
+- Having a multi-cultural background has granted me access into different ideologies, cultures, and ways of living. It has shaped who I am and how I participate in the world.
+- A huge part of my career and how I want to participate in the world is being unapologetically myself and being honest and vulnerable.
+- The Internet really offered a space for me to thrive.
+- The International Girl Crew isn't supposed to be super exclusive - that's a really important part of our brand and message. It's not just our crew - it's a lifestyle. It's for everybody to know how empowering it is to be surrounded by friends who motivate and support you and who you feel like you can exchange ideas with and do projects with.
+- It's not fair for little kids to feel bad about themselves for how they look.
+- My parents are artists and have always instilled great pride in understanding of various backgrounds.
+- Growing up, people would always say, 'You have such a pretty face.' It's kind of backhanded. That's the kind of things we have to stomach.
+- It's important for people to understand where things come or what they represent.
+- We have to tokenize in order to normalize.
+- It's really hard not to fall into that trap of insecurity when you're a model. Beforehand, I never looked at myself in a huge monitor with 30 people around it every day.
+- Embrace the grease, if any, and look fresh and human. I like to look like a glazed doughnut.
+- My version of makeup is a really intense skin regimen. I just think it's a healthier way to look at beauty.
+- I like looking wet, sweaty, dewy, fresh.
+- I originally went to school for writing, for non-fiction. I'm specifically a poetry major within literature, but I don't know.
+- You're dealing with all these foreign agents, foreign brushes, and different time zones. So, you have to put just as much work into taking that makeup off as you do into putting it on.
+- I moved to New York for school right after I turned 18, but I started getting into trouble - so I went home to L.A. to regroup.
+- I am always dabbling in new skin routines, but it's always about moisture.
+- I hope that in 50 years I can look back and say I made my most fervent efforts to provide visibility for the unseen.
+- You don't want to be too hot in the club. And ambience is important - no fog machines.
+- It took a lot for me to be able to say that I'm a plus-size model or a model at all without feeling terror or this kind of panic, because it was something so unplanned.
+- My parents always supported me and complimented me on other things, not just my looks. They told me I was capable, that I was smart, that I was creative.
+- I went to private school my whole life. Growing up in Los Angeles, you're surrounded by not just Connecticut privilege but, like, your-dad's-a-movie-star privilege.
+- I had seen images of Crystal Renn and Sophie Dahl growing up, but I didn't really know about the plus-size fashion industry or how lucrative it was or, like, that it was changing or that I was even invited.

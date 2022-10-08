@@ -1,0 +1,50 @@
++++
+author = "Patrick Marber"
+title = "Patrick Marber Quotes"
+quotes_len = "44"
+description = "the best 44 Patrick Marber Quotes"
++++
+- Great comedy is always sadistic.
+- I don't try to be likeable. The worst thing people do is present versions of themselves to the world that aren't real.
+- Most of what I write is comedy.
+- I'd been to the Comedy Store, and I loved the terror of it and the way the best comedians could control the crowd. What confidence that would give you, if you could somehow survive.
+- I did have a midlife crisis.
+- I think writing is a glorious and noble thing.
+- I used to go with my parents and loved it, I was in school plays, and I started reading plays before I started reading novels. I'll defend it to the hilt. When theatre is good it is fabulous.
+- I come back to the theatre happily knowing that while it won't make me rich, it will provide me with fun.
+- I'm a Golden Globe nominee, yes. It's very nice. It's a very nice thing, but I kind of think of all the awards I wasn't ever nominated for, for years and things.
+- My dialogue probably reveals the paranoia of the stand-up: if you're not quick and interesting, they will be gone.
+- I dispute that 'Closer' is about betrayal. Betrayal is one of the elements.
+- Oh, I would love to be in Don Juan's shoes for a weekend. Not that I was ever handsome enough to be a Don Juan.
+- If I get anything out, producing anything, no matter whether it's good or not, I allow myself a little pat on the back.
+- In 2012, I really thought, 'That's it. It's over. I've written what I can write.'
+- When you're in your early 20s your love life seems to explode every 20 minutes or so. By the time you've reached your thirties, it is every five or ten years.
+- A couple of flop plays, a death in the family, and it could all collapse.
+- Almost every play is 10, 15 minutes too long.
+- When I look back I can't believe I was so stupid as to direct Dealer's Choice.
+- It's one of the reasons I don't do drugs. One sniff and I'd go all the way.
+- When I couldn't write, I felt like a zombie.
+- Well, you just know, as a writer, I didn't really write one of the five best screenplays of the year. There were lots of brilliant screenplays; I was just one of the lucky ones who got nominated.
+- When I'm on a train and see an empty pitch, it gives me a certain pleasure that I can't quite describe. It's to do with potential.
+- My life is in dialogue with the plays that I write. The relationship I have with my plays is very, very intimate, and I dot my life through them.
+- I don't feel so alive if I'm not being creative.
+- The trite answer is that everything is true but none of it happened. It is emotionally true, but the events, the plotting, the narrative, isn't true of my life, though I've experienced most of the emotions experienced by the characters in the play.
+- My whole life has a Jewish flavour.
+- It doesn't really feel like it's got anything to do with me. I mean, I know I wrote it, and all that and invented the characters and made it up, but it's Mike's film, so doing the press and stuff, it feels a little bit inauthentic. I was just one component of it.
+- Theatre is how I first encountered art on any level.
+- A part of me would like to see the money go to hospitals or housing, but I have benefited so greatly from funding for the National Theatre, which has been incredible.
+- I consider myself a Jewish writer, like all my heroes: Tom Stoppard, David Mamet, Philip Roth, Arthur Miller, Woody Allen.
+- I hoped the dramatic power of the play would rest on that tension between elegant structure - the underlying plan is that you see the first and last meeting of every couple in the play - and inelegant emotion.
+- I like them all - I don't always approve. I see myself as a sort of benevolent uncle to these characters, and I can see why they do what they do; sometimes they make some mistakes, but at heart I think they're decent.
+- I'm a happily married man and I think to get married you have to be optimistic.
+- I'm a Jew. I think of myself as a Jew first and Englishman second.
+- Always when I directed the play, I was always trying to cast people not who were necessarily like the characters, but people who I felt had the essential component that the character had, some kind of soul for it.
+- I have the comedian's fear of bottles flying. I've never been bottled off, but I have had things thrown at me. Bag of crisps. And there's still a part of me, when I sit in an audience, that thinks people are going to start heckling the play.
+- But I'm the sort of person who, if certain structures topple, it could all go horribly wrong.
+- I'm constantly having to be vigilant with a depressive tendency, an addictive tendency.
+- But I think the thing I'm proud of about the film is that there aren't many films - either independent films or mainstream Hollywood films - that are like this; it's of its own times, and it's the film Mike Nichols wanted to make.
+- I think I write serious comedies. I would love to be able to write for pure pleasure, but the undertow is always loneliness.
+- I mean when the play was on in New York I was starting to get film offers coming through, and since the film's come out I get offered more than I used to, but it happens incrementally.
+- Enough people like me. Enough to let me sleep at night.
+- I have made a decision that in future, I will only take on movies that have a better than 75 per cent chance of being made, and that's not easy.
+- I know it's a film and all of that, and it's a Hollywood film, but it kind of feels like this sometimes, when you're in pain and it hurts, and you're desperate. Or you are about to cross some moral line and it's so seductive and you just do... and all that.

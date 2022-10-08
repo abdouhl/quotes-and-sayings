@@ -1,0 +1,18 @@
++++
+author = "Paul Marciano"
+title = "Paul Marciano Quotes"
+quotes_len = "12"
+description = "the best 12 Paul Marciano Quotes"
++++
+- When models started getting skinnier in the nineties and were becoming sick-looking, I didn't get it! I think that's sending a totally wrong message.
+- When images are in black and white, they seem timeless. When you see Carrie Otis in an ad from 1989 next to an ad with Klara Wester from 2009, you don't see a 20-year difference between the pictures.
+- I wish I could say that Carla Bruni's Guess campaign at age 16 led to her current role as First Lady of France, but that might be a stretch.
+- I strongly believe that the heritage of Guess is rooted in denim, and the Guess girl looks to us for iconic and sexy styles.
+- When the waif look first came into fashion, Anna Nicole Smith was in the Guess campaigns looking like a real woman. A girl who looks too thin and unhealthy does not look sexy to me, and she does not look right for Guess.
+- Since the day we started Guess, the brand has always stood for young, sexy and adventurous, and it is these same qualities that I look for in the models that become Guess Girls. They also have to look healthy.
+- The campaigns and the models in them create the fantasy around the brand. It has always been about having strong images. Without that, we could not have gone into all the categories we did. It really has been the foundation from where the house of Guess was built.
+- At the beginning, we didn't have the money to pay big names, which is how looking for new faces began a tradition that still continues 30 years into the Guess history. It's been interesting to follow their careers after a Guess shoot, for both photographers and models, because the exposure around the world becomes so huge.
+- Guess will always be loyal and true to its roots.
+- Drew Barrymore's Guess shoot took place as she was making the transition to serious actress after having been more known as a child actress who had become overwhelmed by the Hollywood lifestyle.
+- We had just recently moved to California from Italy, and while we were driving around, we saw a billboard ad for McDonald's on Olympic Boulevard in Los Angeles. The word 'guess' was in the ad, and my brother decided that that would be the name of our company!
+- The Guess girl always combines sensuality with class. She's sexy and voluptuous, but not in a vulgar or cheesy way. Over the years, whether it was when I first saw Laetitia Casta, Eva Herzigova, or Anna Nicole Smith, the common thread when choosing the next Guess girl was an instant feeling in my stomach that she was the one.

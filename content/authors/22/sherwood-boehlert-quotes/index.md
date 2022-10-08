@@ -1,0 +1,24 @@
++++
+author = "Sherwood Boehlert"
+title = "Sherwood Boehlert Quotes"
+quotes_len = "18"
+description = "the best 18 Sherwood Boehlert Quotes"
++++
+- But our energy woes are in many ways the result of classic market failures that can only be addressed through collective action, and government is the vehicle for collective action in a democracy.
+- Craft brewers are committed to promoting the safe and moderate consumption of their beverage, and work closely with their communities to prevent underage drinking and alcohol abuse.
+- And autos are not the only product that could be made more energy efficient if we just put in place sensible requirements. This is also true of many appliances and even of entire buildings.
+- I don't see a groundswell of people willing to raise gas taxes right now. That leaves fuel economy standards as the only effective tool we have as a nation to make a dent in our dangerous and ever growing consumption of oil.
+- The national minimum wage has not been increased in 9 years. By year's end, 21 States across America will have a minimum wage exceeding the Federal minimum wage.
+- Well, for starters, we have to do more to create demand for new technologies that can reduce our dependence on foreign oil and environmental degradation.
+- Let me start by emphasizing that I am open to efforts to expedite environmental procedures for true emergencies or in other clear cases where current laws are needlessly burdensome.
+- Our oil problems are only going to get worse. Our trade balance is only going to get worse. So we have to slow the growth of U.S. oil consumption, particularly imported oil consumption.
+- We need to reduce or at least limit U.S. demand for oil as quickly as possible, and we need to develop new technologies that can further help address our addiction to oil in the future.
+- So the only way we're going to improve fuel economy or appliance efficiency swiftly and to the maximum extent practicable is if the government requires it.
+- About 60 percent of the oil consumed daily by Americans is used for transportation, and about 45 percent is used for passenger cars and light trucks.
+- Having yet another vote on refinery legislation that uses high oil prices as an excuse to weaken environmental protections and to give more legislative gifts to the oil industry is misguided in the extreme.
+- The way things are going, we are not too far from the day when it will take an hour's labor just to pay for the gasoline to get to the job.
+- For the second straight year, craft beer is the fastest growing segment of the U.S. alcoholic beverage industry. In 2005, craft beer experienced a 9 percent increase in volume, nearly triple that of the growth experienced in the wine and spirits industry.
+- The U.S. uses most of its oil for transportation. We can limit U.S. demand for oil by requiring automakers to use the technology that already exists to improve fuel economy - technology that the automakers refuse to bring into the market despite societal demand.
+- Mr. Speaker, the time for an increase in the minimum wage has not just arrived; it is long overdue.
+- So we in Congress have a very clear choice. We can take largely symbolic action and sit back and fiddle while Americans burn more gasoline. Or we can pass concrete, effective legislation that will save consumers money while significantly reducing U.S. oil consumption.
+- First, we should not be opening our coasts, all of our coasts, to oil drilling when we have not taken the first step, not the first step, to conserve oil.

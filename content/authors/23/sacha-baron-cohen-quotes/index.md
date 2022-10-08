@@ -1,0 +1,17 @@
++++
+author = "Sacha Baron Cohen"
+title = "Sacha Baron Cohen Quotes"
+quotes_len = "11"
+description = "the best 11 Sacha Baron Cohen Quotes"
++++
+- To single out a particular group and say we can't make a joke about them is almost a form of prejudice and it's kind of patronizing.
+- Normally in dangerous situations I have a getaway car.
+- I think I think in the moment. So when I'm in character, I'm in character, and I'm obviously thinking about what's going on around me, but it's easier to do stuff when you're in character.
+- I don't know if I'm brave.
+- Jews have a tendency to become comedians.
+- I've never really done any interviews as myself.
+- I think pulling off, pulling off a kind of fake documentary of me being a, you know, actual dictator would have been extremely difficult, if not impossible.
+- For a number of years in England nobody had any idea what I looked like.
+- I enjoyed being anonymous.
+- Dictators are ludicrous characters, and, you know, in my career and in my life, I've always enjoyed sort of inhabiting these ludicrous, larger-than-life characters that somehow exist in the real world.
+- I think if you come from a history of persecution you have to develop a sense of humour.

@@ -1,0 +1,106 @@
++++
+author = "Skai Jackson"
+title = "Skai Jackson Quotes"
+quotes_len = "100"
+description = "the best 100 Skai Jackson Quotes"
++++
+- It's incredible to see fashion starting to become more inclusive and diverse.
+- All kids should be able to have healthy food to eat and should not have to worry about when their next meal will be.
+- If I had only 60 seconds, I would pack some clothes, my phone, charger, toothbrush, head scarf, and shoes.
+- I remember when I was like 9, 10, 11 going into stores and saying, 'Wow! I wish I had this.'
+- If you don't know what you're passionate about, it's always fun to try new things.
+- It's been great to be on television since I was young; I always knew I wanted this. I didn't even like regular school, so I don't think I'm missing out on anything.
+- I definitely want to do other things outside of acting like producing, directing.
+- I was so happy that Justin Bieber snuck in my room. I was like, 'Oh my goodness.' You couldn't tell me anything. I was so happy.
+- During my teen years, I just really started to get anxiety. I would get stage fright when I would do certain speaking engagements and I always would get through them, but it was a really nerve-racking and hard thing to do.
+- I've very into grays and neutrals. They match with basically everything.
+- Even though I'm young, I really try to do the right thing.
+- One of my favorite go-to outfits would be a denim on denim look!
+- Here in California, it is so dry. When I lived in New York, my skin definitely wasn't so dry. I always try to drink lots of water, which helps keep my lips from cracking, but I really need a good lip balm, too.
+- I have a really positive mindset about everything.
+- I definitely pick and choose what I put out and what I want people to know.
+- I don't know what's in the Carmex, but it's super-moisturizing. It's almost like Vaseline, but not sticky that way.
+- I'm only five feet tall, so I'm short.
+- Everyone is going to go through that phase of not liking their hair, but at the end of the day you're going to regret that you ever put relaxer or anything in your hair.
+- Whatever you want to do in life, just know that you will do it. Just believe in yourself. It might take so many years to finally accomplish that, but you have to work for it.
+- I don't really wear a lot of makeup, but when I do, I love to put on the Benetint Blush. It's very pretty and pink.
+- At the end of the day, not everyone's going to like what you do. There's always going to be that one person, or many people, who are going to keep on nagging at you and picking on every little thing that you do.
+- To complete my look, I like to add fun accessories such as a dainty necklace, bracelets and a ring.
+- I have supersensitive skin, to the point where sometimes I touch my neck and it turns red.
+- As I've gotten older, I've started to find my voice.
+- Fashion is about trying out new things and having fun, and me and my stylist, Zadrian Smith, are going to keep doing just that.
+- I would watch different TV shows on the Disney Channel like Raven Symone on 'That's So Raven'... and I was like, 'that's something that I really want to do when I get older.'
+- At the end of the night I just wash my face with a wash cloth, and then I'll use a toner, like witch hazel. Then I'll go in with a Neutrogena makeup wipe if I feel like I have anything left.
+- I always want to do things in my career that would make people proud.
+- My friends are my everything. When I feel that anxiety, I always call them or text them and they talk me through it.
+- I like my eyeshadow to be pretty natural.
+- I use all-natural products in my hair, like Jamaican Black Castor Oil.
+- I love Ava DuVernay. It would be cool if I got to work with her one day. She seems like a humble person.
+- If you want to get a dog, please adopt. I know a lot of people want these fancy breeds, but I think it's better to adopt, because there are so many amazing dogs.
+- I really wish women of color would come together more and stand up for each other.
+- I'm someone who has a voice, and shares my opinion.
+- I've always wanted to design clothes.
+- I feel like when you're dancing, especially how we're doing it on live television, you need to give that energy to the camera which is mainly with your face.
+- I think being a kid is a wonderful thing, and I don't want to speed up that process any more.
+- Trump doesn't define my destiny, only I do and the Lord above.
+- One of my beauty secrets is - whenever you can - try to wear no makeup at all! Putting tons of makeup on is not good for your skin.
+- I've even become kind of well-known for taking on some bullies online. One of the most notable is the pop star Azealia Banks.
+- I love Miu Miu for its playfulness; Chanel is cool because it's classic and edgy, and Marc Jacobs really captures the spirit of youth in my opinion.
+- I definitely feel confidence with more height!
+- I feel like, if you have a big platform, please use it for great... just like me, just like a bunch of people are. It takes two seconds. It's not gonna mess up your Instagram feed, you can do it.
+- There is so much going on in world, even just on the Internet. I think TV should push to put some of the positive things going on in shows, and also to discuss more of the negative things so more people can relate.
+- I know it's hard to believe that I'm no longer the young 'Zuri' everyone has grown to love, which I truly appreciate, but like every young lady, I'm growing, I'm maturing and finding myself at 16 years old discovering the joys and pains of the world we live in.
+- I love to have a very bright center of my face. I learned that on 'Jessie'... it looks great on camera.
+- I'm a big fan of Michelle Obama. She's such a positive person.
+- I just feel to be confident in yourself is to surround yourself with positive people, people that uplift you and are only here for what you do and love what you do.
+- I'm against bullying, I hate it because I've dealt with it.
+- Sometimes, to take my mind off of things, I will hang out with my friends and see a movie.
+- Being a role model is a little bit of pressure on me, but I know that people will support me either way which is a good feeling.
+- I would always just get DMs from my fans, because people know I'm an advocate for anti-bullying. So I would always just look at my messages and see a bunch of my fans saying, 'Look at what this person said to me, I don't know how to deal with this.'
+- Scary movies are one of my favorite movies to watch and I've loved scary movies since I was like three years old.
+- Never tweet while you're angry; you'll probably regret it later.
+- The music video, Lil Nas X, he asked me to be in the 'Panini' music video. It was crazy. I was just listening to the song and I was like, okay, this is going to be my first music video but it was really fun.
+- I woke up and I just saw all these things, like 'RIP Skai Jackson,' and I'm like, 'Why do people think I'm dead? Like, what happened? Where did this come from?' And then one of my fans told me it was some girl who started it. And for me, that's just like not funny at all.
+- I would recommend these books: 'Dream Big, Little One,' by Vashti Harrison, 'I Am Enough,' by Grace Byers, 'Hair Like Mine,' by LaTashia M. Perry, 'Hair Love,' by Natasha Anastasia Tarpley... and of course, my book!
+- Never use curse words, foul language, or racial slurs, or say anything about a person's appearance. Just work with being smart-mouthed.
+- Because I'm so young, it's really important to me to speak my mind.
+- And my mom has always wanted me to be who I was born to be and whoever I want to be and inspire to be in life. So my mom is really supportive and I love that.
+- Even in pictures, people think that I'm over five feet, and when they meet me in person, they're like, 'Oh, you're so short. I didn't expect that because you look so tall in pictures!'
+- It took me so long to find the perfection foundation shade.
+- Grey is one of my favorite colors.
+- I've gotten approached like, 'Oh, you're the girl that's on Twitter' or 'You're the girl who was in the meme.' It's funny that sometimes people don't really know me from my TV shows.
+- Sometimes you need that time away to disconnect from social media.
+- Even without makeup on, I want my eyes to pop.
+- A lot of my fans also have gotten bullied and they always tweet me, 'How do you deal with it?' I always get questions about that, and I say if someone's bullying you, stand up to them. Say something.
+- Debby Ryan is fantastic, I love to have her. She's a great person and she has good acting skills.
+- Seafood is my favorite and I couldn't live without it!
+- While nothing is perfect or complete in the battle for civil rights, the efforts of Dr. King and those like him have in fact, changed the country and the world for the better in noticeable ways. His vision has made the world a more equal place, and if not equal, it has helped to ensure that minorities have a voice.
+- For me, growing up at a young age in the limelight and on social media, I joined Twitter when I was 10 and I got my Instagram when I was 11, so when I joined Instagram, I did notice a lot of hate comments or people would just, like, nitpick at my appearance, just to be funny.
+- I don't like how social media allows people to be so mean and say really hurtful, negative things. It's just not cool.
+- When I was little I only had a few friends who had natural hair.
+- If I had to direct or produce a show, it would be about a young Black girl who is a superhero and helps save the world.
+- Beyonce's like my secret mother.
+- There should be consequences that happen when you say things about people, especially racist things.
+- I would say if you're getting hate on social media, just don't reply.
+- I love to shop at one of my favorite stores, Levi's. They have the best button down denim shirts and jeans that are reasonable priced.
+- I mean, if someone wants to buy a dog that's their business, but I would definitely say adopt, don't shop.
+- If I could only eat one meal for the rest of my life it would be king crab legs, salad and some chicken.
+- I was looking for a dog when I was around 9 or 10 years old. I'd just moved to L.A. and I was working on a lot called Hollywood Center Studios. One day, a dog adoption company came to the lot and were passing around flyers saying they'd have RVs the next week full of adoptable dogs from a no-kill shelter. So I was really happy about that.
+- People like to get bold behind a computer or an iPhone, and say whatever they want. I don't stand for that.
+- I'm not exposing anything thats private - that's one thing I won't do.
+- The most detailed part of my beauty routine would have to be the eyes.
+- It's important to do anything you can to support the causes that you care about. I think something as small as posting articles on social media or having important conversations with your friends are ways of getting your voice out there!
+- When I feel like I'm getting overwhelmed, I take a break from my phone and social media to regroup.
+- I love those fashion moments when everything just comes together.
+- Being that my name is attached to Disney, especially when it comes to social media, I always have to be careful with what I post.
+- I have so much hair.
+- Social media was a little hard for me to handle at first, when I was nine. I have a lot of followers, but that came with a lot of people I didn't know bullying me.
+- I never thought in a million years that I would be called a role model for girls and even boys, too.
+- Zuri is slowly starting to become more of who I am in real life. Starting on 'Jessie,' she had a huge imagination, and had her imaginary friends, but now that she's 13 she has definitely passed that stage in her life and has grown so much.
+- If you are getting bullied online try not to let it affect you! I know it's hard but the more you act like you care, the more the person will keep bothering you.
+- I've been practicing ballet since I was three years old.
+- It's awesome that they would think of me and base the next big Marvel superhero off of me. That was definitely something I was not expecting and I'm so honored!
+- I have a great sense of humor, I mean even when my meme came out I reposted it. I didn't care. I was laughing, too!
+- People don't really know, but I went to Dance Theatre of Harlem in New York.
+- Social media can really just be a terrible thing sometimes, and people don't really understand that.
+- Okay, so 'clap back' is when you might be in a confrontation with someone and they're coming at you negatively, but you put them in their place but without being too nasty, so you just clap back a little bit.

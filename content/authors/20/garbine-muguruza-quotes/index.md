@@ -1,0 +1,99 @@
++++
+author = "Garbine Muguruza"
+title = "Garbine Muguruza Quotes"
+quotes_len = "93"
+description = "the best 93 Garbine Muguruza Quotes"
++++
+- In Spain, if you don't follow football, you're dead. You don't have conversation.
+- I grew up, and my body was not like a Spanish player. I was tall. I had a powerful game; my arms were long, so I'm like, 'No, you can't play like Spanish players.'
+- I couldn't be accepted into tennis school because I was too young. I had to wait a year until I was four before they'd accept me.
+- When you win, everything is so beautiful, and when you don't, it's not, so everything is darker.
+- I was always following my brothers. If my brothers hadn't played, I never would have picked up a racket. Tennis isn't the most popular sport in Venezuela.
+- I'm not afraid of playing somebody that is playing good.
+- Who would I think is the favorite? Well, to be honest, I think the top players. We are all very close, very equal.
+- Once you step on the court, you see the crowd, you see the final, you see I'm here playing another Wimbledon final.
+- I was like, 'Did I win Roland Garros? What happened?'
+- If you want to be one of the best players, everything is hard.
+- I always travel with my coach and with my physio. And then when I'm in Europe, my parents, maybe they come to events.
+- It's so rewarding to succeed in what you like to do that you don't really think about what you have to give up.
+- I've said before that when you win, people think it's so easy, but it's not so easy to handle it, and probably I expect myself to always play so good.
+- All I want is to win matches, and the ranking sooner or later will come.
+- After you win, people expect you to always play so good. When that doesn't happen, it's hard to deal with.
+- I prefer to be hunted compared to the other way around... I don't know how you say it.
+- The best players are consistent.
+- It's true that my body's not small and my style is not defensive. I am aggressive, and I am tall.
+- I think the players like to play with sunny days and warm weather.
+- I moved to Spain, and at all the tournaments I'd play, I would be really good in my age. That made me realize that I could be a pro.
+- There's no room for being disappointed or for excuses, 'Oh, I had four match points.'
+- When you're a kid and practice on clay, you're always, 'Oh, I wish I could win Roland Garros.'
+- It doesn't always work out that you win a tournament and then a Grand Slam, but I'm happy to have the confidence.
+- I think my style of game is aggressive.
+- I think people have this love-hate relationship with tennis. I also feel like that.
+- I'm happy that once again I see myself winning a Grand Slam, something that is so hard to do.
+- With time, I've got more used to grass, and I think my style of game helps.
+- If I lose the first set, I still have two more. Let's not make a drama, you know.
+- People only see two hours of a tennis match where you're fighting and running and sometimes getting upset. There's a lot more than those two hours. Going out there and playing is actually the easy part.
+- I'm used to putting so many things aside to be able to compete.
+- At the end, the one that plays better is going to win.
+- I used to either lose in my first or second match or I would go very far in the tournament. So I've been saying to myself, 'Come on, you've got to get through these first two matches. They're very tough. Because afterwards you feel different.' So I'm really putting my energy into getting through to those later rounds.
+- I didn't do anything special after the French Open, after winning the tournament. I just had a nice dinner with my team and family, but I was so exhausted that I went to sleep early and couldn't stay up.
+- I just think I play better in the greater scenarios. I just get motivated. I like the big crowds on the centre courts.
+- It is a time for women's tennis to return to the light, as it were, and be on a par with men's tennis, which is at a very high level.
+- I just thought at Wimbledon I was very nervous.
+- Sometimes when you go into the match, you want it so badly. I think sometimes is tricky. It makes you a little bit, like, tense and nervous.
+- When a kid comes next to you, and she's like 'Ooh, one day I want to be like you!' you're like 'Wow, that's so nice to hear!'
+- New York is a very tricky city. I find it very noisy. It's a jungle, and it's very stressful at times, but I'm ready for it.
+- To have Serena in the Wimbledon final, I think, is the hardest match you can have.
+- I don't know a lot of people who achieve what they have really dreamed of as a little girl.
+- You can't be the best player if suddenly you play well and the next day you play badly.
+- A lot of people were saying, 'I think you will play good on grass,' and I'm like, 'There's no way. I hate grass. I'm horrible.'
+- It's a great thing to have: that pressure everywhere you go, that responsibility. I think it's good to have it.
+- You can have a couple of games where you play bad or very good. I think I'm a type of player that days before I know how I feel, if I'm playing good, if I'm playing bad. This is not like lottery here.
+- It's like if you have a bad day and you don't change your mindset, even if you go to buy bread at the supermarket, like, everything is so bad. It happens. I'm very negative. You have to change it.
+- Once you taste the sweet honey, you want more of that.
+- I didn't play juniors, really. I only played Roland Garros juniors and maybe some European tournaments.
+- I try to focus on more winning matches here and try to go forward rather than the ranking because is the first step, to win matches, getting far in tournament, and we see after.
+- I started in a very small tennis club in a South American country where I never thought about becoming the best tennis player.
+- I think I'm always nervous, even if I play not on the center court.
+- I'm not afraid to do long rallies. I like that.
+- For us, the Grand Slams are very important. When the Grand Slams come, you're thinking, 'OK, this is the tournament.' To lose there is disappointing.
+- To see that I'm on a good path, that I'm improving, is what I want to feel.
+- To be able to make other girls play - and hopefully in Latin America as well - is very important to me.
+- If you want to win a Grand Slam, when you dream, you say, 'I want Serena in the final.'
+- I learned that if you want something, you've got to really go for it, try to put the nerves aside.
+- I take every match as a final. It's very important.
+- When I came to Spain, I joined a tennis academy, and that was where I learnt the game.
+- I think every player dreams to be No. 1 at some point.
+- I have routines but not superstitions.
+- I like to have bright colors and to feel feminine on the court.
+- I don't want to retire before the tournament starts for me.
+- I always come very motivated to the Grand Slams.
+- That's my every day: putting things aside and going out there and have two hours of concentration of tennis.
+- When you're tired, you say, 'Hey, I need to rest from tennis or something.'
+- I was about three years old when I started playing in Venezuela with my two older brothers. They're 12 and 11 years older, so I was always the little one.
+- The problem we have in the WTA circuit is that the girls do not have a good relationship because we play against each other, and it's a sport.
+- I love to play, and I love what it brings to me. It's such a healthy life, and to me, it means everything.
+- Being in a Grand Slam, doesn't matter what you did before, it's always nervous and excitement.
+- I like Sergio Ramos, who plays Real Madrid.
+- When I was young, I looked up to Martina Hingis.
+- I don't have superstitions because I think sometimes they work against you because, if something happens to disturb them, you feel nervous.
+- This is just a 'Boom!' of energy for me to win a Grand Slam.
+- I always play with a very high ponytail so that my hair doesn't bother me.
+- I go for my shots with no regrets, even if I play to the fence.
+- I let my racket do the talking.
+- It is hard because I have played since I was three years old, and everything is tennis, tennis. I am super-passionate about it. And I love it. But I always like to cook, I listen to music. I just try to be like a regular girl.
+- I just make sure that people around me are fine. There is not a lot I can do anymore. Just support the people. Be with them. But at the end, I've got to go play. And after, we can talk again. But I have to kind of block it for two hours.
+- Tennis is what I've always wanted to do, so it is my dream to be on top.
+- For sure, people are looking more at what I'm doing, but I think that's fine. It's a good sign. I like it.
+- The first tournament I ever played, I won. I was six years old.
+- If we push for the children to know tennis, they have the chance to like it.
+- The best thing is being part of history and achieving something you've dreamed of.
+- Is very hard to find, like, a recipe to feel good fitness-wise, tennistically, mentally.
+- I like to dance to Latin music, like salsa, like reggaeton.
+- The tough matches never go my way, so I want to change that.
+- With the time, as I was growing up and I got taller and my arms were longer, I developed this aggressive style because I think it was better for me, for my style of game.
+- My father is Spanish, and he went to Venezuela looking for a job. He was 20 something, and he fell in love with a Venezuelan girl. He owns a company there, producing iron and bronze.
+- For me, it has an extra value to be able to beat the Williams sisters in the finals, because they are just so good. For me, it's proof of being literally the best player in the tournament.
+- Finally a Spanish girl can play on grass.
+- I adapt more to the match for the second set.
+- It's difficult to always perform well, to always go on the court and win and hit great shots. It takes a lot of time and a long learning process.

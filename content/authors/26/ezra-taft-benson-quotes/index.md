@@ -1,0 +1,218 @@
++++
+author = "Ezra Taft Benson"
+title = "Ezra Taft Benson Quotes"
+quotes_len = "212"
+description = "the best 212 Ezra Taft Benson Quotes"
++++
+- With the Spirit and magnifying your call, you can do miracles for the Lord in the mission field. Without the Spirit, you will never succeed, regardless of your talent and ability.
+- Beguiling voices in the world cry out for 'alternative lifestyles' for women. They maintain that some women are better suited for careers than for marriage and motherhood.
+- I challenge those who are in business and other professions to see that there are copies of the Book of Mormon in their reception rooms.
+- The Book of Mormon is the 'keystone' of our religion, and the Doctrine and Covenants is the 'capstone,' with continuing latter day revelation. The Lord has placed His stamp of approval on both the keystone and the capstone.
+- The Book of Mormon Is the Word of God.
+- When we put God first, all other things fall into their proper place or drop out of our lives.
+- If you are a single parent, make friends with others in similar situations and develop friendships with married couples. Counsel with your priesthood leaders. Let them know of your needs and wants. Single parenthood is understood by the Lord.
+- Modesty in dress and language and deportment is a true mark of refinement and a hallmark of a virtuous Latter-day Saint woman.
+- Mothers play an important role as the heart of the home, but this in no way lessens the equally important role fathers should play, as head of the home, in nurturing, training, and loving their children.
+- God loves us; the devil hates us. God wants us to have a fulness of joy as He has. The devil wants us to be miserable as he is. God gives us commandments to bless us. The devil would have us break these commandments to curse us.
+- When our Heavenly Father placed Adam and Eve on this earth, He did so with the purpose in mind of teaching them how to regain His presence. Our Father promised a Savior to redeem them from their fallen condition.
+- We must not lose hope. Hope is an anchor to the souls of men. Satan would have us cast away that anchor.
+- I am grateful my own eternal companion served a mission in Hawaii before we were married in the Salt Lake Temple, and I am pleased that I have had three granddaughters serve full-time missions.
+- Christ removed self as the force in His perfect life. It was, 'Not my will, but thine be done.'
+- Fatherhood is not a matter of station or wealth. It is a matter of desire, diligence and determination to see one's family exalted in the celestial kingdom. If that prize is lost, nothing else really matters.
+- Pride is essentially competitive in nature. We pit our will against God's.
+- I reverence the Constitution of the United States as a sacred document. To me its words are akin to the revelations of God, for God has placed his stamp of approval on the Constitution of this land.
+- The proud depend upon the world to tell them whether they have value or not. Their self-esteem is determined by where they are judged to be on the ladders of worldly success. They feel worthwhile as individuals if the numbers beneath them in achievement, talent, beauty, or intellect are large enough.
+- The history of humanity has, to a large extent, been one of groping blindly in the dark, fearing for the future and yet resisting the guiding hand of inspired men who would willingly lead mankind in the path of safety.
+- Satan would have you believe that happiness comes only as you surrender to his enticements, but one only needs to look at the shattered lives of those who violate God's laws to know why Satan is called the Father of Lies.
+- Periodic fasting can help clear up the mind and strengthen the body and the spirit.
+- A young man who knows and loves the Book of Mormon, who has read it several times, who has an abiding testimony of its truthfulness, and who applies its teachings will be able to stand against the wiles of the devil and will be a mighty tool in the hands of the Lord.
+- God lives. I know that He lives. I know that Jesus is the Christ and the Redeemer of the world.
+- If someone wants to marry you outside the temple, whom will you strive to please - God or a mortal? If you insist on a temple marriage, you will be pleasing the Lord and blessing the other party.
+- Your most important friendships should be with your own brothers and sisters and with your father and mother. Love your family. Be loyal to them. Have a genuine concern for your brothers and sisters.
+- No other single influence has had so great an impact on this earth as the life of Jesus the Christ.
+- I am a witness to nations and people deprived of their freedom. I was there. I watched that great Iron Curtain drop around nations which formerly had prized their freedom - good people. I was aghast as these were written off by the stroke of a pen.
+- Inspiring music may fill the soul with heavenly thoughts, move one to righteous action, or speak peace to the soul.
+- Opposition provides choices, and choices bring consequences - good or bad.
+- The price of peace is righteousness.
+- Some men are willing to die for their faith, but they are not willing to fully live for it. Christ both lived and died for us.
+- If you really want to receive joy and happiness, then serve others with all your heart. Lift their burden, and your own burden will be lighter.
+- To lose yourself in righteous service to others can lift your sights and get your mind off personal problems, or at least put them in proper focus.
+- Encourage good music and art and literature in your homes. Homes that have a spirit of refinement and beauty will bless the lives of your children forever.
+- When obedience ceases to be an irritant and becomes our quest, in that moment God will endow us with power.
+- The United States of America has been great because it has been free.
+- Satan knows that youth is the springtime of life when all things are new and young people are most vulnerable.
+- The fact that a book or publication is popular does not necessarily make it of value.
+- Every accountable child of God needs to set goals, short- and long-range goals. A man who is pressing forward to accomplish worthy goals can soon put despondency under his feet, and once a goal is accomplished, others can be set up.
+- Since the beginning, a woman's first and most important role has been ushering into mortality spirit sons and daughters of our Father in Heaven.
+- To the proud, the applause of the world rings in their ears; to the humble, the applause of heaven warms their hearts.
+- We are eternal beings. We lived as intelligent spirits before this mortal life. We are now living part of eternity. Our mortal birth was not the beginning; death, which faces all of us, is not the end.
+- Fathers, yours is an eternal calling from which you are never released.
+- What a gift it would be to receive at Christmastime a greater knowledge of the Lord. What a gift it would be to share that knowledge with others.
+- The one man other than my father who made the most lasting impression was an uncle, Serge B. Benson. He taught me in three different classes - but above all, he taught me lessons in moral, physical, and intellectual courage that I have tried to apply in later life.
+- Many a man in his hour of trial has turned to the Book of Mormon and been enlightened, enlivened, and comforted. The psalms in the Old Testament have a special food for the soul of one in distress.
+- Do not leave yourself or your family unprotected against financial storms... Build up savings.
+- With pride, there are many curses. With humility, there come many blessings.
+- Sin pulls a man down into despondency and despair.
+- Pride is a sin that can readily be seen in others but is rarely admitted in ourselves.
+- God our Father, Jesus, our Elder Brother and our Redeemer, and the Holy Ghost, the Testator, are perfect. They know us best and love us most and will not leave one thing undone for our eternal welfare. Should we not love them for it and honor them first?
+- The true scientist no longer attempts to disprove the pull of gravity, or the rotation of the earth, or the motion of heavenly bodies, or the sequence of the seasons, or man's need of food and water, or the function of the heart.
+- Family preparedness has been a long-established welfare principle.
+- The Saints never suffer as the sinners do.
+- Every man eventually is backed up to the wall of faith, and there he must make his stand.
+- Faith is the foundation upon which a godlike character is built. It is a prerequisite for all other virtues.
+- In the beginning, Adam was instructed to earn the bread by the sweat of his brow - not Eve. Contrary to conventional wisdom, a mother's place is in the home!
+- Be right, and then be easy to live with, if possible, but in that order.
+- An unvirtuous citizenry tend to elect representatives who will pander to their covetous lustings.
+- Sound principles and eternal truths need to be frequently repeated so that we do not forget their application nor become dissuaded by other arguments.
+- Bad experience is a school that only fools keep going to.
+- We all know of families who have obligated themselves for more than they could pay. There is a world of heartache behind such cases.
+- A young woman who knows and loves the Book of Mormon, who has read it several times, who has an abiding testimony of its truthfulness, and who applies its teachings will be able to stand against the wiles of the devil and will be a mighty tool in the hands of the Lord.
+- If we love God, do His will, and fear His judgment more than men's, we will have self-esteem.
+- Yes, one can repent of moral transgression. The miracle of forgiveness is real, and true repentance is accepted of the Lord.
+- Let your minds be filled with the goal of being like the Lord, and you will crowd out depressing thoughts as you anxiously seek to know Him and do His will.
+- The Lord works from the inside out. The world works from the outside in. The world would take people out of the slums. Christ takes the slums out of people, and then they take themselves out of the slums.
+- Daily, constantly, we choose by our desires, our thoughts, and our actions whether we want to be blessed or cursed, happy or miserable.
+- America, North and South, is a choice land, a land reserved for God's own purposes.
+- Praise your children more than you correct them. Praise them for even their smallest achievement.
+- Pride adversely affects all our relationships - our relationship with God and His servants, between husband and wife, parent and child, employer and employee, teacher and student, and all mankind.
+- Callings in the church, as important as they are, by their very nature are only for a period of time, and then an appropriate release takes place.
+- When our children obey the Lord and go to the temple to receive their blessings and enter into the marriage covenant, they enter into the same order of the priesthood that God instituted in the very beginning with father Adam.
+- Was it not through pride that the devil became the devil? Christ wanted to serve. The devil wanted to rule.
+- The privilege of holding the priesthood, which is the power and authority to act in God's name, is a great blessing and privilege and one that carries with it equally great obligations and responsibilities.
+- Years of happiness can be lost in the foolish gratification of a momentary desire for pleasure.
+- The Declaration of Independence was to set forth the moral justification of a rebellion against a long-recognized political tradition - the divine right of kings.
+- Blessed are they who seek to learn wisdom.
+- Communism introduced into the world a substitute for true religion. It is a counterfeit of the gospel plan.
+- The sacred title of 'father' is shared with the Almighty.
+- Some prideful people are not so concerned as to whether their wages meet their needs as they are that their wages are more than someone else's. Their reward is being a cut above the rest. This is the enmity of pride.
+- Enmity means 'hatred toward, hostility to, or a state of opposition.' It is the power by which Satan wishes to reign over us.
+- Every Latter-day Saint should love the inspired Constitution of the United States - a nation with a spiritual foundation and a prophetic history - which nation the Lord has declared to be his base of operations in these latter days.
+- Christ changes men, who then change their environment. The world would shape human behavior, but Christ can change human nature.
+- Mothers, stay close to your daughters. Earn and deserve their love and respect. Be united with their father in the rearing of your children. Do nothing in your life to cause your daughters to stumble because of your example.
+- We should put God ahead of everyone else in our lives.
+- America is a place of many great events. Here is where Adam dwelt, where the Garden of Eden was located. America was the place of former civilizations, including Adam's, the Jaredites', and Nephites'.
+- Sacrifice is truly the crowning test of the gospel. Men are tried and tested in this mortal probation to see if they will put first in their lives the kingdom of God.
+- The Book of Mormon, the record of Joseph, verifies and clarifies the Bible. It removes stumbling blocks; it restores many plain and precious things.
+- Faithful attendance at Church meetings brings blessings you can receive in no other way.
+- The great task of life is to learn the will of the Lord and then do it.
+- The false prophets of Communism predict a utopian society.
+- In this age of the electronic media and the mass distribution of the printed word, God will hold us accountable if we do not now move the Book of Mormon in a monumental way.
+- You cannot do wrong and feel right. It is impossible!
+- I feel certain that if, in our homes, parents will read from the Book of Mormon prayerfully and regularly, both by themselves and with their children, the spirit of that great book will come to permeate our homes and all who dwell therein.
+- Efficient spending and saving will give the family more security, more opportunities, more education, and a higher standard of living.
+- If a man does not control his temper, it is a sad admission that he is not in control of his thoughts.
+- The human body is the tabernacle of the spirit, and God expects that it be kept clean and unimpaired.
+- Youth is the spirit of adventure and awakening. It is a time of physical emerging when the body attains the vigor and good health that may ignore the caution of temperance. Youth is a period of timelessness when the horizons of age seem too distant to be noticed.
+- A positive self-image has little relationship to our material circumstances.
+- Are you honest with the Lord in the payment of your tithes? Living this divine law will bring both spiritual and material blessings.
+- The Lord clearly defined the roles of providing for and rearing a righteous posterity. In the beginning, Adam, not Eve, was instructed to earn the bread by the sweat of his brow.
+- One of the joys of working with boys is that you get your pay as you go along. You can observe the results of your leadership daily... Such satisfaction cannot be purchased at any price; it must be earned.
+- Some spiritually alert parents hold early-morning devotionals with their families in their homes. They have a hymn, prayer, and then read and discuss the Book of Mormon.
+- Time is numbered only to man.
+- The undermining of the home and family is on the increase with the devil anxiously working to displace the father as the head of the home and create rebellion among the children.
+- The Book of Mormon offers so much that broadens our understandings of the doctrines of salvation. Without it, much of what is taught in other scriptures would not be nearly so plain and precious.
+- God will have a humble people. Either we can choose to be humble, or we can be compelled to be humble.
+- No man is truly educated unless he knows where he came from, why he is here, and where he can expect to go in the next life.
+- When I think of how we show faith, I cannot help but think of the example of my own father. I recall vividly how the spirit of missionary work came into my life. I was about thirteen years of age when my father received a call to go on a mission.
+- There is a difference between a convert who is built on the rock of Christ through the Book of Mormon and stays hold of that iron rod, and one who is not.
+- Our mothers put God first when they fill their highest mission within the walls of their own homes.
+- Satan works through human agents.
+- Godly sorrow is a gift of the Spirit. It is a deep realization that our actions have offended our Father and our God. It is the sharp and keen awareness that our behavior caused the Savior, He who knew no sin, even the greatest of all, to endure agony and suffering.
+- I firmly believe in prayer. It is possible to reach out and tap the unseen power which gives strength and anchor in time of need.
+- Unless you and your mate are united in purpose, dedication, and loyalty, you will not succeed to the extent you otherwise could.
+- Young adults enrolled in universities and colleges or other postsecondary training should avail themselves of the opportunity to take institute of religion courses or, if attending a Church school, should take at least one religion course every term.
+- 'What would Jesus do?' or 'What would He have me do?' are the paramount personal questions of this life.
+- Disobedience is essentially a prideful power struggle against someone in authority over us. It can be a parent, a priesthood leader, a teacher, or ultimately God. A proud person hates the fact that someone is above him. He thinks this lowers his position.
+- Try as you may, you cannot put the Lord in your debt. For every time you try to do His will, He simply pours out more blessings upon you.
+- The great test of life is obedience to God.
+- Virtue is akin to holiness, an attribute of godliness.
+- Freedom can be killed by neglect as well as by direct attack.
+- Selfishness is one of the more common faces of pride. 'How everything affects me' is the center of all that matters - self-conceit, self-pity, worldly self-fulfillment, self-gratification, and self-seeking.
+- The moral code of Heaven for both men and women is complete chastity before marriage and full fidelity after marriage.
+- Great battles can make great heroes and heroines.
+- One who is kind is sympathetic and gentle with others. He is considerate of others' feelings and courteous in his behavior. He has a helpful nature. Kindness pardons others' weaknesses and faults. Kindness is extended to all - to the aged and the young, to animals, to those low of station as well as the high.
+- The world is increasing in wickedness.
+- Young women, the family unit is forever, and you should do everything in your power to strengthen that unit.
+- Truly a man does not live by bread alone. A good name is still to be preferred over great riches. Especially is it to be preferred to the appearance of riches, acquired with nothing down and nothing to pay for two months.
+- Husbands, recognize your wife's intelligence and her ability to counsel with you as a real partner regarding family plans, family activities, and family budgeting. Don't be stingy with your time or with your means. Give her the opportunity to grow intellectually, emotionally, and socially as well as spiritually.
+- The earth was cursed for Adam's sake. Work is our blessing, not our doom. God has a work to do, and so should we.
+- Retirement from work has depressed many a man and hastened his death.
+- It is a truism that children need more of Mother than of money.
+- From the Book of Mormon, we learn how disciples of Christ live in times of war.
+- The greatest events of history are those which affect the greatest number for the longest periods.
+- One of Satan's most frequently used deceptions is the notion that the commandments of God are meant to restrict freedom and limit happiness.
+- Would we not do well to have the pleasing of God as our motive rather than to try to elevate ourselves above our brother and outdo another?
+- We must be careful, as we seek to become more and more godlike, that we do not become discouraged and lose hope.
+- Food production is just one part of the repeated emphasis that you store a provision of food which will last for at least a year wherever it is legally permissible to do so.
+- Build traditions of family vacations and trips and outings. These memories will never be forgotten by your children.
+- Faith in the Lord Jesus Christ is the foundation upon which sincere and meaningful repentance must be built. If we truly seek to put away sin, we must first look to Him who is the Author of our salvation.
+- An almost forgotten means of economic self-reliance is the home production of food. We are too accustomed to going to stores and purchasing what we need.
+- One of the trials of life is that we do not usually receive immediately the full blessing for righteousness or the full cursing for wickedness.
+- Scouting teaches a boy to take care of himself and stand on his own two feet.
+- Surely no child should fear his own father - especially a priesthood father. A father's duty is to make his home a place of happiness and joy.
+- Becoming Christlike is a lifetime pursuit and very often involves growth and change that is slow, almost imperceptible.
+- To love God with all your heart, soul, mind, and strength is all-consuming and all-encompassing. It is no lukewarm endeavor.
+- It is mother's influence during the crucial formative years that forms a child's basic character. Home is the place where a child learns faith, feels love, and thereby learns from mother's loving example to choose righteousness.
+- False thinking and false ideologies, dressed in the most pleasing forms, quietly - almost without our knowing it - seek to reduce our moral defenses and to captivate our minds. They entice with bright promises of security, cradle-to-grave guarantees of many kinds.
+- When you choose to follow Christ, you choose to be changed.
+- I have a vision of homes alerted, of classes alive, and of pulpits aflame with the spirit of Book of Mormon messages.
+- There will always be those little minds who, out of vanity or intellectual display, will attempt to destroy faith in the very foundations of life.
+- Nations cannot endure in sin.
+- It is a fundamental truth that the responsibilities of motherhood cannot be successfully delegated. No, not to day-care centers, not to schools, not to nurseries, not to babysitters.
+- Most of us think of pride as self-centeredness, conceit, boastfulness, arrogance, or haughtiness. All of these are elements of the sin, but the heart, or core, is still missing. The central feature of pride is enmity - enmity toward God and enmity toward our fellowmen.
+- Go on daddy-daughter dates and father-and-sons' outings with your children. As a family, go on campouts and picnics, to ball games and recitals, to school programs, and so forth. Having Dad there makes all the difference.
+- I challenge the homes of Israel to display on their walls great quotations and scenes from the Book of Mormon.
+- The literal resurrection of every soul who has lived and died on earth is a certainty, and surely one should make careful preparation for this event. A glorious resurrection should be the goal of every man and woman, for resurrection will be a reality.
+- In the scriptures there is no such thing as righteous pride. It is always considered as a sin.
+- The scriptures record remarkable accounts of men whose lives changed dramatically, in an instant, as it were: Alma the Younger, Paul on the road to Damascus, Enos praying far into the night, King Lamoni.
+- The great commandment of life is to love the Lord.
+- Students at universities are sometimes so filled with the doctrines of the world they begin to question the doctrines of the gospel.
+- A woman whose life is involved in the righteous rearing of her children has a better chance of keeping up her spirits than the woman whose total concern is centered in her own personal problems.
+- In a home where there is an able-bodied husband, he is expected to be the breadwinner.
+- I love all our Father's children of every color, creed, and political persuasion.
+- Can human hearts be changed? Why, of course! It happens every day in the great missionary work of the Church. It is one of the most widespread of Christ's modern miracles. If it hasn't happened to you - it should.
+- Pride is ugly. It says, 'If you succeed, I am a failure.'
+- Our parents deserve our honor and respect for giving us life itself. Beyond this they almost always made countless sacrifices as they cared for and nurtured us through our infancy and childhood, provided us with the necessities of life, and nursed us through physical illnesses and the emotional stresses of growing up.
+- One of the standards on which your happiness is based, now and in your future, is moral purity.
+- God will not be mocked.
+- The proud make every man their adversary by pitting their intellects, opinions, works, wealth, talents, or any other worldly measuring device against others.
+- Constitutional government, as designed by the framers, will survive only with a righteous people.
+- You cannot help people permanently by doing for them what they can and should do for themselves.
+- Fear of men's judgment manifests itself in competition for men's approval.
+- What does it mean to love someone with all your heart? It means to love with all your emotional feelings and with all your devotion. Surely when you love your wife with all your heart, you cannot demean her, criticize her, find fault with her, or abuse her by words, sullen behavior, or actions.
+- Attractive labels are usually attached to the most dangerous programs, often in the name of public welfare and personal security.
+- The Book of Mormon exposes the enemies of Christ. It confounds false doctrines and lays down contention.
+- The Lord is pleased with every effort, even the tiny, daily ones in which we strive to be more like Him.
+- Young people especially sometimes feel that the standards of the Lord are like fences and chains, blocking them from those activities that seem most enjoyable in life.
+- The fellowship of true friends who can hear you out, share your joys, help carry your burdens, and correctly counsel you is priceless.
+- Our desires, be they spiritual or temporal, should be rooted in a love of the Lord.
+- The founders had a strong distrust for centralized power in a federal government. So they created a government with checks and balances. This was to prevent any branch of the government from becoming too powerful.
+- In general, the more food we eat in its natural state - without additives - and the less it is refined, the healthier it will be for us. Food can affect the mind, and deficiencies of certain elements in the body can promote mental depression.
+- There are blessings in being close to the soil, in raising your own food even if it is only a garden in your yard and a fruit tree or two. Those families will be fortunate who, in the last days, have an adequate supply of food because of their foresight and ability to produce their own.
+- Many a family, in order to make a 'proper showing,' will commit itself for a larger and more expensive house than is needed, in an expensive neighborhood. Almost everyone would, it seems, like to keep up with the Joneses.
+- Young people, you need the wisdom of age, just as some of us older ones need your enthusiasm for life.
+- I cannot recall a time that I did not believe in Jesus Christ.
+- The condition of the physical body can affect the spirit.
+- The seeds of divorce are often sown and the problems of children begin when Mother works outside the home.
+- Time is on the side of truth.
+- Our enmity toward God takes on many labels, such as rebellion, hard-heartedness, stiff-neckedness, unrepentant, puffed up, easily offended, and sign seekers. The proud wish God would agree with them. They aren't interested in changing their opinions to agree with God's.
+- Too often the pressure for popularity, on children and teens, places an economic burden on the income of the father, so mother feels she must go to work to satisfy her children's needs. That decision can be most shortsighted.
+- Wickedness never did, never does, never will bring us happiness.
+- In the beginning, God placed a woman in a companion role with the priesthood.
+- Truth is truth, whether labeled 'science' or 'religion.'
+- Some of the greatest battles will be fought within the silent chambers of your own soul.
+- Essentially, pride is a 'my will' rather than 'thy will' approach to life.
+- Plan to build up your food supply just as you would a savings account. Save a little for storage each paycheck. Can or bottle fruit and vegetables from your gardens and orchards. Learn how to preserve food through drying and possibly freezing. Make your storage a part of your budget.
+- The proud do not change to improve, but defend their position by rationalizing. Repentance means change, and it takes a humble person to change.
+- Many men and women in the world demonstrate great willpower and self-discipline in overcoming bad habits and the weaknesses of the flesh.
+- I have a vision of artists putting into film, drama, literature, music, and paintings great themes and great characters from the Book of Mormon.
+- The Bible sits on the pulpit of hundreds of different religious sects.
+- God's revelation to Adam did not instruct Noah how to build the ark.
+- I testify to you that God's pay is the best pay that this world or any other world knows anything about.
+- Reading the Book of Mormon is one of the greatest persuaders to get men on missions.
+- I rode horseback three miles each way to get to high school, and in bad weather it was a problem sometimes to make my eight o'clock class on time. Like others, I often missed school to help on the farm, especially in the fall, until after harvest, and in the spring, during planting season.
+- No nation which has kept the commandments of God has ever perished, but I say to you that once freedom is lost, only blood - human blood - will win it back.
+- I have seen what the days of tribulation can do to people. I have seen hunger stalk the streets of Europe. I have witnessed the appalling, emaciated shadows of human figures. I have seen women and children scavenge army garbage dumps for scraps of food. Those scenes and nameless faces cannot be erased from my memory.
+- Besides the physical ordinance of baptism and the laying on of hands, one must be spiritually born again to gain exaltation and eternal life.
+- Prayer in the hour of need is a great boon. From simple trials to our Gethsemanes, prayer - persistent prayer - can put us in touch with God, our greatest source of comfort and counsel.
+- Many novels and modern publications are corrupters of morals or distorters of truth.

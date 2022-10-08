@@ -1,0 +1,110 @@
++++
+author = "Jenny Lewis"
+title = "Jenny Lewis Quotes"
+quotes_len = "104"
+description = "the best 104 Jenny Lewis Quotes"
++++
+- When something is coming off of a Neve board and being laid down on tape, it's like a warm blanket for the brain. When you're working in a digital form, it's so harsh; it's almost painful. Your ears get more fatigued if you're mixing all day.
+- When I'm not working is when I tend to freak out a bit. It's hard for me to just stay home.
+- I come from a very uncool profession: being a washed up child actor.
+- I'm constantly dodging people in L.A. There are some people I don't ever wanna see again, but if you live where you grew up, you're running into people constantly.
+- I used to be a huge collector, and my big thing was stickers.
+- When I'm sick of myself, and when I don't know what to say as a solo artist, I can write a song for a movie. When I don't know where to turn musically, being in a band - Rilo Kiley or Jenny & Johnny - the collaborative nature is really exciting.
+- When I was 18, I took a trip to Thailand with a friend. We stayed for a month. Bangkok was very raw for a teenager: there were no cellphones, no Internet, and the only music I had with me was this cassette by Liz Phair. I was writing a lot of poetry, and she embodied a talky style of songwriting that I found very accessible.
+- When I think people like one record more than the other, then someone will surprise me.
+- I learn lessons with every interview I give.
+- It's weird because I am accessible to people on Twitter, and I can choose to read good things or mean things, and people can reach out to me directly and tell me how much they hate me or love the song. It's a very strange new paradigm as an artist to find yourself among this kind of connectivity.
+- When you're in a band, inevitably, someone is siding with someone else, and you're fighting over something that happened in the band five years ago.
+- If I'm not crying while writing a song, I'm not doing it right.
+- I think Chris Martin is younger than I am, but when I met him, I felt like I was talking to my father. It's so strange, that feeling when someone is that famous - you assume that they are either older or better.
+- It's funny how a song can start in your mind, and then when it goes through all the filters, it ends up in a totally different spot.
+- My mother had a great vinyl collection, and she was constantly playing female singer-songwriters. I first learned about classic song structures by listening to them, and Laura Nyro particularly stood out. Her voice was outside what you'd usually hear on the radio; that really appealed to me.
+- I'm not a religious person by any means. But I'm curious.
+- Losing your parent is unlike anything.
+- I had a huge Lisa Frank sticker collection. I traded them.
+- Being in a band is a really magical thing because you've got a family and you operate as this one entity. It's very democratic; everyone is involved in the output. But within that, there can be a lot of disagreements and strife.
+- I didn't know anything about music when I started a band. I barely knew how to play a guitar. I didn't know how to produce records. I learned how to play bass guitar and keyboards in Rilo Kiley. I picked up a lot from my collaborators.
+- I felt like onstage I have to have a certain amount of anonymity, like, personal anonymity, to feel loose and free. When you're up there with people who've known you for a decade, and you make a bad joke and you hear the cackling behind the drums, it's hard to get lost in the moment.
+- As hard as I try to sound tough and dark, I still sound cute.
+- My parents divorced when I was 3 years old. They had a lounge act in Las Vegas, where I was born. The band broke up and the marriage dissolved, and my mother, my sister and I moved to Southern California. And I didn't see my dad a lot growing up; he was on the road a lot. I'd see him every couple years.
+- I can parallel park pretty well - I'm a great driver.
+- Some shows suck, but I always - the show must go on. I learned it from my past as a child actor. The show must go on. You have to just keep on with it.
+- When you're talking about your own music every day, listening to bands, going to festivals, you can kind of lose sight of your initial connection with music. Instrumental music - especially jazz - helps me refocus.
+- That is the true joy of being a solo artist. I can do whatever I want. I can go wherever I want. I can show up with my guitar and my song, and it can sound a hundred different ways. That's the freedom of being on your own. The flipside is: That's you on the cover. If it sucks, it's your fault.
+- The best shows I play, I almost don't even remember off the stage.
+- My favorite days off on the road are typically nowhere, like Bismarck, North Dakota, and you find yourself in a mall, and you're like, 'This is awesome!'
+- It's pretty amazing to write under any circumstances when someone gives you an assignment to write a song, even if it doesn't get accepted. I've written songs a couple of times, some for Disney, that haven't actually ended up in their films, but then you're left with a song forever.
+- I don't feel unlucky in love anymore, and it's not all emo. It's a scary place to be in when you're like: 'What am I supposed to write about now? I don't feel heartbroken, so now what?'
+- I've always tried to get around writing love songs, I guess because I've always had a hard time saying, 'I love you.'
+- Rock n' roll is a pretty fun job.
+- In the past, like for the last Rilo Kiley record, 'Under the Blacklight,' I wore exclusively hot pants because the themes in that record were the underbelly of Los Angeles.
+- You never know how things are going to turn out in a movie. You can imagine a scene one way, and it can turn out to be completely the polar opposite of what you expected. You just have to roll with the punches.
+- I'm typically not a heels person.
+- Rilo Kiley was a rock band, so I wanted my solo records to feel different.
+- I grew up on Loretta Lynn and Dusty Springfield. I remember lying about it; it wasn't cool to listen to country when I was 12.
+- I never envisioned myself as a solo artist; I was always part of a band.
+- There's always a bit of fiction in everything that I write.
+- Insomnia is a very prevalent issue. It's a women's health issue, and I chose to talk about it because so many people have experienced it to varying degrees. For me, I'm doing great now, but it took a lot of work to figure out how to get back to sleep. I had to change some of my habits. I developed some pretty bad sleep ritual habits.
+- When you're in your mid-thirties, the cult of people who have children around you all want you in their cult, and they constantly ask you, 'So when are you going to have a baby?'
+- For me personally, I just try to prove myself in my work. I'm just trying to get better at what I do, and hopefully that will impact women in music, and hopefully the girls in the crowd will see my up there as a bandleader and think, 'Wow, maybe I can do that one day.'
+- I'm not trying to repeat myself or cater myself to one specific group of people.
+- When I was a teenager, I went to Europe on a backpacking trip by myself, and I met a woman who was following Sebadoh. It was the early 1990s, and that was my introduction to indie rock.
+- I am in a constant cycle of selling my clothes at Wasteland and buying from Goodwill. Once or twice a year, I go through my closet and donate everything to Goodwill. It feels like I am recycling my fashion.
+- I'm not always as disciplined as I should be. I don't sit down and write every day, but I should.
+- When you make a solo record, it's you. It's your name. It has to be the right songs for how you feel.
+- I demo all of my songs on Garage Band, where I pretty much play everything - not very well, but I manage to hammer out a drum beat and a bass idea.
+- When I first started touring, we had a crappy van, and we would all share rooms. So for many years as a grown adult woman, I would share a bed with a bandmate, whether it would be Jimmy Tamborello from the Postal Service or Pierre De Reeder from Rilo Kiley, just a pillow barrier between us sleeping on the same bed.
+- I'm more in the Stones camp than the Beatles camp.
+- I come from a duo, actually, quite literally. My parents are Linda and Eddie, and they had an act in Vegas called 'Love's Way.'
+- I can't imagine how people will react to my music. For me, it's a really fluid process from one record to the next, but it's really up to the listener.
+- I have that working-class show-business blood coursing through my veins.
+- I think a lot of musicians play for the playback. I mean, that's the joy of recording - you want to hear what you've done and what you've contributed - but never listening to that playback kind of removes the intellectual part of making music, and it removes the tendency to be revisionist.
+- I would never say anything's over forever. How could you possibly know how you feel? How could you shut the door on anything?
+- I write music, really, to make myself feel better.
+- I think you kind of lose the human aspect when you make things too perfect.
+- I love 'Wowee Zowee.' That was the first Pavement record I bought.
+- In your mid-30s, you have to take inventory, or you'll stumble.
+- I love kids, but there's always time for them later. You can always adopt; you can have a puppy. The songs are my children.
+- I think it's always an adjustment for me, but I do feel like, ultimately, I can kind of write anywhere. It just takes a second to get back in to the groove.
+- My hair looks so good out in the desert, it's unbelievable. It's, like, perfectly not frizzy.
+- When I sit down to write a song, there is no filter. I'm not trying to write for anyone or anything specifically. It's just trying to capture a little piece of your soul - even if it's a really ugly part.
+- I don't write songs, play music and tour, really, for anyone else but myself. It's something that I have to do to stay alive.
+- It's interesting how songs can evolve. Sometimes I'll write a song that feels relevant in the moment, but four years later, I don't want to sing it anymore. Then something will happen in my life, and the song becomes relevant again.
+- I'm always pretty nervous when I do anything! I walk very slowly. I'm very careful.
+- Sometimes people come to my shows and think I'm a Christian artist, and they put their hands up in the air, like they do. But first of all, I'm a Jewish girl from the Valley, and I'm from Los Angeles. It's funny to be misinterpreted.
+- I'm a huge reggae fan. I want to go to Jamaica and make, like, Bob Marley 'One Love' positive songs. That's what the world needs.
+- Sometimes you don't understand what you're going through until you're on the other side of it.
+- It sounds cheesy, but music has saved me in a lot of ways. If I had just continued acting, I don't think I would be alive.
+- I think regardless of where people are from, country music is a through line.
+- If you're a songwriter, you have to do homework. You can exist for a while on the inspiration, but at some point, you have to sit down and have the discipline to write - to finish the poem, as they say.
+- I never intended to set out and be a singer-songwriter. I just sort of became one because I put out my own record.
+- I scored one film by myself, which was the hardest thing I think I've ever done.
+- I think the idea of opening up for a massive band is always better than actually doing it, and having your name on the ticket means more than the actual set.
+- I've always felt lonely, even if I'm in a great relationship or surrounded by my friends and family.
+- You wouldn't want to be in a rock band - trust me.
+- I am a child of digital generation. I have done most of the records with Rilo Kiley on computers, on Pro Tools or other digital programs.
+- My true social media passion is making creepy short movies on Instagram.
+- I think I have a hard time expressing myself in my relationships. I use songs to tell people how I'm feeling. If I can't say 'I love you,' I'll write a song about it and hope that the person figures it out.
+- After Rilo Kiley broke up and a few really intense personal things happened, I completely melted down. It nearly destroyed me. I had such severe insomnia that, at one point, I didn't sleep for five straight nights.
+- I'm an American songwriter, and I write from a very American perspective, and so did the records I grew up listening to.
+- I'm obsessed with old rotary phones.
+- Sometimes things feel hopeless. Not always within my own life - but looking outward, it seems like rough times lie ahead of us. The world seems to be kind of caving in on itself in a lot of ways. But I try to look on the bright side.
+- I have a great work ethic - from watching Lucille Ball, not necessarily my own family.
+- My mother's records were formative for me, but when I became a teenager, I wanted to find songs that she wasn't hip to. She was so hip, though, that I had to go outside rock n' roll - so for about 10 years, I only listened to hip-hop, house and techno.
+- I'm a pretty terrible rapper. I always have been.
+- I'm a late bloomer. It's taken me a long time to find my voice, and I think all the records I've made over the years, I was finding my voice, and that's part of the process.
+- I like babies, but not in the front row. I don't want to sing directly to a baby.
+- I am a huge hip-hop fan, and growing up, I only listened to hip-hop, so I dressed accordingly.
+- It would be nice to create something that's healing rather than slightly creepy and darkly judgmental!
+- You can find me at three in the morning in my living room with a glass of wine and really bad '90s trip hop beats blaring from my headphones.
+- Certainly, we all wonder what is beyond, and when you lose a loved one, I think part of the grieving process includes where that person might have gone or if you'll ever see them again. I think it forces you to look up to the sky, to the cosmos.
+- I felt like hip-hop was my music, it was like my outsider music... but then my mom started answering our phone, 'Yo, what's up.' She was hearing me talk to my friends. I was like, 'No, mom, don't cop the hip-hop talk.'
+- I wouldn't call it a faux pas, but I have about 12 tracksuits. I always travel in a tracksuit. I feel it makes people happy when they see me.
+- I was a big fan of 'Days of Our Lives' growing up.
+- I've gone through terrible periods of depression. But, at the core of my being, there's a strange, out-of-place optimist. Despite what I'm feeling, I'm always able to get up and do my job. Which means the world to me.
+- Songs are really interesting in that way. Sometimes, they grow with you. Sometimes, you outgrow them.
+- I find most modern country virtually unlistenable. I can't relate to the music or the lyrics.
+- The Rilo Kiley song 'A Better Son/Daughter' is my most requested song - especially for people who are at the age I was when I wrote it. It's sort of a mid-twenties lament.
+- I think art doesn't have to be created in a period of misery, but it certainly helps.
+- It really helps me to get into the character of the record when I have a designated look. It just really simplifies things for me.
+- I've always just had sort of a dark take on life, I suppose, and hopefully, the music transcends that in a way.

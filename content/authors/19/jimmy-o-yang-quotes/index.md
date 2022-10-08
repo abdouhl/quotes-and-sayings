@@ -1,0 +1,90 @@
++++
+author = "Jimmy O. Yang"
+title = "Jimmy O. Yang Quotes"
+quotes_len = "84"
+description = "the best 84 Jimmy O. Yang Quotes"
++++
+- It comes from within to not be ashamed of our brothers and sisters who have accents.
+- My dad played my dad in 'Patriots Day' and that's why he thinks that's a good movie.
+- I tried a bunch of things, like Jiu Jitsu boxing classes. I don't know why, but I did.
+- A lot of people go on this journey of finding themselves and then eventually realize that their true self wasn't on the outside but it's always been there.
+- I was competitive ping-pong player. I played in youth tournaments, under the age of 13.
+- Usually when you're Asian and you're on set, you're the only Asian there. Either you're the token Asian or you're the Asian sidekick.
+- With a lot of pop music, they just have one song and a good beat, but there's not necessarily that much talent.
+- I love everyone on 'Silicon Valley.'
+- I always have to brace myself when I visit my parents. My mom often greets me with a slew of nonconstructive criticisms: 'Jimmy, why is your face so fat? Your clothes look homeless and your long hair makes you look like a girl.' After 30 years of this, my self-image is now a fat homeless lesbian.
+- I tried my hardest to be the opposite of a stereotypical Asian student.
+- I was actually fairly athletic and coordinated, but I never played any organized sports.
+- Silicon Valley,' I mean, the comedy is amazing, and it's one of the best-written shows with some of the best talent. I'm really happy to be a part of it.
+- That's what's great about standup comedy: the instant feedback. You get up on stage, you tell a joke, if it doesn't work, come back the next day with a better version of it.
+- Certain stories, like my mom leaving when I was 15-years-old to go back to China because she didn't quite assimilate like we did, that was a moment that was very sad in my life.
+- It's maybe a better thought to change the perception of an accent than to avoid it all together.
+- When a Spanish actor does an accent, that's sexy. When Peter Sellers did a French accent in 'Pink Panther,' that's funny - he got nominated for a Golden Globe. How come whenever an Asian actor does an accent, he's stereotyping?
+- But my comedy hero was Stephen Chow. His deadpan comedy, all the stuff he wrote like 'From Beijing with Love,' it's incredibly funny.
+- Comedy and drama are like two different sports; they both require athleticism but they're different.
+- When I came to America, it was Dave Chappelle and a lot of comedians on ComicView. That was my first exposure to stand up comedy, actually.
+- I tried to be a rapper. I tried to make beats before I got into comedy, and that's still one of my hobbies.
+- I studied economics and thought I wanted to play with the stock market - my dad was a financial adviser - and I was going to go down that path. I was an intern at Smith Barney.
+- Maybe my job on this planet is to make the Asian accent sexy.
+- When you're 1 out of 5 Asian people on TV, all the pressure is on you and you have to represent.
+- I've heard other actors saying they don't want to play a character with an accent at all. To me, that's kind of an insult to somebody like me who did have an accent.
+- I don't read in Chinese very well. Google Translate helps with that. It's cool that I can upload a photo and translate the text from it.
+- I went to school for economics, and especially in Asian culture it's not really a viable job for my family to be an artist.
+- I'm excited to share my experience as an immigrant assimilating to a new country and an outsider stumbling my way into Hollywood.
+- Mother always tries to buy things for a reasonable price. I was never allowed to buy things at full price. Probably, it's rooted in the Chinese mentality. We are very thrifty.
+- I worked at Big 5 Sporting Goods, selling shoes and stuff like that, for a couple of summers.
+- I don't know why people feel the need to do this to me, but my friend asked my dad, 'Aren't your proud of Jimmy now that he's a successful actor?' And my dad was like, 'No, not really. I wish he was a scientist.' I guess scientist is more noble in the Asian culture.
+- Just because I don't speak English with an accent anymore doesn't mean that I'm better than the people who do.
+- The great thing about the comedy world is that everybody is somewhat of an outsider. That's the community where outsiders feel like they're insiders.
+- To get noticed you need to work a lot and have a bit of luck. And I'm here to say that it's possible.
+- When I was graduating college with an economics degree, I had no idea what I wanted to do. I was kind of scared. So I was just trying everything.
+- Nate Dogg is my favorite artist. I cried more when he passed than when Michael Jackson did.
+- My mom worked as a manager at a high-end fashion place, so she was always a pretty stylish woman.
+- Immigrant characters now are getting much more well-rounded, and they have personalities, which is important because we do need to portray immigrants in a humanizing way.
+- I obeyed my parents' rules inside our Chinese household while I pursued my dreams in the American world outside.
+- Nico Santos I've known from Bay Area stand-up, and he lives right by me so we hang out all the time.
+- If you want to do standup, you have to go on stage. That's the only way to get good - stage times.
+- My job is to go into that audition and be good enough of an Asian actor - or an actor in general - to land that role so they don't have to go out and hire a white guy. My job is to make sure I capitalize on these opportunities that other people created.
+- I was always pretty good with making deals. When I was in sixth grade, when Pokemon cards were hot, I might have started with, like, three or four cards, and then at the end of the year, through trading with my friends and everything, I ended up with the biggest card collection in my school.
+- I just want to keep working and have a roof over my head.
+- When you are in America, at least for me, as an immigrant, I try to be as Americanized as I could. I just want to be an actor, I don't just want to be an Asian actor necessarily.
+- My publicist actually told me about the book. She's half-Indian, half-Dutch, and she was like, 'You've got to do this book. It's called 'Crazy Rich Asians.''
+- But I try to play everything very authentically, even if it is an accented immigrant, Jian Yang, that I play on 'Silicon Valley.'
+- One of the hard things coming from an immigrant family - or any family that doesn't believe in the arts - is that you have to disappoint your parents. That's hard for people to do if you're a good kid.
+- It's a fine line between hack and good comedy.
+- I understand the whole constant foreigner stereotype, but for me it's important to portray immigrant characters like Jian-Yang and Danny Meng with humanity.
+- I was first introduced to Kiesza when I saw her perform 'Hideaway' on Jimmy Kimmel's show. It was the most incredible thing I've ever seen.
+- I guess I've lived my whole life as an outsider.
+- I think you have to experience life and then pull certain experiences into your act and your character's life, whoever you play, so you're full.
+- I have some scripts, I'm putting a couple of projects together with people I want to work with. I think that's the most exciting part, when you can hopefully create your own content and find the people that you love that you get to work with.
+- Look, to be honest, when certain movies like 'Ninja Assassin' came out, that had a sexy, sexy Asian man with a six-pack, that made some people think, 'Maybe I should go out there and date an Asian dude.' And that did pretty good for us in a way of representation.
+- I'm a big Clippers fan. I have season tickets to the Clippers. That's the only team I really root for in any sport.
+- I was doing stand-up at the Improv and when the host introduces you, 'OK, the next comedian, you've seen him on 'Silicon Valley.' People always clap. They really watch the show and they are fans of it. And then they said, 'You are also going to see him in 'Crazy Rich Asians,' and I did not expect this, but the applause was even louder.
+- When I was on the playground, people were calling me Jackie Chan.
+- If you think about writing a book, or when I did, it seems daunting, but when I began writing, it just started flowing.
+- As far as stand-up, a lot of Asians and Chinese are not as apt to stand-up, especially the older generation since they don't even know what stand-up is.
+- I came to this country when I was 13 years old, I couldn't really speak English, and I had an accent.
+- I've learned to not have expectations. I think the first movie I did, I was like, 'Oh my God, I'm going to win an Oscar!' You can't do that, you're going to let yourself down.
+- Whatever ethnicity you are, yes, absolutely you have to be proud of who you are man. I am really really proud to be Asian, I got to say.
+- I spoke English when I moved to the U.S.A. but I had an accent. To get rid of it, I watched a lot of TV-shows and tried to repeat after the tv-hosts. I liked shows about hip-hop.
+- My Chinese name is Man Shing which means 'ten thousand success.' It's a name that's sure to set me up for failure.
+- It's so great when there's a catchy song that's fun and easy to listen to, but there's also a real artist behind it.
+- You'd see Asian faces on TV, but it was so rare, especially in the comedy space - that for me was Ken Jeong doing stand-up... it's amazing that I can call him a friend now and a colleague.
+- I remember the first couple of TV things I did, I was really nervous.
+- I went to college as an economics major because that was the easiest major that could still please your Asian parents, and then, much to their dismay, I became a stand-up comedian.
+- I'm generally pretty excited about new gadgets, new tech, A.I., stuff like that.
+- Normal people don't become stand-up comedians.
+- For once in my life, I wanted to flaunt my Asian side instead of hiding it to fit as somebody else... 'Crazy Rich Asians' made me want to get in touch with my roots, instead of running away from them.
+- I know Asian actors out there won't even audition for a role that have an accent. But for me, I was the kid with an accent. I still have an accent to some degree.
+- You know something like 'Patriots Day' that I did a few years ago, which is a drama, is very different than comedy. That was super rewarding. I want to do more of that and also my own writing.
+- Growing up, my dad was 'get a real job, don't go pursuing your dreams, that's how you become homeless.' So, do I pick my family or do I pick my own happiness, and how much does my own happiness depend on my family?
+- When I quit my internship and started doing standup to pursue my dreams and do that full time - I feel like that's when I 'Americaned.'
+- When 'Chappelle's Show' came out, if you didn't watch it on Wednesday night, you had nothing to talk about in high school the next day.
+- One of my first big paychecks, I used it to buy a Rolex. I bought a used 1968 vintage Rolex. I was too cheap to buy a new one.
+- Other Asian actors, especially American-born actors, sometimes shy away from immigrant roles.
+- I think in China they have a camera for every street corner, and if you jaywalk, they don't give you a ticket. They put you on the big TV screen to shame you.
+- Why is it when a white actor or even a black actor does a British accent, it's considered art?
+- I went back to Hong Kong for the first time in 17 years and I was culture shocked in Hong Kong.
+- When I became an American citizen, nothing's changed because I'm still Asian.
+- I hope I can get to more and more of the Chinese audience and kind of lead the way to maybe, y'know, inspire seems like a big word, but y'know... inspire to get people into entertainment because I think we can be just as good as anybody else.
+- I'm just a quirky, funny dude.

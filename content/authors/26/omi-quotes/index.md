@@ -1,0 +1,25 @@
++++
+author = "Omi"
+title = "Omi Quotes"
+quotes_len = "19"
+description = "the best 19 Omi Quotes"
++++
+- I'm really looking forward to working with Meghan Trainor because that's in the pipeline, and I'm eager for it to really happen.
+- I have an appreciation for everywhere I've been so far.
+- I'm not looking for a 'yes' woman, but a strong person who knows when to be objective and when not to be.
+- My stage name is actually my nickname given to me by my dad when I was a baby.
+- We've seen many heroes from Jamaica, you know, and to be put in that class or to be looked upon on that level is overwhelming. It's pretty big shoes to fill, you know. I'm a size eight, but I'll try my best.
+- Fan reactions are crazy sometimes.
+- I try to stay focused.
+- A lot of people have come with 100 songs and never had the impact that I have with one, and I'm well aware of that.
+- I love hats. On tour, it's difficult to stop in at a barber. It's good to have a hat nearby.
+- I've never hidden the fact that I'm Jamaican; I will never disown my roots or influences.
+- My father had a passion for love. It's mostly what he talked about in his songs, and I still have his old records today.
+- The thing about metaphors is that, if you give them away, you give away the mystery.
+- I am not a dancehall artist, and I am not a reggae artist.
+- It's not every day you get to do what you love and have a major story behind it.
+- Fame is a distraction sometimes. You know, it's a distraction if you let it. So it's very important to stay focused, stay very connected to your roots.
+- Creatively, I've always wanted to be different as it relates to my craft, and reggae, being a part of my culture, makes up a percentage of that uniqueness. The only definition I can think of to describe my style is 'OMI.'
+- The quality of a timeless song is that it's catchy, meaningful and relatable.
+- My mom has been my support system from day one. Admiring the type of person she is gives me a sense of what to look for in my ideal cheerleader when the time comes.
+- I think everybody wants someone who understands them and is able to compromise and meet them halfway. I mean, it goes both ways, you know?

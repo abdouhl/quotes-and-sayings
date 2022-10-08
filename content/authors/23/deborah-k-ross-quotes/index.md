@@ -1,0 +1,17 @@
++++
+author = "Deborah K. Ross"
+title = "Deborah K. Ross Quotes"
+quotes_len = "11"
+description = "the best 11 Deborah K. Ross Quotes"
++++
+- People - I always have energy for people.
+- We have a First Amendment right to burn the flag as symbolic speech. The Constitution protects that right. To spend time and effort on this is ridiculous.
+- I have a lot of favorite songs. One of them is Lyle Lovett's version of 'If I Needed You.'
+- I'm kind of boring - I like to watch the 'Newshour' on Friday nights.
+- The Second Amendment is very important, but we have to have commonsense gun safety.
+- People must have the right to freely practice their religion. It is written in our founding documents and at the core of our values. If you look at my record, you'll see I safeguarded those values.
+- Flag-burning is plain wrong, and I'll stand up for free speech - even speech I don't like.
+- We need to have law enforcement and the African-American community work together for the safety of everybody.
+- Unfortunately, too few women take the risk of running for political office or assuming positions of influence. As a result, our voices are not part of the conversation yet alone the final decision.
+- My nickname is Deb for people who really know me. But the only real nickname I've ever had was, my dad used to call me 'Ace.'
+- I am convinced that my dark-horse candidacy helped pave the way for women and members of underserved communities to seek political office.

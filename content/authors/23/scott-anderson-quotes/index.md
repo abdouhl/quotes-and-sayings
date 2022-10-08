@@ -1,0 +1,18 @@
++++
+author = "Scott Anderson"
+title = "Scott Anderson Quotes"
+quotes_len = "12"
+description = "the best 12 Scott Anderson Quotes"
++++
+- As a journalist, I try to avoid talking to American diplomats, because I am stunned again and again by just how little grasp they have of what people are really feeling in a country. Especially CIA guys. Maybe they're just really good at playing stupid, but I don't think so.
+- Iraq is going to go down as one of the greatest blunders in American history.
+- Just as with homicide, those in the 'passion' category of suicide are much more likely to turn to whatever means are immediately available - those that are easy and quick.
+- Waitresses, soldiers, rickshaw drivers, old ladies selling vegetables - my father would schmooze anybody. He was Clintonesque before the word existed. And, of course, it paid dividends. Ill-tempered guards at the most notorious border crossings waved him through with cheery smiles. Haughty maitre d's fawned over him.
+- I'd been to a number of war zones before in my life, but I had never been in one as terrifying as Chechnya.
+- In keeping with original Mormon teachings, much of the property in Hildale and Colorado City is held in trust for the church. Striving to be as self-sufficient as possible, the community grows a wide variety of fruits and vegetables, and everyone, including children, is expected to help bring in the yield.
+- The principle of plural marriage was revealed to the Mormons amid much secrecy. Dark clouds hovered over the church in the early 1840s, after rumors spread that its founder, Joseph Smith, had taken up the practice of polygamy. While denying the charge in public, by 1843 Smith had shared a revelation with his closest disciples.
+- Even if he was happier in Asia than he'd been in Latin America, the wanderlust still worked on my father's insides like a disease. One of the most recurrent memories of my childhood is of him sitting in his armchair in the evenings, poring over atlases the way other fathers read newspapers or books.
+- The peculiarities of my childhood, of constantly moving through so many different cultures, of always being the outsider, may have made me extraordinarily self-sufficient, but it had also bred a certain detachment, a sense that the world was a place to explore rather than truly inhabit. This manifested as a kind of shyness, even timidity.
+- My father suffered from chronic wanderlust. When I was 14, he set out on a yearlong road trip across Europe and Asia - and decided to take me along for company.
+- The modern Middle East was largely created by the British. It was they who carried the Allied war effort in the region during World War I and who, at its close, principally fashioned its peace. It was a peace presaged by the nickname given the region by covetous British leaders in wartime: 'The Great Loot.'
+- So many times in the history of Mormon polygamy, the outside world thought it had the movement on the ropes only to see it flourish anew.

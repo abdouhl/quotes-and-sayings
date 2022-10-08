@@ -1,0 +1,74 @@
++++
+author = "Sue Monk Kidd"
+title = "Sue Monk Kidd Quotes"
+quotes_len = "68"
+description = "the best 68 Sue Monk Kidd Quotes"
++++
+- Sometimes I was so busy being tuned in to outside ideas, expectations, and demands, I failed to hear the unique music in my soul. I forfeited my ability to listen creatively to my deepest self, to my own God within.
+- I knew from reading about Sarah Grimke that she'd been given a handmaid to be her personal slave and that her name was Hetty. The only other fact I knew about her was that Sarah taught her to read: They conspired in a very subversive way, by locking the door and screening the keyhole.
+- There's a gap somehow between empathy and activism. Rev. Dr. Martin Luther King, Jr. spoke of 'soul force' - something that emanates from a deep truth inside of us and empowers us to act. Once you identify your inner genius, you will be able to take action, whether it's writing a check or digging a well.
+- Stories are amazing and powerful because they can resonate with people depending on their needs and experiences and speak truths we need to hear in that moment in time.
+- I was a very good nurse, but I burned out after eight years or so because it wasn't what I truly wanted to do. Writing is what I belong to.
+- I first saw 'The Dinner Party' in 2007 at the Brooklyn Museum in New York City. While perusing the Heritage Panels, which honor 999 women who have made important contributions to Western history, I came upon the names of two sisters, Sarah and Angelina Grimke.
+- I think many people need, even require, a narrative version of their life. I seem to be one of them. Writing memoir is, in some ways, a work of wholeness.
+- Novels attempt to render human experience; that's really all they are. They are meant to convey empathy for the character.
+- I learned a long time ago that some people would rather die than forgive. It's a strange truth, but forgiveness is a painful and difficult process.
+- I've always been a journal-keeper. I've always tried to write about how I'm experiencing life, and my feelings and thoughts.
+- I had begun to write novels because of a fierce, self-serving impulse in my own heart. I had not considered the potential in a book for felt communion, the bright largesse of intimately participating in the lives of other people.
+- I read usually in the morning, in my kitchen at breakfast - a short reading time, usually poetry. I read in bed every night. I usually get in bed pretty early with a book, and I read until I can't prop my eyes open anymore - sometimes rather late.
+- I grew up in the American South and came of age in the 1960s, an incredibly turbulent time. It was as if the seams of American life were being ripped apart with riots and protests.
+- The True Self is not our creation, but God's. It is the self we are in our depths. It is our capacity for divinity and transcendence.
+- I prefer to read print books. Maybe I'm just a little old-school. I do read e-books.
+- I feel like we need to be aware of the ways we use and misuse religious dogma: whether it takes us deeper into love and inclusion or it separates us.
+- I want my words to open a portal through which the reader may leave the self, migrate to some other human sky and return 'disposed' to otherness.
+- I can't explain exactly why it lives within me for so long and passionately. But race matters to me; racial equality matters to me, as does gender. There is something about these kinds of social injustices that go to the deep of me.
+- 'Traveling with Pomegranates' is a very personal, very honest story about my relationship with my daughter and Ann's with her mother.
+- On weekends, I sit in a lounge chair on my balcony. I love to be outside when the weather's right. I can stay there pretty much all day.
+- People who think dying is the worst thing don't know a thing about life.
+- I sometimes start keeping a journal about the writing process itself. Particularly when I get the ideas, and I am trying to brood over the chaos phase. In writing a novel, you really have to brood over a lot of chaos of ideas and possibilities.
+- It's always been my hope that I would write a story that would inspire and would connect with people in a way that would touch hearts.
+- I want to believe that while we may sometimes read in the misguided pursuit of preserving our separation, there is a greater impulse inside us that compels us to read in search of the common heart.
+- All I knew about bees when I started to write 'The Secret Life of Bees' was that they can live in a wall of your house, and that they make this incredible thing that I loved.
+- I'm always captivated by stories of women who find a way to be daring - misbehaving women.
+- I have a fondness for historical fiction, something wondrous like 'Wolf Hall,' but I'll read most anything as long as the story grabs my mind or my heart, and preferably both. You would be hard pressed, however, to find science fiction on my shelves.
+- For me, writing a novel goes on for years, and the solitude goes on, too. It tends to swallow me at times. I know it's a problem when my husband sends the dog in to retrieve me.
+- I actually grew up in a house in which bees lived in one of the walls, and they lived there 18 years, in fact, so it wasn't a fleeting thing.
+- Gender and race got very entwined in the 19th century, as abolition broke out, and then women wanted the right to speak about it.
+- I think there must be a place inside of us where dreams go and wait their turn.
+- There are so many different things out there trying to hook our attention, we writers have to be very selective and make certain that it is coming from inside out, not outside in.
+- A lot of time you write out of some unconscious place. I try to trust what is coming and where it wants to take me.
+- I have an affinity for writing in the first person. I love the intimacy of being dropped inside the character.
+- 'The Secret Life of Bees' was my first novel, so I had no process. I was flying by the seat of my pants, as they say, trying to understand how I, as a novelist, would work with story.
+- I came to believe that my true identity goes beyond the outer roles I play. It transcends the ego. I came to understand that there is an Authentic 'I' within - an 'I Am,' or divine spark within the soul.
+- When compassion wakes up in us, we find ourselves more willing to become vulnerable, to take the risk of entering the pain of others.
+- With pencil, you can always erase.
+- I've noticed that most people tend to go through life preserving their differences from others.
+- Unraveling external selves and coming home to our real identity is the true meaning of soul work.
+- We have to learn not to feel guilty about letting our imagination browse around, and you know, in writing fiction particularly. But I think, in any kind of writing, we have to learn to allow ourselves to approach it in a contemplative way.
+- Every writer has their rituals. For me, it's morning walks along the beach. And then, in my study I have a huge painting of the Black Madonna hung over my desk, and quite a few pictures of Mary around me for inspiration.
+- I think the word 'freedom' is beautiful, not so much in its phonics, but just in the power of the word itself.
+- When I wrote 'The Secret Life of Bees,' I was writing about civil rights.
+- In the early 1800s, religion was often used as a way to keep slavery in place. Slaves were forced to attend the church of their owners, listen to selective dogma that kept them obedient and subservient.
+- I like to have a title before I start writing.
+- Reading was a huge part of my life as a child - we were a family of storytellers.
+- I'm a big believer in the way ritual can put us in connection with our spirituality.
+- I vividly remember the summer of 1964 with its voter registration drives, boiling racial tensions, and the erupting awareness of the cruelty of racism. I was never the same after that summer.
+- Empathy is the most mysterious transaction that the human soul can have, and it's accessible to all of us, but we have to give ourselves the opportunity to identify, to plunge ourselves in a story where we see the world from the bottom up or through another's eyes or heart.
+- Giving voice to marginalised characters is extremely important to me. I want to explore the pain of disenfranchisement, the social strata and boundaries we create and how to make them more permeable.
+- I never know how to give advice to a writer because there's so much you could say, and it's hard to translate your own experience. But of course, I always try. The main thing that I usually end up saying is to read a lot. To read a great deal and to learn from that.
+- I write in a journal occasionally. But it is not a daily discipline for me.
+- I think books with spiritual themes simply point to the deeper mysteries of life - to what lies beyond us, to what's hidden inside of us, or perhaps to an understanding of what truly matters.
+- Here is where our real selfhood is rooted, in the divine spark or seed, in the image of God imprinted on the human soul. The True Self is not our creation, but God's. It is the self we are in our depths. It is our capacity for divinity and transcendence.
+- Gradually it occurred to me that we spend a great deal of life asleep and that dreams are little narratives, little stories. I thought, 'Who's choreographing this stuff?'
+- I do read a poem almost every morning. Unless I'm really, really late, I have to get my poem in.
+- I eventually found that the soul is more than an immortal commodity to win and save. It is the repository of the inner divine, the truest part of us.
+- I got my Bachelor's degree in nursing and worked nine years - even taught nursing in a college - before I stopped and said to myself, 'This is not who I am. I am not really a nurse inside. I'm a writer.'
+- I don't go in search of ideas; I try to let them find me.
+- Writing in the voice of an American slave felt like I was biting off something very large.
+- My stories have a deep spiritual core because I have a deep desire to understand things of the spirit, but yet I don't think I've written these stories from any kind of specific religious agenda because I don't think that would work.
+- I learned a long time ago that some people would rather die than forgive. It's a strange truth, but forgiveness is a painful and difficult process. It's not something that happens overnight. It's an evolution of the heart.
+- I grew up in Georgia, in a small town in the southwest corner of Georgia, actually, called Sylvester.
+- I was a Nancy Drew girl. Also Grimms' fairy tales.
+- I have an old dog named Lily, and she's a black lab.
+- Due to the sweeping time frame and the voices moving back and forth, the outline for 'The Invention of Wings' was the strangest one I've ever done. I created six large, separate outlines, one for each part of the book, and hung them around my study.
+- As an adolescent, I went to charm school, where I learned to pour tea and relate to boys, which, as I recall, meant giving them the pickle jar to unscrew, whether it was too hard for me or not.

@@ -1,0 +1,62 @@
++++
+author = "Donny Osmond"
+title = "Donny Osmond Quotes"
+quotes_len = "56"
+description = "the best 56 Donny Osmond Quotes"
++++
+- I don't want my album coming out with a 'G' rating. Nobody would buy it.
+- Yes, I have my standpoint, but I try to follow the life of Christ and he was very non-judgmental. It's not my position to judge. It's God's position to judge.
+- You have to believe in yourself, otherwise you can't do it. If you don't believe in yourself, how do expect anyone else to? Because ultimately, you're the one who has to do it.
+- I try to be a good guy and I fall short sometimes, but I use Christ as an example.
+- I'm an entertainer. I get up on stage and I try to make people enjoy my music, and that political arena - I'm going to stay out of it, right out.
+- A lot of people think that there has to be extreme continuity in an album, but if you look at my background, it's variety! I want to see some variety in an artist, I want to be entertained, I want some depth. Show me some different styles!
+- Knowing what I know now and what I have been through, would I do it the same? I look at the alternative - a very simple life. It would have been nice to have a simple life.
+- I look at Justin Bieber and my heart breaks for him, because I know what he's going to go through. He knows it. Everybody knows it.
+- I never smile unless I mean it.
+- We have a water purifier, so we drink a lot of it. As a singer, especially in Utah, you have to hydrate constantly.
+- If you're climbing the ladder of life, you go rung by rung, one step at a time. Don't look too far up, set your goals high but take one step at a time. Sometimes you don't think you're progressing until you step back and see how high you've really gone.
+- Of course this is Vegas and it is the melting pot for all over the world, but people from all over the world know Donny and Marie. It is amazing. I have been in the business a long time to realize careers can be fleeting. Five years is a long career nowadays for some people, and here we are still going strong after 40 years.
+- This whole head of the home thing has been blown way out of proportion. Some guys just take it way too far. Some parents take it way too far. Yet children need guidance. They need a parent to help and guide them. They also need a friend. They need a confidant.
+- I got fitter when I did 'Joseph and the Amazing Technicolor Dreamcoat.' I wore a loincloth - that's a lot of motivation!
+- I go to bed late. My mind starts going at night - that's when those creative juices begin flowing.
+- Years ago, I was performing, and people kept calling out for 'Puppy Love' and I just didn't want to. Then I thought I'd have some fun, so we did this insane heavy metal version of it. The applause was polite.
+- Sometimes people take it for granted that they had success, especially nowadays when you have instant stardom. A lot of people feel entitlement and nobody is entitled to anything.
+- I didn't grow up with Broadway music. My mother played Perry Como, while I listened to Andy Williams records. Later on it was Cream, Grand Funk Railroad and lots of R&B like the Isley Bros. and Parliament.
+- When you record an album and it goes platinum... yeah, you're in the studio and you work hard for months, but it's not like your whole body hurts. Maybe you get a little hoarse and tired. But on 'Dancing With the Stars,' everything hurts.
+- I tried Botox once. Never again. It made my forehead freeze.
+- When I was 20, 21 years old, I had just got married. Put yourself in my wife's shoes. All of these fans all across the world would have Donny Osmond burning - record-burning parties. They would put my albums and burn them.
+- I was never considered cool throughout my teens: a very important time to be accepted by someone, especially your peers. Yes, I had all the screaming women, but the guys hated my guts.
+- I'm going to be true to what I want to do, because if I care what people think about me, I'm a puppet. Which I have been in my life. And you can't live life that way, man!
+- Maybe I am a little bit guilty of trying to convince myself that I am cool to this point - even today. But I am so much more healthy than I used to be in my twenties, because I was not accepted at all.
+- A belief in God is vitally important, not just in show business, but stability in life. You know, to recognize deity is the most important thing that you can do. I mean, it comes to the Ten Commandments. They weren't ten suggestions. They were Ten Commandments.
+- I love cranberry juice, but I'm not a coffee drinker - as a Mormon, I avoid caffeine.
+- I believe in the institution of marriage. Of course being a Mormon, we believe in eternity rather than just till death do us part. If you really try hard, if you make it work, it's blissful. But I also know a marriage that isn't working can be painful.
+- With success came an ever-growing burden of responsibility. I lived with a near-constant low-level anxiety that I would make a mistake that would not only threaten my career, but also my brothers' - not to mention the livelihoods of many people who work with us or for us.
+- My political ideas and things like that, even my religion, I try to keep close to me because it's a personal thing, and I don't shove it down people's throats. I don't condemn any artist that wants to do that, like the Baldwins. That's their choice. But in my world, I'm just an entertainer.
+- I'm like everybody else. I get tired sometimes.
+- I love living in Utah. I was born here but raised in L.A., but we decided about 13, 14 years ago to come here to Utah.
+- When there's an accident, we all have to slow down and watch the accident. We all have to be a little voyeuristic. I mean, look at the world we live in now, with all these 'Big Brother' shows. We're all a bunch of voyeuristic people.
+- I wish I could dance like Michael Jackson. I'd love to be able to have my life exactly the way it is, but with his dance moves.
+- Sometimes when you have multimedia, people use it too much. It has to be a tool and not the end product, if you can use it as a tool. The same thing apples when you are recording. We had this problem in the 80's, we got so computerized there was no heart and soul in the music anymore.
+- I could play it safe by recording songs that are familiar, but am I expanding myself as an artist by doing covers? It's a catch-22. It's called show business: The word 'business' is in it, and you've got to be a businessman. But then again, you have to be true to yourself as an artist.
+- I am not going to condemn anybody. That's where religion gets a bad name, when people get holier than thou. We are all human. If my children make a mistake, I want them to know it is all right and they should try harder next time.
+- It's a natural phenomenon that when you hit as a little kid, as a teenybopper, we'll call it, everybody who used to like you back in that period of time grows up and they leave you back there.
+- I am fine with 'Puppy Love.' I hated it for a while. But I still sing it. I have a country version, a sexy version and a cheesy nightclub version. I am trying to infuse it with maturity. I will never escape that song. I will always be Mr. 'Puppy Love.'
+- It's a lot of work to keep reinventing yourself and coming up with new stuff, but that's what it takes to be in show business.
+- My father instilled in me the attitude of prevailing. If there's a challenge, go for it. If there's a wall to break down, break it down.
+- Well, unless you've suffered from panic attacks and social anxiety disorders, which is what I was diagnosed as having, it's hard to explain it. But you go on stage knowing you're actually physically going to die. You will keel over and die.
+- Romance is alive and well in America, but the 50 percent who can't make it work fail because of selfishness. It gets down to that. You can't oversimplify it because every situation is so complex.
+- Well, I think it's kind of interesting how the Osmond name has been really seen on both sides of the pendulum. There's obviously the bubblegum side, but for people who really know about music, it's clear on the other side. As a matter of fact, I find it quite ironic that Metallica used to cover 'Crazy Horses.' It was a cutting-edge album.
+- Our father taught us such a work ethic that if there's something worth doing, it's worth doing well.
+- Thank goodness I had a great family growing up, a great foundation. But I will say my faith, my parents, my family, all that stuff is very, very important. And I'll say that until the day I die.
+- You know, I always wondered what it would have been like to just go to school, play football with the guys and go to the prom. Just like a 'regular person.'
+- I had a rough spot about being a goody-goody Mormon, and not drinking or smoking. But I'm kind of grateful I've got this image now. There are no skeletons in my closet. What you see is what you get.
+- I'd like to work with Justin Bieber. He's talented and he's so young. I know what he's going through. I've lived what he's living through right now. Working with him would complete a circle of sorts for me. And he might find it a worthwhile experience himself.
+- 'Donny and Marie' was a great experience. I tried so hard to be a great talk show host but it's all about relaxing and enjoying it. Marie and I finally figured that out. I would have liked it to continue but I'm kind of glad it's over because of the phenomenal workload.
+- Success sometimes can really bite you in the shorts.
+- Here's the mark that a lot of people miss nowadays. Producers missed. They leave out the heart and soul. And that's what I learned from Sammy Davis, Jr., from Frank Sinatra, is when you went to go see those shows, you got to know them.
+- I don't have a lavish lifestyle with expensive cars.
+- You're an island no matter what you do. I think it's very dangerous to use popularity as your identity in life. So you have to really know who you are inside, the core person, and follow what is true rather than follow what is hype.
+- I went from an innocent child to a national television star. My career took on a life of its own.
+- The mindset of chasing that next #1 record doesn't exist for me anymore. It's more about being a well-rounded entertainer than being a pop artist. Obviously, it would be wonderful to have a hit record but I don't base my happiness on that anymore. It's about the accomplishment of a project that satisfies me. I just want to enjoy the ride.
+- You always draw from your roots. I'm influenced by everything I hear and see, and that includes music today, but obviously I go back to my early influences: Stevie Wonder, Parliament, Earth, Wind & Fire, Ohio Players, Average White Band. Those kind of artists are what I look to. When I hear that stuff on the radio, I turn it up!

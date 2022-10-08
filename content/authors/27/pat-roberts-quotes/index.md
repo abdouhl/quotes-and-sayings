@@ -1,0 +1,16 @@
++++
+author = "Pat Roberts"
+title = "Pat Roberts Quotes"
+quotes_len = "10"
+description = "the best 10 Pat Roberts Quotes"
++++
+- Despite the generous rewards that state juries dole out, in many cases, victims receive less than 50 cents on the dollar in settlements with the lawyers taking the rest. This is not justice.
+- Mr. President, it may surprise my colleagues, but I am no fan of federal disaster programs for agriculture. They are difficult to pass and often a disaster to implement.
+- First, I have the privilege of being Chairman of the Senate Intelligence Committee. It is not an oxymoron I assure you.
+- I know there is moral outage in regard to Mr. Milosevic, and that is certainly justified. But what about our response?
+- Security for agriculture merits serious concern by not only the agricultural community but our nation as a whole. The risk to the U.S. food supply and overall economy is real.
+- We need to continue our full support of the nascent Iraqi government by helping to rebuild their economic infrastructure and maintain security while training the Iraqi security forces.
+- We will fight evil, but we will do it from above 15,000 feet.
+- With our Reserve and Guard units playing increasingly important roles in the war on terror and in Iraq, it is unacceptable to make them jump through any unnecessary hurdles.
+- I full well realize that politics is a rough and tumble business, but politics should not be reduced to lobbing partisan hand grenades. Politics is not war. Terrorism is.
+- Throughout the world, terrorists are actively seeking their next recruit. Alarmingly, terrorist organizations are increasingly targeting school-age children as the next generation of terrorists.

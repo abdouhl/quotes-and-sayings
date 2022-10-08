@@ -1,0 +1,28 @@
++++
+author = "David Gregory"
+title = "David Gregory Quotes"
+quotes_len = "22"
+description = "the best 22 David Gregory Quotes"
++++
+- I set up playdates, and I'm a morning greeter for the car-pool line. I also make albums with the family photos. When the kids get older and go on their way, we'll have all those pictures to revel in.
+- I'm very grateful for the experience at NBC.
+- I find myself very drawn to the experience of church. I love to be in a surrounding that's so welcoming. People come shake your hand. That's not always the case in most synagogues I've been in. I also find more of an emphasis on how to live and grow as a person. And I have to say, I'm very inspired by Jesus.
+- What's positive is moving from a place of growing in faith to really feeling more grounded in faith, to understand that faith is hard, that I'll stumble, that I'll make mistakes, that I'll sin. But, that's part of being on a faith path; it's part of being a human being.
+- As a journalist, I've always treaded carefully about being Jewish and caring a lot about Israel and having that not become too big of an issue that could affect my journalism. But I also don't think it's essential to my Judaism, as I think it might be for some other people.
+- I don't think there's any reason in journalism not to approach stories we cover with humility, empathy, compassion, and intellectual openness. I mean, I think those are just important human traits. I don't think that precludes scrutiny, negativity, where it's appropriate.
+- I don't think you mess around when you talk about tales of valor.
+- Growing up in the San Fernando Valley, I grew up around a lot of Jews. I grew up culturally Jewish, ethnically Jewish, but without real belief and without a strong faith.
+- I'm a journalist; I love doing interviews, and I hope that will continue.
+- We are committed to raising our children as Jews. I knew that it had to start with me at a greater level, at a deeper level, if it was going to be a meaningful example to them.
+- I've covered Israel just as I cover other politics.
+- Whatever you think of George W. Bush, he left office with his faith intact, and I respect that.
+- On Sundays, I'm up at five and in the office by six. After the show, around midday, I flip the switch, and it's all family. Our kids play sports, so we're running around.
+- My wife loves 'Scandal,' and I'm hooked on 'Homeland.' Sometimes I ask news makers, off the record, what rings true about those shows and what's ridiculous.
+- As a Jew, I recognize the importance of Israel historically, liturgically: its place in our history and in our sacred texts. I fully recognize and appreciate that. I just think that, for me, a sole focus on Israel gets in the way of the pursuit of a relationship with God and a more spiritual existence within Judaism.
+- I think a lot of Jews make Israel the centerpiece of their Judaism. It becomes the centerpiece of their Jewish existence and of their faith. I have always felt that that's not for me.
+- As much as I miss the work, I don't miss NBC. I don't miss being there. It was just the wrong atmosphere for me.
+- I don't know that I believe that God is in control of everything that happens. As a Jew, I believe that we have free will and we are responsible for our actions. But I guess it's something I'm still probing.
+- I'm in the business, as a journalist, of asking tough questions.
+- My father-in-law was a nuclear-submarine captain. My father was in the military.
+- One thing I do believe is I'm a believer in the presence of God. I believe that God is close. Whether it's in joy, pain or personal failure, I believe that God is close. That much I feel in my life.
+- I think that there's a strain in journalism that believes that anyone who surrenders him- or herself to faith and to belief necessarily checks reason and rationality at the door.

@@ -1,0 +1,20 @@
++++
+author = "Sinclair Lewis"
+title = "Sinclair Lewis Quotes"
+quotes_len = "14"
+description = "the best 14 Sinclair Lewis Quotes"
++++
+- People will buy anything that is 'one to a customer.'
+- Our American professors like their literature clear and cold and pure and very dead.
+- Intellectually I know that America is no better than any other country; emotionally I know she is better than every other country.
+- Advertising is a valuable economic factor because it is the cheapest way of selling goods, particularly if the goods are worthless.
+- He who has seen one cathedral ten times has seen something; he who has seen ten cathedrals once has seen but little; and he who has spent half an hour in each of a hundred cathedrals has seen nothing at all.
+- Damn the great executives, the men of measured merriment, damn the men with careful smiles oh, damn their measured merriment.
+- Whatever poet, orator or sage may say of it, old age is still old age.
+- What is love? It is the morning and the evening star.
+- When audiences come to see us authors lecture, it is largely in the hope that we'll be funnier to look at than to read.
+- Pugnacity is a form of courage, but a very bad form.
+- There are two insults no human being will endure: that he has no sense of humor, and that he has never known trouble.
+- Every compulsion is put upon writers to become safe, polite, obedient, and sterile.
+- The middle class, that prisoner of the barbarian 20th century.
+- Winter is not a season, it's an occupation.

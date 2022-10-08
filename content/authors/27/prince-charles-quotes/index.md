@@ -1,0 +1,52 @@
++++
+author = "Prince Charles"
+title = "Prince Charles Quotes"
+quotes_len = "46"
+description = "the best 46 Prince Charles Quotes"
++++
+- Do you seriously expect me to be the first Prince of Wales in history not to have a mistress?
+- As you may possibly have noticed from time to time, I have tended to make a habit of sticking my head above the parapet and generally getting it shot off for pointing out what has always been blindingly obvious to me.
+- We might be more inclined to think about the longer term if we were more aware of what is happening around us. Perhaps daily weather forecasts could include a few basic facts about the Earth's vital signs or details of where climate change is increasing the likelihood of damaging weather?
+- The mistake is to think that clever technology can solve everything, but it can't solve our relationship with nature, which is where I think it's gone wrong in that we have somehow abandoned our proper connection with nature.
+- Christianity was literally born in the Middle East, and we must not forget our Middle Eastern brothers and sisters in Christ.
+- I think I can safely say that, as adolescents, most people have excess energy to spare and need adventure, excitement, and a challenge.
+- Women are not automatically second-class citizens because they live in Islamic countries. We cannot judge the position of women in Islam aright if we take the most conservative Islamic states as representative of the whole.
+- That's called a microphone. It's a big sausage that picks up everything you say - and you're starting early.
+- I learned the way a monkey learns - by watching its parents.
+- We can halt the destruction of the world's rainforests - and even restore parts of them - in order to ensure that the forests do what they are so good at - in other words, storing carbon naturally.
+- You don't want to see me all the time. You get bored.
+- Father told me that if I ever met a lady in a dress like yours, I must look her straight in the eyes.
+- I'm not very good at being a performing monkey.
+- The whole of nature cries out at our mistreatment of her. If the planet were a patient, we would have treated her long ago.
+- We need to be realistic. There is very little we can do now to stop the ice from disappearing from the North Pole in the summer. And we probably cannot prevent the melting of the permafrost and the resulting release of methane. In addition, I fear that we may be too late to help the oceans maintain their ability to absorb carbon dioxide.
+- We are not the technology. It should be our - you know, our slave, the technology. But it's rapidly becoming our master in many areas, I think.
+- As human beings, we suffer from an innate tendency to jump to conclusions, to judge people too quickly, and to pronounce them failures or heroes without due consideration.
+- We would never comment on private correspondence.
+- As long as I do not take myself too seriously, I should not be too badly off.
+- There is an old show business saying which warns never to work with animals or children, but nobody prepared me for Molly Meldrum.
+- All the time I feel I must justify my existence.
+- Your greatest achievement is to love me.
+- I have for some time now been deeply troubled by the growing difficulties faced by Christian communities in various parts of the Middle East. It seems to me that we cannot ignore the fact that Christians in the Middle East are increasingly being deliberately targeted by fundamentalist Islamist militants.
+- Conflict, of course, comes about because of the misuse of power and the clash of ideals, not to mention the inflammatory activities of unscrupulous and bigoted leaders. But it also arises, tragically, from an inability to understand and from the powerful emotions which, out of misunderstanding, lead to distrust and fear.
+- For me, Lord Mountbatten represented the grandfather I never had.
+- We're busily wrecking the chances for future generations at a rapid rate of knots by not recognizing the damage we're doing to the natural environment, bearing in mind that this is the only planet that we know has any life on it.
+- There's nothing like a jolly good disaster to get people to start doing something.
+- Something as curious as the monarchy won't survive unless you take account of people's attitudes. After all, if people don't want it, they won't have it.
+- It's always nice to have somebody on your side.
+- Congratulations to 'Countdown' - it was an evening I will never forget - and a special thank you to Molly Meldrum.
+- I sometimes wonder if two thirds of the globe is covered in red carpet.
+- I have often thought that one of the less attractive traits of various professional bodies and institutions is the deeply ingrained suspicion and outright hostility which can exist towards anything unorthodox or unconventional.
+- All my life, people have been telling me what to do. I'm tired of it. My private life has become an industry.
+- The whole imposing edifice of modern medicine is like the celebrated tower of Pisa - slightly off balance.
+- The medieval Islamic world, from Central Asia to the shores of the Atlantic, was a world where scholars and men of learning flourished. But because we have tended to see Islam as the enemy of the West, as an alien culture, society, and system of belief, we have tended to ignore or erase its great relevance to our own history.
+- On an increasingly crowded planet, humanity faces many threats - but none is greater than climate change. It magnifies every hazard and tension of our existence.
+- I'd rather go by bus.
+- You have to give this much to the Luftwaffe: when it knocked down our buildings it did not replace them with anything more offensive than rubble. We did that.
+- Hong Kong has created one of the most successful societies on Earth.
+- I believe passionately that everyone has a particular God-given ability.
+- Perhaps it has been too uncomfortable for those with vested interests to acknowledge, but we have spent the best part of the past century enthusiastically testing the world to utter destruction; not looking closely enough at the long-term impact our actions will have.
+- It is baffling, I must say, that in our modern world we have such blind trust in science and technology that we all accept what science tells us about everything - until, that is, it comes to climate science.
+- The whole of the 20th century has always put the car at the center. So by putting the pedestrian first, you create these livable places, I think, with more attraction and interest and character.
+- It's always marvelous to have somebody who, you know, you feel understands and wants to encourage.
+- Extremism is no more the monopoly of Islam than it is the monopoly of other religions, including Christianity.
+- I find myself born into this particular position. I'm determined to make the most of it and to do whatever I can to help. And I hope I leave things behind a little bit better than I found them.

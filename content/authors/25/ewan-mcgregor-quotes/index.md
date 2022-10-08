@@ -1,0 +1,76 @@
++++
+author = "Ewan Mcgregor"
+title = "Ewan Mcgregor Quotes"
+quotes_len = "70"
+description = "the best 70 Ewan Mcgregor Quotes"
++++
+- No, no I'm not, no, but I just think... when people are naked it tells you a lot about their relationships.
+- I especially love my Moto Guzzi.
+- I certainly have no plans to leave London. It's a great town.
+- I think the script is the key. Regardless of how great everybody else is working on a film, if you're working on a script that you don't think is great, you're not gonna be able to make a great film. Whereas if the script is great, then you can.
+- As a child I was taken to the pantomime or the theatre and I would always, always fall in love with somebody on the stage. And want to have sex with them.
+- I trained in the theatre and I love the theatre. I get such a thrill seeing anything in the theatre.
+- It's important, that spirit of youth, and when you're 16 that can get you kickstarted.
+- Conservative's the last thing I am.
+- I was nine years old when I made up my mind that that was what I definitely wanted to do.
+- I don't do things lightly; I don't take a job then just phone it in - I've never done that.
+- I really want to play Princess Leia. Stick some big pastries on my head. Now that would be interesting.
+- A lot of parents tell their children that if they want to be an actor, that's fine, but they should do something else first, so they've got something to fall back on. It doesn't work like that, as far as I'm concerned.
+- At school there was no acting to be had other than school plays which I did now and again.
+- So, no, I'm not trying to crack into Hollywood, although I'll make films there if they're good scripts.
+- I'm in a position where I can do many things most people just daydream about.
+- Ultimately, you have to not worry about people thinking you should have played him differently. You're the one playing the part so it has to be yours.
+- I was born in '71, so I remember bits of glam rock on 'Top of the Pops' toward the late '70s, but I had no idea what kind of world it was. I didn't like the music, either.
+- I'm sure it's not great fun for them, or for any parent, when their child says they want to be an actor, 'cos it's quite an uncertain business and it can be terribly hard for most actors.
+- I've done nudity in lots of things before. It's something that's never particularly bothered me.
+- I like to dance, but it's not my weekend activity. I'm not a clubber.
+- When I was a kid I was much happier watching old movies than kids' TV, and I ended up watching all the old Ealing comedies.
+- My feeling about seeing the world is that it's going to change you necessarily, just the very fact of being out there and meeting people from different cultures and different ways of life.
+- It's not my job to try and alter the director's style - he's in charge, and I'll always give him my trust.
+- The script, I always believe, is the foundation of everything. And if you don't connect to that foundation, if you don't believe in that and feel that you wanna spend three, four months of your life exploring it, then all of the other elements are secondary.
+- I'm lucky enough that financially I don't have to feel obliged to go for the bigger stuff. I like the stories and scripts to dictate if I want to do them.
+- I want to wear skinny jeans when I'm in my 70s. Why not? Who cares?
+- I'm just into making quality stuff if I can, with interesting people and good scripts. But it's very important that it's about something and that it says something. Otherwise, I don't know what the point is, really.
+- Giving kids whatever they ask for is disastrous parenting. There's no sense of something earned. I'm sorry, but when you're 12, you don't need a new cell phone every few months just because a new one comes out.
+- I think rehearsal can be important if it's done in a way that works. Often, rehearsal can be a waste of time.
+- I've always been really uninterested in politicians and the acts of the Houses of Parliament, or government as an idea. But I'm interested in politics in that I'm a member of the world, and I have strong feelings of right and wrong, but I can't get into the ins and outs of it.
+- I played music all through school and I kind of performed that way.
+- The film I like the best is always the one I'm working on now or next.
+- Producing good stuff can be quite tough, and it involves a lot of frustration, but I always like things to be jolly and happy, and I forget that's actually not the point at the end of the day.
+- Sometimes I feel like doing smaller budget stuff. When I did 'Young Adam', for instance, I'd come out of 'Black Hawk Down' and 'The Island', and I really wanted to be on a small film set. I wanted to be on something intimate and small again, and then 'Young Adam' cropped up in a pile of scripts I was sent.
+- I left halfway through my third year to start Lipstick On Your Collar, which was the first thing I ever did.
+- The thing about parenting rules is there aren't any. That's what makes it so difficult.
+- I find that the acting's getting easier - with experience, everything is more instinctual.
+- I've played in pipe bands in Scotland, and I've always played guitars and drums and stuff.
+- Success is tricky to deal with, both professionally and in your personal life.
+- I'm just looking for that moment to drop my Jedi knickers and pull out my real light saber.
+- I love skiing, scuba diving and hang-gliding.
+- I've never found acting that difficult.
+- I never imagined it wouldn't work out for me. I had that absolute certainty in myself that has seen me through, I think, and my parents were absolutely behind me all the way.
+- I don't think having separate bathrooms is a key to a successful marriage, if you love one another.
+- I found my partner, my life partner, and I really am in love with my wife, and we have a lovely time, and we share a long history together and children together, and that's it.
+- I think it's quite tricky for actors to release albums. It's difficult, because I'm an actor, you know, I'm not a musician. I love singing, but I don't have a big repertoire of songs that I've written; I mean, I've got a few, but nothing that I could fill an album with, and I don't want to do it just for the sake of it.
+- From there I did a one year theatre acting course in Fife, and then three years of drama school in London.
+- I remember in Shallow Grave I remember a few times when we'd only have to do one take. But when you did have to do more than one, you'd build on the one you'd done.
+- You can be playing a line some way and the director wants you to change that, or you can disagree. But I always think that the creative conversation between director and actor is what leads to good work.
+- Mainly I was able to perform with music - I played the French horn, I would sing, and I was a drummer in the pipe band. So I think it was a way to show off.
+- Everything you do on set is directly related to your imagination when you read the script for the first time.
+- I worked as a waiter when I was 15 and got a chance to appreciate good, simple food. There's nothing better than a boiled egg with toast.
+- I got married because I fell in love with this woman. I had a baby with her because we wanted to have children. But that's not because of some philosophical ideal at all, no.
+- I left it for seven years before going back on stage. I know now not to leave it so long.
+- If you're suddenly doing something you don't want to do for four years, just so you've got something to fall back on, by the time you come out you don't have that 16-year-old drive any more and you'll spend your life doing something you never wanted to do in the first place.
+- I've never been one who agonizes over my work.
+- Drama school can't make you a brilliant actor, but you can do stuff for three years - you're not going to be fired. You should just go for it all, even the stuff you think is codswallop.
+- I'm not a guy who takes films for strong political messages.
+- Then I left school at 16 and worked in Perth Repertory Theatre, which was quite nearby where I lived. And I worked there for about six or seven months, as part of the stage crew.
+- The other two things are... well, I had a huge appetite for old black and white movies on BBC 2. At the weekends they used to run matinees, and the more romantic the better.
+- I find politicians so desperately boring. I don't trust them and don't believe in them.
+- It's just fantastic to go out and meet people in the world and get to really remote places.
+- I like the idea of being a sculptor. Just me alone, making something - that solitary existence.
+- When you take away the phone and e-mail and you don't have a million things to run around to, it allows your mind the space to think more expansively about the things that matter.
+- I'm fiercely proud to be Scottish.
+- I love acting and don't find it to be very hard. I recognize when I've nailed it, and I can be very proud of myself.
+- I don't pay much attention to career or what other people think. I've always been quite arrogant.
+- For all of the hurtling towards climate change, there's also a lot more understanding of it than there was when we were kids. They don't call environmentalists tree huggers any more, so there's hope!
+- Once you've agreed the script, you must be willing to go as far as it needs to go on set.
+- If you want to produce really horrible, obnoxious kids, say yes to them all the time.

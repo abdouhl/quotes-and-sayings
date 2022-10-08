@@ -1,0 +1,106 @@
++++
+author = "Sarah Harding"
+title = "Sarah Harding Quotes"
+quotes_len = "100"
+description = "the best 100 Sarah Harding Quotes"
++++
+- You can't please everyone... you win some you lose some!
+- I always looked the tallest when I was in the group. I look like a giant next to Cheryl. She's like a Polly Pocket, she's very petite.
+- I was doing gigs at 16, belting out all the big ballads like Whitney Houston and Mariah Carey.
+- I'm a huge 'Corrie' fan.
+- We're females with attitude.
+- I never regret. I don't like to look back on my life and have regrets.
+- When there's five of you, it's difficult to have a say in everything.
+- I was a big Drum and Bass junkie when I grew up.
+- I was recording dance tracks when the auditions for 'Popstars: The Rivals' came along.
+- I am who I am and I am true to myself.
+- Alexander McQueen will always be top of my list and I am really into Gianmarco Lorenzi heels.
+- My favourite foundation is La Prairie, and I like Benefit's Hoola for contouring.
+- The steroids I'd been taking made me look bloated, and I'd lost my eyelashes due to the chemo.
+- I'm very hyperactive. I love to dance.
+- I guess it's a lovely thought, isn't it, that the person you're meant to be with was one of your first loves all along. That whole destiny thing.
+- As a woman getting older people start to feel insecure about the way they look.
+- I love anything green and I make my own juices packed with kale, parsley, cucumber, courgettes, apples, plus spirulina and chlorella. If I want to fill myself up I will add ice and half an avocado. It looks gross, but it tastes great.
+- There is a stigma attached to people who go from singing to acting.
+- I'm like a mad cat and dog woman.
+- I don't look back in hindsight. It's too late.
+- It's very hard to wake up every morning knowing that a part of me is missing; that part of my womanhood is gone.
+- I feel like a single mum with all me animals.
+- I keep myself in shape with 40 minutes on my cross trainer every day. Doing that keeps me motivated and it isn't too time-consuming.
+- After a gig, even if I'm on tour and it's 3 A.M., I'll get in the shower and scrub my face, otherwise I'll have a spot the next day.
+- That's going to be the highlight of my life - having children and settling down.
+- The only thing I love and that I do take to heart is what I love doing, and that's my music.
+- I've been to hell and back. I'm just glad I survived.
+- I work hard, eat hard and diet hard.
+- My songs are very confessional and honest.
+- I am a beauty school dropout. At college, I cut my mum's bob into a Spock hairdo and took off half my friend's eyebrow when I was doing the waxing. I was better at makeup. Drop me in Selfridges, and I'll be in the beauty department for hours.
+- It depends who your technician is as to how much fun the recording is.
+- I've been a huge fan of 'Dating In The Dark' and I'm totally excited to be presenting the third supersized series.
+- Honesty is the best policy, I think - there's no point trying to be fake, and that's one thing I never have been.
+- I love pop, but with an edge so that's what I'd say my music is. And quite controversial.
+- I wear lipstick only when I'm working, usually Carmex.
+- I'm usually quite quiet in the day, a little bit anxious, I get my thoughts processed.
+- Some people look good after plastic surgery but not when it's to the extreme. It's like, 'Here I am smiling and here I am frowning,' and it's all the same.
+- Celebrity Big Brother' was, for me, a disaster waiting to happen.
+- It does get harder to see other people have something that you want.
+- I'm a bit of a chameleon. My style changes depending on my mood, as I get bored really quickly.
+- I love to mix high street with a good pair of shoes. I don't agree with wearing head-to-toe designer - I think that's a bit Wag-gy.
+- When I was younger I delivered pizza, ate constantly and was a size 12.
+- I do come alive more at night and that's always been in my character.
+- Going through cancer is bad enough, but the side effects of all the stuff that's supposed to make you better can sometimes be as difficult to deal with as the disease itself.
+- I don't like being labelled.
+- Always cleanse your skin at night. So much bacterial build-up happens over the day so at night you really need to take your time and cleanse properly.
+- When filming videos you spend hours getting ready and hours waiting around.
+- When I'm in heels, I look much taller.
+- Being around girls all the time, it's difficult sometimes.
+- I've always wanted since I was about 13 to go to Glastonbury.
+- I've got a fast metabolism, but I go to the gym, too.
+- So many of these former child actors and actresses seem to go off the rails.
+- I love wearing black. It's a real base for everything else - hair, make-up, accessories - and it's always flattering.
+- In life the only thing you can do is learn from your mistakes and maybe next time approach it differently.
+- One of the main reasons I wanted to do 'Freefall' was that it's a complete contrast to what people see of me from being in the band. It's a gritty role and a gritty film.
+- I am definitely a night owl.
+- As anyone in chronic pain will be able to tell you, it can take a massive toll on your mental as well as physical wellbeing.
+- I was a bit of a reprobate as a teenager.
+- Freefall' showcases what I can do, and for Dominic Savage to have faith in me must mean something! I hope my acting career will go from strength to strength and I'd love to work with Dominic again.
+- Always wear flat shoes when you are shopping. I rarely wear heels during the day unless I have meetings, as I find them an absolute killer. And I can't pull off calf-length boots - they make my legs look stumpy and fat.
+- I've turned 30 now and, although there will always be a bit of the rock chick in me, I'm trying to embrace my softer and more feminine side. And I am trying really hard to be healthy.
+- I love supplements, I take multi-vitamins and omega-3.
+- I like big woolly socks.
+- I'm a perfectionist.
+- I like going home, closing the door and being plain old Sarah.
+- I played up to a caricature when I was in the band, always pouting in photos and being the entertainer. But I'm also emotional and sensitive, not as thick-skinned as people think.
+- I haven't had plastic surgery.
+- I never doubted that singing was what I was meant to do.
+- Dating is hard enough in the light, so I can't wait to see what unfolds when the lights are off!
+- I dont think anything we've ever done has ever sounded the same. But we have that same vibe whatever we do because of our vocals.
+- As much as I love doing music, it can get monotonous sometimes.
+- I'm working my way into acting gradually - I don't want people to think I'm just swanning in there.
+- A lot of our fans would love us to come back so we'll have to see what happens.
+- Removing the bad bacteria from your skin is the key to clear skin.
+- I've very energetic. And despite what people think of me I can be quite health-conscious.
+- I like McDonald's burgers and Happy Meals. And I've got a thing for kebabs, too. But I don't eat too much of that stuff or it makes me feel a bit ill.
+- I love being in the kitchen and cooking and creating juices and smoothies every day.
+- I don't like balloons.
+- Singing was always my main ambition, but acting was something else I wanted to achieve.
+- I've been in constant pain with my knee injury.
+- I never thought in a million years I'd do a full on lead role in a musical, but anyone who knows me knows I like a challenge and I like to push myself above and beyond.
+- We proved to the nation we could sing.
+- Since doing 'Dating in the Dark' and getting engaged, I've become the top agony aunt to all my friends. It's brilliant.
+- We need to make politics more user-friendly.
+- People think of me as the blonde loud lairy one from Girls Aloud, but that's not me when I go home at the end of the night, that was a persona I was given in the band and I did play up to it quite a lot but that's not me 24/7.
+- Imperfections make a character.
+- I love Topshop and Zara.
+- Working with Dominic Savage was an amazing experience. You don't have a full script to follow so you're more or less improvising and he tells you what he wants out of the scene.
+- The older I get though, the more scared I am about the pregnancy situation. I don't want to be too old that I can't enjoy it.
+- I'm either really, really mad and out of control or just, y'know, done.
+- I would love to be a mum one day, that would be nice chapter to add to my life.
+- The odd swear word doesn't harm anyone, does it?
+- We'd all been trying to get into this business for God knows how long. And it's not like we're talentless.
+- The day I left for rehab, I was in such a mess. I've been told by those close to me that was when I hit my worst.
+- We never get asked who we would vote for. It could be a general question to ask us in an interview, but it isn't.
+- I learned that I am a lot stronger and more determined than I realised and I think I needed that confidence boost.
+- Oh, I'm not really bothered what people say.
+- Yeah, I don't like pitch-black dark. I always like to have a crack of light coming into my bedroom.
+- Everyone has ideas about what we want for the country, but people need to vote to make that happen.
+- You have to be able to relate to what you're singing otherwise you're just a mannequin.

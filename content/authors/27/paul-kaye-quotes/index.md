@@ -1,0 +1,21 @@
++++
+author = "Paul Kaye"
+title = "Paul Kaye Quotes"
+quotes_len = "15"
+description = "the best 15 Paul Kaye Quotes"
++++
+- I remember lying to my producer that I'd heard Sean Penn was coming out of a different exit, just to avoid him - he was punching journalists left, right and centre at that point.
+- I don't know what my ambitions are until they turn up really but I'd love to work with Shane Meadows, I know that much!
+- Looking back, it amuses me that people imagined that I was a very brash, fearless, redheaded young revolutionary when I was in fact a very insecure, mousy-haired, middle-aged man with a deep fear of authority.
+- The two books I've re-read more than any others are Guenter Grass's 'The Tin Drum' and Victor Hugo's 'Notre-Dame de Paris'.
+- From the age of 14 onwards it was really punk rock, The Clash particularly. I think I learnt more from them than I did at school, because that got me into fashion, politics.
+- When I was younger I looked a bit like Matthew Modine out of 'Birdy'.
+- I've tried, in periods of unemployment, to pick up a paintbrush.
+- I used to run into lampposts. That was my party trick.
+- I'd hit thirty, I'd sort of failed as a musician, I'd failed as an artist I felt at the time.
+- There were points when I've thought about getting into landscape gardening or getting back to illustrating, but mostly with a bit of a chip on my shoulder.
+- I watched the first week of 'Hell's Kitchen'. It was fascinating to see Marco Pierre White because I've only ever seen him in moody photographs.
+- My only regret is that I didn't get into acting ten years earlier when I was handsome!
+- I'd spent so much of my youth and twenties dying my hair bright red to either look like Ziggy Stardust or Johnny Rotten.
+- I'm incredibly dull and I very rarely leave the house. I don't go out, I don't drink, I'm really boring.
+- Even when I go to the gym I sit in the steam room for an hour, come back really red-faced and pretend I've been for a run, so there's no need to worry.

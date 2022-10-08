@@ -1,0 +1,69 @@
++++
+author = "Jeff Fisher"
+title = "Jeff Fisher Quotes"
+quotes_len = "63"
+description = "the best 63 Jeff Fisher Quotes"
++++
+- Since 2000, it's been a privilege and honor for me to be on the competition committee. And our main focus... is player safety.
+- I'll make changes at receiver before I make a change at the quarterback.
+- There's a general feeling if you take the cut block out of the game, then you're going to significantly impact the run game.
+- The nickel spot, inside. It's the hardest position to play. It's harder than outside.
+- It's all about giving yourself a chance to win the opener, and then after that, you focus in on Week 2.
+- Your receivers have to catch it, not drop it.
+- I'm a head coach. I'm not a politician, an activist, or an expert on societal issues.
+- My kids are athletic, but they don't run.
+- I'm really excited that the Rams are the best fit for me.
+- I was a pretty mediocre player.
+- You need continuity. You need a commitment and continuity.
+- The quarterback gets plenty of protection in the pocket, and he picks up protection out of the pocket; he's got protection down the field on his slides.
+- You're moving a franchise. You're leaving one city and going to another, which is difficult from a fan standpoint, from a fan-base standpoint, but you have to take care of the detail things. As you go through that step-by-step process, from my standpoint, my job is to keep in mind the player needs.
+- Every week, as a staff, you put a plan together and put your players in position to make plays.
+- You only have so much time in a day.
+- I'm not a real big text guy. I'm not really into this new age stuff. I don't twit or tweet, but I think face-to-face is a man thing.
+- One of the more difficult things is the time. Either you are going 100 miles an hour, or you are sleeping. There is nothing in between.
+- Austin Pettis can make plays.
+- Eddie George was outstanding early.
+- Chris Johnson was outstanding early.
+- It's my personal opinion, and I firmly believe, that it's important that I keep sports and politics separate.
+- I never get into the details regarding my own personal situation.
+- I've always liked to run. I did it from a conditioning standpoint, you know. I really enjoyed running, and I do it to stay in shape.
+- You address the respect issue in a team-meeting environment. With respect to its application, it's not just locker room. It's practice field. It's on and off the field. It's on Sunday, and it's on game days.
+- I had this moment in church, which I think really turned me off. I was 7 or 8 years old and I was sitting at church, and we happened to be playing with the sunlight that was coming down from the stained glass window, and the monsignor came down to the pew and grabbed us by our neck collars and said, 'I'll deal with you.'
+- Pay respect to your opponent.
+- Our philosophy here, guys, is we're going to work as long as we have to to get the work done. I'm not one that wants the coaches to compete to see who can get in the earliest, who stays the latest, who passes themselves on the way into work in the morning.
+- Michael Sam will help us, and we'll give him every chance to succeed, and you know what? It's gonna be pretty cool.
+- There's going to be different kinds of challenges on a yearly basis. You're going to have to overcome injuries, or you overcome a playoff loss or what have you. So there's always challenges in this business.
+- We have to sell a gameplan, and you have to be enthusiastic, and you have to have energy come Wednesday, Thursday, Friday.
+- We're gonna play fast, we're gonna play physical, we're gonna play furious, and we're gonna play contact football.
+- Discipline is doing what you really don't want to do so you can do what you really want to do.
+- When you have trust, it gives you a better chance to be successful.
+- You can't put a running back in there and have him not know who to pick up. You can't get your quarterback hit.
+- Everybody goes through situations like this. A tipped ball, a shoe-string tackle on a third-down scramble by the quarterback where he has 40 yards to run.
+- I learned the most important thing is to put yourself in the shoes of the players.
+- I think everyone at some point in their career would like the opportunity to go back to their alma mater, but from a timing standpoint, it's just never worked.
+- A lot of coaches make it harder than it should be. Some are too hard on themselves, obsessing about controlling everything, not trusting their assistants, worrying about time.
+- Some of the decisions that you make are not permanent.
+- There was something missing. But in my world, there is never time to figure out what is, in fact, missing.
+- There's a handful of teams that have a revolving door, that are changing coaches every couple of years, and you can look at the success that they're having. They're not.
+- Player safety has been an essential focus for us for a number of years.
+- We have an ascending player in Brian Quick, who, I think, is going to be a very, very solid player for us.
+- Our teams always play hard.
+- From our perspective, the most important thing is what you do with the players, how you handle them, your ability to communicate with them.
+- You're always having those life-skills type discussions about decision-making. It's just making sure you're making good decisions and going about your business. There are distractions in every city.
+- I'm just really appreciative of the loyal fans in St. Louis who just lost their team. It's not an easy situation to go through. On the other hand, we have to move forward.
+- As we say from time to time, it's hard to win in the National Football League.
+- The players are out here to help win games and to improve, not to make a movie. They're not actors. They're players.
+- It's unfortunate that sometimes the personal things affect the business.
+- We have rules in the rule book that are very specific. If the quarterback is in a throwing position, he gets protection. But in the event that the ball is handed off, at that instant, there's no telling whether or not he is a runner or not, so he loses that protection.
+- You can't live in Orange County and train in Thousand Oaks. OK? you just can't. Not with the hours we put in. We have to be on time.
+- I couldn't identify just one, but there's numerous rule changes and points of emphasis that have reflected a change on the field almost immediately. It's hard to avoid the horse-collar tackle, for example, but the players understand why the rule is in there - because of the injury rate prior to us making that a personal foul.
+- I guess it's sad that anybody, regardless of profession, that they're in this country, would take a shot at our military.
+- To survive in the NFC West, we have to win in the trenches.
+- It's not a born-again thing; it was a peaceful, really, really cool moment where I just felt that I was no longer the dad anymore. I actually had become a son, and it makes things much easier from a day-to-day perspective.
+- Those that coach 10 years that take a year off are three times better coaches... in year 11.
+- We push players beyond their limits and expectations every day. We ask them to take risks. Sometimes, as coaches, we have to remember to do that with our decisions, too.
+- I actually ran in junior high school a little bit, you know, like most kids do in track and things. Then I got out of it and just trained for football and played ball for so many years - high school, college and the NFL.
+- I've been a Rams fan for so long.
+- There's obviously a push to protect the quarterback, but you have to give the defensive players a chance. All of the quarterback has to do is pull the ball, and he's a runner. How's the defender going to know if the ball is pulled or not?
+- Having grown up there, my dad in 1967 took me to the Rams-Eagles game, and I've been a Rams fan since I was a kid.
+- Typically, there's about 20, 25 percent turnover every year. So, every three or four years with the exception of, as is the case with the Patriots and the quarterback, you have a roster turnover.

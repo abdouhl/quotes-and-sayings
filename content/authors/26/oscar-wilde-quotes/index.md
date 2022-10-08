@@ -1,0 +1,237 @@
++++
+author = "Oscar Wilde"
+title = "Oscar Wilde Quotes"
+quotes_len = "231"
+description = "the best 231 Oscar Wilde Quotes"
++++
+- I am not young enough to know everything.
+- I am so clever that sometimes I don't understand a single word of what I am saying.
+- Seriousness is the only refuge of the shallow.
+- I would have a workshop attached to every school, and one hour a day given up to the teaching of simple decorative arts. It would be a golden hour to the children.
+- Why was I born with such contemporaries?
+- If there was less sympathy in the world, there would be less trouble in the world.
+- One should always be in love. That is the reason one should never marry.
+- Sometimes the poor are praised for being thrifty. But to recommend thrift to the poor is both grotesque and insulting. It is like advising a man who is starving to eat less.
+- Romance should never begin with sentiment. It should begin with science and end with a settlement.
+- No man is rich enough to buy back his past.
+- Children begin by loving their parents; after a time they judge them; rarely, if ever, do they forgive them.
+- A little sincerity is a dangerous thing, and a great deal of it is absolutely fatal.
+- There is no sin except stupidity.
+- What is a cynic? A man who knows the price of everything and the value of nothing.
+- Morality is simply the attitude we adopt towards people whom we personally dislike.
+- Patriotism is the virtue of the vicious.
+- Men always want to be a woman's first love - women like to be a man's last romance.
+- Literature must rest always on a principle, and temporal considerations are no principle at all. For, to the poet, all times and places are one; the stuff he deals with is eternal and eternally the same: no theme is inept, no past or present preferable.
+- A man who does not think for himself does not think at all.
+- Every portrait that is painted with feeling is a portrait of the artist, not of the sitter.
+- In England, an inventor is regarded almost as a crazy man, and in too many instances, invention ends in disappointment and poverty. In America, an inventor is honoured, help is forthcoming, and the exercise of ingenuity, the application of science to the work of man, is there the shortest road to wealth.
+- Always forgive your enemies - nothing annoys them so much.
+- True friends stab you in the front.
+- How marriage ruins a man! It is as demoralizing as cigarettes, and far more expensive.
+- The good ended happily, and the bad unhappily. That is what fiction means.
+- When the gods wish to punish us they answer our prayers.
+- Arguments are to be avoided: they are always vulgar and often convincing.
+- In America the President reigns for four years, and Journalism governs forever and ever.
+- It is what you read when you don't have to that determines what you will be when you can't help it.
+- Ordinary riches can be stolen; real riches cannot. In your soul are infinitely precious things that cannot be taken from you.
+- I want my food dead. Not sick, not dying, dead.
+- A gentleman is one who never hurts anyone's feelings unintentionally.
+- 'The Lady's World' should be made the recognized organ for the expression of women's opinions on all subjects of literature, art and modern life, and yet it should be a magazine that men could read with pleasure.
+- You will always be fond of me. I represent to you all the sins you have never had the courage to commit.
+- All art is quite useless.
+- Nothing, indeed, is more dangerous to the young artist than any conception of ideal beauty: he is constantly led by it either into weak prettiness or lifeless abstraction: whereas to touch the ideal at all, you must not strip it of vitality.
+- Let us have no machine-made ornament at all; it is all bad and worthless and ugly.
+- I sometimes think that God in creating man somewhat overestimated his ability.
+- One can survive everything, nowadays, except death, and live down everything except a good reputation.
+- Whenever people agree with me I always feel I must be wrong.
+- Whenever a man does a thoroughly stupid thing, it is always from the noblest motives.
+- Pessimist: One who, when he has the choice of two evils, chooses both.
+- There is something terribly morbid in the modern sympathy with pain. One should sympathise with the colour, the beauty, the joy of life. The less said about life's sores the better.
+- The man who can dominate a London dinner-table can dominate the world.
+- Those whom the gods love grow young.
+- It is a very sad thing that nowadays there is so little useless information.
+- Who, being loved, is poor?
+- I like persons better than principles, and I like persons with no principles better than anything else in the world.
+- The salesman knows nothing of what he is selling save that he is charging a great deal too much for it.
+- There is always something infinitely mean about other people's tragedies.
+- Experience is one thing you can't get for nothing.
+- I can resist everything except temptation.
+- Beauty has as many meanings as man has moods. Beauty is the symbol of symbols. Beauty reveals everything, because it expresses nothing. When it shows us itself, it shows us the whole fiery-coloured world.
+- Man is least himself when he talks in his own person. Give him a mask, and he will tell you the truth.
+- It is only by not paying one's bills that one can hope to live in the memory of the commercial classes.
+- In modern life nothing produces such an effect as a good platitude. It makes the whole world kin.
+- Ambition is the last refuge of the failure.
+- Life imitates art far more than art imitates Life.
+- Writing bores me so.
+- He has no enemies, but is intensely disliked by his friends.
+- To love oneself is the beginning of a lifelong romance.
+- I choose my friends for their good looks, my acquaintances for their good characters, and my enemies for their intellects. A man cannot be too careful in the choice of his enemies.
+- Fathers should be neither seen nor heard. That is the only proper basis for family life.
+- In its primary aspect, a painting has no more spiritual message than an exquisite fragment of Venetian glass. The channels by which all noble and imaginative work in painting should touch the soul are not those of the truths of lives.
+- Perhaps one of the most difficult things for us to do is to choose a notable and joyous dress for men. There would be more joy in life if we were to accustom ourselves to use all the beautiful colours we can in fashioning our own clothes.
+- When a man has once loved a woman he will do anything for her except continue to love her.
+- A critic should be taught to criticise a work of art without making any reference to the personality of the author.
+- It is better to be beautiful than to be good. But... it is better to be good than to be ugly.
+- The critic has to educate the public; the artist has to educate the critic.
+- There is nothing in the world like the devotion of a married woman. It is a thing no married man knows anything about.
+- When I was young I thought that money was the most important thing in life; now that I am old I know that it is.
+- One should always play fairly when one has the winning cards.
+- There is no such thing as a moral or an immoral book. Books are well written, or badly written.
+- I am the only person in the world I should like to know thoroughly.
+- There is nothing so difficult to marry as a large nose.
+- All women become like their mothers. That is their tragedy. No man does. That's his.
+- Man can believe the impossible, but man can never believe the improbable.
+- There's nothing in the world like the devotion of a married woman. It's a thing no married man knows anything about.
+- Moderation is a fatal thing. Nothing succeeds like excess.
+- We are all in the gutter, but some of us are looking at the stars.
+- All art is at once surface and symbol. Those who go beneath the surface do so at their peril. Those who read the symbol do so at their peril. It is the spectator, and not life, that art really mirrors. Diversity of opinion about a work of art shows that the work is new, complex and vital.
+- It is the spectator, and not life, that art really mirrors.
+- No object is so beautiful that, under certain conditions, it will not look ugly.
+- The only way to get rid of temptation is to yield to it... I can resist everything but temptation.
+- Alas, I am dying beyond my means.
+- No woman should ever be quite accurate about her age. It looks so calculating.
+- Charity creates a multitude of sins.
+- The one charm about marriage is that it makes a life of deception absolutely necessary for both parties.
+- Bad people are, from the point of view of art, fascinating studies. They represent colour, variety and strangeness. Good people exasperate one's reason; bad people stir one's imagination.
+- The basis of optimism is sheer terror.
+- The world has grown suspicious of anything that looks like a happily married life.
+- Mr. Henry James writes fiction as if it were a painful duty.
+- The world is divided into two classes, those who believe the incredible, and those who do the improbable.
+- I suppose society is wonderfully delightful. To be in it is merely a bore. But to be out of it is simply a tragedy.
+- Man is a rational animal who always loses his temper when he is called upon to act in accordance with the dictates of reason.
+- The typewriting machine, when played with expression, is no more annoying than the piano when played by a sister or near relation.
+- Work is the curse of the drinking classes.
+- Women are made to be loved, not understood.
+- To expect the unexpected shows a thoroughly modern intellect.
+- Conversation about the weather is the last refuge of the unimaginative.
+- The public is wonderfully tolerant. It forgives everything except genius.
+- I think that God, in creating man, somewhat overestimated his ability.
+- It is always the unreadable that occurs.
+- I have never given adoration to any body except myself.
+- Hatred is blind, as well as love.
+- A work of art is the unique result of a unique temperament.
+- A thing is not necessarily true because a man dies for it.
+- It is better to have a permanent income than to be fascinating.
+- Nothing can cure the soul but the senses, just as nothing can cure the senses but the soul.
+- An idea that is not dangerous is unworthy of being called an idea at all.
+- The difference between literature and journalism is that journalism is unreadable and literature is not read.
+- The advantage of the emotions is that they lead us astray.
+- Most people die of a sort of creeping common sense, and discover when it is too late that the only things one never regrets are one's mistakes.
+- No great artist ever sees things as they really are. If he did, he would cease to be an artist.
+- I have a dining room done in different shades of white, with white cushions embroidered in yellow silk: the effect is absolutely delightful and the room beautiful.
+- As long as a woman can look ten years younger than her own daughter, she is perfectly satisfied.
+- The world is a stage, but the play is badly cast.
+- An excellent man; he has no enemies; and none of his friends like him.
+- Biography lends to death a new terror.
+- Death and vulgarity are the only two facts in the nineteenth century that one cannot explain away.
+- Perhaps, after all, America never has been discovered. I myself would say that it had merely been detected.
+- America is the only country that went from barbarism to decadence without civilization in between.
+- If one plays good music, people don't listen and if one plays bad music people don't talk.
+- Questions are never indiscreet, answers sometimes are.
+- I see when men love women. They give them but a little of their lives. But women when they love give everything.
+- In all matters of opinion, our adversaries are insane.
+- In judging of a beautiful statue, the aesthetic faculty is absolutely and completely gratified by the splendid curves of those marble lips that are dumb to our complaint, the noble modelling of those limbs that are powerless to help us.
+- Life is never fair, and perhaps it is a good thing for most of us that it is not.
+- The only difference between the saint and the sinner is that every saint has a past, and every sinner has a future.
+- It is absurd to divide people into good and bad. People are either charming or tedious.
+- By giving us the opinions of the uneducated, journalism keeps us in touch with the ignorance of the community.
+- The mark of all good art is not that the thing done is done exactly or finely, for machinery may do as much, but that it is worked out with the head and the workman's heart.
+- Romantic art deals with the exception and with the individual. Good people, belonging as they do to the normal, and so, commonplace type, are artistically uninteresting.
+- Our ambition should be to rule ourselves, the true kingdom for each one of us; and true progress is to know more, and be more, and to do more.
+- Selfishness is not living as one wishes to live, it is asking others to live as one wishes to live.
+- There is only one thing in life worse than being talked about, and that is not being talked about.
+- The spirit of an age may be best expressed in the abstract ideal arts, for the spirit itself is abstract and ideal.
+- Nothing is so aggravating than calmness.
+- Art never harms itself by keeping aloof from the social problems of the day: rather, by so doing, it more completely realises for us that which we desire.
+- As long as war is regarded as wicked, it will always have its fascination. When it is looked upon as vulgar, it will cease to be popular.
+- The truth is rarely pure and never simple.
+- Consistency is the last refuge of the unimaginative.
+- Life is far too important a thing ever to talk seriously about.
+- London is too full of fogs and serious people. Whether the fogs produce the serious people, or whether the serious people produce the fogs, I don't know.
+- There are many things that we would throw away if we were not afraid that others might pick them up.
+- What we have to do, what at any rate it is our duty to do, is to revive the old art of Lying.
+- Technique is really personality. That is the reason why the artist cannot teach it, why the pupil cannot learn it, and why the aesthetic critic can understand it.
+- This suspense is terrible. I hope it will last.
+- If you are not too long, I will wait here for you all my life.
+- There is always something ridiculous about the emotions of people whom one has ceased to love.
+- If one cannot enjoy reading a book over and over again, there is no use in reading it at all.
+- America had often been discovered before Columbus, but it had always been hushed up.
+- Art is the most intense mode of individualism that the world has known.
+- Arguments are extremely vulgar, for everyone in good society holds exactly the same opinion.
+- How can a woman be expected to be happy with a man who insists on treating her as if she were a perfectly normal human being.
+- Everybody who is incapable of learning has taken to teaching.
+- I have nothing to declare except my genius.
+- If a work of art is rich and vital and complete, those who have artistic instincts will see its beauty, and those to whom ethics appeal more strongly than aesthetics will see its moral lesson. It will fill the cowardly with terror, and the unclean will see in it their own shame.
+- Democracy means simply the bludgeoning of the people by the people for the people.
+- One's past is what one is. It is the only way by which people should be judged.
+- I think it is perfectly natural for any artist to admire intensely and love a young man. It is an incident in the life of almost every artist.
+- Ridicule is the tribute paid to the genius by the mediocrities.
+- One's real life is so often the life that one does not lead.
+- I put all my genius into my life; I put only my talent into my works.
+- Ambition is the germ from which all growth of nobleness proceeds.
+- Fashion is a form of ugliness so intolerable that we have to alter it every six months.
+- The well bred contradict other people. The wise contradict themselves.
+- There are only two tragedies in life: one is not getting what one wants, and the other is getting it.
+- The function of the artist is to invent, not to chronicle.
+- One of the many lessons that one learns in prison is, that things are what they are and will be what they will be.
+- It is through art, and through art only, that we can realise our perfection.
+- The true mystery of the world is the visible, not the invisible.
+- Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.
+- There is no necessity to separate the monarch from the mob; all authority is equally bad.
+- In designing the scenery and costumes for any of Shakespeare's plays, the first thing the artist has to settle is the best date for the drama. This should be determined by the general spirit of the play more than by any actual historical references which may occur in it.
+- Do you really think it is weakness that yields to temptation? I tell you that there are terrible temptations which it requires strength, strength and courage to yield to.
+- Deceiving others. That is what the world calls a romance.
+- It is only the modern that ever becomes old-fashioned.
+- Experience is simply the name we give our mistakes.
+- If you pretend to be good, the world takes you very seriously. If you pretend to be bad, it doesn't. Such is the astounding stupidity of optimism.
+- I have the simplest tastes. I am always satisfied with the best.
+- Art should never try to be popular. The public should try to make itself artistic.
+- A man can be happy with any woman, as long as he does not love her.
+- Bigamy is having one wife too many. Monogamy is the same.
+- Keep love in your heart. A life without it is like a sunless garden when the flowers are dead.
+- Education is an admirable thing, but it is well to remember from time to time that nothing that is worth knowing can be taught.
+- Only the shallow know themselves.
+- Woman begins by resisting a man's advances and ends by blocking his retreat.
+- A poet can survive everything but a misprint.
+- If one could only teach the English how to talk, and the Irish how to listen, society here would be quite civilized.
+- In married life three is company and two none.
+- There are only two kinds of people who are really fascinating - people who know absolutely everything, and people who know absolutely nothing.
+- Men marry because they are tired; women, because they are curious; both are disappointed.
+- Between men and women there is no friendship possible. There is passion, enmity, worship, love, but no friendship.
+- I find it harder and harder every day to live up to my blue china.
+- The imagination imitates. It is the critical spirit that creates.
+- I always pass on good advice. It is the only thing to do with it. It is never of any use to oneself.
+- The moment you think you understand a great work of art, it's dead for you.
+- The only thing to do with good advice is to pass it on. It is never of any use to oneself.
+- Everything popular is wrong.
+- All bad poetry springs from genuine feeling.
+- I can stand brute force, but brute reason is quite unbearable. There is something unfair about its use. It is hitting below the intellect.
+- A man's face is his autobiography. A woman's face is her work of fiction.
+- A dreamer is one who can only find his way by moonlight, and his punishment is that he sees the dawn before the rest of the world.
+- Society exists only as a mental concept; in the real world there are only individuals.
+- I never travel without my diary. One should always have something sensational to read in the train.
+- Now that the House of Commons is trying to become useful, it does a great deal of harm.
+- Beauty is the only thing that time cannot harm. Philosophies fall away like sand, creeds follow one another, but what is beautiful is a joy for all seasons, a possession for all eternity.
+- Women are never disarmed by compliments. Men always are. That is the difference between the sexes.
+- Most people are other people. Their thoughts are someone else's opinions, their lives a mimicry, their passions a quotation.
+- Anybody can be good in the country. There are no temptations there.
+- Yes, there is a terrible moral in 'Dorian Gray' - a moral which the prurient will not be able to find in it, but it will be revealed to all whose minds are healthy. Is this an artistic error? I fear it is. It is the only error in the book.
+- The old believe everything, the middle-aged suspect everything, the young know everything.
+- There should be a law that no ordinary newspaper should be allowed to write about art. The harm they do by their foolish and random writing it would be impossible to overestimate - not to the artist, but to the public, blinding them to all but harming the artist not at all.
+- She is a peacock in everything but beauty.
+- It is only an auctioneer who can equally and impartially admire all schools of art.
+- While we look to the dramatist to give romance to realism, we ask of the actor to give realism to romance.
+- To lose one parent may be regarded as a misfortune; to lose both looks like carelessness.
+- No better way is there to learn to love Nature than to understand Art. It dignifies every flower of the field. And, the boy who sees the thing of beauty which a bird on the wing becomes when transferred to wood or canvas will probably not throw the customary stone.
+- Those who find ugly meanings in beautiful things are corrupt without being charming. This is a fault.
+- Success is a science; if you have the conditions, you get the result.
+- When good Americans die they go to Paris.
+- Memory... is the diary that we all carry about with us.
+- Art is individualism, and individualism is a disturbing and disintegrating force.
+- Some cause happiness wherever they go; others whenever they go.
+- In America the young are always ready to give to those who are older than themselves the full benefits of their inexperience.
+- There is only one class in the community that thinks more about money than the rich, and that is the poor. The poor can think of nothing else.
+- There is a luxury in self-reproach. When we blame ourselves we feel no one else has a right to blame us.
+- Women love us for our defects. If we have enough of them, they will forgive us everything, even our gigantic intellects.
+- The books that the world calls immoral are books that show the world its own shame.
+- A man can't be too careful in the choice of his enemies.

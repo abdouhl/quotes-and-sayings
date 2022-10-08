@@ -1,0 +1,125 @@
++++
+author = "Darius Rucker"
+title = "Darius Rucker Quotes"
+quotes_len = "119"
+description = "the best 119 Darius Rucker Quotes"
++++
+- Ice Cube is doing so great. He went from being this hardcore gangster rapper to this actor now. He's doing children's movies and all this stuff - he's rocking it.
+- We went to church every Sunday. When I was a kid, the only time I sang was around my family.
+- I'm black because I was born this way. I'm proud of it. Thank God I am who I am.
+- I'm pretty sure I'm gonna stick with country until I ride off in the sunset.
+- I think the people who are sitting in their living room doing those, 'Let's take country music back' blogs and all that stuff, that's crazy to me. No one's saying that about rock & roll, and no one sounded like the Beatles since 1960. No one says that about R&B, and no one sounded like the Commodores since 1970.
+- When you're doing a Motley Crue tribute record, you can ask anyone to do it, and they're not going to say no.
+- I love jam bands, but I still like a three-and-a-half-minute rock song.
+- If you hear a song and you like it, you like it.
+- I used to love watching 'Hee Haw' on TV when I was a kid. My brothers and sisters weren't happy about it, but I just loved the music.
+- School was very important to me ,and music was what kept me coming back.
+- I love Hootie & the Blowfish and what we do, but that's not my main focus anymore.
+- Music education was always big for me. Ever since I was a young kid, I always said it was the reason I went to school sometimes and knowing if I didn't do well in class that my mom wasn't gonna let me sing in school or sing at that concert.
+- What I love about each album is the opportunity to expand on what we've done in the past - to push myself and the band creatively, vocally, and lyrically.
+- I live for the NFL. I watch so much of it.
+- I was an 8-year-old who loved wrestling and watched it religiously every Saturday at one o'clock.
+- Romantic stuff is not something I really remember.
+- Marriage is not easy. You have to decide to work. That's what it really comes down to: two people deciding to stay together or not.
+- It's hokey, but I love sitting in an inner tube and taking it easy on a lazy river ride. I can sit there all day.
+- The other guys in Hootie were into rock. I brought the country influence.
+- One of my pet peeves is when people think that pop guys go country when they can't make it in pop anymore.
+- At the end of the day, I'm a fan of great stories and great songs.
+- I love making music, and I love touring. I love that I get to wake up and play music. I don't like being away from my wife and kids.
+- Ric Flair was such a huge part of my childhood and teen years. He's an icon.
+- Everything that I do on stage comes from seeing the Black Crowes in '95 in Charlotte. For 'Let Her Cry,' I was just trying to write 'She Talks to Angels.'
+- I'm not a studio rat. I do find sitting around playing the same song 12 times kind of tedious. I like to get in and get out.
+- My kids don't care about anything. I'm just Dad to them. They don't get excited about anything.
+- I'm a big Black Crowes guy. I think they are one of America's greatest rock & roll bands ever.
+- Getting people to come play my 'Darius and Friends Show' was so easy because it's for St. Jude, and that's a great thing.
+- I love Bob Dylan. 'Blood on the Tracks' is one of my top five records.
+- I've gotten to play so many of the great courses around the country and overseas. Sometimes it pays to be the golf guy. People always want to take me to the golf course. I love it.
+- You're always proud that people still want to hear what you're doing.
+- I'm always up at 7:30, usually earlier. Having three kids will do that.
+- If I did a show and didn't do Hootie songs, I would be ripping people off.
+- Country music's so about the nuclear family and living the southern lifestyle and everything.
+- I got turned onto the 'Pat Garrett' soundtrack when I worked retail back in the day.
+- It's always a positive when radio is playing your music and fans are responding.
+- One of the great reasons to be in Nashville is, you get guys like Shane McAnally to write songs with.
+- I'm used to being the only black guy. I've seriously walked onstage, looked out in the audience, 15,000 people - and I'm the only one in the place. It's no big deal. My whole career's been like that.
+- If my music career was my golf game, I'd be playing for about 26 people tonight somewhere.
+- I work hard to let my wife know how much I love her. I try to do that every day.
+- With rock, you can write about anything. There are rock songs I still don't know what they're singing about, but you want to get up and dance.
+- We work so hard to stay true to country music. People can say they don't like it, but they can't say it's not country.
+- When you hear people scream because they're about to hear a song that has been a part of their life, there's nothing like that.
+- I've got some great stuff in my sports memorabilia collection. But my favorite thing by far is the robe. I actually have a Ric Flair robe with 'the Nature Boy' on the back. That's awesome. When I look at it, it brings back so many memories of my childhood and my teen years.
+- Every time I have a song that does well, that's a great feeling to have.
+- To have John Mellencamp compliment my songwriting? That was unreal.
+- I think I made records, since early on, that people wanted to listen to.
+- There are so many people who would like to see me not make it in Nashville. But that's good motivation.
+- If it wasn't for Kenny Rogers, I don't think I would be in country music. He was that guy when I was a kid - his music and 'Hee Haw' made me perk my ears up and made me say, 'What is this? I want to hear more of that.' He was that catalyst for me to start this whole run in country music.
+- Ray Charles has always been a big part of my life.
+- The thing that really gets me about the game is I've never played two rounds that were anywhere close to being the same - ever. Even with the same golf course and setup, nothing is ever the same. I love that about golf.
+- It was important to me to find a label that wouldn't back out after a first single. Everyone's so used to hearing me with Hootie, they're going to be skeptical.
+- We got to do a few things with President Clinton. To be invited to Washington again to play with Ashanti and all those other cool people there in front of President Bush and the rest of the world feels awesome. I'm really looking forward to going.
+- The first year I started liking the Dolphins was Super Bowl VI, which they lost to the Cowboys. I was 5. My whole family was pulling for the Cowboys, so I rooted for the Dolphins. They lost, and I cried.
+- When I was in high school, I read all of Neil Simon's plays.
+- With 'Wagon Wheel,' I loved the visual it painted, and it's a song I can truly say I look forward to performing every night.
+- I'm a kid who grew up in an all African-American neighborhood and got into schools and aspired to just be me, and didn't worry about labels or anything. Just wanted to be a success at what I did.
+- People looked at me as a carpetbagger coming over from pop to country. But it helped because it got me in the room.
+- I think people who go out and tell you how much they're gonna change things are the people who end up being just another whatever. I'm never trying to change anything. That's not for me.
+- We raised almost 2 million dollars at the last golf tournament that can be used for minority scholarships and Junior Golf programs. The payoff for the work we do is so much more valuable than the work we actually do for it.
+- I believe that one of the reasons I get to play golf all over the world is because of the barriers that Lee Elder broke down. I just think he's amazing.
+- Great music will always rise to the top if you give it a chance.
+- I'm lucky my wife is a strong woman. She's one of the stronger people I've ever met. It's hard for me to be away, but I know my home life is fine because my wife is there.
+- Everybody wants to have a good time, especially at a concert. That's why everybody goes.
+- The music I like or the football teams I like or the food I eat has nothing to do with me being black.
+- I plan to make records as long as people wanna keep listening to them.
+- No doubt about it, country is a much more family-friendly business than pop.
+- I'd work with Charles Kelley anytime. I'd go do a 'Pancho and Lefty' record with Charles. He is class, man.
+- I pay almost no attention to the charts.
+- Arnold Palmer is my favorite, just getting to know him and all of the film on him and his game. He was the first real superstar in golf. You had Bobby Jones and all of those guys, but Arnold Palmer was bigger than life.
+- Golf is the greatest but most maddening sport there is.
+- There's nothing like sitting and watching the Masters on TV.
+- I played every position, from right tackle to quarterback and everything in between.
+- I'd be lying to say I've not experienced a lot of racism in my life; it's very much alive. I don't let it bother me. I couldn't be the singer I am if I didn't let it go.
+- I have major respect for Kenny Chesney and Carrie Underwood and Sugarland. They are wonderful. They're superstars in the music business.
+- I'm going to make country records back to back for a while - until country radio doesn't want me anymore or until I get my own theater in Branson - one of the two.
+- I've played golf since I was fourteen. I like how no two rounds are ever the same. And I get to be out in nature... and hang out with my buddies.
+- It's about the music, not the color of the person playing the music.
+- I've known Tiger since he was 18. Tiger is a great guy. I am so happy for him right now.
+- It's hard to be married to me, and it was a lot harder when I was younger!
+- Every time I make a record, it's make-or-break time. I hope I always have that mentality - that's what keeps me fired up.
+- You always wanna make the best record you ever made, and if I feel like I didn't do that, I wouldn't put it out.
+- I can't live without my family, golf, and football.
+- I always say, no matter what happens to me as a black man in country music, I can handle it if Charley Pride could handle all the stuff he went through.
+- As a kid, I was big into Al Green, Gladys Knight and the Pips, but as I got older, I started listening to all sorts of music, including country.
+- It seems that with other kind of music, they are looking for the next big thing, but with country music, they might be looking for that, but they also want to have that warm blanket that helped them through that relationship or that singer they have always loved.
+- I'll take the kids to school after breakfast. I love doing that - love being a dad.
+- Hearing Radney Foster was big for me, like hearing Al Green or R.E.M. for the first time.
+- Billy Graham isn't about politics - Billy Graham is about God.
+- I grew up in South Carolina. A lot of what I remember back in the day is AM radio. When I was a kid, you could hear Stevie Wonder and Buck Owens on the same station. All the walls and lines between music were taken down for me.
+- I think I could take a job as an NFL scout.
+- One of the things that I'm dying to do is to sing the hook on a big rap song.
+- I've always listened to country music. I wanted Hootie to become a country band at first, but I was outvoted.
+- I make records so I can go on tour. There's nothing else. I love to go out and play for people.
+- I just wanted to go out and make a record that I've always wanted to make since I was a kid.
+- There's a lot of stuff I thought I'd do in the world, but I never thought I'd have a street named after me in my hometown. It's a great feeling.
+- I remember riding around with my friends with 'Ain't Even Done with the Night' cranked up and my windows down. Those were great days.
+- For me, the Mount Rushmore of greats would be Ric Flair, Dusty Rhodes, Hulk Hogan, Bruno Sammartino or Lou Thesz. You can do either one of them in that fourth spot. But I think Ric Flair is the greatest of all time. He's the greatest I've ever seen... on the mic and in the ring.
+- Everybody's got problems, and if you're gonna leave somebody because they have problems, you're gonna be alone for a long time.
+- When I'm singing a song, I'm in that song, and I'm thinking about what emotions I should bring to the song. Voicing a character was very similar. It was high energy, and I had to really think about the emotion of what was going on in the scene.
+- Remember the Stax label and how if you liked one record, you liked all the others as well? You don't talk to a lot of people who tell you how much they love their record label. I don't care how many records they sell.
+- My family lives a pretty normal life.
+- I always tell people, the first time I heard 'She Talks To Angels,' those lyrics did something to me.
+- I expect to make a career out of country music.
+- The worst thing for me when I go to a concert is a whole bunch of ballads. You get bored.
+- Whether you are on stage or playing golf, all it takes is one person to throw everything off.
+- I'm such a lover of golf, and I've been at the Masters a couple times, and I've been so blessed to get to play there.
+- When I was growing up, I always knew that if I ever got anything, I was going to give back as much as I can. I learned that all you have to be willing to do is give your time.
+- I'm always trying to find myself little holes where I can do some songwriting.
+- That's one of my pet peeves. People always want to put something into a category - this one or that one. You know, a great song is a great song.
+- A lot of times, I don't want to listen to my stuff, because I'm thinking maybe I didn't do my best.
+- I had an AM radio and listened to Al Green, Kenny Rogers, Stevie Wonder, Charley Pride and Cheap Trick - sometimes in the same hour on the same station!
+- I remember my brother was always a jerk to me. One time, he bought Jimi Hendrix's 'Smash Hits,' and he gave it to me because he didn't like it, thinking it was a punishment.
+- People go, 'Oh, you're another guy who crossed over to country.' I say, name another one. Name one other pop singer who's done what I've done as a country singer. There isn't one.
+- I love Christmas. I love the music... I love everything about Christmas. I'm a big fan.
+- There's two times of year for me: Football season, and waiting for football season.
+- I'm going to do whatever I want as long as it's country. I mean, I'm not much on naysayers, so I'll just do whatever. If I like it, I'll do it.
+- I've been a Robert Randolph fan forever, since 2001. I just thought he was so cool; you don't see a black kid playing the slide the way he plays. No one plays like Robert.
+- For me, '52nd Street' is quintessential Billy Joel. I bought that record as a kid and listened to it so much.

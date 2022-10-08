@@ -1,0 +1,101 @@
++++
+author = "Daniel Lyons"
+title = "Daniel Lyons Quotes"
+quotes_len = "95"
+description = "the best 95 Daniel Lyons Quotes"
++++
+- Since the beginning of the internet era, it has been pretty widely accepted that when you join an online service, whatever data you put into it belongs to you.
+- Confining a resume to a single page is good advice for anyone.
+- What if the Big Three automakers made products that were simple and easy to use - imagine a car with a user interface made by Apple - while also constantly trying to push the state of the art? What if they constantly sought out new technologies and ideas, and incorporated them into their products?
+- People who write about technology love to huff and puff and hyperbolize. The fate of the entire world seems to hang on every move made by Microsoft or Google or Apple. Every new smart phone gets billed as a potential 'iPhone killer,' while every new product from Apple represents the dawn of a new era. It's ridiculous - and exhausting.
+- A startup job is an investment, after all: Venture capitalists may wager money, but you're staking something more precious - your time. And unlike VCs, you can't spread your risk by betting on a bunch of companies at once. Start with TAM. That's 'total addressable market,' and if it's not big enough, there's no point in talking.
+- In the 2010 holiday quarter, Apple reported $26.7 billion in revenue, up 70 percent from a year before. That means it's nearly as big as IBM, which did $29 billion in the same quarter.
+- What needs to change is the nature of advertising itself. That business hasn't really evolved since the days of Don Draper.
+- Android phones are sold by dozens of hardware makers, the biggest being Samsung, Motorola, and HTC. There are lots of different form factors. Slider phones. Phones with keyboards. Big screens, small screens, midsize screens.
+- HubSpot is divided into 'neighborhoods,' each named after a section of Boston: North End, South End, Charlestown.
+- To make a vehicle autonomous, you need to gather massive streams of data from loads of sensors and cameras and process that data on the fly so that the car can 'see' what's around it.
+- I was a technology reporter. And I think everybody who covers tech at some point or another feels like a little kid with their face pressed against the glass looking in at the candy shop and going, 'Wow, it looks so cool and so much fun.'
+- Amid all the job losses of the Great Recession, there is one category of worker that the economic disruption has been good for: nonhumans.
+- The chance to interact with big shots is drawing scads of aspiring entrepreneurs to Quora, along with venture capitalists and other Valley players.
+- In addition to making Android available for free, Google also lets phone makers change the code and customize it so that an Android phone made by, say, Samsung has a different user interface than an Android phone from Motorola.
+- Social gaming is not something Zuckerberg could have imagined back when he was creating Facebook in his Harvard dorm room in 2004. The change began in May 2007, when Facebook announced it would let outside developers create applications that run on top of Facebook.
+- My prior stint at 'Newsweek' was a very different world. So it's what it's like to be in one of these kooky software startups as a grown up. It's not entirely pleasant! It's like, 'Oh, I don't fit.'
+- Conventional companies try to find new uses for capabilities they already have. Transformers look at what the market needs and then go build it, hiring new people and/or taking people off other jobs.
+- Net-neutrality proponents howled when Comcast started throttling traffic from BitTorrent, a bandwidth-hogging program people use to swap video files. The Federal Communications Commission sided with the open-Internet folks, ruling that Comcast could not selectively choke off traffic.
+- Most startups flame out or just muddle along. Your chances of spotting a unicorn, pre-horn, are incalculably small. But if, knowing that, you still want to toss aside your cushy job, at least listen to corporate vets who have made the transition.
+- The office-as-playground trend was made famous by Google and has spread like an infection across the tech industry. Work can't just be work; work has to be fun.
+- I wouldn't say that I know a lot about 'Silicon Valley'. I live in Boston, for one thing. And I don't live and breathe this stuff the way most of the guys out there do.
+- GE rolled out a popular TV ad campaign in 2015 explaining why youthful techies should give the 'digital industrial' giant a second look.
+- HubSpot's offices occupy several floors of a 19th-century furniture factory that has been transformed into the cliche of what the home of a tech startup should look like: exposed beams, frosted glass, a big atrium, modern art hanging in the lobby.
+- The technology, called near-field communication, involves a microchip that can send and receive data across very short distances, about four inches. Instead of swiping a credit card, you hold your phone near a reader and let the data zip between the two devices.
+- If your plumber or pool installer or local appliance store uses HubSpot software, HubSpot may be holding information about you without you even knowing it. We figure we're safe when we use online services. We figure we can trust the people who run them not to snoop on us. I used to believe that. I don't anymore.
+- Every new HubSpot employee has to go through training to learn how to use the software. That's a good idea, and it also keeps me from having to worry about what I'm supposed to be doing here or why Cranium, who hired me, still has never come by to say hello or talk about what he wants me to work on.
+- With the iPod, iTunes, iPhone, iPad, and iMac, Apple is the most powerful tech company in the world. It's also the No. 1 music retailer in the U.S. and among the top sellers of online movies, too.
+- Early on, Android phones were pitched as kind of ersatz iPhones, devices that could do most of what an iPhone did - but were available on carriers other than AT&T, a relatively horrible network that was the biggest source of complaints about Apple's transformative device.
+- There are people who do things in tech that have the same skill sets that journalists have. They write, they edit, they put out press releases.
+- One way Groupon hopes to gain an edge is by using software to learn about its members so it can deliver more relevant offers: my wife will get the manicure-pedicure deal, but I'll get an offer on fly-fishing lessons. The key now is execution - delivering great customer service and keeping everybody happy on both sides of the transactions.
+- I wanted to write a book about what it's like to be 50 and trying to reinvent yourself - that struggle. There are all these books and inspirational speakers talking about being a lifelong learner, and it's so great to reinvent yourself, the brand of you. And I wanted to say, you know, it's not like that. It's actually really painful.
+- Content is supposed to be king. But in the world of electronic devices, Apple seems to be placing the crown on its own head, apparently believing that its iPad and iPhone are more important to customers than the books, movies, and music they store on them.
+- PayPal, which was founded in 1998, may be the closest thing to a global currency that has ever been created. Based in San Jose, California, the company operates in 190 markets, sending and receiving payments in 24 currencies on behalf of 90 million active members.
+- Apple is on fire, delivering smash hits across its entire product line. It's hard to think of another company that has ever been on such a roll.
+- I want to get in on how the media business is changing, how people are telling stories in new ways.
+- I think the issues around diversity of all kinds are really a huge problem in the startup world.
+- Hubspot's leaders were not heroes but rather a pack of sales and marketing charlatans who spun a good story about magical transformation technology and got rich by selling shares in a company that still has never turned a profit.
+- These days a typical netizen has dozens of online accounts. If you really want to be safe, you need to have a different password for each one, and each password needs to be incredibly complicated, with a mix of capital letters, symbols, and numbers. Who can keep all that stuff in their head?
+- 'Do not track' probably won't spell doom for online advertisers. But it will put the burden on them to explain to consumers what targeted advertising is and why it's good for them. They'll have to come out of the shadows; they'll have to be honest with people. What a radical concept. I'm all for it.
+- You can crank out Bitcoins on a PC, but it's an incredibly computer-intensive task, and it will keep getting harder as the number of Bitcoins in existence increases. Some people have pooled together hundreds of machines to 'mine' Bitcoins. Most folks, however, just buy them on an exchange.
+- I often wonder what the world would be like if more companies were like Apple.
+- If a developer wants to sell something via an iPad app - it's called an 'in-app purchase' - the transaction must go through Apple, which keeps 30 percent of the money and passes 70 percent on to the developer.
+- Some people are using landline connections and dial-up modems to call ISPs in other countries and get onto the Internet. Still others are using satellite connections.
+- Mesh networking is an old idea. Oddly enough, the low-cost XO Laptop built by the 'One Laptop Per Child' organization - the so-called $100 laptop - was designed with built-in mesh networking. The idea with the XO machine was that many kids using those laptops would be out in rural areas without reliable Internet access.
+- Nobody ever imagined how quickly the Android mobile-phone platform would take off - not even Andy Rubin, the Silicon Valley engineer who created it.
+- Is any job safe? I was hoping to say 'journalist,' but researchers are already developing algorithms that can gather facts and write a news story. Which means that a few years from now, a robot could be writing this column. And who will read it? Well, there might be a lot of us hanging around with lots of free time on our hands.
+- I feel like there are some careers that do have a higher meaning.
+- There's no special technological wizardry involved in what Groupon does.
+- People in startup-land live inside it. They see themselves as really good people even when they're doing something that's very bad. There's a huge disconnect from reality in the tech world.
+- You realize that if you're in the media business, technology is fundamentally what's driving the change in that business.
+- With digital attacks becoming rampant, the computer nerds who work for the good guys to thwart such incursions have become the new Navy SEALs - elite commandos who can carry out sophisticated operations on the battlefield of cyberspace.
+- I used to be a pretty hard-core iPhone fan. But over time, I grew more and more frustrated with the lousy service on AT&T. My iPhone simply could not reliably make and hold a phone call. Not just in New York and San Francisco, where I spend a lot of time, and where AT&T's service has been notoriously bad for years.
+- I guess I always had made some assumptions about what it would be like to work in a tech company, and some were right, and some were wrong. I had a lot of, looking back on it, now naive ideas about how companies build their brands, and a lot of those notions I ended up realizing were kind of wrong.
+- If we didn't have Net neutrality, carriers could do things like penalize companies that use a lot of bandwidth or create high-speed lanes and charge Internet companies extra fees to send their stuff over them. That would give an advantage to big companies and make life harder for startups.
+- The iPod Touch is basically an iPhone with the phone part taken out, which is fine - since making calls is the one thing that the iPhone doesn't actually do very well.
+- PayPal claims it can help merchants expand into international markets; its system makes it easier to do business with customers in multiple countries, for example, by handling tricky stuff like currency conversions automatically.
+- Some people don't have a sense of humor.
+- The people running Silicon Valley are not making the show because they want to do a satire of Silicon Valley. They are just comedy writers, and they want to make a funny show.
+- Some law firms now use artificial intelligence software to scan and read mountains of legal documents, work that previously was performed by highly paid human lawyers.
+- There's often a good, honest case to be made that a century-old company has not only a knack for growing and managing a P&L, but also, perhaps, a heart and soul.
+- Fingerprint readers require special hardware, and a lot of people find them creepy and don't want to use them. Smart cards and tokens can be lost or stolen.
+- I wanted to learn how to blog, so I was playing around with Wordpress and Typepad and Blogger, starting all these different blogs just to learn how these things work. I had a fake Sergey Brin blog, an anonymous, fake Ph.D kind of blog. I did it for, like, I don't know, six weeks, and the Steve Jobs one just caught on.
+- Fixing mistakes is one thing. Apple's bigger strength has been its ability to keep improving hit products.
+- I was working at 'Forbes,' and I covered big enterprise companies - IBM, Sun, and EMC - and it was kind of boring. 'Forbes' only came out every other week, so it was not the most fast-paced job in the world. It was very nice, comfortable.
+- To be sure, robotics are not the only job killers out there, with outsourcing stealing far more gigs than automation.
+- The world of online marketing, where HubSpot operates, though, has a reputation for being kind of grubby. Our customers include people who make a living bombarding people with email offers or gaming Google's search algorithm or figuring out which kind of misleading subject line is most likely to trick someone into opening a message.
+- Even in the business department of a magazine, tech was a backwater.
+- 'Silicon Valley' likes being satirized. They've all been waiting for someone to come along and make fun of it.
+- Instead of inventing a gobbledygook password, you join three simple words that come from a thought known only to you. If one day you were driving to work and ran over a frog that ended up flat, you might choose 'frog work flat.'
+- The iPod wasn't the first MP3 player. Nor were the iPhone and iPad the first in their categories. The real reason for the success of these devices - the true unsung hero at Apple - is the iTunes software and iTunes Store. Because Apple provided them, it wasn't just selling hardware.
+- Android is the kind of runaway smash hit that techies spend their careers dreaming about.
+- There was a time when a company could not sell its shares to the public unless its revenues were growing and it was turning a profit. Companies that lost money were deemed too risky for public investors.
+- Nvidia's self-driving-car business grew out of a long-standing relationship with auto companies. Car guys used Nvidia chips for computer-aided design, then used Nvidia supercomputer chips to do crash simulations. When the car guys started thinking about autonomous vehicles, Nvidia leaped at the chance to help them solve the problem.
+- Google views Facebook as a threat to its business and has been trying to launch a social-networking service to compete with it.
+- Carrier networks were originally built for connecting phone calls. Now they're getting swamped with bandwidth-hogging data applications. Keeping up will require huge investments. Who's going to pay for that?
+- Since 2011, Groupon has lost $730 million, and Zynga has lost just over $1 billion. Twitter has been in business for 10 years and went public in 2013. Since then, the company has lost $2 billion.
+- Remember the early days of the Net, when everything was going to be open and free, and we were all going to share information in a techno-utopia? That was great until people realized that their user data could be turned into gold. Now there are billions at stake, and nobody is playing nice anymore.
+- In the world according to Apple, content is just a bunch of digital bits, easily copied, nothing special.
+- Why can't modern tech companies both grow and turn a profit at the same time?
+- Nvidia's CEO, Jen-Hsun Huang, is an engineer and a chip designer. He cofounded Nvidia and still runs it like a startup.
+- My role on 'Silicon Valley' was so small that I didn't have a lot of influence anyway in the show. There are four guys who really write that show and run that show and then six or eight hanging out in a room kicking in a few bits.
+- What if people could use the Internet to create a new kind of money, one that didn't involve governments and central banks and could be used anonymously, like cash?
+- My job, originally, was to write blog posts for their 'HubSpot' blog. They have a business model built on content. Then I was writing e-books for them, and after I came back from L.A., they had this new plan to launch a podcast.
+- I feel like Valleywag has been different things with different writers over the years. Up and down. I think it's at their best when they get a legitimate scoop, like when someone leaks them documents. I feel like we could do more of that, breaking stories.
+- The Kindle app runs on iPads, BlackBerry, and Android devices, so you can read your books wherever you want; with Apple, you're locked into Apple devices.
+- For the most part, cookies aren't dangerous. They were created so advertisers could get a better idea of who you are and what you're interested in, so they could send you ads you're more likely to find relevant.
+- The iPhone is like 'omakase', the style of sushi where the chef chooses what you're going to eat, and might even tell you how to eat it - no wasabi allowed on this, no soy sauce allowed on that. Definitely no California rolls.
+- I was drawn to journalism as a young guy because I felt like there was some purpose to it, not always but sometimes.
+- We like the John Gruber model - he writes some long stuff that's very thoughtful and analytical, and then other stuff, he just adds a bit of commentary. I like that.
+- Can anyone create an enduring business on the Web, where it's easy to build new companies, and when survival depends on the whims of fickle users? The big lesson of 'Digg' may be simply this: if someone offers you a ridiculous amount of money for a company that wasn't that hard to build, don't think twice. Take the money and run.
+- Apple is very, very good at almost everything it does, and that includes corporate communications.
+- Facebook's position with rival tech companies boils down to this: if you want access to all the information we've collected, strike a deal with us.
+- There are too many ways that a startup gig can go sideways. If the startup won't agree to hefty severance, pass.
+- NBC Universal has created a role called 'talent branding specialist' - a marketer whose job is essentially to put the company on the radars of the most sought-after candidates.
+- There are two types of young people - the partiers and the people who wanted a sense of purpose in their life.

@@ -1,0 +1,13 @@
++++
+author = "Justin Zackham"
+title = "Justin Zackham Quotes"
+quotes_len = "7"
+description = "the best 7 Justin Zackham Quotes"
++++
+- I get a million ideas a day and I don't put too much weight on any one of them. The ones that really stick in my head are the ones I end up doing.
+- I was out in L.A. and I had gone to film school and I was out here for a couple of years. For a lot of years, I was bartending and having a good time.
+- One day, I got so disgusted that I sat down and wrote a list called 'Justin's list of things to do before he kicks the bucket.' I wrote it for myself and shortened it to 'Justin's Bucket List.' It was there on the wall, not as a story idea but as a motivational tool for myself, which actually ended up working pretty well.
+- I made 'Going Greek', which was a very sort of crappy fraternity comedy that I did back in 2000.
+- For me, screenwriting is all about setting characters in motion and as a writer just chasing them. They should tell you what they'll do in any scene you put them in.
+- We'll probably live 20 more years than our grandparents did. The question is, what are you going to do with those extra 20 years?
+- I had always fantasized about going to the Pyramids, the Great Wall; I've always been sort of obsessed with the whole notion of Everest.

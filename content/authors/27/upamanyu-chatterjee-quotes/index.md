@@ -1,0 +1,19 @@
++++
+author = "Upamanyu Chatterjee"
+title = "Upamanyu Chatterjee Quotes"
+quotes_len = "13"
+description = "the best 13 Upamanyu Chatterjee Quotes"
++++
+- Well, life is dark, isn't it? Mostly, it's dreadful. At the same time, death is funny too. I mean, look at the fuss we make of it.
+- The more languages you know, the less likely you are to become a terrorist.
+- I need to have some depth in my characters. That's why they are all Bengalis. I can't imagine writing a book with someone called Saxena as the hero.
+- For me, comedy is richer and larger than anything else.
+- It's a huge headache - the more money you have, the more hassles. I find money very uncomfortable.
+- Advances don't fundamentally interest me. It sounds terribly naive, but money doesn't really mean anything to me. If a lot of money came my way, I'm certainly not going to say no. But it hasn't come my way as yet, and I'm not heartbroken.
+- I don't think I would do better books if I wrote full time. I write for amateurish reasons.
+- I feel completely at home in the absurdities of India.
+- Anyone who has grown up in Delhi knows it's horrible.
+- People should have literary and cultural taste and should not bomb hotels.
+- Governance is complex, difficult, and on the whole, thankless - why ever should the Bright Young Things leave the management of their hotels, newspapers, banks, TV channels and corporations to join, like fleas on a behemoth, the government? Wherein lies the difference between the two worlds?
+- Amidst one's daily clutter, one doesn't usually reflect on the splendour of being free because - naturally - one has to get on with the business of living.
+- So much better to write pen on paper; you can do it anywhere, say, while stuck at the airport.

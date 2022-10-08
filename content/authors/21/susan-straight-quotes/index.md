@@ -1,0 +1,32 @@
++++
+author = "Susan Straight"
+title = "Susan Straight Quotes"
+quotes_len = "26"
+description = "the best 26 Susan Straight Quotes"
++++
+- The best thing I could say is you do have to be a really good listener. If I go to a family reunion, and there's 400 people there, everybody comes up and tells me their stories, right? And I think that when you're a good listener, and you can imagine how someone's talking, dialogue is your key friend, is it not?
+- I still live in the same place I've lived all my life.
+- I never saw a gun until I was 24. I didn't grow up in Mayberry; I grew up in Southern California.
+- All my best memories of my brother are in vehicles, speeding, predatory or celebratory. We were just made to drive. For the last 12 years of his life, he lived as caretaker of an orange grove. There, on 18 acres, my brother collected cars and trucks and motorcycles.
+- I'm trying to make the readers feel as if he or she is right there in the conversation, and so I don't try to manipulate it too much.
+- My brother acquired his first gun when he was very young, from a recently-fled drug dealer's residence. Now, he lived in a rural orange-grove area, and he shot at coyotes who killed his animals and at drug runners who used the groves for transport. Sometimes he joked that he only shot what moved.
+- I don't write about myself. I'm never in my books.
+- In 'Love Story,' Oliver Barrett IV comes from generations of wealth and privilege, but when he meets working-class Jennifer Cavilleri, he can't resist. When they marry, his father disowns him, but they struggle on in love, until she's diagnosed with cancer and they can't afford the costly treatments.
+- More than half of my former students teach - elementary and high school, community college and university. I taught them to be passionate about literature and writing, and to attempt to translate that passion to their own students. They are rookie teachers, most likely to be laid off and not rehired, even though they are passionate.
+- Real novelists, those we admire, those we consider timeless in their language and character and scene, those who receive accolades for inventive language and form, have writing lives we imagine in specific ways.
+- I love election day, and I love to vote.
+- All I am is a writer and a mom.
+- My mother and father split up when I was three and my brother was still in the womb.
+- My mother was born in Switzerland, my stepfather in Canada.
+- I wrote a story about a man who is orphaned during the 1927 Mississippi River flood in Louisiana, and he's on the banks of levee, and he's starving. And there are other people starving, too. And he's so desperate, he's seven years old, that he finds a pig that's been abandoned. He kills it with a hammer, and he drags it back.
+- I have not ever been able to decide how would my girls have fared if they came up in a different time?
+- For someone like me who's lived in the same place her whole life - I mean, I lived three blocks from where I was born, and I met my future husband in the eighth grade - there are always family stories and legends passed down.
+- The American fantasy of love is the 'meet-cute,' 'Love at first sight,' and 'You had me at hello!' The completely spontaneous version of accidental love, which doesn't care about demographics and social compatibility.
+- The two words, in the American lexicon, are never good. Pink slip. The first time I ever heard it when I was young was when Kaiser Steel handed out pink slips to many of my neighbors and relatives. Layoffs were about efficiency, sales figures for raw materials or refrigerators.
+- I've always told my children that Americans will tell you pretty much anything, but that convention dictates that we don't like to talk money or politics.
+- I have more than 100 legal pads filled with handwriting. Eight novels, two books for children, countless stories and essays.
+- I first drew the attention of my future husband when we were fourteen, on the freshman school bus for an epic field trip from Riverside, Calif. to Los Angeles, where we were taken to the L.A. Zoo as well as the Natural History Museum.
+- My father, born in Colorado, met my mother, born in Switzerland, when he went into the finance company where she worked and asked for a loan.
+- It's always fun to talk about a novel.
+- I love seeing America vote, through the prism of my older working class neighborhood in Riverside, California.
+- Teachers spend most of their daytime hours with children. Teachers at every level, coaches, counselors, cafeteria workers and yes, custodians, spend their hours trying to make children's lives different, if not always better.

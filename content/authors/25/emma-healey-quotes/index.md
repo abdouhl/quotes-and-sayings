@@ -1,0 +1,46 @@
++++
+author = "Emma Healey"
+title = "Emma Healey Quotes"
+quotes_len = "40"
+description = "the best 40 Emma Healey Quotes"
++++
+- I feel like Mills and Boon saved my life. It was a way of not living. I read a lot of other books as well, but they were definitely the best for just switching my brain off, not having to deal with reality.
+- I really admire Ana Mendieta. She was a Cuban American artist who died the year I was born and whose work examines violence, feminism, and belonging. Her art is always brave and visually arresting and vibrates with meaning.
+- Reading about what a digital native thinks of the Internet is like reading about what it's like to blink: it's kind of boring.
+- It's a slow process rewriting your own life in your head. I think that's a writerly thing.
+- I loved 'A Lion in the Meadow' by Margaret Mahy.
+- I love writing dialogue - it's when I really lose myself in my work. I love reading it, too, when it's good and rings true.
+- Ann Radcliffe was an early influence; I devoured her books while I should have been studying for my GCSEs.
+- People always want to give you advice about parenting. People who you've never met before will tell you you're doing something wrong. And it's quite similar in writing. People forget that you're a human; they just want to give you their advice.
+- Sometimes people ask, 'If you'd never had a reader, would you carry on writing?' No.
+- When you are in the midst of writing a book, I think it is important to touch base every day. If I wasn't writing something, I would be reading back what I'd already written. I did take a month off writing at one point and found it really difficult to get back into the world I'd created.
+- I have a study at the back of the house, overlooking our garden. It's tiny, just wide enough to fit my desk in. The walls are covered with pin boards and art postcards from galleries all over the world, including Tate, MoMA, and Lenbachhaus.
+- I found 'The Face Of Another' by Kobo Abe disappointing despite the excellent, gothic premise: a man who's terrible facial scarring leads him to create a perfect mask.
+- I had tried to write about young women in London who had jobs and boyfriends, and it was so tedious.
+- The characters in a novel are made up, figments of the writer's imagination. I'm sure this won't come as a surprise to anyone, and it's not surprising to me either, but knowing this, feeling this, definitely made writing my second book harder.
+- With novels, you're representing things. You're not explaining.
+- I was a 20-something woman living in London and didn't want to write about a 20-something woman living in London! It's an area well covered already, and people would probably have thought it was about me. I decided that if I wrote about an 82-year-old dementia sufferer, then no one could mistake it as a memoir.
+- I used to say I wasn't interested in writing about characters.
+- While I was writing 'Elizabeth Is Missing' and struggling with the intricacies of the plot, I told myself the next book would be really simple and linear, and I'd have it all worked out before I set down a single word.
+- Penelope Fitzgerald never fails to surprise: her language is clever and elegant, her settings are unusual, her characters are unpredictable, and I am always caught out by a line or moment which makes me laugh out loud.
+- When I was writing my first novel, 'Elizabeth is Missing,' I was writing the only novel I had ever written and writing about the only protagonist I'd ever written about. Because of this, I didn't think of her as a construct. Maud was real.
+- I can trace my interest in modern classics to the summer before art college.
+- Mark Haddon's 'The Curious Incident of the Dog in the Night-Time' was published while I was trying to work out how to write 'Elizabeth Is Missing,' and reading the story of that impaired amateur detective gave me the licence I needed to attempt one of my own.
+- I had so many people in my family with dementia that it felt like it belonged to me in a way. I feel like the same with teenage depression because I went through it. I feel like I'm allowed to write about it; it's mine.
+- I think I'm too scatty.
+- I'm not a writer who thinks about writing only for themselves; I do always have a reader in mind.
+- Writing is the thing that pervades my whole day - I'm always wondering how I might describe something or improve my understanding. I'm constantly trying to remember an eavesdropped conversation or an idea for a story.
+- Although my father's mother, Nancy, has dementia, and her experiences gave me ideas for some of the scenes in the book, it was my mother's mother, Vera, who most influenced the character of Maud. Vera died in 2008, before I'd gotten very far into writing 'Elizabeth Is Missing,' but her voice is very like Maud's.
+- I like to go for walks on Wandsworth Common and feed the ducklings.
+- A boyfriend made me a hammock in Richmond Park once. That was lovely - although I ended up getting a tick on my stomach from the deer.
+- I spend a ridiculous amount on pots, lilacs, and alliums.
+- If you work hard at something, you can forget everything else.
+- There are lots of things going on for teenagers, with exam stress, changing friendship groups, becoming independent, and all those hormone changes affecting you.
+- Several members of my family have, or have had, one form of dementia or another. I really wanted to explore what it might like in fiction, but I didn't know how to start.
+- I've been surprised that 'Elizabeth is Missing' has been so well received as a crime book. I love mystery stories, and that is what I decided to write.
+- I used to go to the gym with one of my best friends, and we seemed to have the same conversation over and over again. I was always saying, 'I'm still not pregnant, and I still haven't worked out what I'm writing,' and her answer to both was always, 'Just relax!'
+- Like most new writers, I could only hope that one day one publisher might agree to publish one of my books; I couldn't imagine several publishers all wanting to buy the first book I'd written.
+- I spent a lot of time researching dementia, read papers on the subject, and also found a lot of dementia diaries on the Internet which were a great help in getting an insight into the disease.
+- I was very worried about whether I could do it or not. I mean, how arrogant - here I am in my 20s trying to write from the point of view of a woman in her 80s.
+- I tried to help a shirtless man who was being arrested in Starbucks. He obviously wasn't right in the head, but the police thought I was trying to make things worse.
+- When I was very small, I loved 'Meg And Mog' by Helen Nicoll and Jan Pienkowski. I had all the books and remember going to see the theatre production.

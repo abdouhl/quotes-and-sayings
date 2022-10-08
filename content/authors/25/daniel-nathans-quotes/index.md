@@ -1,0 +1,17 @@
++++
+author = "Daniel Nathans"
+title = "Daniel Nathans Quotes"
+quotes_len = "11"
+description = "the best 11 Daniel Nathans Quotes"
++++
+- So I applied to medical school and received a scholarship at Washington University in St. Louis. Washington University turned out to be a lucky choice. The faculty was scholarly and dedicated and accessible to students.
+- Small science, which includes most research in the life sciences all over the world, is science directed usually by an individual senior scientist and a small team of junior associates, perhaps three, ten, fifteen, something in that order.
+- And of course, identifying all human genes and proteins will have great medical significance.
+- My parents came to the United States in the early years of this century as part of a wave of Russian Jewish immigrants seeking freedom and opportunity in the New World.
+- People are not the only interesting organism on earth. From the point of view of scientific or commercial value, there are lots of interesting organisms.
+- My education began in the public schools of Wilmington. During most of these years, from about age 10, I also worked at some job or other after school, on weekends, and in the summer months.
+- As I look back on the last few decades of my life, I am struck by the good fortune that came my way.
+- I also found out that I liked biochemical research and that I could do it.
+- At every stage of my career I have had interesting and cordial colleagues, some of whom are close friends.
+- First of all, many human diseases are influenced by, if not caused by mutations in genes.
+- The glimpses of human strength and frailty that a physician sees are with me still.

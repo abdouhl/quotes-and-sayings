@@ -1,0 +1,35 @@
++++
+author = "Patrick M. Byrne"
+title = "Patrick M. Byrne Quotes"
+quotes_len = "29"
+description = "the best 29 Patrick M. Byrne Quotes"
++++
+- I'm not wed to bitcoin's blockchain. I'm blockchain-agnostic.
+- We are on a crazy strategy with our central bank. It's good to have alternative ecosystems. It's not that the dollar will go away, but we need other options if it crashes or wildly inflates.
+- We want enough people adopting Bitcoin for a robust infrastructure. It's an act of patriotism. It gives the country a robust parallel system.
+- People didn't know where they could trade. When everybody owes each other IOUs that can be in multiple places at once, that's how the system couldn't tell any more who owned what and who owed what to whom. Blockchain could have prevented 2008.
+- There is absolutely no reason in the world of blockchain to build in net settlement. It's like saying you have got a new Ferrari and we are going to put a lawnmower engine in it.
+- The virtues of the blockchain is that it would be that it's peer-to-peer settlement - no centralized settlement, no manipulation... And most importantly, there's nothing to capture. It's consensus based. It's stateless.
+- If we get to a world of digital securities, then there isn't a need for DTC and Cede & Co. anymore. It's a really huge step in returning to clean capital markets.
+- I've been all over meeting government ministers and such in Caribbean financial circles. There's a small blockchain movement in the Caribbean. They've been quite a bit more advanced than you might've imagined.
+- I've been in a room in Silicon Valley where on the wall they have 160 industries they think blockchain can disrupt. We picked six of them to focus on.
+- There are regulators at the SEC and elsewhere who are really excited about the potential of the blockchain. They understand you can build a robust financial system - it would solve all your black swan problems. All kinds of mischief and games that are played in the current system become impossible in this system.
+- How high can bitcoin go? The real question is how low can the dollar go?
+- With the block chain, for the first time, we no longer need these central institutions for settlement or for guaranteeing the value of coins or for land titling. All of these functions can be replaced by a transparent public ledger that is safe from tampering and which can make value and ownership clear and open for everyone.
+- There are dodgy characters in Bitcoin. But there are dodgy characters in cash, too.
+- Bitcoin and other cryptocurrencies are a form of money that's a stable field that the government can't destroy and can't distort. Because its creation is governed by the laws of mathematics. It can't happen any faster or slower than a certain rate, and it all sort of self-adjusts.
+- When we look at government in Washington or what's happening on Wall Street, we see so much centralization. But really, our goals should be to eliminate and overcome these central institutions. And in recent years we have gained powerful new tools to do this, and most significant among those is the block chain, which is the software behind Bitcoin.
+- The main event isn't bitcoin. It's using the blockchain to disrupt other industries and Wall Street.
+- On the blockchain, you have a public ledger, which is the form of ownership. That means you are not doing net settlement - just netting everything down, which means that everything has been turned into fungible numbers.
+- I'm not in the business of bayoneting the wounded. I feel the blockchain revolution is kind of my victory. I don't care whether I win it, someone else wins it.
+- We want a money that some government mandarin can't just whisk into existence with a pen stroke.
+- Right now, you've got three days between a trade and a settlement, with hundreds of millions in settlement risk tied up in that time. That all goes away in a blockchain system because you've reunited the trade with the settlement. They're not two separate processes.
+- Cryptocurrencies in general give us a stable medium through which we can communicate our information about values and prices in a way that no government mandarin can distort or usurp. For the predators who have used our central institutions to predate on the rest of humanity, it's a very bad development.
+- You're going to start seeing open-source, self-executing contracts gradually improve over time. What the Internet did to publishing, blockchain will do to about 160 different industries. It's crazy.
+- There is an opportunity to recreate the financial world as we know it in the parallel universe that is the blockchain. We are writing rules for this whole new universe.
+- This is where the block chain is most useful and revolutionary: It helps us to overcome the problem of mutual trust in exchange, which will, in turn, make many of our modern central institutions unnecessary.
+- A major impediment to economic advancement around the world is the fact that the vast majority of humans are unbanked.
+- For the first time in 6,000 years of human history, we can have peer-to-peer exchange where trust is not a problem anymore. And it's through the technology that underlies bitcoin. It's called the block chain.
+- Over the next decade, there will be disruption as significant as the Internet was for publishing, where blockchain is going to disrupt dozens of industries, one being capital markets and Wall Street.
+- t0 is blockchain-agnostic so, ultimately, we can use anybody's blockchain.
+- We know that flat and non-hierarchical systems use information best. I've tried to do that with my own company because it works better that way. And society at large will work better as well if we can get rid of these old institutions and hierarchies. New innovations like the block chain can make this possible.

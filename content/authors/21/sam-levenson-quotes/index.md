@@ -1,0 +1,31 @@
++++
+author = "Sam Levenson"
+title = "Sam Levenson Quotes"
+quotes_len = "25"
+description = "the best 25 Sam Levenson Quotes"
++++
+- We should not permit prayer to be taken out of the schools; that's the only way most of us got through.
+- Any kid who has two parents who are interested in him and has a houseful of books isn't poor.
+- It's so simple to be wise. Just think of something stupid to say and say the opposite.
+- Insanity is hereditary; you get it from your children.
+- The difference between keeping things clean and keeping kids clean was that things just sat still and waited for the dirt to collect. We kids were carriers. We ran a pickup and delivery service.
+- Somewhere on this globe, every ten seconds, there is a woman giving birth to a child. She must be found and stopped.
+- Lead us not into temptation. Just tell us where it is; we'll find it.
+- If you want to know how your girl will treat you after marriage, just listen to her talking to her little brother.
+- It's a good thing that when God created the rainbow he didn't consult a decorator or he would still be picking colors.
+- If you die in an elevator, be sure to push the Up button.
+- When I was a boy I used to do what my father wanted. Now I have to do what my boy wants. My problem is: When am I going to do what I want?
+- One of the virtues of being very young is that you don't let the facts get in the way of your imagination.
+- Any beast can cry over the misfortunes of its own child. It takes a mensch to weep for others' children.
+- The reason grandparents and grandchildren get along so well is that they have a common enemy.
+- Just try to be happy. Unhappiness starts with wanting to be happier.
+- Our parents set the moral tone of the family. They expected more of some of us and less of others, but never less than they thought we were capable of.
+- You must pay for your sins. If you have already paid, please ignore this notice.
+- It was on my fifth birthday that Papa put his hand on my shoulder and said, 'Remember, my son, if you ever need a helping hand, you'll find one at the end of your arm.'
+- I admit that: my wife is outspoken, but by whom?
+- Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.
+- You must learn from the mistakes of others. You can't possibly live long enough to make them all yourself.
+- Happiness is a by-product. You cannot pursue it by itself.
+- The simplest toy, one which even the youngest child can operate, is called a grandparent.
+- I'm going to stop putting things off, starting tomorrow!
+- Don't watch the clock; do what it does. Keep going.

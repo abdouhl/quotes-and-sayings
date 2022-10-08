@@ -1,0 +1,89 @@
++++
+author = "Erin Heatherton"
+title = "Erin Heatherton Quotes"
+quotes_len = "83"
+description = "the best 83 Erin Heatherton Quotes"
++++
+- You really don't need to wear any make-up most of the time; keep your eyebrows the way they are, and find your own natural beauty signature.
+- You could be doing a million butt lifts, but your butt is not going to get any bigger because there is nothing to build on. Your body needs food to make that happen.
+- I need to pay people to make me work out, or I wouldn't do it.
+- I've met some of my best friends in the world working for Victoria's Secret.
+- Rest is the best thing for your body rather than working out or dieting. Sleep can change your whole metabolism, so it's my number one priority when it comes to looking good.
+- Love yourself no matter what!
+- I was such a tomboy - goofy and, in my eyes, nerdy - and I never thought I would end up in modeling. I mean, you see pictures of these girls in magazines who have this incredible talent, and no one ever really thinks you can make it to that level. At least I didn't!
+- I can't even sleep in. My body won't let me.
+- A mistake a lot of girls make is that they work out but don't eat enough. If you're not eating enough, all the work outs are doing, it's not going to show.
+- I love seeing new places and meeting new people. I'm sort of addicted to traveling.
+- Healthy body image is not something that you're going to learn from fashion magazines.
+- I played sports growing up in high school.
+- Ballet Beautiful is really good for me, and it doesn't hurt my back, and it's a way for me to kind of get my heart moving and tone every part of my body.
+- Perfection is really boring!
+- Backstage at the Victoria's Secret show is pure madness. Big personalities, big hair, and tons of press.
+- I've worked for years with Michael Kors, and he's just like this funny, charismatic guy.
+- I love to learn, and Victoria's Secret has given me more opportunities than I ever thought possible. I like doing things that scare me - I've learned never to doubt myself.
+- I'm a homebody, but I make people come to me, like, 'Everyone just come over, and we can have fun at my house.' I love to entertain.
+- 'Summer Heights High' is one of my favourite shows of all time. I'm obsessed. I re-watch it all the time.
+- I definitely only want to do charity work that I'm hands-on involved in. I don't want to get a dress on and go to a stupid event.
+- Definitely, starting my own brand would be really exciting.
+- Life would be pretty boring if we didn't have vices.
+- I work out twice a day, once in the morning and once before bed. I'll start with half an hour of running and then some yoga to stretch everything out so everything is warm.
+- My exercise varies from yoga to Pilates. The yoga provides me with achieving my balance and mental relaxation, whereas the Pilates allow me to work my inner core through stretching and keeping my muscles toned.
+- Coming from an athletic background, the scientific aspect is a really big part of understanding beauty and how the body works.
+- I think a lot of women have back problems.
+- My favourite beauty look is definitely '70s beauty - sun kissed skin, wavy hair and defined eyes.
+- It's important to be fit, but you shouldn't get too skinny. You need to have curves.
+- I swear by my Clarisonic Mia 2! I use it every morning when I wake up and every night before bed.
+- Caviar's sexy.
+- I never thought I was cute, ever.
+- It's people's own prerogative to be able to look at something and know the difference between 'this is what someone looks like with make-up on' and 'this is what they look like in real life.'
+- As a model, you're such a gypsy, so that 'home' element is kind of taken from you.
+- Rudeness, I think, is the worst.
+- I modeled for 4 years before I felt like I had my big break.
+- I am genuine, fun and passionate.
+- I make sure the foods I eat will benefit the appearance of my hair, skin and nails.
+- I always love a side of guacamole with everything.
+- I get so busy that I forget to eat, and that's really hurt me in the past. I gained weight from that.
+- It's really not important what my personal life is.
+- Rome is one of my favourite cities in the world.
+- The short amount of time I'm out on the runway is like going on a rollercoaster. It's such a happy, exciting feeling. I'm more like a racehorse ready to go - I just want to get out there.
+- The most important thing for staying in shape is having fun with your workouts.
+- I don't think people should confuse fantasy and reality because no one is perfect - we all know that.
+- I love lipbalms in general; they're very important!
+- I have way too many candles. There's always a candle burning at home.
+- I love being in Chicago.
+- I love doing my own make-up.
+- Even if you don't have time for a big workout, stretching in the morning and night really changes your body.
+- I went to a private Jewish school before high school, and a lot of the kids had beautiful homes, but my parents don't really care about those kinds of things.
+- I shopped a lot on 1stdibs.com when I first started modelling. Just whenever, I've always been on and bought all my furniture on 1stdibs.com.
+- I like to work hard and see the results of my hard work.
+- You can put in a curl or put on a lip color or mascara, but the important thing is that the health of your skin and hair is shining through.
+- I've been to Australia several times, and I just like the earthiness; it's part of the culture. That's a really good vibe to be around.
+- Working out gives me the opportunity to let go and listen to my music; it's a big stress reliever.
+- I work out at least 5 times a week.
+- I think that, like any art, fashion is about expression. It allows you to express yourself and your identity through what you choose to wear.
+- If you work hard and you do your best, you can do anything.
+- I had a boyfriend for a long time, and I've never really been single as an adult.
+- People should embrace themselves.
+- I think New Orleans is the best city in the United States.
+- My best friend is Lily Aldridge. Her daughter's my godchild.
+- My favorite memory from school was going to football games with my friends. We always had so much spirit and dressed up to go to the games, even though our team was pretty bad.
+- I can shoot a basket pretty well.
+- I actually have a little routine I do before every shoot. I put a face mask on before bed and make sure I go to sleep early. Then, I get up early and make myself breakfast and get in a workout.
+- People like to be around those who give off positive energy.
+- I love the responsibility of being a Victoria's Secret spokesmodel. It's a great life skill.
+- At home, I don't like to be just sitting around; I like to go out and do things. It's when I'm the happiest.
+- Sexiness is all about your personality, being genuine and confident, and being a good person.
+- Being yourself is very sexy, you know?
+- Inner beauty radiates from within, and there's nothing more beautiful than when a woman feels beautiful on the inside.
+- I always stay active, even if I'm on vacation.
+- I think there's something special and timeless about girls getting ready together.
+- Photoshop makes things look beautiful just as you have special effects in movies. It's just a part of life.
+- I can't maintain the body of a 16-year-old anymore. That's just a really boring life to me. You really just cannot do anything fun, ever.
+- Australian people are dope. They're so fun. They want to just have a good time, and they have a great sense of humour.
+- I love going on dates and talking.
+- Music inspires me.
+- I use Rodin Luxury Face Oil at night, and it keeps my skin hydrated and refreshed for the day - not tired from all the makeup.
+- It doesn't matter if you are model or not; confidence is something that comes from inside.
+- I'm gluten free, but that still allows me some chocolate!
+- My style is simple, kinda girly, but with a bit of an edge.
+- There is just something about starting your day with something luxurious like a bath.

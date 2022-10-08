@@ -1,0 +1,65 @@
++++
+author = "Denis Lawson"
+title = "Denis Lawson Quotes"
+quotes_len = "59"
+description = "the best 59 Denis Lawson Quotes"
++++
+- I got married on a beach in Italy. It was very romantic getting married in Italian. But I've no idea what we agreed to.
+- I always enjoy the scenes with Dennis Waterman, particularly when we're playing comedy, we're always finding stuff together and he's very immediate.
+- My family are all Glasgow. I was born there. Govan. When it was very tough. The tenements. All that stuff.
+- I think of myself as a light comedian.
+- You just wear the clothes, you don't let the clothes wear you.
+- Way back at the beginning, I went to see George Lucas when he first came to London for 'Star Wars.' I met him months before they started, and he didn't ask me to do the picture at all. But the actor whom he had employed to play Wedge didn't work out for some reason.
+- I hadn't read Dickens for a while and doing 'Bleak House' was great.
+- I was very surprised when I watched 'Star Wars,' and I thought, 'Oh, that's me. I've been blown up.' Then, I came back again. I really didn't know what was happening!
+- I'm more careful now, but in the past I would always have to give 100 percent of myself to every single show.
+- When I was a young actor and working in London, I would pop home to see my sister, and Ewan would always be intrigued about what I'd been doing. I think he found my shoulder-length hair and pink, flared jeans glamorous, which they were anything but.
+- My parents came out of Glasgow during the Depression and both - particularly my father - had very tough childhoods. They fought their way out of it.
+- Laughter is like surfing; it's like a wave coming out of the auditorium - before it has died off, you must come in with the next line. But if you come in too soon, no one will hear what you say.
+- In my professional life, when I started I felt it was very transitory. You meet people, you have to make this very intense connection and then you might not see them for two years. It was kind of odd and when I started out I didn't like it.
+- Playing the villain is great fun.
+- My mother was a dancer when she was a kid and I gather she was very good, but was never allowed to go into the profession.
+- Edinburgh is a phenomenal location for movies and should be used more.
+- Doing comedy is my favorite thing.
+- I don't know how I ever built a career, really, because I have always been absolutely terrible at auditions.
+- 'Local Hero' was probably the most enjoyable job I've ever done then or since. It's had a very long shelf life.
+- My first starring role was in 'Rumpelstiltskin' and the lightbulb moment for me came when I had to stamp my foot at the end and walk off the stage. Everyone laughed and I thought, 'this is great.'
+- For my money, acting has been over-intellectualized. It's only playing.
+- I never thought that I was intrinsically interesting.
+- It's unusual when you get scripts not wanting to change things - I'm one of those actors who writers must hate as I'm always wanting to rewrite or swap bits about.
+- I had this idea when I left drama school that if I could do everything, I'd always be working.
+- Working on 'Jekyll' required a lot of concentration and energy. The script is written in a very filmic way most of the time; unusually for television there are a lot of descriptive pages, tiny little fragmented scenes with no dialogue but huge energy.
+- To make 800 people laugh for a couple of hours is a wonderful feeling, because you know you're doing them a lot of good.
+- I quite like Jackson Pollock, and have a real gut reaction to it, so it does whatever it does to me.
+- I had a feeling 'Star Wars' might do well, but I didn't anticipate just how well.
+- The first four years, I worked exclusively in the theater. I did a great deal of different types of acting - avant garde and classical work. So, it was a very broad spectrum.
+- I've done a lot of musical theatre, but I equate 'Mr. Cinders' a lot with why I became an actor.
+- Going from dialogue-driven 'New Tricks' to a movie like 'The Machine' which has special effects has been brilliant.
+- For the first ten years of my career, or up to the point I did 'Local Hero,' I was always trying to be somebody else as an actor.
+- I see 'Jekyll' as a very scary comedy thriller, partly because Hyde is violent and frightening as a character but at the same time he's very funny - and that's quite an achievement.
+- Ewan was auditioning to get into acting college and asked me for advice as he wasn't connecting with the piece he was learning. I told him to think about a time he'd been beaten up in Glasgow and how he felt when the guy had punched him for no reason. He then made the connection between emotion and the words he was saying, which is what acting is.
+- I do some very high energy comedy, vaudeville, music hall stuff, and people who've seen my work on camera, on TV and movies, would not really know that.
+- I've always felt a very strong affinity with Jewish people. Over the years I find I've become very friendly with certain people I've worked with - actors, producers, whatever - and then two or three years later I discover they're Jewish.
+- My wife is a lovely Scotswoman called Karen.
+- I began to tell people that I wanted to be an entertainer. Between the ages of five and 11 there was an intense amount of practical drama going on.
+- In the '80s, to get a contemporary Scot who was smart, sexy and funny was very unusual.
+- In P7, I played Robin in a musical version of 'Robin Hood' and afterwards DO McLean was standing with mum and dad and he told them that I should go into drama. It is still extraordinary to me that a man in that period would think that that was an option for me.
+- I studied in Glasgow and, when I was young, I spent four years solely in theatre.
+- What's it like to have my trousers pulled down? It's not as awful as it seems. Doing that kind of thing with an actress like Judith Paris, who pulls them down, is easy, because she is very professional about it.
+- I've always maintained that there's no such thing as period acting, I think that's a class thing. I don't believe that people moved and spoke much differently than we do now.
+- When I was very small, when I was five or six, that's what I wanted to be. I wanted to be a song and dance man. Then I got a lot of inspiration from going to visit my grandparents in Glasgow, where I'd go to see variety. That made me want to do it as well.
+- My son is a lecturer at Bristol University in anthropology. His degree was in, get this, human mating strategies - sex!
+- The way the show was conceived originally and developed, has always had good writing at the heart of it, it's very difficult to be good with bad writing. 'New Tricks' has that with the right level of humor running through the series, along with the investigations.
+- Scotland is extraordinary as a location, the light is amazing, for instance on the west coast.
+- I don't really have a problem at all with doing a show that a lot of people watch.
+- My initial impulse was to be an entertainer, a song and dance man.
+- I was approached by Disney to reprise my role but I wasn't interested. The movies are sure to be brilliant but I don't want to be in them. I've spent the past 20 years talking about the last movies and I'm bored with it. I don't want to spend the next 20 talking about 'Star Wars.'
+- What I've always liked as an actor is to do a lot of different kinds of things. I've done musicals, stage, TV and lots of different styles of work.
+- This is the best thing that happens to me all night - a pint of cold Guinness.
+- A big moment for me came when 'Singin' in the Rain' came out. It hit me like a sledgehammer - that's what I wanted to do.
+- I get so bored about that, please don't ask me about 'Star Wars.' It was just so unimportant to me as a job, and everyone makes a big deal of it.
+- Ewan was studying in London and he got this huge job in his final year, a part in Dennis Potter's 'Lipstick on Your Collar' for Channel 4. He had no idea what happened on a TV set so I talked him through things.
+- I've always been interested in Jewish culture, but never had a chance to dip into it.
+- 'Bleak House' is like the best soap you could ever hope to watch.
+- I rather like contemporary art.
+- I'd be very interested to direct myself on film. I think it would be almost impossible on the stage.

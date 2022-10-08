@@ -1,0 +1,17 @@
++++
+author = "Gale Anne Hurd"
+title = "Gale Anne Hurd Quotes"
+quotes_len = "11"
+description = "the best 11 Gale Anne Hurd Quotes"
++++
+- Filmmaking is a business and at the bottom line people who don't make fiscally responsible decisions end up going into another line of work.
+- I've always loved comic books, which is why I've done films like 'Hulk' and 'The Punishers.'
+- A lot of my films have dealt with the dark side of technology and stress that you have to examine the ramifications of progress.
+- A lot of producers now are people who stay in their office and never go to the set. I don't know how you can be the advocate of the movie if you're not there in it every day.
+- What's so wonderful about 'The Walking Dead' is that we're able to explore human nature in its most depraved as well as its most humanitarian in each episode.
+- We tend to be more environmental at home than at work, regardless of the industry we're in.
+- I also love the zombie genre, my zombie fandom going way back to 'Night of the Living Dead.' And 'The Walking Dead' is truly the ultimate representation of that sensibility in the comic book genre.
+- I'm a huge historical fiction and non-fiction fan.
+- I'm just attracted to the action element of science fiction. It's great to sit in the editing room with the director and sound engineers and to create the feeling where your heart is racing and you're sitting at the edge of your seat and you find yourself holding your breath.
+- I just like the comic book sensibility. If I can turn them into films and TV series, that's just icing on the cake.
+- I've always been a fan of sci-fi, fantasy, and horror. I like working with larger-than-life characters in fascinating worlds - places where the rules are different.

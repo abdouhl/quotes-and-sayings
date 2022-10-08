@@ -1,0 +1,104 @@
++++
+author = "Gilbert Arenas"
+title = "Gilbert Arenas Quotes"
+quotes_len = "98"
+description = "the best 98 Gilbert Arenas Quotes"
++++
+- I just want to go out there and play.
+- You don't wear leather bucket hats in Vegas.
+- When I was little, I looked in the mirror and held the Bible in my hand - that's how I talked to God. I never just asked for stuff. The way I saw it, if you give Him something, you get something.
+- I never imagined that I would see my face on the cover of an EA Sports videogame.
+- I'm mentally strong.
+- Fans saying a player is overpaid doesn't bother a player. What bothers an injured player is watching your competitors grow.
+- I check out my MySpace. I'll go on sites to see what's funny on YouTube.
+- I made myself into what I thought was a big-time player, and nobody in L.A. seemed to care or believe I was any good. When I started hearing I wouldn't play in college, I would just let it simmer inside me and then be like, 'Okay. That's what you think? Okay.' The number zero was the only way I could express that.
+- I'm smarter than the average; I just act dumb. That's what gets people's attention; you act dumb, you get people's attention.
+- They welcomed me here in Orlando and wanted me to just be me.
+- I'm not the entertainer anymore.
+- I always go against the odds.
+- When people think about me, that's all they think: 'He's crazy. He's psycho. He's this.' No, that was just my blog; that was Agent Zero; that was my persona that I was putting out there. And eventually, that all caught up with me.
+- I got three 'Tiger Woods' games for my Xbox just in case one gets scratched.
+- I don't think anyone's worth $100 million if Michael Jordan wasn't, but hey, that's what Abe Pollin thought I was worth, and if someone puts $100 million in front of you, you're gonna take it, too.
+- I lived in Washington longer than I have lived anywhere else, so it's considered home, even though I moved back to California.
+- I always have something going on.
+- Just work hard, and things come to life. I am a living truth of it.
+- I want politicians coming to me and asking me for advice.
+- When I was little, whenever I got out of the shower, I never wanted to touch the floor because once you touch the floor, your feet are dirty again. So in the shower, I used to put my socks on already without drying them off.
+- We know that if we play our game and execute, then we are going to have a lot of success.
+- If you have a kid that loves basketball - that eats, sleeps, drinks, and thinks basketball, and all he knows is basketball - and he gets hurt, and he's your franchise player, you need to hold him back from himself.
+- If you're having a bad day, or you're having a bad career, go to Manila. They'll bring your spirits up.
+- When I went through my life, I was like, 'I sit around and play video games all day. Nobody wants to hear about this.'
+- I can lack communication with people. I shy away from everybody. I always want to be alone.
+- You never want an injury as you're getting ready for the playoffs.
+- I really don't want to feel like an adult.
+- As happy as I am off the floor, on the floor I'm the opposite. I don't take any crap.
+- I think every athlete should give back to schools. I know athletes donate and have things that they give charity to, but, at the end of the day, it's the younger generation that we need to be helping.
+- I am lighter than Paul Pierce.
+- I have the mind-set that a guard can't stick me. So I watch the bigs and see how they like to play. If you're a shot blocker, then I jump into you. If you take charges, then I pull up for the midrange.
+- Most kids would be like, 'My dad's never around.' But I saw it as a positive. He was out there working to provide for me.
+- You can't fault a player because he got injured.
+- Dreams do come true, no matter what people say.
+- You don't want to be too uptight about anything. Especially your job.
+- We're humans. We live on land. Sharks live in water. So if you're swimming in the water and a shark bites you, that's called trespassing. That is called trespassing. That is not a shark attack.
+- If you like Five Guys burgers, and you're in California, I was one of the people who helped bring it here.
+- It is an honor to join the ranks of sports icons such as Muhammad Ali and Tiger Woods by being immortalized in wax at Madame Tussauds Washington, D.C.
+- When you blink, you're on the back end of your career.
+- Basketball is basketball. I don't think people realize that. No matter what city, overseas, D-league, park league - I just want to play.
+- If you have a defensive concept, you're going to play defense. If you don't have a defensive concept, and you have an offensive concept, then you're going to play offense.
+- I used to practice those trampoline dunks back at Golden State. I can flip and everything.
+- I make shots, and that's what I am.
+- I don't want to get married unless they change the marriage laws. You should have to sign a marriage contract for no more than five years, with an option to opt out.
+- I'm a shooter. You don't lose your shooting touch.
+- I don't sleep. I nap.
+- When you're in there getting buckets, you're not really paying attention to who's there. You're just doing your thing.
+- For me and Washington, it was like I was in a dark tunnel, and the light was really far away.
+- 40-minute game at Duke - they got soft rims - I'd probably score 84 or 85. I wouldn't pass the ball. I wouldn't even think about passing it. It would be like a 'NBA Live' or an 'NBA 2K7' game: you just shoot with one person.
+- I know it's hard when guys leave the game. They're sitting there analyzing, and they're getting itchy.
+- Like the Wizards, Madame Tussauds has become a fixture in the nation's capital and one that I'm proud to be a part of.
+- Boundaries? What are those?
+- You get paid on what you did, not what you're gonna do. That's what people don't understand. You get paid on what you did.
+- If we lost a game, and I thought I played bad, I'm staying in the gym to keep shooting. That's what I did.
+- Chauncey Billups is really not a scoring guard.
+- Since I was small, my dad and I have always been friends. He was never really hard on me. He never really pushed me to basketball.
+- How can I tell somebody, 'Don't shoot that shot' when I'm out there chunking 'em?
+- When I leave the NBA, I don't want my legacy to be, 'He won a championship ring.' I want my legacy to say, 'He played for the people. He gave everybody in the world hope that they can be just like him.'
+- Everything is mental, but if you just remember to stay with your same technique, you will be fine. If you stay confident, make sure you are doing the same thing over and over; the free throws will fall.
+- I've always been a scorer. So when I went to Arizona, I led the team in scoring both years.
+- It's amazing and different being a celebrity in D.C.
+- I'm a huge gamer and have been playing 'NBA Live' since 1995.
+- I look at my elders as the leaders.
+- That's what I was known for: I was a gym rat.
+- I'm an app creator.
+- I was in honors classes in high school. I'd get an A on every test, but I had a 1.9 grade point average. The teacher would say, 'You didn't do your homework.' I'd say, 'But isn't the homework supposed to be the lead-up to the test?'
+- At the end of the day, you have 82 games. You're going to win some division games, and you're going to lose some division games.
+- When you're a scorer, you are thinking about scoring, and everything comes easy.
+- They didn't say all wins in the NBA are all pretty.
+- I'm a goof. C'mon, everyone knows that.
+- I think I'm one of the rare people out there who still cares about the game of basketball.
+- I don't know if it's just me, but I hate going to arenas where it's 60 degrees outside, and it's 50 degrees inside.
+- I just put my anger and resentment into basketball. Even the stuff from my childhood.
+- I was an only child.
+- You can't start anything and not trust nobody. You trust everybody until they do something wrong.
+- I always try to find something funny in any situation.
+- When you're on fire, you're on fire.
+- Zero is the number of minutes people predicted I would play my freshman year at Arizona.
+- When I look back on my career, from the hard work I put in, I got everything I deserved.
+- Some people would rather not go to arenas; they'd rather just sit at home and watch the game at home or play on the computer.
+- There's no such thing as overpaid.
+- I feel like most ex-NBA players don't embrace the team they played for.
+- John Wall - me and him talk a lot.
+- My best moment in the league came when I scored my first bucket.
+- Drama sells.
+- Some people just can't forgive. And that's just the way life is. You know, I can't forgive some things, either.
+- I was on my way to becoming a Hall of Famer and having my name in the rafters, but three surgeries in 14 months, that is not good. I wasn't the same player.
+- Fans love me because I connect with them. No other superstar can do that.
+- I don't play roulette, but it's funny: whenever somebody I know is going to Vegas, I'm like, 'Put it on black.'
+- Defense comes with defensive concepts.
+- That's all I drink is Vitamin Water.
+- People call me all kinds of things, I guess, because I'm a little different. I'm never what they expect.
+- I have a pair of my signature shoes, and I can't believe I got my own shoe. That's amazing!
+- I can interact with anybody, but I'm shy.
+- I have so much entertainment going on in my house that I don't need to go out.
+- I'm a scorer. I score in volumes.
+- I can't take a game-winner in practice. I can't shoot free throws in practice that simulates the game. There's no crowd; there's no nothing.
+- I'm my own man.

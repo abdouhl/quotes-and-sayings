@@ -1,0 +1,47 @@
++++
+author = "Julia Child"
+title = "Julia Child Quotes"
+quotes_len = "41"
+description = "the best 41 Julia Child Quotes"
++++
+- Because of media hype and woefully inadequate information, too many people nowadays are deathly afraid of their food, and what does fear of food do to the digestive system? I am sure that an unhappy or suspicious stomach, constricted and uneasy with worry, cannot digest properly.
+- In my generation, except for a few people who'd gone into banking or nursing or something like that, middle-class women didn't have careers. You were to marry and have children and be a nice mother. You didn't go out and do anything. I found that I got restless.
+- Drama is very important in life: You have to come on with a bang. You never want to go out with a whimper. Everything can have drama if it's done right. Even a pancake.
+- I fell in love with the public, the public fell in love with me, and I tried to keep it that way.
+- I was 32 when I started cooking; up until then, I just ate.
+- Being tall is an advantage, especially in business. People will always remember you. And if you're in a crowd, you'll always have some clean air to breathe.
+- The art of bread making can become a consuming hobby, and no matter how often and how many kinds of bread one has made, there always seems to be something new to learn.
+- When I got to France I realized I didn't know very much about food at all. I'd never had a real cake. I'd had those cakes from cake mixes or the ones that have a lot of baking powder in them. A really good French cake doesn't have anything like that in it - it's all egg power.
+- In Paris and later in Marseille, I was surrounded by some of the best food in the world, and I had an enthusiastic audience in my husband, so it seemed only logical that I should learn how to cook 'la cuisine bourgeoise' - good, traditional French home cooking.
+- Because I've done a lot of television, I'm sort of a generalist. I'm not a pastry cook, but I've had to learn a certain amount about it. I'm not a baker, though I've had to learn how to do it. I'm sort of a general cook.
+- I think one of the terrible things today is that people have this deathly fear of food: fear of eggs, say, or fear of butter. Most doctors feel that you can have a little bit of everything.
+- I found that the recipes in most - in all - the books I had were really not adequate. They didn't tell you enough... I won't do anything unless I'm told why I'm doing it. So I felt that we needed fuller explanations so that if you followed one of those recipes, it should turn out exactly right.
+- I wouldn't keep him around long if I didn't feed him well.
+- In France, cooking is a serious art form and a national sport.
+- I don't believe in twisting yourself into knots of excuses and explanations over the food you make.
+- The secret of a happy marriage is finding the right person. You know they're right if you love to be with them all the time.
+- I hate organized religion. I think you have to love thy neighbor as thyself. I think you have to pick your own God and be true to him. I always say 'him' rather than 'her.' Maybe it's because of my generation, but I don't like the idea of a female God. I see God as a benevolent male.
+- Once you have mastered a technique, you hardly need look at a recipe again and can take off on your own.
+- You learn to cook so that you don't have to be a slave to recipes. You get what's in season and you know what to do with it.
+- I was going to be a great woman novelist. Then the war came along and I think it's hard for young people today, don't you, to realize that when World War II happened we were dying to go and help our country.
+- When you have a few cake formulas and filling ideas in your repertoire, you will find that it's pretty much an assembly job - you can mix and match a different way every time.
+- In department stores, so much kitchen equipment is bought indiscriminately by people who just come in for men's underwear.
+- I was never a spy. I was with the OSS organization. We had a number of women, but we were all office help.
+- Animals that we eat are raised for food in the most economical way possible, and the serious food producers do it in the most humane way possible. I think anyone who is a carnivore needs to understand that meat does not originally come in these neat little packages.
+- Usually, one's cooking is better than one thinks it is.
+- I still feel that French cooking is the most important in the world, one of the few that has rules. If you follow the rules, you can do pretty well.
+- Find something you're passionate about and keep tremendously interested in it.
+- It's so beautifully arranged on the plate - you know someone's fingers have been all over it.
+- In the 1970s we got nouvelle cuisine, in which a lot of the old rules were kicked over. And then we had cuisine minceur, which people mixed up with nouvelle cuisine but was actually fancy diet cooking.
+- To be able to serve and to eat a whole fish, especially a trout, is part of civilized dining. This applies particularly to the young, who should take to it as soon as they can handle knife and fork; this is a fine way for them to begin taking pride in themselves and their abilities.
+- Life itself is the proper binge.
+- The perfect dressing is essential to the perfect salad, and I see no reason whatsoever for using a bottled dressing, which may have been sitting on the grocery shelf for weeks, even months - even years.
+- I was lucky to marry Paul. He was a great inspiration, his enthusiasm about wine and food helped to shape my tastes, and his encouragement saw me through discouraging moments. I never would have had my career without Paul Child.
+- What a marvelous resource soup is for the thrifty cook - it solves the ham-bone and lamb-bone problems, the everlasting Thanksgiving turkey, the extra vegetables.
+- Someone may offer you a freshly caught whole large fish, like a salmon or striped bass. Don't panic - take it!
+- As a girl, I had zero interest in the stove. I've always had a healthy appetite, especially for the wonderful meat and the fresh produce of California, but I was never encouraged to cook and just didn't see the point in it.
+- The war broke out, and I wanted to do something to aid my country in a time of crisis. I was too tall for the WACs and WAVES, but eventually joined the OSS and set out into the world looking for adventure.
+- In the 1960s, you could eat anything you wanted, and of course, people were smoking cigarettes and all kinds of things, and there was no talk about fat and anything like that, and butter and cream were rife. Those were lovely days for gastronomy, I must say.
+- As we say in the American Institute of Wine and Food, small helpings, no seconds. A little bit of everything. No snacking. And have a good time.
+- I think careful cooking is love, don't you? The loveliest thing you can cook for someone who's close to you is about as nice a valentine as you can give.
+- I had my first French meal and I never got over it. It was just marvelous. We had oysters and a lovely dry white wine. And then we had one of those lovely scalloped dishes and the lovely, creamery buttery sauce. Then we had a roast duck and I don't know what else.

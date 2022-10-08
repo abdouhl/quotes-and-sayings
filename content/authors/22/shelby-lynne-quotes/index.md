@@ -1,0 +1,47 @@
++++
+author = "Shelby Lynne"
+title = "Shelby Lynne Quotes"
+quotes_len = "41"
+description = "the best 41 Shelby Lynne Quotes"
++++
+- It's time for artists to take their music back.
+- I like rules that are broken.
+- I didn't go to college.
+- I wanted to be a rock 'n' roll star. It defines life for me. It's all I've ever imagined for myself.
+- That's what I so admired about Johnny Cash and June Carter. Their music wasn't a big influence on me. It was their character, their individual styles, what they were like as people. They weren't afraid to stick out.
+- I just had it with the corporate money, money, money label thing.
+- I write about what I know.
+- It was hard to work and work and work and not get your music played on the radio.
+- I like to make great albums.
+- It's taken me years to embrace the softer elements of who I am and let that shine some.
+- My band can tell you, I'd rather do anything than rehearse.
+- I've pretty much run the circle of labels and dealing with that whole kind of battle, because you're the one creating the music, but you're not the final say. That's always been hard.
+- I don't talk about my personal life. But the relationships I've had have usually been with other musicians. It's just easier that way.
+- I don't like modern country music. It's not what I'm into, is all. I'm old-school.
+- I don't think I've ever put it in words before. But daddy took a gun and ended his life and took momma's with him.
+- I was singing before I could talk.
+- I can't stand too long of a record.
+- I like strength. I depend on my own.
+- I was raised in South Alabama in the woods, y'know? I'm country.
+- I can find some way to make poetry out of my life's experiences.
+- I feel like I've kind of gotten to a peaceful place in my heart.
+- The only way to get ahead in the music business these days is to call up all your friends. To pool your resources.
+- If you think too much about something, you're not feeling it.
+- I don't feel like taking anybody's money.
+- I was an opening act for 10 years.
+- All I do is party.
+- I can't tell you how freeing it is to have my own label. For the first time in my career, I have total control.
+- I'd like to thank my parents for always stressing, be an individual.
+- So it's the greatest compliment in the world when people want to hear you sing. That means it feels good to them, so I keep doing it.
+- You know, I just don't believe that art is supposed to make sense. I really don't think it's supposed to be analyzed to death. It's left to the listener or looker to get what they can get from it.
+- I think a lot of people think that my parents' deaths is why I write such sad songs, but that's not true. Those songs may just be the woman I am.
+- Sure I got a mouth on me.
+- You know, I'm trying to sometimes sit down and write some stories about my childhood and maybe one when I'm an old lady put them out like a book.
+- What is happy? I think happy's in the moment. I don't think everybody can be happy all the time.
+- I insist on the truth. I surround myself with people who tell the truth.
+- Well, I had a record deal since I was 18, and it got me where I am.
+- I'm comfortable in my miseries. I have no choice.
+- Sometimes a song that didn't make one record will stay in my head for so long and just won't go away. I take that as a hint to keep 'em close and not forget about them.
+- It is so killer to collaborate with someone who gets what you're trying to say.
+- I just don't conform very well.
+- I can't write about your pain; I only know my own.

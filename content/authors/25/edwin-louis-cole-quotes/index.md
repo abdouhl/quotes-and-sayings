@@ -1,0 +1,73 @@
++++
+author = "Edwin Louis Cole"
+title = "Edwin Louis Cole Quotes"
+quotes_len = "67"
+description = "the best 67 Edwin Louis Cole Quotes"
++++
+- Crying over what's gone won't find the present.
+- Knowledge of God's Word is a bulwark against deception, temptation, accusation, even persecution.
+- Confidentiality is a virtue of the loyal, as loyalty is the virtue of faithfulness.
+- It is not enough to be delivered from sin; it is enough to be delivered to righteousness.
+- Peace is the umpire for doing the will of God.
+- Character is more important than talent.
+- Men cannot make Scripture conform to their lifestyle; they must make their lifestyle conform to Scripture.
+- The yoke you wear determines the burden you bear.
+- There is a high cost for low living.
+- Mediocre men work at their best; men seeking excellence strive to do better.
+- A dream doesn't become a goal until it is written.
+- Attitude determines the altitude of life.
+- Our Lord never condemned the fig tree because it brought forth so much fruit that some fell to the ground and spoiled. He only cursed it when it was barren.
+- The man who seeks to please God is the man who people are pleased with. The man who seeks to please others won't satisfy anyone.
+- Truth is life's most precious commodity.
+- The pattern of the prodigal is: rebellion, ruin, repentance, reconciliation, restoration.
+- Your best friend and worst enemy are both in this room right now. It's not your neighbor right or left - and it's not God or the devil - it's you.
+- A fast is not a hunger strike. Fasting submits to God's commands. A hunger strike makes God submit to our demands.
+- Illusions of grandeur are not the same as visions of greatness.
+- By use you possess gain; by disuse you decline and lose.
+- The more you build your life on principle and less on personality - yours or others - the straighter will be your course.
+- To him who knows to prosper and does it not, to him it is sin.
+- Believing in evolution is believing in the unproved, while believing in Christ is believing in the proven.
+- You can tell the nature of the man by the words he chooses.
+- You don't drown by falling in the water; you drown by staying there.
+- Obedience is an act of faith; disobedience is the result of unbelief.
+- Expectancy is the atmosphere for miracles.
+- Your faithfulness makes you trustworthy to God.
+- What the mind cannot retain, the body will have to endure.
+- Life is lived on levels and arrived at in stages.
+- Being faithful in that which is another man's qualifies us to receive our own.
+- The discipline of daily devotion to God undergirds decisions.
+- Men and women have strengths that complement each other.
+- Sin is still sin - no matter how you spell it.
+- There are no small churches, just small people.
+- God authors desires in your heart, then fulfills His Will by enabling you to realize those desires.
+- What you believe about God has the greatest potential for good or harm in your life.
+- The degree of loving is measured by the degree of giving.
+- Good is often the enemy of best.
+- Have faith in God; God has faith in you.
+- If you can't take it, you won't make it.
+- When the pressure comes, preferences give way while convictions hold firm.
+- Reading is an art form, and every man can be an artist.
+- Fear attracts attack.
+- God will finish what He authors, but He is not obligated to finish what He has not authored.
+- Prayer in private results in boldness in public.
+- You are committed to what you confess.
+- Reasonable men adapt to the world around them; unreasonable men make the world adapt to them. The world is changed by unreasonable men.
+- Sin is basically a denial of God's right of possession.
+- You seek the heights of manhood when you seek the depths of God.
+- God never ends anything on a negative; God always ends on a positive.
+- You cannot be responsible for salvation until first you've been responsible for sin.
+- Faith is the ticket to the feast, not the feast.
+- Trust funds can never be a substitute for a fund of trust.
+- God will lead you into a deliverance where the means that delivers you will be those who would destroy you.
+- You don't reward reaction; you reward results.
+- Boundaries are to protect life, not to limit pleasures.
+- Inconsistencies in men are generally testimony to their immaturity.
+- Conscience allows us to do two things: Pass judgment on ourselves; approve or condemn our own conduct.
+- Men tend to feel threatened; women tend to feel guilty.
+- God is the Creator; Satan is the counterfeiter.
+- Marriage may be the closest thing to Heaven or Hell any of us will know on this earth.
+- Successful people recognize crisis as a time for change - from lesser to greater, smaller to bigger.
+- Truth cannot be defeated.
+- The Ten Commandments have never been replaced as the moral basis upon which society rests.
+- There is a price to pay for accomplishment.
+- Men are limited by the knowledge of their minds, the worth of their characters and the principles upon which they are building their lives.

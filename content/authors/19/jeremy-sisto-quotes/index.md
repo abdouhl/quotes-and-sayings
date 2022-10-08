@@ -1,0 +1,53 @@
++++
+author = "Jeremy Sisto"
+title = "Jeremy Sisto Quotes"
+quotes_len = "47"
+description = "the best 47 Jeremy Sisto Quotes"
++++
+- The first girl I kissed was a suburbanite.
+- If you ask ten different people in the diamond industry about the diamond industry, they'll give you ten completely different answers that are opposing, contradicting each other. And maybe that's the thing about the diamond business.
+- I don't have the attention span to practice sleight of hand.
+- So much comedy comes out of an earnest, deeply rooted need for one thing or another, trying to get it and caring so much that you lose your sense of self-awareness.
+- I'm uncertain, with horror fans, when is disturbing just disturbing, and when is it fun disturbing?
+- But as soon as I joined 'Six Feet Under', I felt like I was finally doing something again that the fans really loved, and I could stop being afraid of 'Clueless' fans!
+- I lived with my mom and sister, so I'm more used to dealing with women.
+- In 'Law & Order,' your main job is to stay out of the way of the plot. On another show you'd receive your script and see stuff that seems challenging and feel excited that the writers thought highly enough of you to write it for you.
+- If I feel my child is being deprived of anything that could affect her progress as a person, then I become extremely neurotic and douse the situation with as much help as humanly possible.
+- It's a different kind of acting, this 'Law & Order' thing. They want two partners who can play off each other well and are fun to watch, but depth of character is not necessary in this job. Too much character gets in the way of the story. This is a very specific gig.
+- With 'Law & Order,' I had to be very conscious of what I was doing. I didn't want to show too much character.
+- I play the guitar, and I juggle.
+- In your twenties, if you have any amount of complexity in your childhood, or any trauma that you haven't dealt with, it comes out. That's why you have a lot of artists that don't make it through.
+- When you have kids, you just love them. It's similar to when you're in love with someone. You just think they are so cool and want to be around them all the time, but what if she starts being embarrassed and only giving me charity visits? I want her to actually want to see me, so that's what I'm going for!
+- When I was a kid, I liked Superman. When I got a little older, I liked Wolverine. And then I found girls.
+- Being on a Dick Wolf show is different than other shows. It's one of the most stable ships you can be on. You can count on the difficult decisions being made, which makes you, as an actor, feel more comfortable and relaxed.
+- There's not a lot of room anymore for what I call 'made-up' drama. The drama comes from real places now - marriage takes work and focus, the kid stuff takes patience and commitment. And if you don't grow as people and as a couple, within all of that, then you've got some real drama.
+- I used to think acting was really difficult.
+- Well, I was coming off of being on 'Law & Order,' and I was a little worried that it might be the end of my career - I've never been one of those actors with a lot of confidence that the next good job will come along.
+- I hate when actors call stuff they're in their 'work.'
+- I've always been attracted to more intense and darker roles, but I think there is complexity and darkness in comedies as well.
+- I'm married now, but back when I had girlfriends, you were always wondering if they liked you, and if you liked them enough. You're together, but the smallest thing could make one of you go 'You know what? This isn't working!'
+- I knew I was going to love my daughter, but I had no idea how much I would love her.
+- Diamonds are created through the pressures of earth and then have to go through a million dirty roads to get to the cutter who turns it into a beautiful massage. And that's like human beings. They go through a lot to be who they are in front of you.
+- If I had met Judd Nelson in my late twenties, I would have been pretty enamored!
+- I think Batman is a great character in that he has a lot of internalization, and his heroics come from a dark place.
+- When I was younger, I could be pretty bitter. I still have moments, but I think I've gotten pretty good at rejection.
+- It's something that people relate to - and I hope my kid doesn't relate to - but there's a level of believability in playing complex characters. You know, Christopher Walken has done some hilarious comedies, De Niro. There's great room for complexity and darkness to do well in comedies.
+- There's a lot of actors out there or people who want to be actors. It's unique to find somebody that, you know, needs to be an actor.
+- I had a lot of chaos in my very early years before I was old enough to know what was going on, and then I just skated through the rest of my childhood without dealing with it.
+- If you think about movies that are adapted from books, they never feel like enough. There's always too much cut out in the end. You either make a five hour movie or you leave out stuff that should be in there.
+- In the case of 'Ice,' in the beginning when I got the script, felt like a show that was searching for what it is, and what they knew or what felt palpable to me was that this character, Freddy Green, was going to have the biggest journey.
+- All I know is that once you have children, you put them before anything you're feeling or going through. Today, my daughter walked into the room and I said, 'I love you, baby,' and she said, 'Well, I don't like you,' and I said to my wife, 'The meaner she is to me, the more I love her.'
+- I love comedies. I love watching them. I think I've always been afraid of being on them a little bit.
+- You can't have a happy family if you don't have a happy marriage.
+- I was a sandwich artist at Subway and can still rattle off the order of toppings. I was fired because I got meatball sauce on the ivory cutting boards.
+- There's a really unique relationship between a single parent and their child. Marriages so easily break up. There's kind of this temporary deal about marriages. That's one of the things that makes it stressful, and that's something that's nonexistent in a parent-child relationship.
+- I wore a Santa hat for a whole year in high school.
+- I get bored watching action movies.
+- Maybe they'll start making serialized movies. I watched the first couple seasons of '24' and it's really fun. I bought the DVD and watched it over a month or so and it's great. It's like reading a novel. It has a lot of possibilities that are more difficult to accomplish with a film.
+- I personally would rather raise my child in New York. It seems like it would be easier to make sure she or he gets a whole bunch of experience and understanding of the world. But, people in general think it's easier to raise a kid when you don't have so much stuff in your face.
+- I've done a lot of bad movies, but my bad horror movies are the ones that people still find the good stuff in.
+- In general, you don't want to move your kids when they're teenagers. They're not going to be happy with you.
+- I'm a dad now and whatever I'm doing in life I usually put a lot of effort into it - usually too much effort, so it kind of comes off ridiculous at times.
+- There was a period in high school when, for some reason, I decided that suburbanites were my enemies or my rivals in a way.
+- To be an actor takes a lot of courage, but the way I did it takes less courage. I was very lucky.
+- I was always worried with comedy - what if I came to work and I wasn't in a funny mood? That hasn't been an issue.

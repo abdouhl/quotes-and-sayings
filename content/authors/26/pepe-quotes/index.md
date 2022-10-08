@@ -1,0 +1,106 @@
++++
+author = "Pepe"
+title = "Pepe Quotes"
+quotes_len = "100"
+description = "the best 100 Pepe Quotes"
++++
+- People talk without knowing the real Cristiano. He's a normal person with normal habits like us. He likes his relatives. He loves his sons. He stresses the importance of being a father which I think is important. He's does this perfectly and naturally.
+- Porto improve every single player because this is a very demanding club.
+- I love playing for Mourinho. He is honest and sticks to his guns.
+- I always want to give my utmost to try and bring happiness to the supporters.
+- The people can say what they want, but fact remains that Neymar has been booked more often than me.
+- I'm happy in Madrid.
+- Perhaps Real Madrid fans won't like me saying this but they say Real Madrid fans transmit enthusiasm but I don't think they do. That's not the reality.
+- I am a man who always likes to win and to defend the shirt of Real Madrid till the very end.
+- People like Cristiano are unique, they are people blessed by God. He was blessed by God and knew he would become one of the best in the history of football.
+- If I wasn't a footballer, I definitely would have been a chauffer because that is my father's profession and he's a person I aspire to and admire. I wanted to follow in his footsteps as a man.
+- Porto prepared me really well and this didn't go unnoticed in Spain, as before I went to Real Madrid the club were known as a graveyard for centre-backs. They had amazing centre-backs that had failed there.
+- I think I get a raw deal from referees. But as a professional footballer I have to accept it, and that's what I do.
+- Playing collectively will boost our chances of winning.
+- When I got here with Real Madrid, the truth is they responded very well. I know that the people like me, they love me, they have a lot of warmth for me. I'm enchanted for that warmth and love they've shown.
+- I won't sit back and hope that everything comes to me. No, I will continue to fight to achieve more and more.
+- We always try to win, but it isn't possible all the time.
+- Three goals in 90 minutes is possible, there is no doubt about it.
+- I have been 10 years at Madrid, which is no easy thing.
+- I don't consider myself the third centre-back. I have to give my all and then it is the coach who will decide.
+- The supporters are always right, but we need our supporters behind us.
+- It's normal that people have a distorted image of Cristiano because the press nowadays focus more on the issues off the pitch. But Cristiano is very professional. He is very focused on his football and he follows the timetable exactly. He is a humble man, despite of all his surroundings. He doesn't lose sight of the fact that he's from Madeira.
+- Cristiano is the best player in the world.
+- I really like Gaitan. He has a lot of creativity and has the quality to play for a club like Real Madrid.
+- I am very clear, the people close to me know how I am.
+- Cristiano is happy at Real Madrid and focused on helping the team.
+- We need to work with great humility.
+- In Turkey people really love sport, they only think about football.
+- Football is a collective sport.
+- Everyone knows what my qualities are and what I can do for the team.
+- It's down to us to play, do our job and honour the shirt that we pull on, so as to ensure we send the fans away happy.
+- At Real Madrid it is difficult to be defensive and this is my main priority.
+- When I do play I try to be the best to help my teammates.
+- Every team dreams of playing the Champions League final - Porto just as much as Real Madrid.
+- What Zidane has done with Real Madrid is spectacular, but there are things I don't understand.
+- I've played against Griezmann several times in Spain. He's not very tall but he's very adept at figuring out where the ball will be.
+- Little by little I want to become more free and start going forward but I know that the first thing I have to do is defend.
+- In a final there is no favorite. It's 50/50.
+- I liked Benitez's sincerity. I identified with him because he is a very direct and honest person.
+- I try and play as clean as possible and not commit fouls. But in my position it is not easy to play without giving away free kicks.
+- They are different footballers. For me, Cristiano has more points in his favour because he heads the ball well, he is stronger and he scores goals. Messi has quality, dribbles and scores goals. For a coach, I think Cristiano is better because he is more complete.
+- What Cristiano does is beyond compare. He has an unbelievable record and he's the best player on the planet.
+- I'm a person who fought for what I have.
+- I love Real Madrid and their fans.
+- We're professionals, we have to deal with criticism. We get talked about a lot but we have to focus on doing our job well.
+- One of the values of a human being is to be honest and admit at times knowing when to apologize.
+- I fight for every ball as if it was the last.
+- I think my style of play would be appreciated in England, but as Spanish football is more technical, rather than box-to-box like in English football, my physical style is highlighted much more.
+- It's a privilege for us, Portugal, to have a player like Cristiano Ronaldo.
+- There is no point changing coach halfway through the year.
+- Is there a team in the world that would not be stronger with Cristiano Ronaldo? I don't think so.
+- I think you need to know how to seperate what happens on the pitch from off-the-pitch matters.
+- When I go out on the streets, plenty of people still show that they like me.
+- Zidane has been a player and knows what the players want and think.
+- We face each game with great importance but we have a strong desire to win.
+- There's no need to undervalue anybody and even less Iker, who is a symbol here in Madrid. We have to respect everything he's done.
+- Mourinho has a lot of experience as a coach, with great clubs and players.
+- Madrid will always be a priority for me.
+- I spent 10 wonderful years at Real Madrid.
+- Mourinho is different. He stands out in many ways.
+- If there is a magic stadium in Europe, then it is the Bernabeu.
+- Mourinho and Zidane are very different, one could say they are opposites. But it's not like one is bad and the other is good.
+- In the end hard work pays off.
+- When I arrived, I defended Real Madrid tooth and nail.
+- Real Madrid are an exemplary club. I would never have had the chance to play for this club for such a long period had I really been such a crazy, violent player.
+- I look after myself a lot to be at the top of my game for as long as possible.
+- Benitez is a very good professional.
+- Iker is a player who is part of Madrid. He's an institution, both in this club and in Spain.
+- We center backs had to cover a lot of ground, and we had to be very physical with the opposing strikers.
+- I am very proud of my years spent at this club, giving it my heart and soul. I finished my time at Real Madrid giving it all I had.
+- I am a player who works hard, is fast and strong.
+- My two daughters were born in Madrid, I won three Champions Leagues and three La Liga titles as well.
+- My plan is to retire at Real Madrid.
+- Off the pitch, Cristiano is an extremely normal person. When something gets out in the media talking about him... I look and I say: 'This can't be. It's a lie.'
+- Everyone's opinions have to be respected. The coach has his, we have ours, the media have theirs.
+- Pele and Maradona won games but they had the help of their team-mates.
+- Cristiano is just one more player who is always motivated.
+- I'm always available to help Madrid.
+- Every minute I spend near Ancelotti I am breathing in football. He likes to really be immersed in football. As a former player and as a coach who knows our needs, it is a privilege to work with him and share time with him because he teaches us a lot.
+- I have always done everything to defend my goal.
+- If the fans are happy with me it is due to how I perform on the pitch.
+- I'm privileged to be able to train with sometime who is an amazing person, Cristiano Ronaldo.
+- At Madrid we are like one big family. We're all united because we know we have to be, otherwise we're going nowhere.
+- We need to remain true to our style of play and do everything the coach tells us to do.
+- Many, many people sent me messages on social media. I couldn't not go. I couldn't turn my back on all this affection that the people had given me. I said I have to go to Besiktas. It's impossible not to go to Besiktas!
+- Carlos Tevez is a quality player. He fights for every loose ball. He loves retrieving it. He's a fighter on the pitch.
+- I give my body and soul to defend this club and for all the fans who come to see us. I have never thought about leaving. I really like being at Madrid, the fans like me and I like them.
+- Following Real Madrid, I support Porto.
+- As I always say, the fundamental thing in football is to defend as well as attack. And to attack well means that the forwards must first help to defend. That's where the work begins.
+- Which player does not want to win? A player who doesn't want to win, it's better not to be with us.
+- I'll always say it was football that gave me everything in life - lots of friends, the chance to make my dreams come true.
+- I have two Portuguese league titles behind me, and although the Spanish league is different I am going to do my best.
+- Juventus are one of Europe's and Italy's big teams.
+- We, Portuguese, make this country very big.
+- The Besiktas fans are very passionate. When you go out onto the pitch the noise coming from the stands always hits you.
+- I do not like to lose, which is why I try my hardest when I play.
+- He can bring many things to Madrid, certainly titles. But Cristiano can't do it alone because he doesn't play by himself and that is something everyone must realise.
+- I don't like to lose a 50/50, in the same way a striker doesn't like missing chances.
+- We have always felt the support of the Portuguese people. We are a small country, but with many qualities.
+- Turkish people live football. Football is a passion of theirs. They demonstrate it with love and affection for their team.
+- Criticism makes us grow.

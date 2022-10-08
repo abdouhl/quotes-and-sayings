@@ -1,0 +1,106 @@
++++
+author = "Jim Nantz"
+title = "Jim Nantz Quotes"
+quotes_len = "100"
+description = "the best 100 Jim Nantz Quotes"
++++
+- I don't like hot takes any more than I like hot cakes.
+- The Masters is the one tournament with a timeless quality, where legends are celebrated.
+- I hate whenever there's a social issue that comes up in golf and people in the mainstream media who hate golf and who've conjured up all these stereotypes of people who are in the sport, the way they tear it down... I resent it, and I'll defend golf and people in golf until my dying day.
+- The Masters is always at the front and center of my mind, and not because I'm the only one thinking about it. Other people associate me with this great event, and that's an honor.
+- I can't imagine anybody who showed up at Firestone for the first time who felt like they knew it better than I did. For me to travel to Akron the first time, 'Oh, my gosh, I can't wait, I know every hole on this golf course. I know the big water tower with the Firestone ball on top, I grew up with this. Here it is! It's real!'
+- I loved Tom Landry and Roger Staubach.
+- The dream for me was always the Masters and after my freshman season on the Houston golf team I knew CBS was the only way I'd get there.
+- Super Bowl V was the Colts against the Cowboys and Jim O'Brien kicked a 32 yard field goal to beat the Cowboys. I was traumatized by it. Everyone at school knew I was the only Cowboy fan in the area. I didn't want to go to school and I begged and pleaded with my parents. Those are indelible memories when you are a kid.
+- The job I wanted before I was in college was to work for CBS.
+- I love being a part of CBS.
+- The Masters isn't about Jim Nantz and his storytelling. It's about golf's greatest tournament.
+- I try to talk openly from how I feel. People may not agree with it. It may sound foreign to them. That's an uncomfortable position for some people, to be sentimental, nostalgic - it's all kind of the same.
+- Since 1934 every accomplished player in golf has come to the Augusta National looking for an introduction into history.
+- When Jack Nicklaus won the Masters in 1986, it was mind-blowing. How in the world could a 46-year-old win the Masters?
+- In 2014, when my wife, Courtney, was expecting our daughter and we were contemplating a name, I said, 'How about Finley?' Only after Courtney said that she loved the name did I reveal that it was inspired by an aspect of Samuel Finley Brown Morse.
+- The Super Bowl is the biggest event in America, the biggest event in television. The preparation and all of the behind-the-scenes detail is immense. The Final Four is just a fraction behind that in terms of the preparation.
+- I had first-hand experience watching my father's health decline over the stretch of 13 years.
+- I can't get people to understand how important the Alzheimer's fight is to me.
+- I can't think of anything in my profession that would mean as much. You can talk about Emmys or Super Bowls. Fifty Masters Tournaments, that would be the ultimate.
+- I have always been true to the people who have influenced me as a young boy.
+- As we all know, the concept of the gimme putt is anathema to the PGA Tour.
+- I call golf with my head and my heart. I don't have any notes in front of me - it's different from basketball and football in that feel.
+- I love what I do. Every show is it's own challenge and I love it.
+- No matter the event, a Super Bowl, an NFL game, a rank-and-file golf tournament, there is a demand when you are live and exposed to try to get it right and do justice to the event. That's the way I have always approached it.
+- They say time heals all wounds, but sometimes you wonder.
+- I was raised in just about as perfect a home environment as you could ever imagine.
+- My father got to see the first 10 years of my career. He implored me to always appreciate people who are not operating under any sort of false pretense or who weren't caught up in their own success.
+- I would like to work 50 Masters Tournaments.
+- My father passed away due to Alzheimer's disease, and many things I do are nods to him.
+- I actually went to the first game in Saints history. We were living in New Orleans at the time. I was eight. They opened against the L.A. Rams in 1976. I went with my dad, and we bought standing-room only seats at Tulane Stadium. We actually sat in the aisle.
+- Augusta National... an oasis of career-defining moments.
+- I never practice calls. Everything you hear is reactionary. The way I look at it is that broadcasters are just paid observers, just there to tell you what we see.
+- I have, compartmentalized in my head, one file for the NFL, one for college basketball and one for golf. They contain everything I've ever read, watched and learned.
+- The Masters runs deep in my heart; it's a love affair that I've had since I was a little boy with that tournament, that club.
+- One of Tiger's trademarks in his prime was his ability to fight for every stroke.
+- My dad had nothing but friends in his life.
+- I love Augusta. I get to cover what I consider to be the best golf tournament of the year, and I really would like to think that one day - God willing, CBS willing - I'd be able to say that I worked 50 Masters.
+- I'm not an agate type ESPN Sports Center highlight, in-your-face kind of a sports fan.
+- Far and away, the question I'm asked most often is, 'What's your favorite sporting event to call?' I can't say I've ever answered the question well, simply because the three biggest events I broadcast for CBS Sports - the Super Bowl, the NCAA Men's Final Four and the Masters - each are incomparable.
+- I don't want anything to disrupt my routine or make people uncomfortable in meetings during the NCAA Tournament or leading up to the Super Bowl.
+- I used to write letters to Jim McKay in college. 'Wide World of Sports' was this travelogue, really, that introduced us to sports and it introduced us to parts of the world that we had never seen before. And no one was a bigger tour guide than Mr. McKay.
+- I was named first-team Jersey Shore by the Asbury Park Press, the paper I used to deliver as a young boy. I got to Houston and Coach Williams invited me to walk on the golf team. I was the 18th man on an 18-man golf team.
+- Lance Barrow's a great producer and we work together exceptionally well.
+- Chemistry's a word that people who make hires and decisions say, 'Hey, you guys go out and work on your chemistry!'
+- Nothing in golf is certain, especially on the PGA Tour.
+- I want Alzheimer's. I want Lou Gehrig's disease. I want Parkinson's. I want Huntington's. I want to be the face and voice of all these neurological traumas. I want them all.
+- I just enjoy seeing people break through those ceilings when people press them down and say, 'He can't do this or that.' It's always fun to document those types of stories when someone breaks through.
+- From 1975-'79, I worked for PGA professional Tony Bruno. For five years I watched, lost in admiration, as Tony ran the golf shop at Battleground Country Club in Manalapan, N.J. Tony put in 80-hour weeks doing what nearly 29,000 men and women club pros do every day: Keeping the game alive with a smile.
+- The sport is not about one player, and I say that with a world of respect for his talents on the golf course. But the game is bigger than Tiger Woods.
+- I don't like scripts.
+- Golf is a central part of my life and I look forward to working with the great folks at Vineyard Vines to create an authentic golf apparel brand that speaks to the golfer.
+- I have a pretty good memory.
+- I think when you have a National Championship Game, a Super Bowl, a Final Four, a World Series, I don't see why there is any reason to pick out one individual as the MVP because it is about a team winning a championship. Maybe that best explains what I believe in at the core in my work as a broadcaster.
+- George H.W. Bush had perhaps the greatest resume in American history. Director of the CIA, ambassador to the U.N., envoy to China, vice president of the United States and then, of course, president. It's staggering to contemplate one person achieving so much.
+- I think I shot 78 one time. My golf game is so overrated.
+- How can we grow the game? It's a conversation in every sport, how do you tap into the millennials? Golf is no different.
+- I could care less about identifying who the MVP is in a championship game.
+- I love stone crabs. And I love popcorn.
+- The sentimentality that people see and hear in my commentary and sometimes ridicule, parody or just don't like - that's okay. We're all wired differently. I think about that a lot. I can't explain it. That's just what runs through my blood. It's just the way I look at the world.
+- I've heard it said that the average person is lucky to have only a handful of true friends in their lifetime. Well, I sincerely feel I've got millions.
+- Alzheimer's is such an insidious disease.
+- I treasure all my friendships.
+- If you want to say that I am vanilla, then I can give you a long list of broadcasting giants who fall into that same category because all of them always had the same goal that is my goal to this day: It is not about me.
+- I like stories. I like to figure out how history ties to the present.
+- People think I can just walk out and shoot 75 without taking a warm-up shot. But believe me, it's not that easy.
+- For more than a quarter century, I was fortunate to visit and play golf with President George H.W. Bush dozens of times, usually while paying a visit to the Bush compound in Kennebunkport, Maine.
+- People say 'dream big,' that's kind of one of those motivational sayings, but I would dream hard, meaning I just wanted it so badly, I could feel it.
+- On June 3, 2015, in keeping with a long tradition, I visited my home club in the Pepper Pike suburb of Cleveland, known simply as The Country Club. It's an old William Flynn design and perhaps the most underrated course in America. It's elegant, challenging and filled with old-world charm.
+- The late, great ABC golf anchor Jim McKay once advised me, 'When you look into the camera, imagine you are talking to one person on the other end.' The next time you hear 'Hello, friends' at the start of a broadcast, just know that I'm channeling my father at that very moment. I see him on the other side of that camera, smiling right back.
+- Every little crazy dream that I had has come true, and more. And I'm always mindful that this is not a birthright, that one day I would have the chance to come to Augusta every year. Just a crazy, really, almost obsession for me.
+- Someone pointed out that Dick Enberg and Curt Gowdy are the only two ever to call a Super Bowl and a Final Four. So I'll be the third. I get a kick out of putting my name in the same sentence as those other two giants.
+- When I tell people that I get interviewed five or six times more than I will interview players or coaches leading up to the game that comes as a surprise. That's part of it and it just goes with being part of a Super Bowl broadcast team. I enjoy it.
+- Any time you factor in the enthusiasm that comes with college sports, it comes with a whole new level. It is less corporate, it's more of an unharnessed kidlike enthusiasm.
+- My father is truly always by my side.
+- I wake up every day and give my thanks.
+- I see so many people in our industry, in my own network, who throw little tantrums about things that they can't control.
+- Just as many golfers feel a kinship with Ben Hogan or Bobby Jones after studying their lives, such is the closeness I feel with Lawson Little Jr. Little quite simply is the most underappreciated golfer of the first half of the 20th century.
+- I wanted to work for CBS because I loved the way CBS broadcast the Masters and I loved the way CBS presented the NFL. I loved the voices I heard.
+- I'm looking at the world through a very positive prism.
+- I live every day the job that I dreamed of as a boy.
+- Hello, friends.' I've had fun with that expression to satisfy the cynics, but it comes from the heart, and I don't apologize for it. Like my dad - for whom I designed the expression during the 2002 PGA Championship, when he was suffering from Alzheimer's disease - I've never met a stranger.
+- People think I can really play golf, but it's actually been almost an albatross for me. I really struggle not only to break 80, but sometimes to break 90.
+- I'm loyal to CBS. They have been loyal to me.
+- I was just overcome with the idea that one day I wanted to be one of those voices at the Masters and work for CBS and cover the NFL.
+- My father was very athletic. He was a life-of-the-party kind of guy - walked into the room and there was a presence about him. He was a great storyteller, just a terrific sense of humor. Having said that, he never put all of those talents or abilities into some public arena. He was never interviewed, never on television. His family was everything.
+- Jim Murray's greatest writings were golf writings.
+- When people ask me, 'What are you most proud of,' I say it's that I've had five people close enough to ask me to present them at the World Golf Hall of Fame. There were any number of people they could have used, but they asked me. It really means a lot to me.
+- The Masters is poetry to me.
+- As my father went through a really, really long and dark period of his health declining and falling deeper into the abyss, I knew I was never going to let my family and my children experience this without any long-term care.
+- As a teenager, Tiger was self-assured and mature, yet also warm and charming. But the warm outward veneer gradually changed. When he pulled off his 'win for the ages' at the 1997 Masters, he already was sharing less of his softer, emotional side.
+- As a storyteller, dates and time equal context.
+- I got to live through the Tiger Woods era and who knows who's still to come.
+- In 2011, my wife, Courtney, and I, with my amazing mother and sister, opened the Nantz National Alzheimer Center at Houston Methodist Hospital.
+- If there is only one event you could work the rest of your life, it would be Augusta.
+- We want the game to be attractive to a new audience, but you have to be careful because there are certain traditions this game upholds. Silence over the swing, that's always been there. That's not understood by those who don't play golf.
+- I'm more likely to quote the golfer George Burns than the legendary late comedian by the same name who lived to be 100.
+- You know, my father used to look at people and he treated everyone with such respect, and he always believed that he would rather trust you face on and be disappointed perhaps down the road, be disappointed some of the time rather than never to trust someone, never to believe in someone, and alas, be disappointed all the time.
+- To me, I'm a storyteller.
+- I like parades.
+- Every champion golfer comes to Augusta imbued with a towering source of inspiration. It's a solitary journey, but it's one that no player... makes alone.

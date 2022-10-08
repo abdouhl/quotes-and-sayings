@@ -1,0 +1,21 @@
++++
+author = "Sidney Altman"
+title = "Sidney Altman Quotes"
+quotes_len = "15"
+description = "the best 15 Sidney Altman Quotes"
++++
+- I spent eighteen months as a graduate student in physics at Columbia University, waiting unhappily for an opportunity to work in a laboratory and wondering if I should continue in physics.
+- For our immediate family and relatives, Canada was a land of opportunity.
+- It was from them that I learned that hard work in stable surroundings could yield rewards, even if only in infinitesimally small increments.
+- The mystique associated with the bomb, the role that scientists played in it, and its general importance could not fail to impress even a six-year old.
+- Eight months later, having left Columbia, I was studying physics in a summer program and working in Colorado when I decided to enroll as a graduate student in biophysics.
+- About seven years later I was given a book about the periodic table of the elements. For the first time I saw the elegance of scientific theory and its predictive power.
+- Indeed, we are privileged to have been afforded the opportunity to study Nature and to follow our own thoughts and inspirations in a time of relative tranquillity and in a land with a generous and forward-looking government.
+- I was born in Montreal in 1939, the second son of poor immigrants.
+- Furthermore, neither of our research groups set out in search of RNA catalysis.
+- We are very fortunate to be recognized here in such an extraordinary manner for work that we enjoy.
+- The RNA World referred to an hypothetical stage in the origin of life on Earth.
+- Nevertheless, as is a frequent occurrence in science, a general hypothesis was constructed from a few specific instances of a phenomenon.
+- We are united in the hope that every individual will someday enjoy at least the intellectual privileges we have had, if not always the material advantages.
+- My intention was to enroll at McGill University but an unexpected series of events led me to study physics at the Massachusetts Institute of Technology.
+- By the time I reached high school my father's grocery store had made our life adequately comfortable and I was able to choose, without any practical encumbrances, the subjects that I wanted to pursue in college.

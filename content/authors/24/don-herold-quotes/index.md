@@ -1,0 +1,21 @@
++++
+author = "Don Herold"
+title = "Don Herold Quotes"
+quotes_len = "15"
+description = "the best 15 Don Herold Quotes"
++++
+- Don't ever slam a door, you might want to go back.
+- The beggar is the only person in the universe not obliged to study appearance.
+- It takes a lot of things to prove you are smart, but only one thing to prove you are ignorant.
+- There is more sophistication and less sense in New York than anywhere else on the globe.
+- A humorist is a person who feels bad, but who feels good about it.
+- It is a good thing that life is not as serious as it seems to a waiter.
+- Poverty must have many satisfactions, else there would not be so many poor people.
+- The brighter you are, the more you have to learn.
+- Golf may be a hussy, but I love her.
+- There's one thing about baldness, it's neat.
+- If I had my life to live over, I would perhaps have more actual troubles but I'd have fewer imaginary ones.
+- There is nobody so irritating as somebody with less intelligence and more sense than we have.
+- Work is the greatest thing in the world, so we should always save some of it for tomorrow.
+- Unhappiness is not knowing what we want and killing ourselves to get it.
+- Why resist temptation? There will always be more.

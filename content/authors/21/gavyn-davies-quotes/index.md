@@ -1,0 +1,20 @@
++++
+author = "Gavyn Davies"
+title = "Gavyn Davies Quotes"
+quotes_len = "14"
+description = "the best 14 Gavyn Davies Quotes"
++++
+- The BBC should not have a cheerleader. It should have somebody who runs the organisation in the interests of the public and that should be a chairman.
+- The BBC is part of the glue which binds the United Kingdom together. At those times of national moment - of joy or sadness, in the UK or around the world, at times when the nation wants to celebrate, mourn or just enjoy itself people turn to the BBC.
+- Over the last decade, economists seemed to share a broad consensus about economic policy, with the old splits between monetarists and Keynesians apparently being settled by events. But the Great Recession of the last two years has changed everything.
+- Without the BBC, the proliferation of television and radio channels by the private sector would simply result in more and more channels, with tiny audiences, all seeking to do the same thing. The future would be one of fragmentation - fragmentation without either plurality or diversity.
+- There is an honourable tradition in British public life that those charged with authority at the top of an organisation should accept responsibility for what happens in that organisation. I am therefore writing to the prime minister today to tender my resignation as chairman of the BBC.
+- I want the BBC to be a mass market public service broadcaster still funded by the licence fee... and the licence fee is more durable than many people in the commercial sector believe.
+- The BBC must never be all about ratings - or even mainly about ratings. In the past year, we have made a raft of terrific programmes which stand comparison with the best the BBC has ever done: 'Blue Planet,' 'Walking with Beasts,' 'Son of God,' 'Clocking Off,' 'The Way We Live Now,' 'Conspiracy,' 'Lost World.'
+- Inflation is not always the main problem, or indeed a problem at all. Sometimes, though rarely, deflation is a more serious threat, and we need to shelve many of the orthodoxies we have held so dear.
+- Almost everyone will find something in our services worth paying for.
+- The BBC provides the commentary on our lives, the soundtrack of the nation. It is one of the most powerful unifying forces in the United Kingdom today.
+- Normally I would not recommend a book that tells you how to make money in the stock market. Most of these books are aimed at gullible folk, and they usually make much more money for their authors than they do for the investing public.
+- As long as the appointment process is transparent and there is a broad mix of political views among the governors of the BBC, I think the public can feel confident that impartiality and independence are just as important to me as they have been to previous incumbents.
+- It was an interesting question as to whether the BBC had a future in the digital world, and what form of market failure could justify the licence fee system.
+- Other than marriage, she doesn't control me and I don't control her.

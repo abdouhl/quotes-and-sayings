@@ -1,0 +1,37 @@
++++
+author = "Garfield Sobers"
+title = "Garfield Sobers Quotes"
+quotes_len = "31"
+description = "the best 31 Garfield Sobers Quotes"
++++
+- T20 is good entertainment. It is a game you need. People go to watch it. You have to be careful how far you let it go.
+- I learned to bat and bowl on different pitches and knew when to go hard and when to back off. It was just something I learned.
+- An all-rounder is someone who can make it to the team purely on the basis of his batting or bowling. Not both.
+- People call me a genius. I don't know much about geniuses. But I do believe that what I achieved was not just because of the ability that I was born with but also because I worked hard.
+- In cricket, there is a lot of psychology in the game, especially if you are watching people who are not top-class.
+- One of the things about the six sixes, which really comes over me every time somebody asks a question or says to me, 'I've just seen them,' or people always ask me about it... It makes me feel that's the only thing I've ever done in the history of cricket.
+- Don't worry too much on pathways programs: good players find a way to get through to play for their country.
+- The great all-rounders were not considered part-timers in one particular department. They could turn games at any stage and on any surface.
+- I love India. I love to visit the country.
+- I enjoyed playing any type of cricket. Didn't matter what type it was because I did not want to change my game. My game was built on one type of cricket: if there was a ball to hit, you hit it, whether it was Test matches, whatever it was.
+- I don't think cricket is a game that people who have never played or been involved in understand the excitement. It's a game that is full of excitement, because cricket lovers follow the game and understand the basic principles and rules. They become connoisseurs of the game.
+- When I look at someone like Andrew Symonds, I see a player who has done phenomenally well with the bat, as his record shows. He certainly has the ability to be a very good all-rounder, but I think to be a great one, you need to be able to turn a game with the bat or the ball.
+- My whole obligation was to West Indies cricket. As I have always said, 'I have never made a run for me.'
+- It's good to draw spectators to the grounds, but I don't think Twenty20 will help you produce good Test cricketers.
+- If you are going to raise youngsters for Test cricket that don't have the experience, you can't stick them into T20. You've got to teach them first how to play Test cricket, and when they're good enough for Test cricket and if they want to play both formats, then they can.
+- I only played to the best of my ability and with passion. Call it what you will.
+- Barbados has some of the toughest par threes in the world. Some golfers are intimidated by having to drive over ravines and water hazards.
+- I have so many fond memories of the Tied Test, and I can't wait to come back to Brisbane. One thing that stands out is that both teams stayed at the same hotel. We got to know each other so well. Some of my best cricketing friends were in that Australian team.
+- If I am talking to a youngster, I coach him what I feel is best for him to bowl, how to hold the ball, how to bowl certain things, and how to bowl to certain batsmen, how to position himself. I never talk to them about the rules.
+- When I played cricket for the West Indies, I never worried. I never really watched anyone else. I had a job to do, and I tried to do it to the best of my ability.
+- A coach should be a person who is able to help a player mentally.
+- If you take five wickets, someone has to take the catches. If you score a hundred, someone has to be there with you. You haven't done it individually. Some contributions may be small, but they are still tangible. You have to look at it from a team point of view. When you start looking at it as an individual, then you have no team.
+- Australia is always a place that is dear to me; it is always my second home, and I try to get there as often as I can, but it is not next door, you know.
+- There are a plenty of shots that I have been amazed by, but a lot of these shots are played because you have worn an iron mask. Take away the protection, and let me see if they play them. Don't forget that the past players did not have any protection.
+- Only men like Imran Khan, Kapil Dev and Ian Botham can be branded all-rounders.
+- West Indian cricket means so much to people who live here. And when we're not doing well, we all feel it.
+- In the 1950s, when we went to Lord's, you had to sit down, and it was very prim and proper. It was only in the 1960s when we started to do well that West Indians started voicing their opinions.
+- To me, Shane Warne is a great turner of the ball. I like his aggressive attitude, I love the way he attacks batsmen, and I give him 100 per cent for that, as not enough spinners bowl with that approach, but in my estimation, Subhash Gupte was a better leg-spinner.
+- My whole obligation was to West Indies cricket. As I have always said, I have never made a run for me. Records meant nothing. The team was important.
+- In the early days, when I first got into the WI team, when the Ws were playing, I would sit and watch. When you could learn from watching players like that, it was a great joy to watch them play.
+- Until we can get people who are willing to play for West Indies in the right way, I think that we're going to be struggling for a long time.

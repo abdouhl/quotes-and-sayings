@@ -1,0 +1,82 @@
++++
+author = "Sherri Shepherd"
+title = "Sherri Shepherd Quotes"
+quotes_len = "76"
+description = "the best 76 Sherri Shepherd Quotes"
++++
+- I love it when a woman hugs me. I love it when they say that I make them laugh because that means I'm doing what God called me to do. I love people. I love it when little old ladies come up and want to kiss me. It means so much to me that I get support and people know my heart. My fans know my heart and they get it.
+- I can't swim and I'm terrified of drowning, but I still love being by water - just not in it.
+- I didn't see my son the entire time I did 'Dancing With the Stars.' The only time I saw Jeffrey was when he came to the show Monday and Tuesday nights to watch me dance. You literally rehearse six to eight hours every single day - 40 to 50 hours a week.
+- I was homeless for a little bit. I was on people's couches, but it was an amazing journey. I got to make people laugh all the way.
+- I'd love to have First Lady Michelle Obama over and ask, 'How do you make your marriage work?' I think the president is sexy as all get-out, but he has got to get on her nerves some kind of way. He's this wonderful, powerful man, but she sees him leaving his socks on the floor.
+- A lot of people say it's cathartic to cook, and I'm like, 'How is it cathartic washing all these dishes?'
+- Realizing that the majority of kids that get molested feel that it is their fault, along with shame, those kids have no idea what to say or do to try to report anything, and add that with the lack of education, it is a complete recipe for disaster that leads to non-reporting of molestation.
+- I know that for me I have to get out of the way and let God take control.
+- I take the subway all the time here in New York. I love people watching and trying to figure out everybody's background, especially teenagers - they're so uninhibited when they display puppy love. I concoct stories in my mind: 'Are you guys like Romeo and Juliet?'
+- I've always been a strong believer that you were born with the hair you've got, but have the ability to get the hair you want.
+- The best piece of advice someone has ever given me was 'do it scared.' And no matter if you're scared, just go ahead and do it anyway because you might as well do it scared, so it will get done and you will feel so much better if you step out of your comfort zone.
+- My father was and is a great father. My father always wanted to do stand-up. He wanted to be an actor. But instead he did two jobs. He did customer service at a hospital and he worked as a waiter at night. He pretty much sacrificed everything for his daughters.
+- I don't think anything predated Christians.
+- For me, wigs and hairpieces are an everyday part of my life. One day I can wear what I like to call my 'Back to you, Barbara' look - professional and full of layers - and the next day you may see me in my 'Bubblin' Brown Sugar' look - curly, fun and bubbly.
+- One of the things that I do that I've found from being newly married is that my husband and I, we go in the bathroom and brush our teeth together. And that's when we talk about what's going on in the day, so we get to bond that way.
+- I love working. If somebody took away my jobs, I don't know what I would do. I'm just the kind of person who has to stay busy.
+- The thing I want to really say is that I still mess up. I still go out there and say things on TV that I know the Lord is like, 'Sherri what are you doing?' but I know I can go back and get on my knees and say, 'Lord forgive me.' I know he will never leave me nor forsake me. The wonderful thing is He answers my prayers in spite of me.
+- I'm a human garbage can, but I don't like veggies unless they have Velveeta cheese on top. And forget crunchy broccoli and carrots. I like 'em soggy, soft and wilted. The nutrients have probably gone away, but that's the only way I can eat them.
+- When I planned my wedding the first time, my ex-husband and I, we were both struggling comics. I had a TV show that had gotten cancelled. Basically, I rented a wedding gown; the reception hall smelled like feet.
+- When I was little I went to a Baptist Church with my grandmother. My earliest memories were of her falling out in the middle of the floor and they had to cover her with a white sheet. Every time we went to church it was scary. The music would start playing, and then everybody would start running and shouting and hollering and screaming.
+- At night, I try to sneak in some of the shows that I love. I can't live without '30 Rock' - I was a fan before I joined the show in 2007 - and 'The Office.' 'Revenge' is my drama. And I love Jimmy Kimmel if I can stay up late enough to watch him.
+- My priority is my son and my husband, and I have a lot of spinning plates, so I try to make sure they're not one of them.
+- I am trying to inspire people to just take control of their oral health, because if we don't take care of our oral health, it affects so many different aspects of our lives. If your smile and mouth is not together, it affects your relationship, your self-esteem, your health.
+- I've always had a quirky way of looking at things. It's my coping mechanism.
+- I love the entire process of being on the set and being able to create a character. It's so much fun. In 'Think Like a Man,' I have a very small part. They told me it wasn't a big budget, but I don't care about any of that. I'll do it for free simply because I love being on the set with other creative people.
+- I think it's harder to forgive ourselves for mistakes that we made because we keep dwelling on it. We want to know how it affects other people, if they liked us for it, if they didn't like us. I think we stress over it, we replay it in our mind. It becomes an old tape that years later we continue to play it in our mind.
+- I don't know how we're going to have this baby because I'm in my forties and I can't even remember my first son's name. But I'm going to have another baby because I'm feeling good.
+- I want to know how to feel good while I'm in the gym, because I'm mad while I'm on the treadmill. I've got that angry-lady face the entire time.
+- I'm a mother. Mothers multi-task.
+- My dad worked two jobs and moved us to the suburbs, and just being a black person, I went through a lot of racism and being called names and being bullied every single day. And it was hard. I didn't have any friends.
+- I worked at Sears in the Woodfield Mall as a gift wrapper. I'm actually a great gift wrapper, and the customers were so nice to me. I was only 16, and eventually Sears put me in customer service because I was so friendly.
+- Write yourself a permission slip to be surprised by someone's potential. Who knows? One day that person could be you.
+- Wigs have always been a part of my life and have become a staple accessory in my closet. I can remember being a little girl and hearing all the commotion in my house from my mom, aunts and grandmother when picking out their wigs for the day. It was such a good time for them and part of their everyday beauty routine.
+- I had a lot of guilt as a single mother trying to raise a child. I had to go to work and Jeffrey was screaming that he didn't want me to. You have to give yourself permission to let go of the guilt.
+- My faith means everything to me. God and I talk constantly.
+- I'm just so against kids being on Twitter because they are not thinking about the ramifications of what they are saying or the emotion of how they say it.
+- Sometimes I just said, 'I don't want tilapia anymore; I can't even deal with salad. I want M&M's and Ruffles.'
+- My grandmother taught me that accomplishments meant less than what you left behind. I started to ask myself what impact my comedy would have on people's lives. And that changed my act. I got cleaner. I stopped talking about generic stuff like airplane peanuts and started speaking the truth about my gift.
+- I've taken salsa classes. I love dancing and I love to karaoke. So I bought a microphone with some tapes and my son and I karaoke. I know the entire 'Dora the Explorer' soundtrack.
+- My fans mean everything to me - especially the sisters! When you're on 'The View' or you're doing movies and stuff, you're a little bit insulated. It means so much to me when a woman comes up to me and says, 'Sherri, you said what I feel.' That just means so much to me to know that I have that support.
+- I get along very well with the cast of '30 Rock.' I guess I bring a certain quirkiness to the show as well. I'm just thankful they keep asking me. I didn't think I was going to be asked back so every time they say, 'We want you back,' I'm screaming. I'm jumping up and down and screaming.
+- I believe God has called His people to be a light in darkness.
+- I do a lot of stairs, a lot of planks, a lot of squats, a lot of treadmill, a lot of screaming - and I do it four times a week.
+- My mom passed away at 41 from diabetes. And I'm 42, thank you. I didn't want to do that to my son. So any time I was at the gym, that thing that helped me do that last squat was my son calling some other woman mommy. And that would just give me that extra oomph to do that last squat. I want to be around for him.
+- Black people don't talk about diabetes that much. I never knew anything. I thought everyone had an uncle with a leg cut off!
+- God bless you if you have one child, but I don't think anybody should have just one child. Everybody needs a sibling. I have siblings, and I have so many amazing, precious memories with my siblings. I don't know what I would do if I had been an only child.
+- Go to a wig store with your girlfriends, never by yourself. You need someone to say, 'Girl that looks good!' You need someone to encourage you to try pieces on. Try to purchase a wig close to your natural hair color as possible, don't come in with brown hair and try to leave as a redhead unless you are fine with that!
+- I am on the power toothbrush train and I'm asking people to try to using an Oral B power toothbrush. I just started using one and I cannot believe that I waited this long to use a power toothbrush. It's so much easier than using a manual toothbrush.
+- I have so much hair; I have a separate wig closet in my house.
+- Once I accepted Christ I immediately had peace. I still didn't have a place to live, I still didn't have a car, but I had peace.
+- I have hair that I audition with, my sitcom hair which is a curly wig. I have my long chic hair that I wear to my son's school so they know I'm not playing around. I always tell people that my husband gets a different woman every night when I come home from 'The View.' Hair makes you feel a certain way, like putting a power suit on.
+- Growing up, we didn't have any money - we shopped where you picked your shoes out of a bin. When I was little, I said, 'When I grow up, I'm going to have nice shoes.'
+- My husband, Sal, and I put date nights on the calendar once a week. I know that doesn't sound romantic, but otherwise it won't get done.
+- Working with Tracy Morgan on '30 Rock' is really great. I love Tracy. He's wonderful. Well, until his fish tank caught fire - his apartment burned up and flooded my apartment. We live in the same building, but I'm eight floors below him and we had to evacuate.
+- I love being married.
+- I just don't believe in abortion, period. But I would never take away a woman's right to choose what's good for her body. But I still believe that when you do have an abortion, still inside, you go through a lot of stuff. It tears away at your spirit and your soul. So I don't think people think about that.
+- As the oldest I was a daddy's girl and loved him with all my heart. My daddy had holes in his shoes so that he could pay for my photography classes, you know what I mean.
+- I believe in Jesus Christ as my Lord and savior. I believe that Jesus died for my sins, and rose again, and that's my belief. I still don't know what 'Christian' means. I'm a follower of Christ, but I keep making a whole bunch of mistakes. And I thank God for forgiveness.
+- I love 'The View,' so when you're living the dream, it's not work.
+- Oh my goodness, I'm in love with Channing Tatum, although I think I'm too old to play his love interest. They'd probably cast me as his grandmomma's friend or something like that, but anything to be in a movie with Channing.
+- I would make people who bullied me laugh, so that's my defense mechanism.
+- My sisters have been baptized and my dad is a deacon at his church now. Sadly my mother passed away but what I can say is that the Jehovah Witnesses took very good care of her up until she died.
+- When I was creating my Luxhair Now wig line, I was listening to what my fans were saying online because I wanted to make something that the average woman could wear to work.
+- I burn a lot of stuff. My son, bless his heart, eats it anyway. But he makes a face!
+- If it wasn't for my trainer - who comes looking for me three times a week before 7 A.M. - I wouldn't get my butt out of bed and into the gym. There are many mornings when I think about faking a sprained ankle, but I just put it out of my head and make myself go.
+- I love the honesty of New Yorkers. When a New Yorker says 'let's do lunch,' they actually mean it. In L.A., when they say 'let's do lunch,' they're just trying to say good-bye.
+- For my first wedding, I cried all the way down the aisle. My fake eyelash came off. My nose was red. My eyes were swollen. I'm not one of those pretty criers.
+- I was taught not to confront and interrupt people, but that's what I do every day on 'The View.'
+- Anybody who knows about having a premature baby, it's horrific. He was part of a twin, and I lost his sister.
+- Sometimes my husband has to literally pull me away from the computer.
+- Being a Jehovah's Witness, it was really a trip. We had to go from door to door, and we weren't allowed to associate with the other children. It was a lot of rules.
+- I am a type-2 diabetic, and they took me off medication simply because I ate right and exercised. Diabetes is not like a cancer, where you go in for chemo and radiation. You can change a lot through a basic changing of habits.
+- If you don't go towards the thing you fear, you won't be able to say you lived.
+- When I first started wearing wigs, I didn't know you had to anchor them down with bobby pins. I walked out during a windy day and my wig blew off and got stuck to a branch. I was walking while my wig was hanging! If that's not the most embarrassing thing... but you have to use bobby pins.
+- When I go back to family reunions everybody goes, 'Hey cousin! Hey Auntie!' And I'm like, 'Okay I don't know you, I have no idea who you are.' I am auntie and cousin for so many and even the ones in prison call me collect. And I'll be like, 'Which of my family members are giving you this phone number?'
+- I'm not into the Oscar and Emmys as much as I used to be because I'm tired of looking at people who don't look like me.

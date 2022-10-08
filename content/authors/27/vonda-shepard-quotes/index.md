@@ -1,0 +1,42 @@
++++
+author = "Vonda Shepard"
+title = "Vonda Shepard Quotes"
+quotes_len = "36"
+description = "the best 36 Vonda Shepard Quotes"
++++
+- I don't have much time for TV shows, but if I did, I'd watch 'Seinfeld' reruns.
+- I have played lots of clubs since I was 14, but I always did my own music.
+- I thought nothing would ever happen for me. My whole life had been geared toward being a singer, and it wasn't clicking.
+- I spend a lot of time working in the studio as a producer, not just a singer.
+- The biggest similarity between me and my character is that we've both played clubs for 20 years. In real life, the clubs aren't quite as controlled - and my hair isn't quite as in place as it is on 'Ally McBeal.'
+- For me, if 'Maryland' became half of what 'Searchin' My Soul' became, as far as radio play goes, I would be thrilled.
+- My advice is if you have to do music, then do it! There's no choice in your heart and your soul - unless you have that kind of great need, desire and determination, it's pretty tough out there!
+- I love pop music, but I don't want to be Celine Dion.
+- I'm not just a chick singer who sings high all the time.
+- I can't really stop doing the music because it really feeds me.
+- I seem to be drawn to the really romantic songs.
+- The two together are a really great combo: the family life and then being able to go play some shows and write.
+- My nature is... well... I'm a searcher by nature. I'm constantly searching for something; that's why I have a song called 'Looking for Something.' How do I do it? I read a lot of spiritual books; I meditate.
+- Having drive is a big part of success, along with integrity. You need to have a clear vision of what you want and take the steps to achieve it, even if that sometimes means playing gigs in tiny clubs.
+- The last thing I wanted was a big paycheck but no inspiration or support.
+- Starting young has definitely helped my success. All the experience I gained by touring with other players as a backing artist helped to prepare me for my own big break.
+- I do a lot of touring, yes, and I have my whole life ever since I was 19 years old, when I used to tour with Al Jarreau, Rickie Lee Jones, and Jackson Browne as a side musician.
+- Ally McBeal walks down the streets crying, looking for the right man. I don't do that.
+- I had a very artistic bohemian childhood. My father was an actor and a mime.
+- Although I don't come from a musical background, I was given piano lessons along with my sisters, but I wasn't what you would call a good student. I tended to write songs rather than do scales.
+- I've been through the entire gamut of the music industry - I've been playing in clubs since I was 14, and I've been on Warner Bros, on Sony - I've had lots of successes and some serious times of struggle.
+- James Ralston, my guitar player, has performed with Tina Turner for about 22 years. Jim Hanson on bass has played with Johnny Cash, Rodney Crowell and Bruce Springsteen, and they're fantastic musicians and amazing singers they get a really cool vocal sound together.
+- I had a hard-core cult following of at least 12.
+- I always give the audience a variety because I want to make sure they hear the favorites and all that.
+- We've been waiting for a format like triple-A where you can hear Crowded House, Joni Mitchell and R.E.M.
+- I was born singing. My father tells this story about when I was 3 weeks old, how I would rock in the crib and sing in the crib all night long. My crib would roll across the floor in the middle of the night. Finally, my father nailed its legs to the floor.
+- Success was overnight, but it was a very long night.
+- My stint with 'Ally McBeal' is something I never planned nor expected.
+- Playing clubs is the ultimate - you see the faces; you hear the 'clicking' glasses - I love all that atmosphere and seeing people's mouths singing the words to the songs.
+- I just kept making records, touring in Europe a lot, and then I had a baby in 2006, so my life has been very, very much family-orientated.
+- My mom always wanted to go to Maryland to live there. Baltimore, actually. She had a best friend who lived there. She kept saying that she was going to move there and make that her home, but she only made it halfway across the country and got stuck in Iowa.
+- My nature is to worry about everything too much.
+- I would advise anyone starting out as a singer/songwriter to play live as much possible. You never know who might be in the audience.
+- I could have become a mime or a juggler, but I became a singer-songwriter instead.
+- At first, I wanted to start my own label, but it was such a full-time job that it became too much.
+- There was a singer-songwriter who slept on our couch for a year when I was about 7 or 8. She used to sing these songs for us, and I loved it. It was magical to watch her.

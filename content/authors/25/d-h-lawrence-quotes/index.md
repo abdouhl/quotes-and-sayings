@@ -1,0 +1,114 @@
++++
+author = "D. H. Lawrence"
+title = "D. H. Lawrence Quotes"
+quotes_len = "108"
+description = "the best 108 D. H. Lawrence Quotes"
++++
+- You don't want to love - your eternal and abnormal craving is to be loved. You aren't positive, you're negative. You absorb, absorb, as if you must fill yourself up with love, because you've got a shortage somewhere.
+- A man has no religion who has not slowly and painfully gathered one together, adding to it, shaping it; and one's religion is never complete and final, it seems, but must always be undergoing modification.
+- It is quite true, as some poets said, that the God who created man must have had a sinister sense of humor, creating him a reasonable being, yet forcing him to take this ridiculous posture, and driving him with blind craving for this ridiculous performance.
+- Europe's the mayonnaise, but America supplies the good old lobster.
+- One never can know the whys and the wherefores of one's passional changes.
+- Love is the flower of life, and blossoms unexpectedly and without law, and must be plucked where it is found, and enjoyed for the brief hour of its duration.
+- The Christian fear of the pagan outlook has damaged the whole consciousness of man.
+- God doesn't know things. He is things.
+- The great living experience for every man is his adventure into the woman. The man embraces in the woman all that is not himself, and from that one resultant, from that embrace, comes every new action.
+- The cruelest thing a man can do to a woman is to portray her as perfection.
+- The day of the absolute is over, and we're in for the strange gods once more.
+- One sheds one's sicknesses in books - repeats and presents again one's emotions, to be master of them.
+- I am in love - and, my God, it is the greatest thing that can happen to a man. I tell you, find a woman you can fall in love with. Do it. Let yourself fall in love. If you have not done so already, you are wasting your life.
+- The one woman who never gives herself is your free woman, who is always giving herself.
+- Having achieved and accomplished love... man... has become himself, his tale is told.
+- Tragedy is like strong acid - it dissolves away all but the very gold of truth.
+- The true artist doesn't substitute immorality for morality. On the contrary, he always substitutes a finer morality for a grosser one.
+- The war is dreadful. It is the business of the artist to follow it home to the heart of the individual fighters - not to talk in armies and nations and numbers - but to track it home.
+- They say geniuses mostly have great mothers. They mostly have sad fates.
+- One can no longer live with people: it is too hideous and nauseating. Owners and owned, they are like the two sides of a ghastly disease.
+- The Moon! Artemis! the great goddess of the splendid past of men! Are you going to tell me she is a dead lump?
+- The human soul needs actual beauty more than bread.
+- This is the very worst wickedness, that we refuse to acknowledge the passionate evil that is in us. This makes us secret and rotten.
+- I can't bear art that you can walk round and admire. A book should be either a bandit or a rebel or a man in the crowd.
+- There is no such thing as liberty. You only change one sort of domination for another. All we can do is to choose our master.
+- Psychoanalysis is out, under a therapeutic disguise, to do away entirely with the moral faculty in man.
+- But better die than live mechanically a life that is a repetition of repetitions.
+- The only history is a mere question of one's struggle inside oneself. But that is the joy of it. One need neither discover Americas nor conquer nations, and yet one has as great a work as Columbus or Alexander, to do.
+- People always make war when they say they love peace.
+- Oh literature, oh the glorious Art, how it preys upon the marrow in our bones. It scoops the stuffing out of us, and chucks us aside. Alas!
+- God how I hate new countries: They are older than the old, more sophisticated, much more conceited, only young in a certain puerile vanity more like senility than anything.
+- We have to hate our immediate predecessors to get free of their authority.
+- Loud peace propaganda makes war seem imminent.
+- The human consciousness is really homogeneous. There is no complete forgetting, even in death.
+- I want to live my life so that my nights are not full of regrets.
+- Design in art, is a recognition of the relation between various things, various elements in the creative flux. You can't invent a design. You recognize it, in the fourth dimension. That is, with your blood and your bones, as well as with your eyes.
+- California is a queer place in a way, it has turned its back on the world, and looks into the void Pacific. It is absolutely selfish, very empty, but not false, and at least, not full of false effort.
+- Consciousness is an end in itself. We torture ourselves getting somewhere, and when we get there it is nowhere, for there is nowhere to get to.
+- There's always the hyena of morality at the garden gate, and the real wolf at the end of the street.
+- It is a fine thing to establish one's own religion in one's heart, not to be dependent on tradition and second-hand ideals. Life will seem to you, later, not a lesser, but a greater thing.
+- I can never decide whether my dreams are the result of my thoughts, or my thoughts the result of my dreams.
+- I believe that a man is converted when first he hears the low, vast murmur of life, of human life, troubling his hitherto unconscious self.
+- The refined punishments of the spiritual mode are usually much more indecent and dangerous than a good smack.
+- If a woman hasn't got a tiny streak of harlot in her, she's a dry stick as a rule.
+- The soul is a very perfect judge of her own motions, if your mind doesn't dictate to her.
+- Life is ours to be spent, not to be saved.
+- I never saw a wild thing sorry for itself. A small bird will drop frozen dead from a bough without ever having felt sorry for itself.
+- Never trust the artist. Trust the tale. The proper function of the critic is to save the tale from the artist who created it.
+- The American grips himself, at the very sources of his consciousness, in a grip of care: and then, to so much of the rest of life, is indifferent. Whereas, the European hasn't got so much care in him, so he cares much more for life and living.
+- My great religion is a belief in the blood, the flesh, as being wiser than the intellect. We can go wrong in our minds. But what our blood feels and believes and says, is always true. The intellect is only a bit and a bridle.
+- Money is our madness, our vast collective madness.
+- It is so much more difficult to live with one's body than with one's soul. One's body is so much more exacting: what it won't have it won't have, and nothing can make bitter into sweet.
+- One must learn to love, and go through a good deal of suffering to get to it... and the journey is always towards the other soul.
+- Myth is an attempt to narrate a whole human experience, of which the purpose is too deep, going too deep in the blood and soul, for mental explanation or description.
+- The only justice is to follow the sincere intuition of the soul, angry or gentle. Anger is just, and pity is just, but judgement is never just.
+- Be a good animal, true to your animal instincts.
+- When one jumps over the edge, one is bound to land somewhere.
+- The novel is the highest form of human expression so far attained. Why? Because it is so incapable of the absolute.
+- Ethics and equity and the principles of justice do not change with the calendar.
+- I shall be glad when you have strangled the invincible respectability that dogs your steps.
+- Life is a travelling to the edge of knowledge, then a leap taken.
+- The proper study of mankind is man in his relation to his deity.
+- In every living thing there is the desire for love.
+- Death is the only pure, beautiful conclusion of a great passion.
+- The more I see of democracy the more I dislike it. It just brings everything down to the mere vulgar level of wages and prices, electric light and water closets, and nothing else.
+- God is only a great imaginative experience.
+- Nothing that comes from the deep, passional soul is bad, or can be bad.
+- Since obscenity is the truth of our passion today, it is the only stuff of art - or almost the only stuff.
+- All that we know is nothing, we are merely crammed wastepaper baskets, unless we are in touch with that which laughs at all our knowing.
+- Literature is a toil and a snare, a curse that bites deep.
+- Ours is an excessively conscious age. We know so much, we feel so little.
+- The business of art is to reveal the relation between man and his environment.
+- I cannot cure myself of that most woeful of youth's follies - thinking that those who care about us will care for the things that mean much to us.
+- I shall always be a priest of love.
+- Towns oftener swamp one than carry one out onto the big ocean of life.
+- The world of men is dreaming, it has gone mad in its sleep, and a snake is strangling it, but it can't wake up.
+- So long as you don't feel life's paltry and a miserable business, the rest doesn't matter, happiness or unhappiness.
+- Sentimentalism is the working off on yourself of feelings you haven't really got.
+- The human being is a most curious creature. He thinks he has got one soul, and he has got dozens.
+- Men are freest when they are most unconscious of freedom. The shout is a rattling of chains, always was.
+- The great mass of humanity should never learn to read or write.
+- One could laugh at the world better if it didn't mix tender kindliness with its brutality.
+- Don't be on the side of the angels, it's too lowering.
+- I like to write when I feel spiteful. It is like having a good sneeze.
+- For man, as for flower and beast and bird, the supreme triumph is to be most vividly, most perfectly alive.
+- My God, these folks don't know how to love - that's why they love so easily.
+- Men always do leave off really thinking, when the last bit of wild animal dies in them.
+- The essential function of art is moral. But a passionate, implicit morality, not didactic. A morality which changes the blood, rather than the mind.
+- My whole working philosophy is that the only stable happiness for mankind is that it shall live married in blessed union to woman-kind - intimacy, physical and psychical between a man and his wife. I wish to add that my state of bliss is by no means perfect.
+- How beautiful maleness is, if it finds its right expression.
+- I can't do with mountains at close quarters - they are always in the way, and they are so stupid, never moving and never doing anything but obtrude themselves.
+- Sex and beauty are inseparable, like life and consciousness. And the intelligence which goes with sex and beauty, and arises out of sex and beauty, is intuition.
+- Men! The only animal in the world to fear.
+- There is only one thing that a man really wants to do, all his life; and that is, to find his way to his God, his Morning Star, salute his fellow man, and enjoy the woman who has come the long way with him.
+- Reason is a supple nymph, and slippery as a fish by nature. She had as leave give her kiss to an absurdity any day, as to syllogistic truth. The absurdity may turn out truer.
+- Only in a novel are all things given full play.
+- I hold that the parentheses are by far the most important parts of a non-business letter.
+- Creation destroys as it goes, throws down one tree for the rise of another. But ideal mankind would abolish death, multiply itself million upon million, rear up city upon city, save every parasite alive, until the accumulation of mere existence is swollen to a horror.
+- All vital truth contains the memory of all that for which it is not true.
+- I hate the actor and audience business. An author should be in among the crowd, kicking their shins or cheering them on to some mischief or merriment.
+- Ours is essentially a tragic age, so we refuse to take it tragically.
+- Do not allow to slip away from you freedoms the people who came before you won with such hard knocks.
+- Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot.
+- The mind can assert anything and pretend it has proved it. My beliefs I test on my body, on my intuitional consciousness, and when I get a response there, then I accept.
+- Oh the innocent girl in her maiden teens knows perfectly well what everything means.
+- Men and women should stay apart, till their hearts grow gentle towards one another again.
+- The fairest thing in nature, a flower, still has its roots in earth and manure.
+- It's bad taste to be wise all the time, like being at a perpetual funeral.

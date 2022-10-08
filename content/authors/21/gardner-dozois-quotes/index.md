@@ -1,0 +1,13 @@
++++
+author = "Gardner Dozois"
+title = "Gardner Dozois Quotes"
+quotes_len = "7"
+description = "the best 7 Gardner Dozois Quotes"
++++
+- When I first started editing a 'Year's Best' volume in the '70s, the job was pretty straightforward - there were three or four monthly magazines to read and a few original anthologies from trade publishers every year.
+- I've probably read more bad science fiction than anyone else alive. But I've also read more good science fiction than anyone else alive.
+- What science fiction does is take what might be possible someday and examine what might happen if it were - the drawbacks and the positive things.
+- Philadelphia's a good science-fiction town. There are many professional writers here, like Michael Swanwick, Tom Purdom, Gregory Frost, Victoria McManus and others. There are professional artists such as Bob Walters and Tess Kissinger and Susan McAninley.
+- An experienced slush-pile reader doesn't need more than a few seconds to see if a story has potential. You don't need to eat all of a rotten egg to determine that it's rotten.
+- When I was a boy in Salem, Mass., in the 1950s, if you wanted to buy a book, you had to take a train to Boston. And when you got there, to a bookstore, there was no such thing as a science-fiction section.
+- Even after all these years, finding a really first-rate story is still a thrill, one I want to share with others.

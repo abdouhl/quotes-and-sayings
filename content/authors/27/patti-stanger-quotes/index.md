@@ -1,0 +1,70 @@
++++
+author = "Patti Stanger"
+title = "Patti Stanger Quotes"
+quotes_len = "64"
+description = "the best 64 Patti Stanger Quotes"
++++
+- I think the men in L.A. are very rugged, good-looking. Men in New York look metro with their manis and pedis and their Bruno Magli loafers, but inside they're very masculine - aside from the Meatpacking District. The problem is the men in New York are five to one: five women to one man.
+- It's not hard to find a date if you are Jewish in New York and Miami, but its hard in Texas.
+- A ring means a commitment. But more than that, it means that you've talked about your shared future and have decided together on a shared vision of it.
+- We've heard some theories, but there is a lot of mystery surrounding my adoption.
+- If you're giving love and not receiving it, you're not in the right relationship. If you're receiving it and not giving it than you are taking advantage of the other person.
+- It's not easy to date when you're hefty. Besides I like feeling thin because it makes me feel amorous.
+- I'm a dancer so anything related to dance I love to do. I also tried Zumba last week. That thing is tough! 15 minutes in I was going for a water break. It wasn't easy!
+- If you have been divorced once - male or female, but especially for females - and you're over 40 you're actually a commodity. It means you were able to commit once, and you'll do it again.
+- I used to practice Wicca.
+- The only way you'll have a pen of potential Romeos from your past to choose from is to actually have a past.
+- I don't hate redheads! The millionaire men - wealthy men - never pick them. Every time I offer them they say no. I could say the most gorgeous redhead in the world and they'll say no, they don't want it. Now if you ask an Irish guy in Ireland, he says 'yes,' because that's indigenous to that country.
+- I'm on the Sensa diet. It's a little magic powder based on Dr. Hirsh's clinical trials and studies and it basically signals the brain that you're full through smellology.
+- I'd like to adopt an older child, maybe 5 years old.
+- There are a lot of millionairess situations. I'm one of them. I've always dated down financially. And now I'm changing my tune on that one. Things are going to change for me.
+- Up until age 40, most men are just not as mature as women. So, it makes sense that a lot of women date up in age a bit.
+- We're all getting plastic surgery. Come on, this is the game here, and HDTV exaggerates all the features. Yeah, I'm proud of it, because we're all doing it. Nobody's talking about it.
+- On both 'The Bachelor' and 'The Bachelorette,' it seems like proposing marriage is equivalent to saying, 'Let's date.' Everyone knows those aren't the same things.
+- I'm very quiet and shy in my personal life, as hard as that is to believe.
+- It hit me really hard that I want kids in my life.
+- I'm recognizable in certain circles, like girls know me, couples know me. But not all straight men know me.
+- I was a D student in high school and on the dean's list in college.
+- There is no 100 percent pre-nup.
+- What I do know is that traditional gender roles are very real and flipping the norm is difficult for even the strongest, funniest, smartest men.
+- We have all loved a guy we know has issues. Despite popular opinions, until we give it a final try, the relationship will always be in the 'what if' stage.
+- If you're a successful woman, chances are that you spend a ton of time working. You're probably on your email a lot, taking phone calls and going on regular business trips that don't involve your man. He can start to feel left out of a very important and very time-consuming part of your life.
+- I had to find a diet that would kick me back into dating shape, because I know that I can't date at size 8. I have to date at size 2. And it's just a fact of nature. Go get your injections and your chemical peels. You gotta look good to attract a man.
+- A lot of Hollywood couples get married young and wind up growing out of their relationship.
+- If I weren't a matchmaker, I'd be a chef.
+- Valentine's Day is the hardest day of the year for a woman to get out, but everybody who is anybody and single is out that night.
+- I'm a planner, and most networks don't plan. Bravo doesn't plan. Bravo is lucky in a lot of ways - they've got a lot of great talent, but at the same time, they don't nurture it. They lost 'Project Runway.'
+- For the women in California, they're just downtrodden because they're so gorgeous here. Every hot cheerleader comes to California to make it. The men don't want to get married, they're lazy lions. Matthew McConaughey is their poster boy so they can procreate and live on the beach in the trailer and have kids and have money and be hedonistic.
+- I was a VP of marketing, I was regional sales manager in fashion, and marketing director in communications and product development. I was always a corporate Fortune 500 girl.
+- I really want to adopt a child... I want to be called 'Mom.' It really is the most beautiful word in the English language.
+- I probably should be a little more cautious with how I speak, and I think my delivery needs to be a little softer.
+- I'm a very stereotypical person... and that's part of my flavor, I guess, because I tell it like it is.
+- I'd like to date another millionaire. I've never done that.
+- I have put gay dating on the map.
+- I dated a guy and he liked me but I didn't like him. I went through his wardrobe and cleaned out his house and got him to get a new car. He said to me, 'If I give you $10,000, will you find me my wife because I want someone like you?' And within a year, he got married. That was the first match that led to me leaving my corporate job.
+- The best part about being a matchmaker is you are getting credits in heaven, as I really believe I work for God. The worst part is that matchmakers can often fix everyone up, all the way to the altar, but cannot find love themselves, so it is bittersweet.
+- When a man gets cheated on, I'm like, 'Meh, he'll find somebody else.' When a woman gets cheated on, that's a deep wound. I think when a man is widowed, like Liam Neeson, I think that has more of an effect - you had a great love and the universe took her.
+- To get rid of depression, I swim with dolphins.
+- I was single for a really long time, then I realized I had abandonment issues. Then I found love online.
+- Gays don't have a lot of testosterone. I'm talking about that they use both sides of their brain. Straight men only use one side. Gay men are very bright, very handsome... they put themselves better together. They dress good, they decorate, they clean, they cook.
+- When you know what the male species is looking for - 'I'm not into a redhead,' 'I don't want a fat chick,' - I have to tell them that X won't date you unless you're this. I'm just the messenger.
+- Successful men don't date up. They are intimidated by wealthy women unless they are blue bloods. Successful men want to always take care of their women, and that means financially.
+- I had a breast reduction.
+- If you're going to get engaged make sure you've talked to your partner about life together in the years to come.
+- Taylor Swift dates guys so she can write a breakup song about them. I don't think she's dating for love - I think she's dating for creativity. So let's get her off the market and put her in dating detox. If she really wants love, she has to stop writing music about them.
+- I'm Jewish, I can say it. We're storytellers. We were the moneylenders... Therefore we tell great tales to get what we need. I love Jewish men. They make the best husbands.
+- A man can be drawn across the room with the simplicity of a smile. That's why your pearly whites should always be straight and shiny. I think most of my clients are drawn to a fun, flirty nature in a woman. The problem is, most women do not often feel fun and flirty.
+- If I was in a situation where it wasn't working and I had a choice with another man, I'm gonna assess it like a business deal: who is the better person for me?
+- Think back to yourself at age 18. I know I was mighty different than the Patti I am today. As we grow up, we grow out of our haircuts, our apartments and - often times - our romantic decisions.
+- Men like to provide for women and their families. It's in their DNA. I'm obviously no scientist, but I bet if you could hear a Y-chromosome talk, it would say, 'I want to provide and hunt.' When the woman is the primary breadwinner, it's going against nature. I'm not saying that it's bad or wrong, I'm just saying that it can feel off.
+- I state in my book 'Become Your Own Matchmaker,' confidence is the key to any endeavor. Women don't realize that when they do things they love and are passionate about - their confidence soars. Men are attracted to women who feel happy and decisive about life.
+- Women are smart in business and dumb in love. They won't date outside their zip code, let alone outside the city. They are city snobs.
+- As long as women are in the work force making their own money and decisions, men are going to have to realize that this way of life is here to stay - because it takes two incomes to make it and more now. The sooner you address your style of saving and spending with your mate the better off your relationship will be.
+- I always believe a woman should have 5 non-negotiables that she should stick to when attracting a mate. If the guy does not have these five major things - then she should not give the guy a chance as she's wasting her time. The rest is up to the magic and wiggle room the universe gives.
+- My favorite splurge would be gluten-free pizza. Or I'm a total truffle addict so truffle mac and cheese.
+- We go on dates thinking that person is our future husband or wife, without getting to know them, as we live in a fantasy and an illusion of romance.
+- The rich are different. Their wants are very high maintenance. They'll pick eye color and hair color, all the way down to what she does for a living, what school she went to. Their list can be extremely long. But at the end of the day, dating is dating, because they're human beings.
+- I'm an advocate for gay marriage. I have more gay friends than Carter has pills.
+- Oprah didn't want to put me on the show for a really long time because she thought I was more for the men than for the women.
+- I have a great track record, and I have never been sued. If I can't find someone for someone, I refer them out. I have an affiliate division of matchmakers all over the world that I work with. Men like certain types of women, and I can subcontract that out to foreign countries.
+- It's hard for women who make a lot of money and make decisions all day long, then they have to come home and be 'Stupid Sally.' Men need respect, and they need to know that they can lead in the relationship, so even if they don't make the most money they need to be able to call the shots.

@@ -1,0 +1,32 @@
++++
+author = "Jay Alan Sekulow"
+title = "Jay Alan Sekulow Quotes"
+quotes_len = "26"
+description = "the best 26 Jay Alan Sekulow Quotes"
++++
+- Our enemies, like the Grecian hero, have one vulnerable point. You have not touched it yet. What should have been their element of weakness has been suffered to remain an element of strength.
+- You are the first President to whom the opportunity was ever offered constitutionally to inaugurate such a day. If you fail us now, you may be the last.
+- If you look at Griswold, what you can see is the first time the Court recognized the right to privacy, which ends up becoming ultimately the right to abortion.
+- We've got another nominee coming up, well qualified, Texas Supreme Court Justice Priscilla Owens has a tremendous reputation, tremendous record, but they are already marshalling their forces to try to stop that nomination.
+- It has always been a great wrong that these men and their families should be held in bondage. We of the North have hitherto acquiesced in it, lest, in the endeavor to redress it in violation of the Constitution, greater evils might ensue.
+- So we need the same strategy, we need young, aggressive judges to be appointed, and that's what the President has done, but getting them through is the challenge.
+- What if you threw a protest and no one showed up? The lack of angst and anger and emotion is a big positive.
+- The president does not have any obligation to make a consensus appointment here. What the president's obligation is, is to pick a judicial conservative, and I believe that's what he's gonna do.
+- You watch the Supreme Court in action on these cases, and they are a conflicted court. However, when it comes to speech issues generally, the court has been protective.
+- We can constitutionally extirpate slavery at this time. But if we fail to do this, then unless we intend hereafter to violate the Constitution, we shall have a fugitive slave law in operation whenever the war is over.
+- I do not mean that you could continue to do this with propriety or even with safety; I merely assert that the power is, in point of fact, in your hands. And for such a power, what a responsibility to God and man!
+- They're all focusing on how John Roberts is going to decide Roe v. Wade. That isn't even the right question. I don't even know of a case in the (court) system that addresses it.
+- The Pledge clearly acknowledges the fact that our freedoms in this country come from God, not government.
+- As a private lawyer, I could bill $750 an hour, but I don't.
+- I think the court will determine that the Faith-Based Initiative that the White House has instituted in the last five years is constitutional, in the context of allowing for broad-based programs to include religious providers.
+- It's now up to the full Senate to move swiftly to confirm John Roberts so he can assume his duties and responsibilities as chief justice when the Supreme Court begins its new term in a matter of weeks. We call on the Senate to confirm John Roberts without delay.
+- The court has said you are entitled to robust speech on public sidewalks, even insulting speech.
+- I don't think anybody has that crystal ball but the president.
+- This is the most historic moment in Supreme Court history in our lifetime, no question about it. These are justices who are going to serve for decades.
+- The vote by the Judiciary Committee reflects the fact that John Roberts is an exceptional nominee with a conservative judicial philosophy - a philosophy that represents mainstream America.
+- As I read, my suspicion that Jesus might really be the Messiah was confirmed.
+- Our public schools began as ministries of the church; now it is time to return them to the Lord.
+- We've been following Judge Alito's career over the last 15 years, while he's been on the Court of Appeals.
+- If anyone tells you that you cannot legislate morality, remeber that legislation IS morality.
+- Actually criminal sanctions that are given could be up to five years for violating the rules and regulations under the campaign finance reform. This is like the Alien and Sedition Act of years and years ago, decades ago.
+- I wouldn't pretend to tell you we don't pay our lawyers well.

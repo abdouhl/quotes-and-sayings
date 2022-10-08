@@ -1,0 +1,106 @@
++++
+author = "Shamita Shetty"
+title = "Shamita Shetty Quotes"
+quotes_len = "100"
+description = "the best 100 Shamita Shetty Quotes"
++++
+- I don't want to do a film where I am just a show piece.
+- I was never into reality shows.
+- I have said no so much that eventually work stopped coming to me, but I never stress on quantity. For me, quality matters.
+- I have grown up watching Yash Chopra ji's films and am a fan of his work.
+- I don't diet. That's my fitness mantra.
+- I have made many decisions that I probably shouldn't have made, but life is about making mistakes, learning and moving on.
+- It wasn't just about doing films to be cool or to have people remember you for one film. I wanted to be proud of whatever work I did and if I wasn't learning anything or not enjoying what I was doing, there was no point wasting time.
+- I don't want to do a film just for the sake of it.
+- Majority of men are momma's boys. A lot of them do believe that nobody can love them more than their mothers.
+- After 'Zeher' I wanted to actually act. I really didn't have drive to be honest before that.
+- Instead of cribbing that good work is not coming my way, I look at the positive side where I see no pressure from my parents to work for the sake of it.
+- I hate watching my own work... I find a lot of faults.
+- I had not planned my career.
+- I believe that one has to be convinced with what they are doing, and I have got to learn from every opportunity that has come my way.
+- I try to avoid diets as many times they are just fads.
+- My life changed at the age of 27. I was doing well professionally and had just got out of a serious relationship. I suddenly realized that I had reached a low in my life, be it spiritually or emotionally, and started asking a lot of questions - beyond just career and relationships.
+- Anything I take up or do, I have to consult Shilpa. From what I wear to who I am dating, I make her a part of everything as I have faith in her judgment.
+- I did not even watch my season after I came out of the house. I don't watch 'Bigg Boss.' I find it very disturbing.
+- I don't believe in falling in love today, getting married and if it doesn't work, you go your own way. It's not about that for me.
+- I have no issues being called Shilpa Shetty's sister. I am so proud of her.
+- I'm not someone who will make a decision in haste and let loneliness decide the wrong partner for me.
+- I wish someone would discover a way to become invisible.
+- Especially when you work with people like Mahesh Bhatt, you can't go wrong.
+- There is so much that I have learnt from Shilpa. She also didn't come from any filmi background, so I took lessons from her mistakes.
+- Every experience I have had in my life has never been one that I have planned.
+- Boyfriend denims are great for Mumbai weather and comfortable to wear.
+- Shilpa was never making a film with me and Akshay Kumar.
+- I've no time for an affair, and certainly no patience with being linked with one or the other man all the time.
+- I do not avoid carbs as I have low blood pressure. But I choose complex carbs and I follow a gluten-free diet.
+- I look for kindness, honestly, integrity, intelligence, humor and good values, and of course, a fun, loving guy! And yes, I believe he exists!
+- If we are just going to start living our lives based on what people have to think about us, we will lead a very sad life. So, I've never focused on people's opinions and it's doesn't really matter to me.
+- People needed to see and recognize my talent, but I did not get an opportunity for that.
+- I was the fitness freak in my family. I still am and even have a gym at home.
+- I am looking to do something that challenges me as an actor.
+- On the web, people are experimenting with something new in terms of characters and stories. It is exciting for actors, as we get a chance to do something new.
+- Diwali is really a happy time. It's a festival of lights. That's the only time when the entire family comes together and celebrates together.
+- When I shot for 'Mohabbatein,' I didn't really know much about acting.
+- There are many times when I sit back and try to analyse the things that I could have done differently.
+- People know me as Shamita 'Shetty,' Shilpa's sister. It's a protective shadow, I am lucky to have that, but people don't know the real me.
+- It's scary what you see out there. People are in marriages and still doing their own things on the side. They don't respect their partners enough and don't hold onto relationships the way it was in the past.
+- I have always been obsessed with workouts.
+- I had not planned to work in a web series, but everything is digital now.
+- Egypt. There seems to be something mystical about that place.
+- I do know one thing - while success has a lot to do with hard work, luck also plays an important role.
+- It's difficult when so many people are talking about this pressure of being a celebrity sibling, and you somewhere get lost and don't know how to deal with it.
+- I'm a foodie and I love to eat Thai food; I need to eat every few hours, else you will see an irritable side of me.
+- Family comes first for me.
+- I was very close to my Dad as I grew up with him more than mom as she was traveling with my sister.
+- I live one day at a time.
+- I am afraid of heights and water, but I haven't been able to shake off my fear of cockroaches.
+- I was a bit selective. You know when you start with the best you don't want to settle for anything that you are not sure of.
+- I am tired of saying no to item songs. I don't want to be known as an item number girl.
+- Unfortunately, most actors are so insecure that to build a friendship on that kind of foundation is very difficult. So I definitely know a lot of people in this industry, but I don't have any 4 A. M. friends as such.
+- Many a times you are faced with a situation where you have to make a decision and challenge yourself. When you do that you really understand your true strength.
+- I am waiting for some good work to come my way - whether it's TV or films... As long as it catches my interest, I will take it.
+- I have not done that many roles.
+- I am in the film industry because I am passionate of films.
+- When I came out of the 'Bigg Boss' house, I realized how stressed I was inside.
+- I can't do saas-bahu sagas.
+- Salman doesn't look 50 from any angle. I think he is getting better with age.
+- The only friend I have had for the longest time is Rocky S., the designer. He has been in my life for 20 years now.
+- Just because many of my friends happen to be male it doesn't mean I'm having an affair with them.
+- If I was continuously and completely doing films, exploring the medium and had the opportunity to do different characters, I probably would have known a little more about my strength, weakness, what I love doing, my forte - you learn this with experience. I didn't have enough of that.
+- When you are sharing screen space with Amitabh Bachchan and Shah Rukh Khan, there is so much to take away from that experience.
+- Luckily, I have a gym at home.
+- Shilpa is not just an actor, but my elder sister. I am very happy with her success.
+- I have been busy with interior designing.
+- Shilpa keeps asking me to practice yoga, and after much deliberation, I have added it into my regime.
+- I don't know why it took me some time to get used to the ways of this industry because I have realized that out here when people want to pull you down they really pull you down.
+- I actually surprised myself because I discovered that I am a pretty decent cook.
+- I've always been like this - unless I'm a hundred per cent convinced, I just don't choose to be a part of the film.
+- One thing that I'm very conscious about is to take off my makeup.
+- The toughest situations help you understand your true strength and that's how it has been for me always.
+- A film career does not define me. There is a other side to my life.
+- My favorite health snack is nuts.
+- The Punjabi food has its own taste. It's not just about one food item but the Punjabi food is itself world-renowned.
+- I think my family is so fed up of seeing me single.
+- I have had a very difficult journey of 20-25 years in the industry, I am more confident as a person now.
+- For me, my sister is like a second mother to me anyway. Mothering comes naturally to my sister.
+- When I have a man in my life I'll announce it from the rooftops.
+- It is very difficult to play a character you can't relate to.
+- Whatever little films I did, I got to work with big names like Aditya Chopra, Mohit Suri and Mahesh Bhatt.
+- Weight training is my go-to exercise.
+- Unfortunately, I did not do many films but all the aspects and phases of my life have made me a better and a stronger person.
+- I can't handle dishonesty; I like integrity in people and for me, that's very important in a man.
+- On the whole, I don't think I have any regrets. Every decision that I have made and all the ups and downs made me the person that I am.
+- Sanjeev Nanda is a buddy. I've known him for some time and we hang around with common friends.
+- It feels very nice to have a sister around in the same profession.
+- I do believe there is someone out there for everyone. I don't know what is taking him so long, he needs to find his way to me, it is about time.
+- I am ready to act in Punjabi movies, but offers have to be worth it.
+- I'm an insomniac.
+- When it comes to your partner, you have to choose the right person, knowing you can live with them for the rest of your life, learn from each other and grow in every way.
+- Every parent wants to see their child settle down.
+- I don't want to get someone in my life who is going to hamper my state of mind.
+- I got my first break in 'Mohabbatein.' After that I didn't get any interesting offers, so I took a course in interior designing.
+- People don't respect each other and let go so easily, so till I find someone whom I really connect with, I won't settle down.
+- Dancing is fun for me. It keeps me really happy.
+- I like the lean look but I also hate men who diet.
+- I would've loved to be offered good quality work. It is one of the reasons why I ended up doing such little films.
+- Sometimes, I shot for four films but none of them released because of various reasons. So, I started becoming conscious about the kind of films I do.

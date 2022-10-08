@@ -1,0 +1,26 @@
++++
+author = "Emerson Fittipaldi"
+title = "Emerson Fittipaldi Quotes"
+quotes_len = "20"
+description = "the best 20 Emerson Fittipaldi Quotes"
++++
+- I think with new president Chris Pook of CART, he is very active and strong.
+- The racing driver's mind has to have the ability to have amazing anticipation, coordination, and reflex. Because of the speed the car goes.
+- I wanted to be the best in the world.
+- You have to visualize a second or two ahead of your car what line you are taking, what you are going to do, before you get there because it comes too fast.
+- I am very happy because motor racing is very important outside the states, very big all over the world.
+- A racing driver has to be a good driver.
+- I have to accept risk as a racing driver.
+- There are many young talents in Brazil. There is a lot of hope in Felipe Massa. It is very difficult to judge him in his first year, but by the end of the end we are going to have a better position how he does in Formula One.
+- I based in Brazil, Sao Paulo, but I come very often to the states, and I travel all over the world.
+- To race Formula three is very high risk and I am not going to take a chance. Thank god I am not doing it!
+- Indy car racing is much more aggressive.
+- You are going in one second the length of a football field. That means you brain is receiving information from your body what the car is doing physically, bumping, balance, performance.
+- I was extremely aggressive from the start.
+- I was extremely lucky. I had some huge crashes and yet I am still here, thanks to God.
+- You had to decompress the pressure before the race. I taught my heart to relax. I lay down before the race. It gave me more energy just before the race.
+- Gary Smith, when I came to America, taught me a great deal about racing.
+- Also, I am very religious. It gave me peace of mind all my career.
+- I go to see grand prix every year, and I watch every race on TV for sure. I probably go to three or four CART races and three or four Formula One races.
+- I know if someone is coming from my right side. I could feel it.
+- When I came to America Al Unser, Jr. was very difficult. And Bobby Unser.

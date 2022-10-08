@@ -1,0 +1,22 @@
++++
+author = "Ellen Muth"
+title = "Ellen Muth Quotes"
+quotes_len = "16"
+description = "the best 16 Ellen Muth Quotes"
++++
+- This season is a lot funnier, not as dark, mainly because, well, she has accepted the fact that she is dead. She knows she cannot go back to where she was when she was alive.
+- First, I used some of my own experiences and observations from attending a public high school. Secondly, I joined in some Internet chat rooms for gays and lesbians.
+- Early in last season, George was very worried about other people's emotions, especially how they saw her, and felt she was outside looking in. This year, she still hopes people will accept her for who she is, but if they don't, she's OK with that.
+- Things that go on at Happy Times are very funny this year, and if you were watching last year, some of the people you saw then as basically extras emerge as real characters in their own right this season, at least to some degree.
+- Ever since I was a little kid, whenever my parents would have company over, I would put on shows, whether they would be magic shows, singing shows, dancing shows, little skits.
+- Oh, she didn't schlep me. I schlepped her, actually. I was the one who wanted to be an actress.
+- I'm playing George quite a bit differently this season, and I'm glad you picked up on the fact that she kind of made peace with her situation at the end of last season.
+- If I did anything 'next', I would do writing.
+- I find that the majority of the actors I've worked with are extremely sensitive people and very spontaneous people. That's why I always say I'll never date an actor, because they're in love with you one day and the next day they're not.
+- Oh, she just happened to be a friend of the producer's. Or, oh, they've been trying to get her from the beginning and she just had a spot open up. There are always little loopholes, so I don't take anything personally anymore.
+- I hope the film will help mothers and fathers to be aware that 15 is a very vulnerable age.
+- Oddly, because she has that confidence, the people around her like her more. She becomes more a part of the Reaper family, and she also is able to get along with people more outside of their circle as well.
+- There were times when there were parts that I was sure I got and then I didn't, and I did get upset. But at this point, it doesn't affect me in the least because I know how the business works.
+- It was something she didn't want me to do because she thought the rejection would ruin my self-esteem. My father was, like, 'If she wants to try it, let her try it.'
+- I'd hope to reach any kid who feels apart from the group - those who seem to be outsiders, who feel different. Kids who want to reach their parents often don't know how to do so.
+- 'What do you really think happens after you die?' That's the question that everyone, everyone, everyone asks. And I'm so sick of it. But my true answer is, I don't know. And there's no way I'm going to find out 'til it happens.

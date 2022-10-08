@@ -1,0 +1,24 @@
++++
+author = "Danger Mouse"
+title = "Danger Mouse Quotes"
+quotes_len = "18"
+description = "the best 18 Danger Mouse Quotes"
++++
+- I often have an argument with people. I say name me a classic song that's not sad in some kind of way. And even if you can, you'll have to search pretty far.
+- I find that the kinds of music I'm drawn to are those that a lot of people take for granted.
+- Broken Bells reminds me how much fun I have making music.
+- I'm obviously really opinionated, but as a producer, you don't necessarily want the person you're working with to try to impress you - you want them to just be themselves. Then you can edit or mess around with what they've come up with. But you have to allow the artist that space.
+- The first two projects I did out of my dorm room were mock film soundtracks.
+- I always thought 'Rome' would change things for me, that people would finally understand what I do.
+- I have ideas all of the time from the beginning, but they never really wind up turning out like I thought they would.
+- After the 'Grey Album,' everyone thought of me as the hip-hop guy, the remix maestro. I didn't know how to show them otherwise.
+- When I don't have a good time making music, I think of quitting a lot. I really do. I can create something else. I'll do something else.
+- I'd hate to have to leave music, but if I got stuck some place, I would.
+- When you're younger, you have ideas and visions of what you're going to be like when you're older and what love is going to be like and who you're gonna be married to and all of these different things.
+- I have no shame in making music that maybe, if you listen to it long enough, you'll realize you've heard this or that part of it before. I'm still very excited by an amazingly written song, so that's really the thing that I work on when I make records with people.
+- Some people have been listening to the Beatles their whole lives; I didn't discover them until I was 18 years old.
+- I started out really making music in my dorm room, and it wasn't really producing or anything like that; it was you making something.
+- Daft Punk wouldn't have normally fit into anything that was pop on the radio, but they just did it.
+- I'm into song-writing; I'm into melodies that break your heart a little bit. That's the thing that got me into music; that's what I look for in music for the most part.
+- Basically, the way I do it is I get to work with a bunch of people; get a bunch of great people together, and you'll be able to get something cool on the other side.
+- I'm not really a knob-twiddler. I always work with an engineer; I'm not super hands-on when it comes to mixing boards and computers. I'm much more about what I'm hearing and what it needs to be like. I deal with songs and ideas and instruments.

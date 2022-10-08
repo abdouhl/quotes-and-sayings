@@ -1,0 +1,95 @@
++++
+author = "Shimon Peres"
+title = "Shimon Peres Quotes"
+quotes_len = "89"
+description = "the best 89 Shimon Peres Quotes"
++++
+- And in England there has always been something deeply pro-Arab, of course, not among all Englishmen, and anti-Israeli, in the establishment. They abstained in the 1947 UN partition resolution... They maintained an arms embargo against us in the 1950s... They always worked against us. They think the Arabs are the underdogs.
+- Today, the people are governing the governments. And when they begin to talk to each other, they are surprised, they can be friends. Why should we hate each other?
+- Bringing an end to the conflict between Israel and the Palestinians may help the young Arab generation to realise their aspirations. Israel is more than willing to offer our experience in building a modern economy in spite of limited resources to the whole region.
+- Bulgaria is a true friend of Israel, that stood up to save the Jewish people 70 years ago in Europe, and who stood by throughout the terror attack that took place in Burgas last July.
+- There is a real need to construct a different Middle East. The Middle East must change because the world has changed. And instead of oppositional armies that are fighting usually one against another, now we have a net of terrorists that are trying to destroy everything. They are not two; they are hundreds.
+- As president, I was more successful; I had more opportunity than as prime minister. Why? I didn't have the power to give orders, to command, but I had the opportunity to call people to volunteer. In my period of presidency, I never heard the word 'no.'
+- You know when civilization began? With the invention of the mirror.
+- I have one weakness. I don't like vacations. I like to work.
+- The Iranian regime suppresses its own people as well as others in the region. It prevents peace by sponsoring terror globally. With the ultimate weapon that it is deceptively developing, the regime aims to gain hegemony over the entire Middle East and hold the world's economy hostage.
+- When I am speaking about American presidents, I have to speak about my very special relations with President Clinton. He contributed more to peace than anybody else in the American sense.
+- Early in the morning, I fell in love with the girl that later on became my wife. At that time, we were so naive. I wanted to charm her, so I read her Capital by Marx. I thought somehow she would be convinced by the strength of his criticism about capital.
+- That was my first lesson from Ben-Gurion. Then I saw him making peace, and I saw him making war. He mobilized me before the war. The man was a very rare combination between a real intellectual and a born leader. There is a contradiction between the two.
+- In Israel, a land lacking in natural resources, we learned to appreciate our greatest national advantage: our minds. Through creativity and innovation, we transformed barren deserts into flourishing fields and pioneered new frontiers in science and technology.
+- I learned that public service is a privilege that must be based on moral foundations.
+- You know who is against democracy in the Middle East? The husbands. They got used to their way of life. Now, the traditional way of life must change. Everybody must change. If you don't give equal rights to women, you can't progress.
+- Israel was born under the British mandate. We learned from the British what democracy means, and how it behaves in a time of danger, war and terror. We thank Britain for introducing freedom and respect of human rights both in normal and demanding circumstances.
+- When I look at the record of President Obama concerning the major issue security I think it's a highly satisfactory record from Israeli point of view.
+- One of the things the United States does well is building coalitions. What the U.S. knows is that if you don't have a coalition with you, you will have a coalition against you. I don't want to see China and Russia on the side of Iran more strongly than they are.
+- In order to prevent Iran from becoming a nuclear country you have to introduce a system of verification and inspection.
+- Science doesn't have flags. Science doesn't have borders.
+- He taught me literature, and he actually taught me how to read. He was my personal mentor.
+- I have the highest respect for Obama. I have worked with 10 American presidents, both Republicans and Democrats. As far as Israeli security is concerned, he has done the most that an American president can do.
+- I joined the army as a private. I was offered a rank at that time, but I refused. I preferred to remain a private. First of all, I wasn't taken by ranks, and before I knew it, they put me in the most sensitive positions anyway.
+- My family's dream, and my own, was to live in Israel, and our eventual voyage to the port of Jaffa was like making a dream come true. Had it not been for this dream and this voyage, I would probably have perished in the flames, as did so many of my people, among them most of my own family.
+- Later on, there were some problems with our navy, so he made me the head of the navy - all things that I hardly knew anything about. I was basically an ignorant young man.
+- I thought all my life that optimists and pessimists pass away the same way, so why be a pessimist?
+- Peace with the Palestinians will open ports of peace all around the Mediterranean. The duty of leaders is to pursue freedom ceaselessly, even in the face of hostility, in the face of doubt and disappointment. Just imagine what could be.
+- The present Arab uprising didn't stem from Israel. The old guard is trying to keep down the young chickens. The old guard is better organized. They may win elections, but unless they have a solution to poverty, to corruption, to oppression, they will not last. I am with the young people.
+- We proved that the aggressors do not necessarily emerge as the victors, but we learned that the victors do not necessarily win peace.
+- Look, Israel doesn't intend to introduce nuclear weapons, but if people are afraid that we have them, why not? It's a deterrent.
+- The internet, Facebook and Twitter have created mass communications and social spaces that regimes cannot control.
+- Count the dreams of your mind; if the numbers of the dreams exceeds the number of achievements, you are young.
+- When you have two alternatives, the first thing you have to do is to look for the third that you didn't think about, that doesn't exist.
+- A politician and a government should be judged by one way only: on the record of what you do or did, not on what you say.
+- Israel has its attractions. It's the most dramatic country in the world. Everybody's engaged. Everybody argues. When I leave Israel, I get a little bit bored, you know?
+- They thought that I was a man with reasonable judgment, so I was never under pressure from my parents; I could do whatever I wanted. I never had a negative word from them, nothing whatsoever.
+- I worked with a group of people who argued day and night - professors, officials, the Minister of Finance - but there were decisions that I had to make.
+- Poverty and ignorance, which beget terror, are not eradicated by firing artillery shells. Borders do not stop rockets, and barbed wire does not prevent terror.
+- You can kill a body, but you cannot kill the great and noble idea of peace.
+- I never was after money. It never attracted me.
+- David Ben-Gurion was a mythic figure, the founding father of Israel and a modern-day prophet, but he was also a real man who stormed through history on human legs. It was my great privilege to know him and work with him for many years.
+- What you can do with relations is greater than what you can do with guns.
+- There is in England a saying that an anti-Semite is someone who hates the Jews more than is necessary.
+- The problem of the Middle East is poverty more than politics.
+- It is not rifles but people who triumph, and the conclusion from all the wars is that we need better people, not better rifles - to win wars, and mainly to avoid them.
+- I knew that the most important thing a man has is in his head, and from a young age, I often studied the head structure of each person, hoping to crack his codes. I considered a high forehead a gift from God.
+- A solution of two national states - a Jewish state, Israel; an Arab state, Palestine. The Palestinians are our closest neighbors. I believe they may become our closest friends.
+- What is wrong with the Iranians in addition to the nuclear bomb? This is the only country on Earth in the 21st century that has renewed imperialistic ambitions. They really want to become the hegemon of the Middle East in an age that gave up imperialism.
+- In the Middle East, the conflict today is a matter of generations and not of cultures.
+- I was learning, as I did in the Ministry of Defense. I never knew, but I always learned.
+- Look, I worked with American Republican presidents and Democratic presidents, all of them, and each of them has shown a deep and profound friendship to Israel, you know? I can't remember anybody who was in that sense negative as far as Israel is concerned.
+- Now, I learned soon enough, that among the three, two don't trust the third one - the third one is the government. Both industry and unions feel the government is a talking organization and a spending organization.
+- Television has made dictatorship impossible but democracy unbearable.
+- I didn't plan to be a politician. The founder of our country, David Ben-Gurion, called me from the kibbutz to serve in the underground. We were short of manpower, short of arms. I was 24 years old. I was supposed to serve my country for one or two years. I am 89 years old this year, and I keep going.
+- What should be the future of Israel? Is the land the most important choice, and for that reason to keep the whole of the land at any cost, or to have a partition and build the Jewish state on part of the land? And the other part?
+- For me, dreaming is simply being pragmatic.
+- My goal in life was to serve my people, and the most important service for the Jewish people is building the land, and the basics of building the people and the country is working the land.
+- My heart goes out to the brave citizens of Syria, who each day risk and even sacrifice their lives to achieve freedom from a murderous regime. We in Israel welcome the historic struggle to forge democratic, peace-loving governments in our region.
+- My greatest mistake is that my dreams were too small.
+- From my earliest youth, I have known that while one is obliged to plan with care the stages of one's journey, one is entitled to dream, and keep dreaming, of its destination. A man may feel as old as his years yet as young as his dreams.
+- I think peace should be done not only among governments but among people. It was impossible before the Facebook.
+- There was one occasion when I was very young - eight years or seven years old - that Jewish businessmen went through the forest, and they were assassinated. And that was for the first time I saw in our paper where there were assassinations in our place.
+- We asked the workers to give up 25 percent of their salaries. Imagine! We asked the industrialists to freeze all costs, no matter what the inflation is.
+- The Jews' greatest contribution to history is dissatisfaction! We're a nation born to be discontented. Whatever exists we believe can be changed for the better.
+- Let all of us turn from bullets to ballots, from guns to shovels.
+- The wars we fought were forced upon us. Thanks to the Israel Defense Forces, we won them all, but we did not win the greatest victory that we aspired to: release from the need to win victories.
+- When I was a child, Israel was a legend more than a reality. She emerged from a dream, and today she has surpassed that dream.
+- There is no alternative to peace. There is no sense to go to war.
+- I think I was a good student, because I jumped over a school. My main interest was basically history and literature. Sports were basically basketball and swimming at a pool. I was so happy.
+- We are living in a world where image-making is important, so we ignore the facts.
+- The signing of the Israel-PLO accord is more than a political milestone. It is a transformative event which touches every Jewish family - physically, emotionally, spiritually.
+- If you have children, you cannot feed them forever with flags for breakfast and cartridges for lunch. You need something more substantial. Unless you educate your children and spend less money on conflicts, unless you develop your science, technology and industry, you don't have a future.
+- Israel's doors are open to collaboration with Bulgaria.
+- I felt that if I could make the world better for the young, that would be the greatest thing we can do.
+- I have a brother younger than me. My mother was a librarian, so from her, I got the taste to read.
+- When it comes to the Sunnis and Shiites, it is not for the United States or for us or for anyone else to settle who was the heir of Muhammad. This is a Muslim and Arab problem, and they have to deal with it.
+- I believe that peace with the Palestinians is most urgent - urgent than ever before. It is necessary. It is crucial. It is possible. A delay may worsen its chances. Israel and the Palestinians are, in my judgment, ripe today to restart the peace process.
+- The United States is the only power in history that became great by giving and not by taking. I think the crisis was when the United States had more money than ideas. Money doesn't produce money. Ideas produce money.
+- We have to stand together against terror and the reasons for terrorism, which are poverty and ignorance.
+- Israel welcomes the wind of change, and sees a window of opportunity. Democratic and science-based economies by nature desire peace. Israel does not want to be an island of affluence in an ocean of poverty. Improvements in our neighbours' lives mean improvements to the neighbourhood in which we live.
+- If I tax them, in fact, I'm not taxing the capitalists, I am taxing the people who have saved, trusted. It was very controversial, those sorts of things. But finally, it worked out.
+- I dreamed of a future as a muscular, tanned, kibbutznik, who plowed the fertile fields of the Jezreel Valley in the day, sang religiously in the dining hall in the evening, and fiercely guarded the farmland at night, riding a noble horse.
+- One of the most important branches of the Egyptian economy is tourism. No bikinis, no tourism. So they have to decide what to do.
+- The older generation had greater respect for land than science. But we live in an age when science, more than soil, has become the provider of growth and abundance. Living just on the land creates loneliness in an age of globality.
+- Look, we have existed for 4,000 years - 2,000 years in diaspora, in exile. Nobody in the Middle East speaks their original language but Israel. When we started 64 years ago, we were 650,000 people. So, you know, we are maybe swimming a little bit against the stream, but we continue to swim.
+- The uprising in Egypt was initiated by the young generation. The uprising achieved two things. One is it made the lives of dictators impossible. Today, if you are looking for a safe job, don't become a dictator.
+- The Middle East is ailing. The malady stems from pervasive violence, shortages of food, water and educational opportunities, discrimination against women and - the most virulent cause of all - the absence of freedom.
+- He was the editor of our paper. He created the publishing house in Hebrew. He was - I wouldn't say the 'guru' - but really he was our teacher and a most respected man. I wrote for the paper of the youth movement.
+- For 60 years, I was the most controversial figure in the country, and suddenly, I'm the most popular man in the land. Truth be told, I don't know when I was happier: then or now.

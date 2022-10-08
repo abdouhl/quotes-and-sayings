@@ -1,0 +1,28 @@
++++
+author = "Suharto"
+title = "Suharto Quotes"
+quotes_len = "22"
+description = "the best 22 Suharto Quotes"
++++
+- We should not allow our republic, which was established with our sacrifice, to disintegrate. This would amount to disrespect for the heroes who sacrificed everything for the Republic of Indonesia.
+- The New Order wants to implement democracy in economy. It is an order to achieve a social, political, economic, and cultural society with Pancasila and Belief in God Almighty as our moral values.
+- To take over a government through military force would create instability, and it would not last for long. I do not want to leave a legacy of having taken over the government through military means. It has never occurred to me to have a coup d'etat.
+- If we do not adhere firmly to the constitution, our governments will not last long and will change frequently.
+- To uphold religious tolerance, it is very wise that an adherent of a religion should not do something forbidden in another religion in front of the adherent of the latter.
+- I have the view that if I am no longer a president, I am determined to become a sage in the sense that I will get closer to God, take care of the children so they can become good citizens, advise people, and guide the government from behind by using whatever I have to assist the country.
+- I would like here to announce to all Indonesian Muslims that I, as a private citizen, am prepared to take charge of the massive national effort of zakat collection... From now on, I am personally willing to receive zakat payments made in the form of money orders from every single Muslim in the country.
+- I believe that whatever I do, after I've asked for guidance and direction from God, that whatever the results, these are the results of His guidance.
+- For the support and help from the people of Indonesia that I received during my leadership, I ask for forgiveness if there have been any mistakes or shortcomings. Hopefully the people of Indonesia will remain victorious based on Pancasila and the 1945 Constitution.
+- The New Order wants to put our national interest in the driving seat while continuing with our ideology to fight against colonialism and imperialism.
+- If I remember the suffering of my childhood and youth, it could make me sad. But if one thinks of the benefits, it is precisely because of these sufferings since I was small that I have become a man. I have become a person who thinks, who has feelings, because I have suffered.
+- Religious freedom is one of the most fundamental of human rights because religious freedom comes from the dignity of the human being as God's creature.
+- If I have not decided to step down, it does not mean that I do not want to step down but because I want to ensure that my resignation will not affect the constitution, which must be implemented properly. This means that the Pancasila ideology and the 1945 Constitution will continue to be implemented.
+- I was born in Indonesia and will die in Indonesia.
+- I always remember the teachings of our ancestors: respect for God, teacher, government, and both parents. Even after I became president, I have not changed in this matter in the slightest. I hold these teachings in high esteem, and I believe in their truth.
+- It is really impressive and makes us proud that in a lot of places in Indonesia, a church is close to a mosque, and even in many places, both Islamic and Christian communities cooperated to build a mosque or church.
+- In the midst of conflict, I was pushed to step forward. There were groups who wanted to change our leadership immediately. Some tried to force me to take over, but I rejected them.
+- Let them say what they say. The truth is, I did not engage in corruption.
+- 'I have always asked God to guide me in each of my tasks.
+- The fact is I don't even have one cent of savings abroad, don't have accounts at foreign banks, don't have deposits abroad and don't even have any shares in foreign firms, much less hundreds of billions of dollars.
+- It turned out that all socio-political forces - namely the United Development Party, Indonesian Democratic Party, Functional Group, and ABRI factions - said the majority of people still wanted me to accept the renomination for the 1998-2003 term. Well, that being the case, I was ready to accept their renomination with a sense of responsibility.
+- The right to religious freedom is not a gift of the state or a gift of a group.

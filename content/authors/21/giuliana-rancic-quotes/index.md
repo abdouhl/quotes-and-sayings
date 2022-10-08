@@ -1,0 +1,41 @@
++++
+author = "Giuliana Rancic"
+title = "Giuliana Rancic Quotes"
+quotes_len = "35"
+description = "the best 35 Giuliana Rancic Quotes"
++++
+- I'm from Naples. I was born in a poor neighborhood and I always, in my heart, felt like it would be amazing to be able to adopt a child from Naples. I could give someone the opportunity I had. I would love to give back in that way and pay it forward.
+- There are thin girls with infertility issues, normal sized girls with infertility issues and overweight girls with infertility issues. Unless your doctor tells you your weight is affecting you in some way... once the doctor rules it out, that's really not it.
+- Chicago is incredibly gracious. People here have so much pride.
+- We really believe that whatever we put our minds to, we can achieve.
+- We've gotten probably 40 women who have offered to be surrogates.
+- I would like to take the stigma away. 'Mastectomy' the word seemed so scary to me at first. After doing research and seeing the advancements, the surgery has come a long way from 20 years ago. The results can be incredible.
+- If you know me, you know that nothing embarrasses me. Anything could happen to me on live television, and I sincerely don't care.
+- You can never take your reputation back. There really is nothing as powerful as a good reputation.
+- There is a bigger plan for us. There is some reason we haven't had a kid. Our kid hasn't come yet for some reason. We really believe that.
+- If you are strong enough as a couple, reality shows can be a good thing for the relationship.
+- To finally get that call from the doctor that you're pregnant and you're having a baby.... It was just another world.
+- I have a new found respect for women who have been through breast cancer and this surgery.
+- I was probably a B student in high school, but it wasn't until I got to college that I said, 'Oh! This is what it's all about.' And then I became an A student. I studied journalism in college and that's what really kicked it into high gear for me.
+- A lot of us think we're invincible... but we have to start putting ourselves on the to-do list.
+- Through my attempt to get pregnant through IVF, we sadly found out that I have early stages of breast cancer. It's been a shock.
+- Knock on wood, but I think we hit the gestational carrier lottery!
+- For me it was just more important to get the cancer out. With the double mastectomy I now have less than one per cent chance of getting it back, otherwise it was 20, 30 or 40 per cent chance and for me it wasn't worth it.
+- When I went public with my breast cancer diagnosis six weeks ago, the overwhelming outpouring of love, prayers and support really helped me heal faster. I want to make sure to thank everyone.
+- I never thought I was pretty enough. I was kind of tall and lanky. I don't mind it now, but back in the day I hated it. I would tell myself that what I think is ugly at 17 is actually what's going to be pretty about me later.
+- I want to encourage everyone to be proactive with their health and get checked out.
+- One of my first thoughts I had when I started considering the mastectomy was, 'What am I going to look like?' And then, 'What will my husband think?'
+- A rumor that followed me forever was that my family was in the mafia. For years I had to live with it. They'd call me the mafia princess, so I rolled with it for the rest of high school. People even joke about it today.
+- To me, natural, healthy looking skin is really beautiful. With a little concealer, eyeshadow, liner, gloss and bronzer, I love my lighter makeup look. I've saved so much money on facials!
+- I love trainwrecks on live TV.
+- I used to watch 'The Apprentice' all the time and I thought Bill was a fox. That was that, we didn't see each other for years, and then we saw each other and 45 minutes after the cameras stopped rolling, we were still talking.
+- We are really looking at all of our options. I mean, listen, whether it's IVF or whatever it is, we want to have a baby and we will have a baby.
+- When you do a reality show and host shows, it's hard to have secrets.
+- I thought I was dreaming. It was the most amazing moment of my entire life. Not only is Bill the love of my life, but he's also my best friend. I couldn't believe my dream guy was asking me to marry him!
+- I eat as much as the next girl, but I work my butt of in the gym every morning! The key is moderation. I splurge on the weekend. A big bowl of pasta and a delicious slice of cake for dessert are my favorites.
+- I just feel such a connection to the little kids in Naples. I remember being on the street wanting a small piece of candy.
+- We're open people. I don't understand these Hollywood people who don't want to put their real life on TV, yet they want people to watch them and be fans with them.
+- We were married in Capri almost two years ago and we have made a pact with each other to visit the beautiful island and the church where we were married every year for the rest of our lives.
+- I wasn't prepared to get a mammogram until I was 40 years old, like I'd been told. I never in my wildest dreams expected anything to be wrong.
+- I started realizing I could be an example for women to not just be aware of breast cancer but to act on it, to make an appointment, to give themselves an exam.
+- I never thought my marriage could be stronger, or I could be closer to Bill. We prayed on our own, but now we prayed together and you'll never know how much that means until you do it.

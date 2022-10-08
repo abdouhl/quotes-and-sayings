@@ -1,0 +1,19 @@
++++
+author = "Omar Khayyam"
+title = "Omar Khayyam Quotes"
+quotes_len = "13"
+description = "the best 13 Omar Khayyam Quotes"
++++
+- A loaf of bread, a jug of wine, and thou.
+- The thoughtful soul to solitude retires.
+- There was a door to which I found no key: There was the veil through which I might not see.
+- You know, my friends, with what a brave carouse I made a Second Marriage in my house; favored old barren reason from my bed, and took the daughter of the vine to spouse.
+- A hair divides what is false and true.
+- Be happy for this moment. This moment is your life.
+- The Worldly Hope men set their Hearts upon Turns Ashes - or it prospers; and anon, Like Snow upon the Desert's dusty Face, Lighting a little hour or two - is gone.
+- The Flower that once has blown forever dies.
+- The moving finger writes, and having written moves on. Nor all thy piety nor all thy wit, can cancel half a line of it.
+- Myself when young did eagerly frequent doctor and saint, and heard great argument about it and about: but evermore came out by the same door as in I went.
+- Drink! for you know not whence you came nor why: drink! for you know not why you go, nor where.
+- Living Life Tomorrow's fate, though thou be wise, Thou canst not tell nor yet surmise; Pass, therefore, not today in vain, For it will never come again.
+- When I want to understand what is happening today or try to decide what will happen tomorrow, I look back.

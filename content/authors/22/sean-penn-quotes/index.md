@@ -1,0 +1,79 @@
++++
+author = "Sean Penn"
+title = "Sean Penn Quotes"
+quotes_len = "73"
+description = "the best 73 Sean Penn Quotes"
++++
+- Somewhere along the line, the actions of this government are the actions of me.
+- Love is a mess, at best, and I figure it can be very real in spite of all the things people try to attach to it.
+- My favorite thing to do is not act - it's that simple.
+- I am a Justin Timberlake fan.
+- I think you start to prepare the minute you read something.
+- On any movie I'm involved with, I say what I think.
+- I really love to make movies.
+- The bottom line is, you love your wife, you do your best with that.
+- At this stage, what would be rewarding would be for audiences to want to watch.
+- I'm always frustrated when somebody makes a movie out of a book and they leave the book behind, or the heart of it.
+- Child-rearing is my main interest now. I'm a hands-on father.
+- Yeah, I had a tremendous time shooting in Nebraska. I like that state a lot, all over it.
+- What happens is things come to you - director, script - and if you respond to it, it's because it's tapping into some part of what's inside you, and different roles tap into different parts.
+- I think that I've still not been successful at playing the role of the retired actor, and I'd like to work on that.
+- Haiti kind of gets a hold of you.
+- There is no shame in my saying that we all want to be loved by someone. As I look back over my life in romance, I don't feel I've ever had that.
+- When you act in a film, you're inevitably surrounded by people you didn't choose, right down to the set painter. I like being able to pick the family I'm waking up to in the morning that's going to make this group effort to tell a story that applies to what's interesting to me at that stage in my life.
+- Marriage ain't easy, but it's great most of the time.
+- I cannot tell you that I ever fell in love with the theater as an audience. I fell in love with the theater as an actor for a period of time, but I have struggled as an audience, and I struggle more now than then. I was always a movie guy.
+- I'll tell you what I probably would prefer to happen less and less: actors that I know and respect in shampoo ads. Or modeling.
+- I just want real creative freedom without worrying about, you know, car payments.
+- I love stories about people who are smart enough to know that what they're doing is destroying them, but that knowing that doesn't help them.
+- I consider myself fortunate that in my home, acting or the creative arts were a good option. This was a respected tour of duty in my family. Acting wasn't something that was left to tragic bohemians. But we weren't a family that obsessed on cinema.
+- Hal Holbrook was in one of my first television movies when I was about 18 or 19. He'd made such a strong impression on me and a lasting one in terms of what being an actor was.
+- Yeah, I had actually tried to stop acting before I made Dead Man Walking.
+- The thing that's very close in the process is writing and acting, not directing. Directing's very different.
+- We've let the blade of our innocence dull over time, and it's only in innocence that you find any kind of magic, any kind of courage.
+- I think we all have light and dark inside us.
+- 'The Indian Runner' was easy. It had been incubating in me for eight years, and by the time I sat down to write the thing, I had all the pictures in my head.
+- Anger can be a problem, but it has tremendous potential, too. It's just figuring out what to do with it.
+- I've never really been one to get what they call stage fright so much.
+- I am a limousine liberal.
+- I've been a road-rat since I got my driver's licence at 16, so I've probably gone across America 20 times.
+- There is no re-inventing the wheel.
+- Well, I think that when you direct a movie or write it. And in the case of the two movies I did, I wrote and directed, they occupy a special place for you.
+- There are a few directors around who I have some excitement about spending my $7 at the theatre watching their movies.
+- In my teens, I fell in love with the movies.
+- I don't have any particular excitement about working with any specific director or actor at this point.
+- When I was growing up and somebody like Robert De Niro had a movie come out, it was a cultural event. Because he had such a confidence and a single mission that was so intimate.
+- I choose movies that I think will speak to what's important.
+- I had a house burn down once, and everything in life burned, except my family, and it was so liberating. I didn't have a bad moment about it. It sort of reinvigorated my interest in a lot of things.
+- Putting something in a movie because it's in the news doesn't make it political to me. If you're not going outside the same old, same old, if you're not pushing the envelope, then you're not doing anything. A good movie is a political thing.
+- Turning one's back on stardom might be the highest form of common sense. One that I would aspire to be more complete with.
+- It has nothing to do with the emotional demands of a role; I've done comedies that are as draining to me as any drama.
+- I've always operated under the notion that audiences don't always know when they're being lied to, but that they always know when they're being told the truth.
+- I'm a huge Woody Allen fan. Good movie, bad movie, it doesn't matter - I just like his movies.
+- There is a strength of character in the people who have, by and large, never experienced comfort.
+- Whatever one considers art to be, there is in many people a hunger to express themselves creatively and to feel authentic in doing that.
+- The major studios are by and large banks, and they give you what is by and large a loan to make a movie. Like banks, they want their money back plus.
+- Oh, I'm a big-mouth. I said a lot of things.
+- I can make a better living as an actor than I can as a director. Though I certainly would prefer to be directing movies.
+- Craft comes into acting later rather than sooner. I was somebody who had to learn through a process - a natural actor doesn't need to.
+- There's a lot of mediocrity being celebrated, and a lot of wonderful stuff being ignored or discouraged.
+- When I buy a Nikon camera, I have no tolerance for the instructions. I'm ready to make some mistakes using it and get some bad pictures back until I've figured it out for myself.
+- I can always see light in any situation. It's just the way I'm made.
+- I live in the energy and rhythm of the character. To some degree, that's true of every actor I've worked with.
+- Well, look at all of these summer blockbusters. You can't help but laugh a little, because you've already seen a lot of these movies 482 times.
+- In school, I was a genius of the year preceding the year I was in, every year.
+- That on a romantic level, if you feel it about somebody and it's pure, it means that they do too.
+- If you're willing to put two thoughts into a picture then you're already ahead of the game.
+- Selling a movie feels like a hustle to every bone in my body. Many actors have careers dominated by modeling. They're all over the place. It turns me off. People who are good at what they do ought to practice something bigger.
+- You're always having to live more to fuel something new. It's an obligation to yourself and to the audience. The personal baggage that comes with being a known actor just adds to that struggle.
+- In between, I go broke because I seem to do movies where you're not paid a lot as an actor.
+- So if we have anything original to offer, it's to speak from our own life about the society we're in.
+- I don't consider myself specifically political, you know? I think of working as an actor as being a human thing. The concerns I have that fall into politics are human concerns.
+- There's not a lot of good movies being made.
+- I think life's an irrational obsession.
+- I like to believe that love is a reciprocal thing, that it can't really be felt, truly, by one.
+- Sacrificing American soldiers or innocent civilians in an unprecedented preemptive attack on a separate sovereign nation may well prove itself a most temporary medicine.
+- A lot of critics sometimes get into analyzing the way actors direct versus non-actors directing. And they really always miss it. It's one of those things where, by not being practitioners, they just came up with something that made sense to them.
+- I'm not a breakfast eater.
+- I love acting, truly my favorite people are actors.
+- You try to do your best at what you're getting paid for.

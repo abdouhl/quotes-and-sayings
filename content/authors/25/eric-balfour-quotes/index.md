@@ -1,0 +1,17 @@
++++
+author = "Eric Balfour"
+title = "Eric Balfour Quotes"
+quotes_len = "11"
+description = "the best 11 Eric Balfour Quotes"
++++
+- I think 'Game Of Thrones' has been genius, and I really don't want it to end. Every episode is huge. It's totally immense, and the actors are all fantastic in it. It has totally drawn me in.
+- Every little opportunity and chance that I get to be on a set, to be a director, to utilize the skill sets that I already have and to learn what I don't know, and to see how I can improve upon that is just a really great opportunity for me.
+- To whatever degree you have as a celebrity or notoriety, there are people who see you as an opinion leader.
+- My family is Native American, and I was raised with Native American ceremonies.
+- The stories that I like to tell and the movies I like are always grounded in the emotional arc of the characters.
+- 'Skyline' is an alien invasion film that really takes an interesting look at the genre. The writers did an amazing job of creating a new take at how life from other planets come and plan to invade Earth.
+- As you get older and you hopefully battle your own demons, you find other reasons why you want to be an actor. The people that I truly admire do this because they love telling stories and they love the make-believe of the moment and not so much the gratification afterwards.
+- I'm such an L.A. boy, I love hanging out by the beach and throwing some steaks on the grill.
+- I'm not a trained chef, so I end up making stuff up. It either turns out brilliant or an absolute disaster. I just go for it.
+- By nature, I'm very care-taking. There's something really beautiful about cooking for someone and feeding them.
+- The amazing thing about technology is that people have power. We are seeing it all the time in that innocuous people you would never know are having their voices heard because of this ability and technology we have.

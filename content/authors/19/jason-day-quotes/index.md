@@ -1,0 +1,118 @@
++++
+author = "Jason Day"
+title = "Jason Day Quotes"
+quotes_len = "112"
+description = "the best 112 Jason Day Quotes"
++++
+- When I've been playing my best golf, I feel like everything's so slow.
+- When I lost my dad, there was no one there to be the disciplinarian, and we kind of ran amok.
+- I was very poor when I was young.
+- My dad was a violent alcoholic. Really aggressive.
+- I want to win so bad, but I think I've had too much of that lore for attraction that you'll do anything possible to get it. Sometimes people are there at a good time and kind of stumble upon it. Right time, right place type thing. I just want to keep working toward it with my mind and my body.
+- It's very stressful being the No. 1 player in the world. You're in the limelight a lot. You've got more things to do when you get to tournaments, more things to do off weeks. But I wouldn't change it in any way because this is exactly where I want to be. I want to try and stay here as long as I can while I can because nothing beats this feeling.
+- It just flat-out sucks losing. It really - it doesn't feel good.
+- You get nit-picked in the media. Stats are always up saying he doesn't drive it straight enough or hit enough greens or whatever it is. Then you have to perform, because if you don't perform, then you're off the Tour.
+- I absolutely love my son and family - they are my life and always come first.
+- Everyone has an uncomfortable club in their bag.
+- If I had all the spotlight, that would be great. I'd be happy with that. If I didn't have the spotlight, that would be great as well.
+- It's tough to win major championships. So many things and emotions go through your mind.
+- I've always felt very confident in my ability.
+- I want to win as many tournaments as I can.
+- Being an Australian that's been No. 1 in the world back home playing in Australia, that's a pretty cool moment to have.
+- From the vertigo, I found out how far I can push myself physically and also mentally.
+- I need to improve my shorter stuff with my irons, from 100 to 175 yards. If I can hit a few more greens with those clubs and tighten up the proximity to the hole, that would help a lot.
+- If you're going to have a bad attitude, you may as well not even tee it up that week because you probably won't play good anyways.
+- I want to win every single tournament that I'm playing in.
+- I'm just here for this one purpose, and that's to try and get better each and every day and try and win as much as I can, while I can.
+- You could have all the tools in the world, but if you really don't want to be there, or if there's something that's off course that's playing on your mind... the game of golf is so mental, and if you don't have everything in the right order, it's very difficult to win golf tournaments.
+- I tend to watch the score board a lot.
+- A lot of people underestimate rest, especially sleeping and recovery time.
+- I don't like to use the word 'legacy' because it sounds a bit like I'm full of myself, but I am trying to see how far I can take myself, how far I can push being the best in the world.
+- Australian golf did so much for me, and that is why I am here today.
+- I'm getting better and better each year that I'm playing golf on the world stage, and finishing runner-up only teaches you how to continue being patient - something that is key to our game.
+- It's okay to dream big.
+- I look at that 10 PGA Tour wins, and I say to myself, 'That's not enough,' and it isn't enough for me. It's just 10. I want more than 10.
+- I need to get better with my 3-wood and hybrid. Those are the clubs I missed the majority of my fairways with.
+- I have the opportunity to do that right now, to try to work as hard as I can to really leave my footprint in this game that has given me so much.
+- The want to improve myself and win tournaments and see how far I go is crucial.
+- Winning is never enough, and I've got to try and do it as much as I can before my time is over.
+- It's O.K. to fail. Just keep putting yourself there. Once I started saying that and really believing that, over time, it just gradually gave me confidence.
+- Golf is so selfish - it's so much about how do we get better and get to the next level.
+- I honestly thought I was going to win a major championship quicker than what I did, but it clearly took a little bit longer than expected.
+- Driver has always been fine, and the rest of the clubs have been fine. It's just for some reason, the 3-wood... that's just one of those clubs.
+- I look back on the influence my dad had on my life and career, and I just try to take the best parts of what he had.
+- 'Golf Digest' had all the old school swings, and my favorite swing, ever, was Nick Faldo's swing. And it had all the greats, Ernie Els and Nick Faldo and all that stuff, and I had the pictures of their swing sequences on my wall.
+- There's a lot of spotlight that comes along with being the best in the world.
+- I've got to come into the day enjoying myself and go from there.
+- I think if you try a little bit too hard sometimes, you can kind of shoot yourself in the foot.
+- I don't feel as though I am under any pressure to return to Australia, given I won the PGA Championship, and I am just hoping everyone back home will understand my situation. I just want to make sure I am there for Ellie and that she has my support when she has our second child.
+- You have to come in to major championships, and your attitude has to be on point.
+- I've been one of those people that hold on to a little bit more stress than others. People take certain situations a little bit differently.
+- I'm willing to put my body on the line and stuff like that, just to get a taste of that greatness.
+- You've got to come out and fire on all cylinders and get yourself up the leaderboard and show people that you're there and you're ready to win.
+- It's about the learning, because obviously I learn more when I fail than when I win.
+- When you have a lot of confidence and you feel like nobody can beat you, it's game over for everyone else.
+- To be able to know that I can push myself a little further than you think you can was so important. And that it's a mental barrier more than anything. You can break through it.
+- I think the stress of being No. 1 in the world is more of a motivating factor for me just because I don't want to lose it.
+- We're not going to win every single one.
+- All I did was go to school and play golf. I didn't have much of a social life.
+- It's quite nice to play on a golf course that, even though it is links, that there's not much wind, which is good.
+- My dad was the way he was, but he also gave me a motto: never say die. Just to keep pushing and pushing, fighting until the end. He put it in my head that you're always going to fight, and you're always going to beat them.
+- I've never been more motivated to be No. 1 in the world. I've never been more motivated to try to extend that lead from one to two. All the hard work that I've put into my game right now has paid off, but I've got to keep working hard to win as much as I can.
+- I'm proud to partner with organizations that place an emphasis on and share my interest in giving back to the community. RBC has a rich history of doing this through their sponsorship of golf and the extensive ambassadorial program they have in place.
+- When I get to 40, I'm going to re-evaluate everything and then go from there. Because when I get to 40, I would like to see where I'm at in my career because I might want to go, 'You know what, I'm done. I'm just happy with everything,' and I'm going to go off my merry way, and I'll probably never pick up a golf club ever again.
+- I'm motivated to be No. 1.
+- Sometimes your immune system gets a little heated, and you're more susceptible to getting some illnesses that way.
+- Just to be able to say you're No. 1, you are the best golfer on the planet, just for one day, would be the best thing ever. Knowing that you were the best in the world would be pretty neat.
+- What I'm doing with my body and with my golf game, I'm trying to extend the longevity of my career.
+- I'm trying to adapt - they say you have to adapt to vertigo.
+- My goal is to be the No. 1 golfer in the world, and I want to chase Tiger.
+- I travel with Club Glove.
+- The biggest waste of time of my life was playing 'Call of Duty.' But I got really good at 'Call of Duty' - a little bit too good at that time.
+- I didn't have a dollar to my name in 2006.
+- Family comes first, and golf is second.
+- You can't pick up a golf club if your thumb hurts.
+- I'm still trying to be No. 1 in the world, like everyone else is out there.
+- Golf is a very, very frustrating game.
+- I think I definitely like the solitude of golf.
+- I'm Australian, so I love the stores near Crowne Plaza Melbourne, on the banks of the Yarra River.
+- It's okay to say what you want to do.
+- A lot of people are seeing me as an arrogant, confident kid. It doesn't worry me.
+- All I can do is control my preparation process from both a physical and mental stand point.
+- I'd much rather have that pressure than be at the end of the field and no one expecting you to win. That's the kind of pressure that you've got to enjoy and love.
+- My wife wants four kids, and obviously if we're having four kids, I need to make sure that the priority is family first.
+- My dad was very rough with us.
+- Rest is huge because if you're sleep-deprived, that can definitely run into the mental side of the game and can definitely hurt your game if you're playing tournament golf.
+- I remember not having a hot water tank, so we had to use a kettle for hot showers. So, you know, we would put the kettle on and go have a shower, and then my mum would come bring three or four kettles in, just to heat them up. And it would take five, 10 minutes for every kettle to heat up.
+- For some reason, every time I get a little bit under the weather, I've got zero patience.
+- The only two things that I think about in life is my family and golf. That's all I want to think about.
+- It's emotional highs and lows in the game of golf.
+- The vertigo is a difficult thing: it just comes and goes whenever it pleases. I wasn't expecting it. I've had it before, and there have been years between stretches, and unfortunately it happened at the U.S. Open, and that knocked me off my feet.
+- I have to work harder than what I am now to make sure that I stay on top of this and stay on top of the world and be competitive in major championships.
+- If my dad was alive, I wouldn't have gone to boarding school, and I wouldn't have had the success I've had.
+- I've got to really try and manage my patience out there.
+- I did play other sports growing up. I played cricket and all those other things, but I was just so much more talented in golf, and that's all I wanted to do.
+- I used to game a lot, and I used to game a little too hard.
+- My sister ran away for four years; she was living on the streets. I didn't know where she was, and then I was getting in trouble.
+- I have two mini dachshunds, Lola and Charlie.
+- It's very, very difficult to win golf tournaments.
+- I have always practiced by myself. It's just because that is when I can do the most work, the most efficient work, is when I am by myself, and I think I just find a little bit of peace when it comes to being able to be out here on the golf course, and you are just you and yourself and your thoughts.
+- I had a very boring life, which is fine. I like being boring.
+- Just looking when I was little at pictures of cars and houses that I wanted - it gives you a certain motivation, it gives you a goal.
+- Sometimes I play for the media, sometimes for the fans, sometimes for my sponsors, and sometimes it's for my family. Really, I play for everyone.
+- This is a great thing, to make a living as a professional golfer, isn't it?
+- If you don't believe in yourself, somewhere or another, you sabotage yourself.
+- There is no real way to prepare yourself for having a child other than just getting thrown in the deep end pretty quick.
+- At the end of my career, am I going to say I did well, but I didn't give it my all? I'd be very, very angry with myself if I didn't give 100 percent. If I gave my all and I got to whatever point in the world, I could look back and at least I say I did the best I could.
+- It's very easy to make poor choices and have bad swings every now and then.
+- I'm all about Adidas.
+- I think everyone expects if you're in the lead, or if you're a favourite to win, you will win, and if you don't, then you're in a slump. It's not the case.
+- It really is amazing that some days you'll come out and you'll feel like you can beat anyone, and then some days you come out and you've got no confidence in the world, and you can't break an egg with a hammer.
+- I've got good vibes up here in the Akron area, Cleveland area.
+- As I get older, my body isn't bulletproof, and it's starting to break down. And I'm still young, so it's something that I have to maintain, something that I have to work extra, extra hard, just as hard as my golf game, I have to work on my body as well.
+- I don't feel that old, but when I talk to these kids, I do feel old. Because I'm talking about taxes and all this other stuff that is very, very boring. And these guys are talking about music, and I'm like, 'Oh, I remember those days.'
+- Anything can happen, so you have to control your attitude and stay strong.
+- I want to be able to be looked back on and know that he was one of the greats in the game.
+- The biggest thing is, if you want it still, you'll do everything you need to do to make sure you extend your career.
+- It's like Jordan Spieth and Rory McIlroy had a baby, and I was it. I've got Rory's length, and I'm hoping that I've got Jordan's touch.
+- I use this app that keeps my handicap. As professionals, we don't keep handicaps. But as a kid, I was so excited about seeing how low I could get my handicap. So that's one app I really do use a lot.

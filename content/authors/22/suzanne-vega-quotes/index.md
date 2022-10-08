@@ -1,0 +1,32 @@
++++
+author = "Suzanne Vega"
+title = "Suzanne Vega Quotes"
+quotes_len = "26"
+description = "the best 26 Suzanne Vega Quotes"
++++
+- My mother wanted me to understand that as a woman I could do pretty much whatever I wanted to, that I didn't have to use sex or sexuality to define myself.
+- A lot of my writing is not terribly civilized.
+- I had some fears as a kid, but I was also relatively fearless. Maybe that's a result of living half the time in reality and the other half in fantasy.
+- If you have to fight a crowd of boys, it's best to go for the biggest one. That way you won't have to fight them all. The others will see that you mean business and you will win their respect.
+- It takes as much discipline to be a mother and a wife as it does to do anything else.
+- I still consider myself a feminist.
+- There are no rules in fights with girls. Just hurting.
+- I was always inventing characters and making up stories.
+- You have to defend your honor. And your family.
+- How weird it was to drive streets I knew so well. What a different perspective.
+- My intellect has always been more responsible than my emotions for how I respond to the world.
+- Writing in other voices is almost Japanese in the sense that there's a certain formality there which allows me to sidestep the embarrassment of directly expressing to complete strangers the most intimate details of my life.
+- When I was pregnant, I felt filled with life, and I felt really happy. I ate well, and I slept well. I felt much more useful than I'd ever felt before.
+- Sometimes I listen to songs by very smart writers who assume that the world is a civil place with certain formalities that people follow, but I don't see things that way. My own experience tells me that life is not like that.
+- I think people are sexy when they have a sense of humor, when they are smart, when they have some sense of style, when they are kind, when they express their own opinions, when they are creative, when they have character.
+- I don't think gender is aesthetically defining for me.
+- I loved the atmosphere of the dance studios - the wooden floors, the big mirrors, everyone dressed in pink or black tights, the musicians accompanying us - and the feeling of ritual the classes had.
+- To me, a feminist belongs in the same category as a humanist or an advocate for human rights. I don't see why someone who's a feminist should be thought of differently.
+- Writing is always personal in some way but not always in a direct way.
+- Some girls are taught to be sexy.
+- In the end, my pursuit of the elusive New York State driver's license became about much more than a divorced woman's learning to drive for the first time.
+- I wouldn't characterize my work, however, as directly political.
+- Girls are crazy and mean. They don't fight fair.
+- Don't make a threat and then not do it.
+- So you eat, you sleep, and then this wonderful child comes out, but you don't feel like you have any control over that process, over her, over her character and who she is.
+- Of course, sometimes when you write personally, you are also writing about society, obliquely reflecting topical issues, but not in a way that people would expect you to or in the way that someone trying to make a point would.

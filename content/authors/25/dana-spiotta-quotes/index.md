@@ -1,0 +1,29 @@
++++
+author = "Dana Spiotta"
+title = "Dana Spiotta Quotes"
+quotes_len = "23"
+description = "the best 23 Dana Spiotta Quotes"
++++
+- Memory is not particularly linear - it is associative, repetitive, subjective and porous. But the writer needs to convey disorder and dysfunction without making the novel itself disorderly or dysfunctional.
+- It takes a long time to write a novel when you have to keep interrupting your work to earn money.
+- People think it's suspect and self-indulgent to make art, and I don't think that's true. Some people think you should be busy making something that you can sell in the marketplace, and if nobody wants to buy it, it must be crap. And that's not true.
+- All roads lead to Wall Street, but we feel the effects of Wall Street on every street corner. Certainly in Syracuse, N.Y., where I live.
+- There's lots of things that can't make it in the world that are worth making. There are lots of great artists who never make it, there are lots of great writers who don't get published - is it still worthwhile? Aren't we glad people are still doing it?
+- The idea that you can live off the grid and just do your own thing is a very American idea - that you should be able to do your own thing, if you want to, if you're willing to pay the price for it. I think the price has gotten higher and higher.
+- Yes, I did try acting when I was in high school and I was terrible at it. So I definitely have had the experience of being bad at artistic endeavor.
+- I think it's harder than ever to be an artist. I think that you end up, especially as a middle-aged person, you pay such big consequences for saying, 'I'm just going to devote my life to making art,' or 'I'm going to devote my life to writing novels.' You end up with no resources.
+- Occupy Wall Street means making Wall Street and the corporate power elite understand that the people affected by the binge of unregulated greed are not going away, and they are not going to give up.
+- I try to write about how we live today, how we use language, technology, our bodies.
+- Your memories from your early childhood seem to have such purchase on your emotions. They are so concrete.
+- I am a great procrastinator. When the writing is going really well, the laundry piles up.
+- A good novel should be deeply unsettling - its satisfactions should come from its authenticity and its formal coherence. We must feel something crucial is at stake.
+- Although a great restaurant experience must include great food, a bad restaurant experience can be achieved through bad service alone. Ideally, service is invisible. You notice it only when something goes wrong.
+- I don't have a lot of skills, but one thing I can do is, I can compartmentalize. I can make that a little world that I can go back to, so I can be a waitress, or I can be a teacher, and then go and work on my book.
+- I locate a great deal of the power of Occupy Wall Street in the name itself, 'Occupy Wall Street,' or '#OccupyWallStreet.' It works because the name contains everything you need to know: the tactic and the target. The name is also modular. You can create your own offshoot in your own city.
+- I like the challenge of creating a world with only sentences.
+- The novel is about, for me, sustained and organized looking. I do think that people have a hunger for a sustained engagement, that concentration that the book can offer.
+- My husband is a musician. He cooks and he's a chef but he also, he makes basement recordings. So many people in my life make basement recordings, so I feel very lucky, I'm surrounded by very creative people.
+- Getting an audience requires luck as well as talent. Some artists are private and shy. It costs them too much.
+- I like to buy books for the kids in my family. I guess that's why they call me the 'mean' aunt.
+- I have to say that movies have as much impact on me as music. And that I learned as much about narrative from movies as I did from reading novels, how to arrange stories, how to juxtapose things.
+- That was one of the reasons I became a writer - I never really had that many friends. I would read a lot, and listen to music. And that was my life.

@@ -1,0 +1,106 @@
++++
+author = "Seth Moulton"
+title = "Seth Moulton Quotes"
+quotes_len = "100"
+description = "the best 100 Seth Moulton Quotes"
++++
+- Veterans are especially appealing candidates in key swing districts. Veterans have credibility, not just with Democrats but with independents and Republicans as well. They're the kind of people respected for their leadership, not just their politics.
+- The Columbia River Basin, which spans seven states in the Pacific Northwest, is one of the largest freshwater networks in North America. For centuries, the Basin has been a catalyst for economic development through the abundance of natural resources it provides.
+- Our growing national debt is a threat to our national defense and to our domestic priorities, including research and development, education, health care, and investments in our economic growth.
+- I think people often think of me as very intense. I'm a congressman and all, but I'm actually very laid back.
+- We need to make sure that hardworking Americans have the workplace protections they need to get ahead in the 21st-century economy.
+- There's simply no reason for a civilian to own a military-style assault weapon. It's no different than why we outlaw civilian ownership of rockets and landmines.
+- Some of my colleagues are unwilling to vote for any Dodd-Frank reforms, partly out of the political fear that any reforms will be seen as reducing regulations on the financial sector.
+- Our country was founded upon the principles of debate and compromise.
+- Prior to the 2008 recession, many financial institutions were engaging in 'proprietary lending,' where a bank would invest funds for its own gain instead of earning revenue through commission by trading on behalf of clients.
+- Some of the most controversial things I've said about President Trump, I've heard from Republicans. But it's just that I've heard them in the locker room. That's what people actually talk about in the locker room - how terrible our president is.
+- In the House gym - I go every day, in fact; I'm part of a bipartisan workout group. There's one that does this P90X that's kind of like dancing around and whatnot. And then there's one that does CrossFit. And I'll just say Paul Ryan and I are not in the same workout group.
+- I'm brutally honest with people.
+- Make no mistake: Republican tax cuts for the rich will bankrupt our country - and it's the grandkids of the middle class who will have to pay it back. This is wrong.
+- The Chinese government has been clear in its goal and purpose for creating and expanding Confucius Institutes throughout the country, namely to distort academic discourse on China, threaten and silence defenders of human rights, and create a climate intolerant of dissent or open discussion.
+- Though dams and artificial lakes can have significant negative environmental impacts, when carefully considered, mitigated, and managed, the benefits of hydropower often outweigh these costs.
+- For me, there is nothing that encapsulates both our misguided response to the attacks of September 11th and the entire Iraq war itself more than a sense of lost opportunity.
+- Any reduction in the corporate tax rate must also come with closing loopholes that have allowed the largest businesses in our country to pay less than they owe.
+- I do think it's fair to say that there are times when President Obama has not been engaged enough with the Middle East.
+- Many of us have experienced the pain that comes with watching a loved one suffer with a serious illness. We also know that we would do absolutely anything it takes to help them beat it.
+- While payday loans are often the only source of credit for low-income Americans, these lenders are notorious for predatory practices that cause borrowers to fall deeper into debt.
+- Whether you're earning income because you have money sitting in the bank or a stock account somewhere, you should be taxed on that income fairly and the same.
+- It's unequivocal: everyplace I go, the one line I can use in a speech that I know will get applause is when I say it's time for a new generation of leadership in our party.
+- I think we need to show people that they have a place in the Democratic Party, whether they come from San Francisco or St. Louis.
+- Flooding is the costliest and most common cause of property damage, which is why federal flood insurance should be affordable and accessible to all.
+- Greatness is accomplishing the unrequired - doing what is right beyond what is expected.
+- With control of the House, the Senate, and the White House, Republicans could have used their unified control of government to... balance the budget!
+- It is absolutely absurd that someone who is deemed unsafe to get on an airplane is allowed to buy a gun in America. It's truly absurd.
+- When we refuse to help the enemies of ISIS, we're empowering ISIS. We're aiding their recruitment. We're abetting their argument that America discriminates against people based on their religions, which is expressly prohibited in our Constitution.
+- We can protect the Second Amendment, we can protect our constitutional rights, and we can still do something about this public health crisis that is gun violence in our communities.
+- Operational risk is the risk of loss resulting from bank operational failures, such as rogue traders, fraudulent sales practices, and cyber risks. Operational risk capital is money or assets that banks have to hold to shield the economy from the consequences of these kinds of failures.
+- I have never seen a more hopeful, optimistic, and excited place on earth than Iraq in the spring of 2003. The oppressed people of a regime we toppled shared America's dream of freedom, and opportunity called them to a future brighter than they had ever known.
+- As I have always said, the ACA is not without flaws, and I welcome the opportunity to improve the law to make healthcare more affordable and ensure every American has quality health insurance.
+- The EPA issued the MATS rule in 2012, and it is the first national standard created to address power plant emissions of toxic air pollutants. Under MATS, power plants are required to install equipment to reduce emissions of specific pollutants, such as mercury and sulfur dioxide.
+- I voted against H.R. 4712, the Born-Alive Abortion Survivors Protection Act, which is nothing more than a shameless attempt to intimidate doctors, spread misinformation about abortion, and decrease women's access to healthcare.
+- I have and will continue to oppose any legislation that would undermine the important consumer protections provided under Dodd-Frank.
+- My battalion motto in the Marines was, 'Whatever it takes,' and I'm going to do whatever it takes to help win back the House in 2018.
+- There will always be people who question your motives.
+- The number of Pelosi allies who have come to me and told me to back off, that I'm not doing the right thing, is exactly zero. The number of members of the caucus who voted for her, who have checked to see who was listening and then patted me on the back and then said, 'Keep going Seth, you're doing the right thing,' is literally dozens.
+- During the 2016 presidential campaign, candidate Donald Trump pledged to eliminate our national debt 'over a period of eight years.' Now two years into his administration, our national debt has increased, surpassing $21 trillion for the first time in American history.
+- We need a budget that will foster economic growth for all of our people, and we need to make taxes more simple and fair for working families - not give handouts to the rich.
+- Our national security is not a partisan issue.
+- Even if a financial institution rejects an initial application by an individual using a synthetic identity, credit bureaus create a record from the transaction based on the fraudulent credentials. Consequently, the record can be used repeatedly by a fraudster to establish a fake identity used to commit financial and other types of fraud.
+- A budget is a reflection of our values, and as a member of the House Budget Committee, I work each year to ensure that our federal budget invests in programs that support working families, enhance our research and development capabilities, and ensure the safety and security of the American people.
+- There is a healthy disrespect among veterans who served on the front lines for people who walk around telling war stories.
+- The notion that the U.S. can impose its will unilaterally on the World Bank reflects a fundamental misunderstanding about how multilateral organizations should work.
+- Let's stop bankrupting the country and start investing in our future.
+- I'm not a believer in bringing back the draft. But I am a huge proponent of national service.
+- H.R. 5444 provides long-overdue structural reforms and service improvements to the IRS. The legislation codifies the IRS Office of Appeals to streamline the appeals process and to provide fair and impartial determinations for concerns raised by the taxpayer.
+- I believe that as a part of good governance, all agencies should be reviewing regulations and cleaning up those that may be outdated, redundant, or unnecessary.
+- I voted in support of H.R. 5192, which seeks to curb identity fraud by requiring the Social Security Administration (SSA) to develop a database that financial institutions can use to compare their consumer data against SSA records.
+- Hydropower is a clean and renewable energy source that provides affordable power throughout the country.
+- Presidents Lincoln and Kennedy shared more than just being leaders during critical times and the misfortune of lives cut short. They shared a power of will to drive the nation, sometimes single-handedly, toward a destination that few but they realized was attainable.
+- We need leaders who are willing to stand up, drive the debate, and commit our fellow citizens to action.
+- Sulfide-ore mining is one of the most toxic industries in America and has a long history of polluting waterways with acid drainage that contains arsenic, mercury, and lead.
+- As congressional Republicans and the Trump administration continue to attack the Environmental Protection Agency (EPA), it came as no surprise that the House voted on two bills that would weaken emissions standards and, as a result, put our public health at risk.
+- I voted against H.R. 38, the Concealed Carry Reciprocity Act of 2017. This bill would require states to accept the concealed carry requirements of all other states - even those that have significantly lower standards or no standards at all.
+- When you have a party leadership that is out of touch with the rest of the country, then that's a real problem for the entire party.
+- Escrow accounts are an important tool for homeowners to the reduce the risk of mortgage default on high-priced loans. Millions of Americans, including my wife and I, utilize these accounts to make monthly payments towards the annual financial obligations that come with homeownership like taxes and insurance.
+- I've used guns in combat. On more than one occasion, guns have saved my life. But there's a big difference between a U.S. Marine with a rifle and a civilian with a gun.
+- History is full of people with great ideas, but leaders also need to ensure their visions become reality.
+- I voted against H.R. 1119, which would weaken emissions standards for coal refuse power plants.
+- Some of the issues with identity politics are critical moral issues. But we've got to show America that we don't have a plan just on these so-called identity politics issues, but that we have a plan for the economy, that we know how to provide for a strong national defense.
+- Congress can prevent future tragedies by requiring a background check for every gun purchase in America.
+- Whistleblowers play a vital role in ensuring that the federal government is accountable to the people it serves.
+- I'm not going to back down one bit in attacking Trump.
+- In the wake of the 2008 recession, Congress and the Obama Administration rightly focused financial regulation on protecting the nation's financial system from itself.
+- One of the greatest falsehoods of American politics over the past several decades is that the Republican party is the party of fiscal responsibility.
+- It is easy to stand for freedom and justice in the midst of peace.
+- Truly transformative leaders inspire deep commitment among many and have continued impact long after they are gone.
+- Self-preservation shouldn't be the first instinct in politics. It should be doing the right thing for the country.
+- I have and will continue to be an advocate for the important role the CFPB plays in our economy. In fact, I have voted overwhelmingly against legislation that would weaken, defund, or eliminate the agency.
+- When I joined the Marines, I went to Quantico for training. One of the first things I learned is that you can drop out of a run, a couple runs. You can fail the test or a couple tests in a row, and they'd give you a second try. But if you lied about anything, you were gone that afternoon. That's how important integrity is in the military.
+- As a member of the Armed Service Committee and a co-chair of the Democratic National Security Task Force, I will continue to work to keep Americans safe at home and abroad.
+- We need to stand up to Donald Trump and the Republicans, but we also need to stand up against our own party establishment when it's on the wrong side of an issue.
+- Donald Trump obviously knows nothing about what it's like to put your life on the line for your country. He's never risked his life for anything.
+- I voted in support of H.R. 5445, the 21st Century IRS Act, which requires the IRS to place more taxpayer services online.
+- If the government can afford luxury travel for its cabinet officials, then surely we can find the resources to invest in quality education, jobs skills training, and properly fund the State Department and foreign aid programs.
+- It's a little challenging as a congressman to keep a low profile, but I try very hard to keep a low profile.
+- It shouldn't be easier for a company to get a tax break on buying another robot than training their employees to gain new skills for the modern economy.
+- The thing about veterans, they know how to challenge the establishment. They're not afraid to take on the people in control. They're not afraid to put people over politics or over their political party.
+- Obamacare wouldn't exist - it's saved millions of lives - without Pelosi getting it through the House. Not a perfect piece of legislation, but she deserves a lot of credit for that.
+- When I left Iraq for the last time in 2008, it was the first time I left the country better off than when I arrived.
+- One of my top priorities in Congress is making sure every American who wants to serve our country has the opportunity to do so.
+- The greatest honor of my life was to lead these men in my platoon, even though it was a war that I and they disagreed with.
+- The worst days of my life were in Iraq, and the best days were there, too. My fondest memories of the Iraq War are of the people - both Americans and Iraqis - and the opportunity we saw in one another, for our countries, and for which we fought.
+- The Democratic Party has been a party of reaction - a party of opposition, complaining about Trump and the Republicans, rather than offering a lot of our own ideas and our own vision. And my view is that if Democrats want to start winning again, we have to start leading again.
+- Rather than play politics with funding our government, pitting one group against another, we should make strong investments in our future.
+- I voted against H.R. 4293, the Stress Test Improvement Act of 2017, which would modify the regulatory oversight of certain financial institutions in a way that is likely to expose our economy to greater risk.
+- Democrats have consistently been the party that supports small businesses to drive the new economy forward. That's where innovation comes from.
+- Children and other Americans with limited or non-existent credit histories are particularly vulnerable to having the SSNs misused for synthetic identities.
+- As a member of the House Pro-Choice Caucus and a strong defender of a woman's right to choose, my bottom line here is this: women have a constitutional right to access abortion.
+- Although I believe deeply that the Children's Health Insurance Program and the Community Health Center program are invaluable, I reject the notion that we cannot reauthorize these programs without plundering other equally vital programs.
+- I love milk. I always drink milk.
+- No matter what President Trump says, Russia is an adversary and a threat - look no further than their invasion of Crimea.
+- In my short time in Congress, I've learned it's a lot easier to find a reason to vote against something than to vote it.
+- Republicans are scared of the NRA. They're scared of the Tea Party.
+- The Democratic Party has had a real problem with recruitment because the party too often looks at just who's next in line in the party to run rather than in finding inspiring new leaders.
+- I'm someone who's seen firsthand the effects of gun violence. I've had to carry a gun to do my job in the war. And I know as well as anyone that this violence has no place on our streets, in our schools, in our concerts, so we've got to do something about it.
+- Medicare has provided healthcare coverage for older Americans and disabled persons for 50 years, and I believe that steps must be taken to ensure that it remains an option for all Americans now and into the future.
+- Good policy is grounded in a robust set of facts and data.

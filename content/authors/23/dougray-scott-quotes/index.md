@@ -1,0 +1,36 @@
++++
+author = "Dougray Scott"
+title = "Dougray Scott Quotes"
+quotes_len = "30"
+description = "the best 30 Dougray Scott Quotes"
++++
+- Sometimes you just can't walk away from films you're offered, like the Dylan Thomas thing.
+- I'm doing a Dylan Thomas film, Map of Love, with Mick Jagger producing again. It's a wonderful script.
+- It quite often happens that they attach a name to a project and it doesn't get all the financing it needs.
+- It's nice to be asked to do good projects.
+- Sometimes people say to you that you should try to be in a bigger film, but it's the way it pans out.
+- I tend to do golf charity things because it's much safer and you don't get much chance of a broken arm or leg.
+- I just love jumping into someone else's life. It is a relatively cheap way to experience things you would be too scared to contemplate in your own life.
+- What was the reason for invading Iraq' Was it a humanitarian crusade or an economic one' I would be inclined to say the latter. It was the same with the Civil War, because the landed gentry's money was being stolen by the king.
+- I don't like acting things; I like feeling things.
+- Fairfax was incredibly important to the shaping of the country.
+- You grow up a lot in terms of your understanding of the industry and how to deal with the corporate things.
+- I am an actor through and through.
+- The point is to be involved in the moment.
+- When I'm playing a character like Jonathan in Ripley's Game I want to be in the moment when he's feeling pain; this very ordinary person who finds himself in extraordinary circumstances.
+- When you do bigger films, the financiers take more risks.
+- The success of the film is down to the crew.
+- You'd have to have one hell of an imagination to completely make up a story, but historians are very anal about what they think should be portrayed on screen. Thankfully they don't make movies; we do.
+- With the situation now, people might be intrigued to see how a country coped with war all those years ago.
+- I try and do films I know I'm going to enjoy watching as well as being in.
+- You couldn't take football away from me, you couldn't take acting away from me.
+- People go to see a film because it's a great story and it's visually exciting to watch.
+- Method acting is a label I don't really understand, because there's a method to everybody's acting.
+- It's difficult to get films made, especially films about poets.
+- You should be careful what you wish for, as the reasons for war get confused. One person can be very clear in their motives, but others can have different agendas.
+- Sometimes it is easier to play someone who is far away from you.
+- My focus never wavered; I never accepted the film was not going to be finished.
+- I got involved in script development from the beginning. It was nice to see how a film gets made right from the beginning. It was quite hands-on for me.
+- In terms of jumping into a character's skin, I try to immerse myself in the role as much as possible to bring me closer to them. All I do is what's required to achieve what I want to achieve.
+- Being a salesman and an actor were not that dissimilar: It is a good lesson in covering up your feelings. No one wants to buy from someone who looks depressed.
+- You're making a movie, not a documentary. If you made a film like the historians would like you to make, you're not going to go and see it. I'd rather see paint dry.

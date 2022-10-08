@@ -1,0 +1,25 @@
++++
+author = "Salman Khurshid"
+title = "Salman Khurshid Quotes"
+quotes_len = "19"
+description = "the best 19 Salman Khurshid Quotes"
++++
+- Governments follow their people. A great deal has to do with the vision of the leadership of governments. They have a vision, and they translate that to their people and to their counterparts in other countries. You can fulfill and achieve a great deal if you get along well as individuals, as people, as persons.
+- In democracy, every election is a learning process. You learn from every election, the one that you win and the one that you lose. And then you prepare for the next one.
+- Saudi Arabia is one of India's most valued strategic partners.
+- People can defame anyone they like, people can write anything they like. But non-accountability is a part of modern Indian culture.
+- We are not a country that subscribes to policing any part of the world. The areas we are comfortable with are capacity building, intelligence sharing, exchange of ships, call on each other's ports, joint training and exercises.
+- In international relations, in foreign policy, a great deal has to do with historical circumstances, a great deal has to do with the sense and perception of people.
+- We should not underestimate the ability of people to do wrong if they want to do so.
+- What I'm interested in is the fascinating image of young leaders... you know, young people leading in different fields. You see athletes and people in gymnastics, where the requirement is that you are supple and very, very young... 11... and by the time you're 14, you're already over the hill.
+- The world is waiting for us, the world wants to engage with us, the world wants to be friendly with us, the world wants to be our partner in prosperity, and the world admires India in many ways.
+- The administrative control of the government remains everywhere. You can't have a government within the country and not have control over everything that's happening in the country... Even in the Election Commission there is some extent of administrative control.
+- You can't reorder any society from outside. You can help from within.
+- Both France and Britain are supportive of India's bid for a broad-based agreement on trade and investment with the European Union.
+- India considers Saudi Arabia a center of stability in the region. The security and stability of the Gulf region and that of the Indian subcontinent are interlinked. Bilateral security cooperation between India and Saudi Arabia will contribute to regional stability and in addressing the common threat of terrorism in the region.
+- We are lucky to have Manmohan Singh as our Prime Minister. We could not have done without a person and leader of the choice as Manmohan Singh, who gets all international attention.
+- We wish Pakistan both stability and security; we expect them to understand our legitimate concerns of preventing people from using its soil to inflict problem in India.
+- You have to trust your government. Don't let every scar, every wart, every hiccup condemn the whole body.
+- We can pretend that China is not there. But China is there, and unless we put our economy on the right track, it is going to overwhelm us completely.
+- Business and politics have a wholesome and an unwholesome interface. You have to eliminate the unwholesome interface.
+- Generally, it is human endeavour to have young people lead, and you see that in public life in the U.S. and everywhere.

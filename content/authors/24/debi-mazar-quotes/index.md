@@ -1,0 +1,87 @@
++++
+author = "Debi Mazar"
+title = "Debi Mazar Quotes"
+quotes_len = "81"
+description = "the best 81 Debi Mazar Quotes"
++++
+- I've never wanted to be the ingenue. Now that I'm getting into my forties, I think my time as a woman has arrived; I think I might have a new moment in my career. I have that drive left - just for a little while.
+- We go to several farms and look at foraging, and throw backyard parties with friends. We want to let people know they can enjoy a sense of Tuscany anywhere.
+- I'd love to give my girls a traditional Thanksgiving with turkey and all that jazz, but we've raised them to love Tuscan food so much that they don't care for it. My favorite is a nice polenta with beef stew and broccoli rabe on the side.
+- In Italy, everybody buys silver for every special occasion. Baptisms, weddings, you get silver.
+- As a matter of fact, I've been to Italy many times before I met my husband, which he can't even imagine that I could possibly know anything about Italian food. But, you know, Italian food's really basic, and there's so many different variations on it that what my husband did is he broke it down for me.
+- My mom did not have money. She was a single mom, on and off in periods between marriages. My husband, however, grew up on a wonderful farm in Tuscany, in Florence, and his family was so entertaining in terms of growing their own food and using the fruit of their land. We have very, very different experiences.
+- I used to watch my grandmother make fancy, Julia Child-style beef bourguignon. And growing up in New York City, I was exposed to many cultures. I experimented with Puerto Rican and Jamaican food.
+- Being a publicist is like management in a lot of ways - you're their friend, you're their mother, you're their confidante.
+- I've always been someone who can just move. Some people in L.A. are addicted. They have to be here; they come for pilot season and stay here.
+- I need savory sauces, stews and pastas. I can't live without pastas. My butt, you can tell I like to eat.
+- I always had dreams. I knew I wanted to have money to buy things at the flea market. That's worked out well.
+- My husband, Gabriele, is a musician, and I love music, so you can bet it's a really important part of our home entertaining repertoire, even if it means Gabriele making a really good playlist for a dinner party.
+- Thanksgiving was always a favorite holiday for me. The preparation was fun! My grandma and I would walk to the butcher on Jamaica Avenue in Queens, order the bird, and buy all the fixings at the market.
+- I've always been a foodie. My grandmother got me hooked on cooking.
+- I started doing makeup to make a living. Then I said, You're not supposed to be putting powder on other people. You're supposed to be powdering yourself.
+- With the breast-feeding, I really love the bonding. Real life is more important to me.
+- I have a fuller figure and sometimes like to hide my legs. Palazzo pants accentuate my small waist and make me feel a little like Katharine Hepburn.
+- I'm a chocoholic. I need chocolate every day, like one little piece of Droste. I'm not into milk chocolate. But I don't like it when its super bitter. I need a sweet factor in there. I go for the 75 percent - that's good enough for me.
+- Some people in LA are addicted. They have to be here. My personal life is stronger than my professional life, in terms of priorities.
+- There's so much importance in honoring your everyday hero. It doesn't take money. It doesn't take connections. What matters is that people get involved. Whether your passion is gun control or food or whatever it may be, everybody needs to stop being so self-absorbed.
+- I think my career would probably be in a better place had I been more aggressive. But I don't have it in me. I'm not a competitive person, and I'm also really private.
+- I have a very high metabolism, and I have to constantly eat to keep on going.
+- Usually I wear my grandma's old aprons, or others I have collected in my travels. When I was young, I would sit and watch my grandma prepare stuff. She wasn't Italian, but she did really good Italian food.
+- I'm a girl who's curvy, and I'm Latvian, but I don't have hips, and I have a tiny waist.
+- I think that my interpretation of Italian was a lot more southern than what my husband cooks. You know, I grew up in Queens and in Brooklyn, and we - really, it's more southern. It's Naples and Sicily. It's heavier. It's over-spiced. And like most Americans, I thought spaghetti and meatballs was genius.
+- My husband is from Florence. And he has a 15th-century barn that is completely rustic and very 'Green Acres'-like.
+- My husband wrote me love letters while I was on location in Canada and pregnant. They turned into being about food, and it turned it into a cookbook. He called it 'The Tuscan Cookbook for the Pregnant Male.' It was kind of genius. When I took it a book agent, he was like, 'Men don't buy cookbooks.'
+- You know, you kind of lose some self-confidence after having kids because you'll never be the way you were. But I feel good.
+- Life is just too short to count calories forever!
+- I look great because I'm happy.
+- We go to Italy every winter, and my husband's mother has a bingo party on Christmas. Every woman brings a dish: lentils, cavolo nero, tons of beans, polenta, every type of cheese, bruschetta, fresh vegetables, and local olive oil and wine.
+- I find it beautiful when we're in Italy that everybody sits down at the table together. My mother-in-law is like, 'It doesn't matter what's going on in the house, who is fighting, who is upset, who has appointments, you sit down at that table at one o'clock.'
+- I grew up on food stamps. I come from a very humble background. And I've had many friends that have been destitute - you know, running into trouble - and places like The Midnight Mission have given them hope and have fed them and gotten them back on the right path.
+- I'm never sloppy, and I never wear jeans. I don't work one look in particular, but it's usually retro - I'm a flea-market freak. And detailed - I'm always very done, even at the gym.
+- For me, its like go ahead and eat. Live your life. I mean, I've just seen so much death, you know, as of late, being in my 40s, of people getting sick or, you know, whatever, that I just feel like, you know what? You never know with life. Eat. Enjoy yourself. Just try to be healthy and, you know, and watch it.
+- I can't live without carbs.
+- When you come into our house, you get a flavor for our life, our travels, our kids, our 18-year-old poodle who is like, blind, deaf and incontinent but so happy.
+- I have a full Tuscan lunch and dinner every day in my home; my husband's a fantastic chef.
+- I was born and raised in Queens and moved into the city as a young adult. Then I ended up acting and decided to run off to California.
+- I have lots of shoes, but I have to be comfortable. Lately, I've stolen my husband's big, ugly Uggs to wear around the kitchen. I want to have them on, then slide into a fabulous heel later. Truth is, I often forget the heel.
+- I wanted to come up with a hybrid show of sorts that wasn't your traditional 'dump and stir' type of cooking show.
+- For me, I don't have a publicist. I don't want to talk about my personal life. I don't want to talk about my process. I don't want to be a model and do fashion shoots. It's nice to be an entertainer, but I'm a reluctant celebrity.
+- I'm naturally a muscular gal with some curves, so eating a Mediterranean diet makes my body happy.
+- I truly have a love-hate thing with the press.
+- Food brings back memories. I had a mom that wasn't a good cook, so I would eat my grandma's food. It was amazing because it brings back a time almost in Technicolor. I see her house, I see her stove; I think about what it felt like when I was sick, and it felt like love.
+- My mother was really young when she had me, so she was a horrible cook, but we lived with my grandmother, who was fantastic. We eventually got our own place, and my mother started learning to cook. But it was also the '70s, so she was very experimental, and, well - thank God we had a dog.
+- I don't want to be 45 competing with 20-year-olds, running to go get Botox. I want to be an expressive actor hired for the age that I am, portraying women who are my age: 40. I'm just hoping I can find some of those roles to play. Otherwise, I have to find something else.
+- As cool as I want my kids to be, they're just like any other kid. They don't love eggplant unless it is covered in cheese.
+- Doing makeup was a way to create characters, only I got tired of doing it for other people.
+- Even the pre-schoolers are like, 'I watch you on The Jonas Brothers.' And my own kids. I have been in the greatest movies, even some for kids, and they were never impressed until I did 'Jonas L.A.'
+- To me, it's a religious experience to sit down at anyone's table. I feel so invited, like it's a sacred place.
+- Cook what's fresh for the day. When you're using fresh fruits, vegetables, and foods, it's easier to keep the weight off. And I eat whatever I want - just not a ton of it.
+- A hero is somebody who is selfless, who is generous in spirit, who just tries to give back as much as possible and help people. A hero to me is someone who saves people and who really deeply cares.
+- I married a Florentine. We bought a house, had a family, and after a decade in our little Hollywood nest, we said, 'Let's go to Tuscany.' Tell God you can't make him laugh, but the next thing I know, my cooking show has become a hit, and they're asking for more seasons, and they want it to be in the States.
+- I have this fear of coming across as a Barbie doll who got lucky. Style is a big part of who I am, but it's not who I am. Ya know?
+- For holidays, I like doing special cheery touches around the table, like color-coordinating the plates and napkins to fit the theme.
+- Well, you know, I have always had an issue with the whole weight thing with people in general because I happen to love how big women look. I mean, it's all a perspective. It's all an opinion, and I think sort of the Rubenesque, voluptuous body is a lot sexier than the boney bag of bones with fake everything.
+- My wrists, which are tattooed with my daughters' names, are always occupied by a watch.
+- I've had high-powered publicists in my career, and I've had publicists when they've had no power. I've run the gamut.
+- When my mother was raising me, she moved us upstate to the Woodstock area. Our closest neighbor was a mile away. She planted all her own vegetables.
+- My mom had me at 16 and took me every place she went. I remember going on peace marches. She tried to take me to Woodstock - it was pouring rain. It was on my birthday, and I was crying so much in the car they turned the car around and dumped me at my grandmother's house... I had a little attitude.
+- I live in Italy part time, and they're obsessed with what's happening in LA too. They make fun of Americans, but the world wants to know what's going on in Hollywood.
+- I don't like the idea of things being off-limits to kids - like a fancy sitting room where they can't touch anything. I own vintage pottery cups, and I let my girls hold them. It teaches them to treat objects with respect.
+- The kitchen is the heart of every home, for the most part. It evokes memories of your family history.
+- On the morning of Thanksgiving, I would wake up to the home smelling of all good things, wafting upstairs to my room. I would set the table with the fancy silverware and china and hope that my parents and grandmother wouldn't have the annual Thanksgiving fight about Richard Nixon.
+- I'm teaching my daughters to be ladies by showing them how to dress appropriately when they leave the house, and how to be thoughtful and polite.
+- I used to live above Manganaro's, when old Times Square was still peaking, and it still had a lot of diners and theaters on the forty deuce, as they used to call it. It was full of character. And it wasn't Disneyland. Now it's so touristy and full of bright lights, I can't stand it. It's like going to a big mall.
+- Basically, I start my morning off with a Bustelo coffee made in a mocha pot - the Bialetti. I warm some milk on the side, on my stove, and I add one teaspoon or half a teaspoon of real sugar. I have two of these every morning. Even when I was pregnant.
+- We want to teach families how to cook Tuscan wherever you are. How to reuse your leftovers. How to trick the kids into eating whatever you want by putting it into a frittata.
+- Lunch is formal - that's when my husband and I have our dates. And dinner is formal: we sit down every day with the kids at seven o' clock.
+- I haven't always had the money rolling in. I'm a character actor; it's not like I'm Gwyneth Paltrow - so I do have hard times still in my life. And that's even more why it's like you know what, I'm not that different from people going through it. I struggle; I look for a better deal at the grocery store.
+- Nobody has money right now. And eating is very important, but it doesn't need to be expensive. And to make - it doesn't need to be fancy, as long as it's fresh and simple. The simpler it is, the more fancy it actually comes out tasting.
+- I like to watch Bourdain and Andrew Zimmern, because I like them when they travel. I like Ina Garten, 'The Barefoot Contessa.' Giada is really nice, but I get a little bit bored with just staying in the kitchen.
+- I like to have my hair grow, because I need to have hair for different roles. But I'm a woman, so I'm always cutting my hair off and wishing that I hadn't.
+- We sit down with the kids every single night, not that I want to every night - sometimes I'd rather be out with my husband having a martini at a swanky restaurant - but we sit down with our kids every night at dinner.
+- I'm not in the business to make people aware of me, and publicists are very expensive - they're $3,500 a month! I don't want to spend that kind of money so I can get a stupid article in 'Interview' magazine.
+- We have friends in Italy who have these old stoves, and they turn out the most beautiful food. All you really need is time, the best ingredients, and love.
+- Sitting down at the table is a sacred event. It's the heart of the home. People have ginormous homes or crappy little homes, but the kitchen is where we always end up sitting. It's where the stories happen, the family happens.
+- My husband has the philosophy that if you can work a Nintendo control, you can chop an onion. So, we have our children in the kitchen. We sit down every night for dinner. We're trying to give our kids a sense of what's going into their bodies, and it's also good for family time.
+- I like acting. I really like acting. The career, it can keep you interested. With 'Entourage,' the characters are living a lifestyle that is kind of troubling. But the challenge is to make Shauna a person.
+- Being typecast is a great thing for an actor. I was considered one of the New York mob actors.

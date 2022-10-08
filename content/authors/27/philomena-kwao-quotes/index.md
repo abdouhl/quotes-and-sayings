@@ -1,0 +1,80 @@
++++
+author = "Philomena Kwao"
+title = "Philomena Kwao Quotes"
+quotes_len = "74"
+description = "the best 74 Philomena Kwao Quotes"
++++
+- Fat is fat. This goes back to the word 'plus.' We describe things. We are humans, and we need to describe things.
+- One misconception I think is wrong is that being a larger size means, somehow, that you're neglecting your body, or you don't look after yourself, or you don't love yourself enough to lose weight. We've been saturated with the idea that to be happy you must be thin, or to be healthy you must be thin.
+- Because of social media, it's bridged the gap between the advertisers and fashion and allowed people to find their group. It really widens what people are viewing and allows brands to see what the public wants to see.
+- As a woman of color and curve model, I never imagined when I started modeling that I would be featured in the pages of 'Sports Illustrated.'
+- When I started, there was only one other girl that I could name that was even close to my shade. I didn't understand why there weren't more black plus-size models with darker skin tones. It feels like the final frontier of beauty is to be black, to be plus, to have natural hair.
+- Women are hit especially hard in regions of ongoing conflict. Before, during, and after conflict, women bear the brunt of the consequences of war. They are left as the providers and guardians, responsible for rebuilding their country one family at a time.
+- I grew up in the U.K. and now reside in the United States, and my family is from Ghana.
+- I've inherited so much culture, beauty, and love, and I'm the perfect mix of Philomena.
+- Sometimes you never realise how much of an effect you're having on people until you're told, and the fan mail I receive has made me very aware of the positive effects I have on other people.
+- My goal is always to help other women with programs that help them live better lives, especially is areas where health care is missing. Both of my parents are from Ghana, where there is a need for health care in the smaller villages.
+- I'm from Ghana, in West Africa, and all the women in Ghana absolutely love shea butter. We use it for everything, head to toe. I've used it all my life.
+- My mom and my sisters have helped me to be comfortable with who I am. It's a process of loving yourself as you are. I can say that it's been a journey. I see the changes little by little.
+- 'Sports Illustrated' has set the standard for what a swimsuit model should be. For a magazine that has that much influence to include models of different body types on their pages shows that they're breaking down old beauty ideals while opening the doors of diversity and inclusivity.
+- It's refreshing when plus-size styling is exciting and pushes boundaries rather than safe and boring.
+- If I'm feeling really, really crappy, it sounds so cliche, but if I wake up extra early in the morning and do some sort of physical activity, I usually feel a little bit better. Or I do other things that make me happy.
+- I try my best to stay healthy by paying attention to the ingredients in foods and trying to make sure my food is organic and not full of sugar or preservatives. I also try to do at least 30 minutes of cardio every day in the gym.
+- New York City is one of the best cities in the world for walking: it's virtually impossible to get lost.
+- Everyone needs to realize the responsibility they hold and realize where they can make a difference.
+- By being present and being true, I believe that, in my own way, I am promoting diversity.
+- My best advice is to celebrate your own unique features and never put them down. There is beauty in individuality, and it's so important to appreciate everything your body allows you to do. It's OK to have a down day - we all do from time to time - but it's not OK to compare yourself to others.
+- Women need to be empowered to shape their own livelihoods and become CEOs of their own lives. They must be allowed to take control of important life decisions that are so often decided by others.
+- I think that the plus-size industry has been great with size diversity, but it hasn't really been great for skin tone diversity.
+- I think that we need to allow words to be words. If my self-esteem and my self-worth linger on words that are used to describe me, then you have a problem in itself.
+- My hair is extremely dry and fragile, so moisture is key. I love black castor oil, shea butter, and lots of water.
+- I try not to assign labels to myself. Sometimes I shop in the plus section, and sometimes I don't. I feel we attach too much significance to labels, and ultimately, it doesn't really matter.
+- Torrid has given me an amazing opportunity. I can reach out to different girls and help them realize that they are beautiful, too.
+- For me, diverse beauty is an affirmation of every single person in his or her own skin.
+- Health management is my passion, and I hope to further my career in that area in the future.
+- It's refreshing to see plus women being treated as part of the fashion community as a whole and not just a separate piece or separate different thing.
+- I think, for so long, women of different sizes have been pigeonholed, and with every campaign, it's always an adaptation of making fashion but for plus sizes. Sometimes it's in a little bit of a negative way, and plus is always a little bit slow to be fashion forward.
+- The curvy community has really given me a voice because people want to see someone who looks like they do. They want to know their beauty is valid.
+- Women I've met in different countries have told me that seeing my face in magazines gives them the courage to love themselves.
+- I have to congratulate L'Oreal on its True Match foundation range. It's my go-to foundation, and I absolutely love it.
+- Magazines don't go far enough to be inclusive and have at least have one model representing every major skin tone.
+- Put on your bikini, put on whatever you want to wear, and don't worry about what other people are saying.
+- I want to use my voice to better health care for pregnant women.
+- There is beauty everywhere. But if I had to narrow it down, I absolutely adore Beyonce. She's the ultimate icon for me. I also love Naomi CampbelI, Jourdan Dunn, Joan Smalls, Daria Werbowy, and Genevieve Nnaji.
+- I've been lucky enough to do a few editorials in the U.K., but I've never even been on a casting for mainstream commercial work. When I try to understand it, I think people are scared to try something new.
+- I have a green juice every day because it makes me feel more awake; it makes my skin healthier.
+- I think the real problem is all the negative connotations people have with that term. They think, 'Oh my God! I don't want to be 'plus-size!'' But people attach too much significance to terms. We can't let these terms define us or our beauty.
+- I think it's just that the fashion industry can only accept one thing at a time. It's like, 'OK, well, if we're going to add plus, then let's keep it hourglass and white.'
+- I believe I'm beautiful because I'm me. I also believe that if you can find beauty in everything, you can allow that to change your mind-set, and doing so makes you a happier person.
+- Growing up, I had body confidence issues, not really so much because of size but my skin color. I had trouble recognizing that the depth of my skin tone is really beautiful because whenever people referred to a beautiful black-skinned woman, you'd see Beyonce and Rihanna.
+- When I finally discovered the 'Sports Illustrated' swimsuit issue, I browsed through archives and saw a picture of an incredibly stunning model, Damaris Lewis. Her images inspired me, and I imagined being in the magazine myself. Never in a million years did I dream it would actually happen.
+- For me, less is more. I don't often wear makeup, but when I do, a little concealer and some powder go a long way.
+- It isn't hard to see how the lack of representation affects the self esteem of many women world wide.
+- My journey into modeling began completely by chance. I was in school finishing up my master's degree in health management and policy when a friend entered me into an online modeling competition.
+- Women of all ethnicities, complexions, and sizes want to be able to wear makeup and nice clothes. No one wants to go out and feel like they're substandard or that there's only one mold that they don't fit.
+- We have spent so many years looking at images of another beauty ideal and so many years taking in magazine covers and films that represent a beauty standard that we'll never meet. People don't realize that there are makeup artists and hairstylists behind the scenes - even in something as simple as a 'candid' Instagram photo.
+- Celebrate the things that make you individual and unique, and realize that there's no one in this world that looks like you.
+- Before I went to boarding school, I had never read a fashion magazine. I grew up on a council estate in London, and fashion magazines were a luxury item that weren't even on my mind. The closest I got to a fashion magazine was my cousin's 'Top of the Pops' magazines, where we would learn the lyrics to every song and put posters on our walls.
+- When you model, you don't really have control over your image. It can be a good thing, it can be a bad thing. It can be a good thing in the sense that, actually, you have to get reintroduced to yourself. You don't always get that opportunity in your normal life. You can kind of hide from yourself.
+- My mother was born in Ghana, but she moved to the U.K. when my sisters and I were born.
+- I try and work out as much as I can because when you exercise, it releases endorphins and makes you feel really good. I also make sure I schedule time with my friends, family, and loved ones because I realize that, as well as your physical well-being, you have to look out for your mental well-being, too.
+- If a brand wants a specific girl, they want a specific girl, wherever you are.
+- I hope to show people everywhere that you can be unapologetically you and still succeed. I also hope that by using more diverse models, brands can see that there is power in diversity, and not shy away from doing something new for fear of failure. The effects are bigger than just the fashion industry.
+- No woman anywhere should be denied access to quality healthcare because of race, ethnicity, or socioeconomic status.
+- If you call me 'fat,' it doesn't bother me because I just don't care.
+- In Ghana, most of the women I know do not identify as sexy, and the reason may be cultural. With imported beauty standards from the West, it seems that many African women feel they need to be fair and slim to be beautiful.
+- While education is hugely important, the ways in which women are portrayed in their communities are equally important. Portraying women as victims keeps women in a captive space and denies them of their agency: their ability to fight back and take ownership of their situation.
+- You can't say you're inclusive when you only have one plus-size, hourglass white model.
+- Fast fashion, whilst having increased the accessibility of stylish clothes for millions, has unfortunately resulted in many horrific practises, such as child labour, that exploit millions of people around the world in poorer, developing countries. This something that has to change, and we can all start by reflecting on where our clothes come from.
+- The brands that choose to use me, my agency and social media have given me a face and a voice.
+- There's not many models in the U.S. that have my depth - like, really dark skin - that are also plus size. Skin color has been one of those things we haven't really, really addressed on a large, widespread scale.
+- You cannot determine someone's health by the BMI alone. There are many factors that contribute to the health on an individual. If we're going to start using BMI to police straight size models, what's next? The plus size industry? To be honest, if it was down to BMI alone, most plus size models - including myself - wouldn't be working.
+- The #SwimSexy campaign is redefining standards of beauty, and I'm proud to be a part of it. My hope is that this campaign connects with women and girls of all ages, body-types, races, and backgrounds.
+- I think the fashion industry and the media industry in general have a responsibility to make sure that they celebrate the rich differences in all our backgrounds to make sure we don't fall into the trap of reducing beauty to one specific mold.
+- I love technology. I love the Internet.
+- Beauty, to me, is not a physical thing. It's a feeling.
+- Plus-sized women have been told for so long to cover up. Whether it's with a one-piece, a tankini, a bikini with a skirt, high-waisted things, we're always told to hide these things that society calls flaws.
+- Much noise has been about size diversity but not enough about skin tone diversity. It's time for this to change.
+- We are all beautiful.
+- I am from Ghana, and although Ghana is celebrated as a relatively peaceful country in a historically war-torn region, the issues of development and recovery are still apparent.
+- War and armed conflict disproportionately affect women and can turn what is supposed to be a joyous and beautiful experience - childbirth - into a horrific or even fatal one.

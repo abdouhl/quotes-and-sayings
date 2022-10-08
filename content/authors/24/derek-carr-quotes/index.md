@@ -1,0 +1,106 @@
++++
+author = "Derek Carr"
+title = "Derek Carr Quotes"
+quotes_len = "100"
+description = "the best 100 Derek Carr Quotes"
++++
+- I believe God gave me talent to play this game, and I'd be sacrificing those gifts if I didn't give my best every single day.
+- When teams see coach Gruden and myself run out on the field, they know, 'Hey, man, we are in for it mentally today.'
+- People didn't question my knowledge, my throwing ability or athleticism; they questioned my ability to stand in and take a hit. So to be able to answer those questions on a week-to-week basis has been pretty cool.
+- I just want to make sure that my teammates will be taken care of.
+- Once you're drafted there is no time to relax.
+- I got my process down, I got my way I go about things and I surround myself with good people around me and they've done a great job of protecting me.
+- Tough, gritty, those are things that have been in me since I was a little kid.
+- Every year, I find things where I can go harder into and things like that.
+- I want to be perfect at everything, knowing I'll never be perfect at it, but that's my goal.
+- If we win every game, that's all I care about.
+- I had to grow up fast.
+- Of course, anyone would want Marshawn Lynch. Any quarterback in the NFL.
+- I listen to the people that know the position. People that coach me. People that I always seek advice from.
+- We want to put pressure on the defense.
+- I had some definite weaknesses my rookie year that I had to work on and hopefully I've gotten better at those.
+- When I got to college, my coach let me handle everything, from calling the plays to changing protections to checking in the run game. He let me do absolutely everything at the line.
+- It makes you hungry every time you see another team celebrate a championship.
+- It's a good thing that me and Coach Gruden think the same way. Him and I are more similar than people even know. We just are... him and I think the same way, we watch, we study the same way and all those kind of things.
+- The best thing that you can do is show up every day and give it everything that you have, because anything outside of that is out of your control.
+- We have a goal of winning the Super Bowl and that's just where our focus is. It's like a laser focus.
+- I work my tail off to make sure that our city, our fans, our team, our coaches can enjoy winning.
+- I'll never forget when we won that game my rookie year versus Kansas City. We won one game, we were 1-10, and to sit there and watch everybody celebrate, there's nothing like it. I just sat there and enjoyed it.
+- Faith, family and then football. Those are my priorities now.
+- I've been 0-10, I've been in sucky situations.
+- I love Raider Nation. There's nothing like it.
+- I know that I've got some guys I want to put in the foxhole with me, and there's a lot of 'em.
+- At any moment, any second, my football career could be taken away, but my faith and relationship with God will never be taken from me.
+- God will put me where he wants me.
+- I don't care what stadium we play in.
+- When things get tough, a lot of people point fingers.
+- I'm very confident.
+- I don't care about the stats. That's not my No. 1 objective.
+- We want to go 100 miles per hour and cause confusion for the defense. It can be a lot of fun.
+- I feel like, even if a guy is covered, I can put the ball where it needs to be so we can have a successful play.
+- The game has slowed down for me. It's so much easier than it was. I feel like I see things better, and I can take advantage of what I see.
+- I have two big brothers.
+- I've been in hard times.
+- Football is important, but it's not the most important thing anymore.
+- When you're losing, crap happens.
+- The city of Oakland, since I got here, has been like my second family. They've taken me in and had my back through the hard times and they've celebrated with me through the good times. And so, I love Oakland.
+- I just want to be someone who loves his family more than he loves to drink.
+- I always want to make everyone happy.
+- I've broken a lot of things. I've torn a lot of muscles. I've torn a lot of ligaments.
+- You can see something on film, but until you're really out there playing against somebody and you see him for the first time, you don't really know.
+- I don't need to tell stories about how I prepare or manage myself.
+- Raider Nation is everywhere, literally.
+- We don't want to be paper champs.
+- There won't be a day when I stop working to be a better version of myself, so I'm going to keep working and I will get better.
+- It's one of those things that I use everything that I go through... to be better. I use it all to just fuel the fire, to grow and learn from.
+- I always try and give my best effort.
+- I think it's more important to pray for my son than go out with my friends drinking at a bar until midnight while he waits for me to come home.
+- I hate losing.
+- I'm hard on myself.
+- When you're an undrafted guy, it's hard because... you're not going to have the first- or second-team reps all the time, obviously.
+- It's the same mindset I had in college. As long as I come in and work every day, it worked in college and I'm just going to continue to grind my tail off here in the NFL.
+- We want to be better than 7-9. Honestly, 7-9 is not going to cut it.
+- There's times where I get emotionally hijacked, then I'll try and force something and do something.
+- I've rolled and torn ligaments in my ankle.
+- Having a big brother who taught me protections and blitz recognition has helped out a lot.
+- I broke my back, I broke my ankle. I didn't cry then.
+- Being in a boot is not fun. Being on crutches is not fun.
+- It'd be an honor to play anywhere.
+- When things are tough in training camp; when things are tough in season; when it's good, you don't want guys hitting too high or too low or depressed. It's just draining for everybody.
+- I'm probably one of the most competitive people you'll ever meet. I want to dunk on my nephews. I'll block my 2-year-old's shot to make it hard on them.
+- I love people.
+- My only focus was to be the best version of myself.
+- It really didn't matter how much work I had to put in... I was always going to give my best. And I think that if a lot of kids can realize that, and stick with that mindset, they won't get so stressed about certain things, and they can just live and play freely.
+- I think just that dog inside of you. When things suck, just to still fight.
+- We want to play fast.
+- I'm always trying to grow myself.
+- My last two years at Fresno State were 100 percent no-huddle, and I love it. I'm very comfortable in it.
+- Everyone knows with a rookie, you're going to take lumps. Even with a first-, second-, third-year guy, you're going to take lumps until you gain that experience. But for me, it was nice to get out there and get the experience and do it. I'm a guy that has to do it.
+- I had a whole bunch of things I knew I needed to work on from self-scouting. I knew on certain routes what I needed to do and ways to use my eyes and shoulders and manipulate coverage.
+- Everything can look good in theory and in practice it all falls apart.
+- Too many times I see kids come up to me, especially at the high school age, and say, 'Man, it would be cool to play in the NFL just because of the money.' And I'm like, 'Oh my goodness, you are missing everything, because money is not going to make you happy.'
+- Let's go fix problems that I have and let's do what I need to do to win championships.
+- Making false claims about somebody before you know them, and about a group of guys, that has no business in our world. If we're trying to promote peace and love, I don't think that has any place.
+- The only predraft talk I listen to is the coaches and the GMs.
+- I just want to play ball - and I want to do it wearing a silver-and-black jersey.
+- I'm a Raider for life.
+- I don't really like the business side of football, but I just like adding good players to our football team.
+- Add a good player to our team? Absolutely.
+- For me, if I didn't have my faith, the game gives you a lot of highs and a lot of lows.
+- If you see anything, you see I post a lot of Scriptures.
+- It's the most violent sport there is.
+- I don't give false claims any due.
+- In the second year of a system it's easier to get through your progressions faster.
+- When I put my helmet on, I'm ultra competitive, talking trash.
+- Patrick Peterson, obviously, is one of - it depends who you talk to - is the best, or one of the best, corners/return guys in the NFL. You just turn the film on and you're like, 'Wow, that guy plays corner? He looks like a linebacker and runs a 4.1' or whatever. He's a great player.
+- There's a lot of people out there who don't love football, and I don't want anything to do with those guys.
+- In my head, I'm a big Kobe fan.
+- During a game, sometimes you don't know how much you've scored.
+- My brother told me when I came in the NFL, if they cut Peyton Manning, they're going to cut you someday too. That's always a realization for anybody in our livelihood.
+- I still think having an older brother in the NFL is the coolest thing ever. But to see how it went down is sad.
+- I just want to win. I want to mess up the draft. I don't want the first pick.
+- There's not a throw that I can't make. And if I have to make it, I will make it.
+- I'm very much into legacies.
+- A game manager - I wish people would call me that. That's a compliment.
+- You can line anybody up against me and I'm going to throw against them. And I like my chances, in the most humble way.
+- Obviously it's hard to lose a coach; that's not fun for anybody because you care about him and you have a relationship with him. But as players, we just have to keep moving on.

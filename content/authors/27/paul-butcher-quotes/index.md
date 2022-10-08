@@ -1,0 +1,14 @@
++++
+author = "Paul Butcher"
+title = "Paul Butcher Quotes"
+quotes_len = "8"
+description = "the best 8 Paul Butcher Quotes"
++++
+- I believe the best influence you can have is not by being preachy, but by trying to live. For example, knowing you're not perfect, but trying to treat everyone kind and accepting everyone for who they are.
+- When I got a call to do the voice of Johnny in an episode of 'American Dad' titled 'I Can't Stan You,' it was a great opportunity to be a part of a really funny cutting-edge show on television. I really got into the character, and I was able to do some improvisation, which allowed me to mix in part of my personality into the script.
+- Being popular isn't everything; being true to yourself is!
+- For 'Barnyard,' I did the voice of a 'chick,' which was really a blast because I had to manipulate my voice to another pitch.
+- I don't go to the mall a lot 'cause girls scream and run at me, and I get shy.
+- The cast of 'Zoey 101' are like a family to me.
+- I do a lot of teen shows and voice over work for animation, so when I got the part in 'The Number 23,' it was really cool because now I get to be in a movie with Jim Carrey. Acting in this movie was really a learning experience for me.
+- Doing drama is a very welcome departure from comedy. Although I love doing both, I like to change it up a bit once in a while with roles in serious drama.

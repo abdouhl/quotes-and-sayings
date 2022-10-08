@@ -1,0 +1,22 @@
++++
+author = "Sasha Roiz"
+title = "Sasha Roiz Quotes"
+quotes_len = "16"
+description = "the best 16 Sasha Roiz Quotes"
++++
+- Portland's as good a place as any. The food is good, the people are nice. I'm in love with it.
+- With 'Grimm,' it's a lot of fun for me to be able to play within the familiar world of fairy tales. As for satisfying my inner fantasy geek, anything that would have me wielding a sword or shooting a bow would be a dream.
+- It's been a lot of fun from script to script to get inside the mythology of 'Grimm.' We've been given a lot of freedom to explore the mythology as well as the backstories and interpersonal connections of the characters.
+- For me personally to come back to Toronto, I lived here for three years. I always love coming back here.
+- Guest roles are how you get initiated into the industry. It's fun. Over the course of a few years you realise you've done many shows. You get a chance to prove yourself, and that's how you get jobs because of people who have worked with you in the past and trust you.
+- I enjoy being active; it's part of my lifestyle.
+- I'm of Russian-Jewish background. Like many Soviet Jews, my parents were engineers. My family migrated from Ukraine to Israel when I was six. They arrived in Israel with very little... Within a year of arriving in Israel, the Yom Kippur War happened.
+- I went to theatre school for four years and just wanted to do theatre. I had no ambition to be on TV or to be on camera. I just wanted to go to New York or London and be on stage... I did a lot of theatre in Montreal, got involved in TV in Toronto and then moved to L.A. I hope that film and TV will take me back to theatre.
+- I have this tendency to play these horrible, horrible characters.
+- With every episodic, there's a learning curve where writers try to find the voice of the characters by way of the actors. Many details are found along the way. On 'Caprica,' although the franchise already existed, we were creating an entirely new world full of new characters.
+- You forget things like how accessible the city is, I bought a bike - I haven't had a bike in twenty years.
+- I wasn't a 'Battlestar' fan, but I had a lot of respect for the show. I had a lot of friends who worked on the show, and I had seen a few episodes. but I was more attracted to it from afar, from the respect and awards it had received to the loyal viewership that it had. That piqued my interest a lot when the opportunity for 'Caprica' arose.
+- I enjoy working on a series and having a long stretch of time to get to know and connect with my cast and crew. It also gives me the ability to play a character over the span of countless hours of television.
+- I enjoy the writing process and producing; I enjoy seeing an idea come to fruition. I'm driven by very complex characters. You look at the pilot of 'Breaking Bad,' where there's so much depth to the character, you can't help but be invested when you watch.
+- There seems to be a real taste for the fantastical these days. People like to get back into their imaginations. Maybe there's something a little nostalgic about 'Grimm' and the fairy tales that they grew up with. And it's a very unique approach to the procedural side of things.
+- A lot of my friends are gay, and certainly I have no tolerance for anyone who has any sort of ignorance or restriction on people's lives or love lives.

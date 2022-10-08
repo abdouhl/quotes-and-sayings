@@ -1,0 +1,39 @@
++++
+author = "Sandra E. Peterson"
+title = "Sandra E. Peterson Quotes"
+quotes_len = "33"
+description = "the best 33 Sandra E. Peterson Quotes"
++++
+- If you look at my career, I've taken on a lot of risky roles.
+- The signal of the importance of something is whether you're actually measuring it and you're holding people accountable to improving those numbers.
+- When I walk into a new organization and I don't know the industry or the people, which has always been the case, I do a few things. One is I think about the business from the outside in.
+- One of the things I've learned is people are smart, and they understand what should be done. They understand what the challenges are, but they're not always able to have their voices heard.
+- I always remember what's the most important thing - my kids.
+- Honestly, my secret is I pick really, really good people around me.
+- It's critically important for Europe to have a different way to think about the role of agriculture in society and the economy here.
+- Most women I know who have been successful in business, it's because they've been willing to take on the risky challenge that other people would say, 'Oh, I'm not sure I want to do that.'
+- Anyone who ends up being a leader of a large complicated organization, whether you're a male or a female, you're working an immense amount of hours, and you can't do everything. You can't have complete work/life balance.
+- I consciously make an effort to get to know some of the women who may be in the middle of the organization - they're not at senior management levels - and try to figure out whether there's a new opportunity they can take on that enables them to shine and succeed in a way they may not have in the past.
+- I don't believe in management by fear. I also won't sacrifice the future of a company for a quarter.
+- I don't compromise at all on how people lead and manage other people. I don't want to work in an environment where people are belittled and berated.
+- The reality is that unless you understand the regulatory environment and payment structure, you can't revolutionize it. I think most tech companies and startups have come to this realization: that you have to partner with people in the ecosystem.
+- I always remind my team to take a step back and ask themselves, 'Why are we doing this?' For us, 100% of the time, it is to better serve our patients, consumers, and customers. This is a great question to come back to when your team is losing focus; it reduces stress and mobilizes people to get excited about the collective possibility.
+- Saying you must rotate three crops a year, a certain percentage of your land must be set aside, and some of the other proposals, my sense is that it's a little anti-technology, and the ability of European farmers to feed Europe is reduced as a result.
+- The people inside the company, generally two to three levels down, they know best what's wrong and how to fix it. It's just that their voices aren't being heard. I listen for words, tonality, and language.
+- There is value in finding a combination of internal people, stretching them and seeing their potential, then marrying that with someone from the outside.
+- Build an environment that empowers your team to take risks. Set metrics for what needs to be achieved and measure against them to track progress along the way. If targets aren't being met, challenge your team to reassess and come back with a new strategy. And create a culture where people are awarded for challenging the status quo.
+- People need to go back and remember what it was once like to lead businesses in emerging markets.
+- Men don't quite know how to read women if they're not used to seeing them in a business environment.
+- As a woman, this is one of these areas where you have to walk a fine line: the classic, 'Are you soft and squishy, and you hug everybody, and you're a cheerleader?' versus, 'Are you the hard-nosed you-know-what female dog?'
+- When I was not working, when our children were little, our life was all about our kids and our relationship. We didn't spend tons of time going off and spending time with friends and going on vacations alone.
+- Bayer CropScience aims to lead the way in sustainable crop solutions, and we are heavily investing in R&D, as well as production capacities, to respond to global demand for differentiated crop solutions.
+- Agility is fundamental to leading a team through times of change.
+- The thing that has not had enough attention is really thinking about how to use modern breeding techniques to really look at the germplasm pools and find ways to actually improve yields and to improve the heat and drought tolerance of these crops.
+- It's not about me. It's about the organization being successful.
+- Managing through ambiguity can be difficult for even the most experienced leaders. Defining a clear set of goals for your team demonstrates that there is an end in sight. However, it's crucial during this time to move through the transition in phases.
+- It's hard not to identify with some of what Hillary Clinton is up against.
+- I don't need to spend hours in meetings, because I can have a two-minute conversation with a colleague who is pretty damn smart and who knows how to get the job done. And, if he needs my help on something, he'll let me know.
+- 'Women on Board' provides a roadmap for high-performing women leaders to join high-performing boards. It is a must-read for every sitting board director, man or woman, and for everyone who aspires to a corporate board seat.
+- I am very comfortable not being the expert and actually putting people who work for me forward. I don't need to know all the answers, and I don't need to be the one who's out there up front.
+- There's still a narrower band of acceptable behavior for women than men.
+- If I'm sitting in an office, I'm not doing my job.

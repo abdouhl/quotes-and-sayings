@@ -1,0 +1,106 @@
++++
+author = "Devin Mccourty"
+title = "Devin Mccourty Quotes"
+quotes_len = "100"
+description = "the best 100 Devin Mccourty Quotes"
++++
+- It's the NFL. It's simple. You either get it better or you have to look for a new job, so I think we all understand that.
+- To me, when you play in the middle of the field or when you play safety, you have to do so much communicating that you've got to kind of watch the whole offense. You can't just pick a guy or just pass plays.
+- When I think about the Patriot Way, I think about a team.
+- I'm not a big trash-talker.
+- You always want plays back; you want to do things differently. It doesn't control your day-to-day, but you always think about it.
+- Like I always say, the goal every day is not to get fired.
+- There's no individual that's bigger than the team.
+- It's just a tremendous feeling that you come from losing your father at 3 years old, to now, you and your twin brother in the NFL. A dream.
+- The power of positive thinking can change your life.
+- As you get later into the season, you always have to be prepared for if a guy is up or down, and that's something we talk about constantly.
+- Two teams trying to win a football game at the end of the season is going to be chippy. It's going to be everything from pushing and shoving to fighting for extra yards.
+- I always believe in servanthood. It's about not elevating yourself to a positon of power. It's about humbling yourself to the last guy on the roster and try to help him do his job better. That's what my approach has always been.
+- My mom has done an awesome job with all my brothers of instilling in us how to give back, how to make a difference. Everything I do is to try and make her proud.
+- I never thought I could play safety in the NFL.
+- I mean, I love New England. But after 10 years and winning three Super Bowls, something inside was telling me that I was ready for a new challenge. And I thought I might have to go elsewhere to find it.
+- Don't lose sight of what made you who you are.
+- Like I've always said, there's a lot that goes into being a football player that isn't the playbook and being on the field, but having everything worked out in your personal life.
+- Contract year isn't what everyone else talks about. For a player, it's just another year in the league.
+- Free agency is always interesting, exciting, sad. It brings all emotions.
+- The game slows down each game you play, the more you play.
+- That's always the biggest thing, especially in the secondary, is building not just communication and everything but friendships and bonds of off-the-field stuff and things like that.
+- So much of my development as a football player and as a man has been here in New England, and it's an honor to hopefully be able to finish my career here and be a Patriot for life.
+- It's always good to get back to football.
+- Rutgers didn't want me at first, but they wanted Jay. So I did what any smart sibling would do - I rode his coattails all the way onto the banks of the ol' Raritan.
+- We have to stop any offense when they're operating at their best.
+- When you go into a different stadium, you know there's no home crowd, there's no energy coming from the crowd for your side.
+- There is always going to be a Super Bowl winner, a league MVP, a Super Bowl MVP, great defenses and offenses. But I think to be part of real change - you talk about athletes like Muhammad Ali or Bill Russell - when you are able to do things that truly affect not just the game, but people everywhere, you find true meaning.
+- I think when you look at the NFL, I think people try to highlight the negative things. So, I think anything that brings a positive light to our game and to the men that go out here and sacrifice and put their bodies on the line and still use their free time to give back and help other people out, I think that's what it's about.
+- Something so simple as breakfast and eating the right things and making sure you eat breakfast was key to us, and it helped me specifically when I got to college to gain weight and get on the right nutritional plan.
+- I always tell people the hardest thing is competing against the guys you see every day because any of my strengths that I like to go to, they see that every day.
+- If you're trying one thing and that's not working, try something else.
+- When it comes down to why we play football, we play to win.
+- All these systems are in place for the black race to fail, to always be underneath.
+- I was actually a Cowboys fan growing up, so I didn't care much for the Jets or Giants.
+- You know, I think when I was young, I was just always worried about how I was going to fit in, what I needed to do to be better. I think now, as you get older, you kind of think more as a team concept of, 'How do I get everyone on the same page?'
+- I don't know technique-wise, just I've always tackled the same. I've never even really thought about how I tackle or any of that.
+- There are so many good players, so many good coaches.
+- When you sign up for different jobs, you kind of discuss it as a family, the hardship of that.
+- It's always exciting to have a guy you played with in college as a teammate in the NFL.
+- I think the more you can kind of decrease yourself and kind of increase other people's stories and give them the light, I think that's what it's all about. Whether it's community service or giving back to the community in different ways or helping people, it's not about yourself.
+- My father was in the Army. My older brother was in the Army. Those men and women go out there and put their life on the line. I respect that.
+- At the end of the day, when you have more points than the other team, you win. So, defensively, it's all about not giving up touchdowns. It's about trying to keep them off the board.
+- The only thing that helps you play better is being ready to go against your next opponent.
+- I think as an away team, if you like that type of atmosphere where everybody's against you, you know it's going to be just you and your guys there for three hours trying to get a win. When you can get a win in that environment, I think it builds great character.
+- Obviously Massachusetts has one of the best public school systems in the country. But there are schools, like in Brockton, where kids are struggling because they just need more funding.
+- When chasing success, you never know where it will take you.
+- You don't forget any time you play for a championship and you don't win it. It's just something that sticks with you.
+- That's a part of being a good football team and being good players is when it's time to go play and turn what you've practiced, what you've watched, into the game reality, we've got to go do that.
+- Don't just be successful, but redefine success and then do it again.
+- At the end of the day, we try to get wins. We just go out there and play.
+- Davante Adams is a great receiver.
+- I watch a little 'SportsCenter.'
+- I always think if you're blessed and you've got great opportunities for some reason, you really should go and try to pass that blessing on to other people and go on and try to give them opportunities they wouldn't have and try to be that blessing.
+- I'm a physical guy. I'm not scared to compete.
+- You can't take momentum and how you played from a win and think you just carry it over to the next game, and you can't take a loss and how you felt after and think that you can just transfer that and that's going to help you play better.
+- I think adversity hits people and we all know what to do when adversity hits we keep praying and we find hope.
+- I think as you get older, you realize football as a whole isn't guaranteed.
+- The funny thing is everybody wants to win a Super Bowl, and it really doesn't change anything in your daily life.
+- As much as we love the game since we've been playing it since we were kids, it's still our job.
+- I think the NFL is always going to put their interests in front of everything.
+- Coming out of high school and college, I wasn't really the top guy.
+- In the beginning of my Rutgers journey, I had to learn fast that I would have to continue to redefine success. I had to understand that things would not just come to me.
+- I'm not a QB guru.
+- I'm proud to be a part of the NFL.
+- We love this country, but it doesn't mean we can't improve it.
+- We thought playing in the Super Bowl was nerve-racking until we went to the Massachusetts State House to testify for an education bill.
+- The reason I got into sickle cell was my aunt has the disease, my uncle has the disease, and then the more I looked into it, a lot of minorities have the disease and it just doesn't get covered. No one really talks about it, and I felt it was the same thing with the different social injustice issues and topics that I kind of dove into.
+- I think my goal is always to win as many games as possible.
+- I think it's always good when you work out with your teammates. You just develop a stronger friendship, a stronger bond.
+- It's always fun going back to Rutgers.
+- You're not going to be as good as you're going to be at the end of the season in your first preseason game.
+- We've been playing football for so many years that people kind of forget we're also college-educated, so we know how to get something, study it, go out there and try to inform people.
+- That's what coaching is: It's watching film and putting guys in the best position.
+- Yeah, I mean, listen - anybody that's in the NFL is a good player.
+- I think that's the cool thing about playing at home is your fans are going to come out, and then it's up to you.
+- The StairMaster - that thing is tough, man. You put it on ten and just go.
+- I think that's everybody - you want to win every game.
+- Players have already done a lot of groundwork trying to fight systems, I think we have to continue to do that, and as things happen to play out.
+- In the NFL you can't say this game is the biggest game ever and you get all pumped up and you go win and then you're like 'alright we did it' and then you go out and you play bad for the next two or three. Like every week you've got to be ready to go because they're all big games.
+- Every time I've played in the postseason, it's another huge accomplishment that I want to take full advantage of and go out there and play my best for the team.
+- I try to be an example for guys who first come into the league of how you can have a huge impact off the field and on the field. For me, I'm going to continue to try to do that.
+- I think that every guy who has come through New England would say that he gained a lot of knowledge and experience that made him a better football player. But they also learned what it means to be a better teammate, a better husband and a better father. I think cultivating that kind of atmosphere is something we take a lot of pride in here.
+- Let all your moments of self-doubt, fear, or disappointment fuel your drive to be great.
+- I think the biggest I learned when I got to the NFL is everyone is different. We have guys from all over. We believe in different things. We do different things. At the end of the day, we all come to the facility for work.
+- I truly believe what we do off the field has a way bigger impact than going out there and winning games.
+- I think the NFL season starts with the first three or four games and all the predictions come out. You're either great on offense, bad on defense, great on defense, bad on offense. You're either going to have a Super Bowl chance or you won't. And I think after that, people kind of think everything's set in stone.
+- You're not going to just trick Aaron Rodgers 80 percent of the time. It's just not going to happen.
+- Losing sucks.
+- I think a lot of trust is done even off the field. When you get to know guys and you see their story, you understand what they're about and what playing on a team means to them.
+- I don't think you ever come into the season and talk, 'Super Bowl, Super Bowl, Super Bowl.' It's about improving and winning games along the way as you improve.
+- There's been a lot of legends that I've gotten the opportunity to play against, some to play with. Those guys, sometimes they retire or different things, younger guys come up, they start over them.
+- I believe in this country. I love this country.
+- Failure is a feeling long before it becomes an actual result.
+- I think you can't have swagger when you're giving up 30 points or four- or five-hundred yards.
+- As we've gotten older, we've used resistance bands more and more.
+- I think in this league, that's how it works. You're either getting better or you're getting worse.
+- As a DB you're trained to never look for a flag.
+- Especially in the secondary, a lot of your tackles are usually going to be in the open field, one-on-one tackles, so you can't be out there thinking about making a pretty tackle or having the ground ooh and ahh.
+- Film wise, I always just kind of watch the offense overall.
+- Yeah, I think that's the best part of being nominated and receiving awards is whatever you care about that you have given time to, have served different people, you get to spotlight and highlight that.

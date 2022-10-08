@@ -1,0 +1,106 @@
++++
+author = "Priyadarshan"
+title = "Priyadarshan Quotes"
+quotes_len = "100"
+description = "the best 100 Priyadarshan Quotes"
++++
+- I decided not to work with those who do not believe in me.
+- I was a mad obsessive cricket player as a student. Then during one local match I nearly lost my eye.
+- Basically, it was important to break the belief that commercial filmmakers can't make realistic movies. I broke it.
+- I am proud of the fact that I am the first South Indian director who has been accepted by Bollywood wholeheartedly.
+- In the history of Indian cinema I am the only South Indian director who has survived for 12 years and 25 films in Bollywood.
+- With each film of mine, I was learning about the art of movie-making.
+- 'Hulchul' is a family comedy. You can call it 'humor around families.'
+- 'Hungama' leaves all problems behind and just lets the audience have a good laugh.
+- I was so sure 'Doli Saja Ke Rakhna' would do well, but when it didn't I lapsed into depression.
+- A shot of Shyam Benegal inspires me a lot. I wonder why a film of David Dhawan cannot have a shot like that.
+- There is a scarcity of writers in Bollywood.
+- I have always been a workaholic.
+- I feel it's easier to scare or thrill people than to make them laugh.
+- If you are thrilled about a screenplay, execution never becomes a problem, so that's the way I have achieved 75 films.
+- Mohan Lal is my favorite actor, so if I am saying that Salman has performed better, you can believe how much he has done. Salman is better looking, so that's his plus point. Lal is the more realistic actor, but Salman is a better dancer. So there are things you can't compare. Both are good in their own way.
+- In Hindi film industry, the maximum one can do is try and make a film like 'Badhaai Ho' or 'Andhadhun,' but if I want to make something of the level of 'Kanchivaram' it is impossible. If I will make that kind a film, it will have no traction.
+- American films look at films with a larger than life attitude while the French films look at life as it is.
+- How many remakes are really successful? From 100, 98 are failures. That's because those films are remade without taking into consideration the sensibilities of the audience. I don't do that.
+- If you want to sell a film, you have to make it in an exaggerated way. Otherwise, you have to make it for your own satisfaction.
+- I thank my dad for giving me a good exposure to comedy since childhood. He was a librarian and I would read a lot of comics.
+- People expect a lot from a commercial director. It's not right to always expect another 'Viraasat' from me.
+- I am scared of my overconfidence.
+- In front of the camera, I find it difficult. As far as the actors are concerned, it is easy for them to do it but not for me.
+- When I did a film with Salman Khan, he used to get up at 5 in the morning for shoots. If I can handle Salman then I think nobody in the industry is a problem.
+- 'Hera Pheri' is inspired by 'Laurel and Hardy,' Charlie Chaplin. It is about humor of poverty.
+- I have made films on humor of poverty because I have lived in a lower middle class family.
+- I have come to make Hindi films to cater to a certain kind of audience, which looks for entertainment. I feel my strength here as a director will fail if I ever try something experimental.
+- Most of Hindi films I made are remakes of my own films.
+- Mohanlal can play anything, and it's not 'playing' - it's becoming the character.
+- When I went to Bollywood and used to give actors instructions, many of them would tell me that I am acting out exactly like Mohanlal. I learnt from one of the best actors in the country and I am proud of that.
+- In 'Snehithiye,' I adopted a Hitchcockian approach on the premise that a woman's only friend after marriage is her husband.
+- My intention when I make a film is very clear. I make it for a certain kind of people who have average intelligence - because I am also like that. I have an average sense of humor and an average brain.
+- Every director will dream of doing films in Hollywood. I want to show my talents there, too.
+- In Kerala, people are more educated, so you can have subtlety in Malayalam films.
+- The trend the world over is comedy. People have enough tragedies in their lives.
+- When I look at all my old films, I feel as if they're badly done, because I have improved.
+- I think casting in a comedy is all important.
+- I've been a big dreamer from my childhood.
+- I enjoy making films. I have made all kinds of films, including action films, romantic films, period films like 'Kala Pani.'
+- Every actor has his or her own style, so it is the duty of the director to mould it the way they want.
+- India is the country which makes the maximum number of movies. Cinema is one of our religions.
+- As for 'Garam Masala,' everybody knows what kind of film it is. It's the type where you keep your brains at home.
+- I don't force humor into a film, it comes naturally to me.
+- In Kerala, we prefer slower films unlike the Hindi audiences. Here they want fast films with action in every frame. Also, we don't have too many songs.
+- In spite of not taking big stars, I have survived in the industry.
+- It is very challenging to make a fresh screenplay based on a used plot.
+- Bollywood movies ignore screenplay, if you notice whichever movie is a hit has an interesting screenplay.
+- See, I am an ardent fan of David Lean. I cannot do a shot like David Leans' in a Malayalam film because the budget does not permit me. Those dreams, I mean the glossy dreams of mine, can be fulfilled only in Hindi films.
+- Personally, I don't claim to be a great director. My films are made for children, not intellectuals.
+- I am not involved with 'Hera Pheri 3.' I have told the makers that I am not interested.
+- I want to appeal to family audiences, I would never want to alienate women and kids.
+- Most stars are bad. Even a few big heroes I have seen are dumb.
+- I have always been saying that we are making a mockery of ourselves by sending such idiotic films to the Oscars. This is very sad. We have great filmmakers but none of their films are sent to the Oscars, why?
+- All directors from the South go back home as failures... I didn't want that to happen to me. So, I became a factory, determined to produce successful goods.
+- It is jealousy that leads people to tarnish you.
+- It is the success of 'Hera Pheri' that made me do more comedy films like 'Hungama,' 'Malamaal Weekly' and 'Bhool Bhulaiyaa.'
+- Mohanlal and I have done nearly 40 films together, many of them comedies.
+- Tamil films have to be faster than a Malayalam film but not as fast as a Hindi film.
+- Ideally, I like to make my films within 30-40 days, because if it takes longer than that, everyone involved loses interest.
+- I don't think majority of the audience associate Mohanlal with a creative, genius artiste; it's just that they see themselves in him.
+- I don't put seriousness in Bollywood movies. Because in Bollywood, people want entertainment even if it has no meaning.
+- Experiments don't always pay.
+- I don't make movies for pseudo-intellectuals. I don't want them to watch my films.
+- Working with Salman Khan was a great experience.
+- Because of the excellent training in Malayalam cinema, where we have very tight budgets, you are forced to make it work in a small budget and at the same time you have to tell the story effectively.
+- What attracts me to Hindi films is the monetary benefits connected with it.
+- When people tell me that my films make them smile, I feel like I'm doing a social service by making these light-hearted comedy movies.
+- I love cricket. Thankfully, I didn't make a career out of it. Otherwise today I'd have been working in a bank.
+- Whatever I have achieved is all thanks to my team. I always say that I don't repeat actors as often as I repeat my technicians.
+- I feel something unusual is always attractive for people. But at the same time, it should be entertaining.
+- I emphasize the technical aspects in all my films, not just Hindi.
+- A lot of times, projects happen just to influence the distributors or buyers.
+- One cannot survive in Bollywood without focusing on entertainment.
+- I make films for money and fame. But I made 'Kanjeevaram' for recognition.
+- Many times when you request an actor to do a film, they show respect to you, offer you coffee and nicely they will avoid you because maybe they don't trust you.
+- I think I am a good actor myself. If I wasn't a director, I would have been an actor.
+- I was a great fan of Charlie Chaplin, Laurel and Hardy; they always inspired me.
+- I don't believe in Rs. 100 crore club, I only believe that the producer should make money.
+- I have a fascination for cartoons. No matter how many times 'Tom and Jerry' fall, you never complain, and watch it again.
+- I strongly believe that producing and directing will not go together. If you want to be producer, don't direct.
+- I felt shaky, then 'Hungama' worked, and I signed films left, right and centre to kill my insecurity.
+- My Hindi remakes are better than my originals except sometimes, the Malayalam actors perform better.
+- It is a lot more difficult to make a typical Bollywood film than a realistic film.
+- I am comfortable in Tamil.
+- Realistic non-commercial films offer you a lot more liberty as a director than a usual film.
+- When I saw the original versions of 'Virasat' and 'Gardish,' I felt the content was so good but that they had shot the films very badly. I knew that if I could get such content, I could shoot it much better. That was what I did.
+- I always say I have so many known devils and I prefer them over unknown angels.
+- I am very stressed while working; I never see what is happening around me.
+- When the actors look your character, half the problems are solved.
+- With 'Kanchivaram,' I have tried to study why the dream of an equalitarian society was defeated by an individual's aspirations.
+- Shah Rukh and I have been thinking of making something together, but nothing has materialized.
+- When I made 'Hera Pheri,' there was a huge poverty in Hindi cinema for comedies.
+- Mohanlal has nothing left to prove. He has won many awards.
+- Romance on the screen happens even with people who do not have off-screen chemistry. To bring that out from them is my job.
+- I've done so many genres of films in my career; I've done 91 films so far. But never a thriller. That's how 'Oppam' happened.
+- Never make your actors do comical faces. Let them be serious and let the situations make people laugh.
+- Without critical acclaim, you are just a successful commercial director, and nothing more.
+- No big Hindi film star wants to work with me. They are busy with their own dreams.
+- I feel bored if I sit for 10 days at home. I take only 30 days off for my family in a year.
+- It is true that I got recognition. But however good the comedies are, nobody will accept a good comedy director as a good director. That is the sad part of it. Nobody knows who directed the 'Laurel and Hardy' movies. They know only Laurel and Hardy. Directors will never get a good name if they direct a comedy film.

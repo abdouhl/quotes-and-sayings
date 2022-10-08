@@ -1,0 +1,106 @@
++++
+author = "Victoria Coren Mitchell"
+title = "Victoria Coren Mitchell Quotes"
+quotes_len = "100"
+description = "the best 100 Victoria Coren Mitchell Quotes"
++++
+- When I met my husband, he had never spent more than £10 on a haircut.
+- If you find it difficult to draw a neat line with an eyeliner pencil, start with a big, thick, wonky line and then reduce it with eye makeup remover. This is serious advice. I do this every single time I put makeup on.
+- It is weird, the relationship between people and food. It's always deeper than you think. It always stands for something else.
+- The Highway Code can't be that difficult to understand, and yet my brain seems to treat it as a set of nuclear fission instructions in Old Japanese.
+- Socks and sandals together are absolutely fine, as long as your flares are wide enough to cover your feet.
+- The key to nature's therapy is feeling like a tiny part of it, not a master over it. There's amazing pride in seeing a bee land on a flower you planted - but that's not your act of creation, it's your act of joining in.
+- Insomniacs will be familiar with that disastrous moment as you lie there in the dark, with your eyes shut, when you think, 'What does my brain actually have to do to make me become asleep? What is the difference between that state and this? Why is the weird, invisible change not happening tonight?'
+- Makeup is only fun if it's occasional and capricious - just like it's a treat to have an empty day ahead, but it wouldn't be if you were doing 20 years in Parkhurst.
+- I'm not a luddite. Science, computers, medicine, they're all great. But nature is context. That which we can't control. Its constant mortality and immortality is an answer to the terror of finite existence. It reassures the soul.
+- Being bored by clothes shopping feels smart and intellectual: 'Ooh, get me, insufficiently entertained by racks of skinny jeans; my mind is on higher things.'
+- Never take your makeup off before bed. Sleep in it. That way, you're all ready to go if a hot postman rings the doorbell early.
+- I'm just a poker player who does a bit of TV.
+- I know that I'm probably far more pedestrian and less talented than many who dreamed of becoming writers but couldn't see the road so easily.
+- I play quite an old-fashioned game of poker. It's a lot about getting a sense of people at the table rather than the maths of the thing.
+- I have cared so much and so little about the cars I've owned.
+- Anger at the wealth gap is no longer about dukes in horse-drawn carriages; it's about vast, tax-dodging corporations. This will not be assuaged by seeing the royal family claiming to live like we do. If anything, that will make us angrier.
+- I had an instinct to take my husband's name when I got married. It felt like a romantic statement of pride, love, and permanence and of doing what's always been done in my family.
+- The phrase 'working mum' makes me nervous.
+- Casino games such as roulette, blackjack, baccarat, slot machines and so on, are stacked in favour of the house.
+- I've always hated the idea of carrying grudges and resentments around like a load of mouldy suitcases.
+- Driving a car is no longer about zooming down clear lanes, the joy and freedom of the road flowing through your hair like a fine westerly breeze. It's about solid traffic, petrol fumes, spy cameras, eco-guilt, and simultaneous social media.
+- I like the fact that the weather forecast is always wrong. In a world of BlackBerry insta-connection, Google research, and Hadron Colliders, it is a daily reminder of the ultimate ignorance of man. It is a signpost towards all the enormous things we cannot understand.
+- I was a sporadically bossy child.
+- I tried doing yoga to see if it would make me a more patient person, but I lost interest after about six minutes.
+- I remember I had a copy of 'David Copperfield' that I lugged around at primary school. I started reading it when I was seven, and I was eight when I finished it. I read an awful lot as a little girl and played games and imagined lots of things.
+- Everyone likes a pair of comfy shoes. But is this an automatic right? Comfy shoes are clearly not allowed at the Oscars, for example. Why should criminals enjoy a treat that is denied to our favourite actresses? All prisoners, male and female, should be obliged to wear high heels. This would also make them easier to catch during riots.
+- In 'The Pianist,' Polanski transformed his ghastly knowledge of the camps into an act of artistic self-expression.
+- When I was at school, I got into trouble quite often.
+- I like snow, but I don't want to live in Siberia.
+- When I was 15, I still liked climbing trees and hiding in cupboards.
+- Seeking to ban things is as bossy as you can get.
+- It is impossible to identify a nice scent from within the chemical cloud of a perfume department.
+- The millions who watch 'Downton Abbey' do so neither relating to the Granthams nor hating them. It's an amused enjoyment of spectacle.
+- I am terrible at doing nothing. I'm not brilliant at doing one thing at a time, either. Ideally, I would fill out my tax return while watching a film; peel potatoes while reading the post; send emails in the bath.
+- We all look stupid in patterned tights.
+- Half the point of education is to build peer groups and social bonds.
+- You will enjoy the TV and radio forecast much more if you stop taking it as advice and simply treat it as a short poem about the weather.
+- My own, purely personal view is that reading, study, poetry, and scientific experiment might be more rewarding than a job or children, so I would never advise anyone against university if they're going for the right reasons.
+- I'm convinced we go to school at the wrong time. I'd have been delighted, aged 12, to get out into the world and earn some money doing something menial.
+- I'd like to be more decisive. I can take an hour to choose between two brands of washing powder in the supermarket.
+- I won a prize for 'best sponge cake' at the Clacton Festival 2005. Having said that, I was only up against three other cakes.
+- Politics is a pure meritocracy. That's why Gordon Brown's cabinet had two brothers and a married couple in it. They just happened to be the best people around.
+- I do feel incredibly lucky to be making a living at things I love doing.
+- I don't quite comprehend what Kim Kardashian is, where she came from, or why we talk about her.
+- I know schools don't have money for everything, but I wish they could all have a couple of violins for kids to try; a couple of cellos, perhaps a bassoon.
+- Pudding is not a human right.
+- The older you get, the more 'mindfulness' becomes about trying to remember why you came upstairs.
+- I've never danced while driving, nor put on makeup.
+- It's not that I can't find art beautiful. I just don't know what to do, standing there in the gallery. I don't know what to think about. Once I've seen it, I've seen it; that takes about two seconds. I am interested and then immediately bored, immediately.
+- I was never, in my whole school career, given a job as a monitor, a form captain, or a prefect. I never won any kind of prize.
+- I pay higher premiums because my speeding points spell 'recklessness' to the insurance company, but you can't imagine how risk-averse I am at the wheel. I only go over 30 at all because it's dangerous to drive too much slower than everyone else.
+- You can always recognise my restless peers and me; we are the people whose feet you hear tramping along the pavement at the other end of the phone line because we can only make calls while moving.
+- I've never understood why the knowledge training and rigorous testing of London cabbies isn't rolled out all over the U.K.
+- They say multitasking is a female trait, but it's not about gender; it's about personality type.
+- I've never seen any 'Star Wars' movie.
+- Video piracy is among the most irritating aspects of modern life for those who work in the film business. Adverts telling you not to commit video piracy are among the most irritating aspects of modern life for those who don't.
+- I'm really bored by the constant vilifying of people (especially women) for things they didn't say.
+- I don't really think of myself as stupid - but then, who does?
+- I can't believe that 100% of the people who stand in art galleries looking at art are thinking, 'Well, here I am, looking at art.' They must be having some sort of other, unselfconscious experience.
+- I have a complicated relationship with the zoo; maybe everyone does. It's so wonderful and so sad.
+- I can be a bit weird, cross when I'm cross, tired when I'm tired, and hungry when I'm hungry.
+- People have become desperate to reduce everything, including each other, to mindless categories of good and bad, as if the world can be divided into Facebook likes and dislikes.
+- Given the choice, the majority of children wouldn't go to school at all. The whole thing's ghastly.
+- Sometimes, the only reason to watch anything acclaimed is on the off-chance you really hate it.
+- Anyone who's tuned in to the House of Commons TV coverage knows the benches are often empty. I like that. I'm a big fan of political transparency. It's good for us to know which debates the MPs consider important enough to show up for, and which not.
+- Given the choice, I'm sure the majority of children would rather have a packed lunch than school meals.
+- Society is notoriously stupid in its failure to harness the wisdom of older women in everything from television to politics, family life to boardrooms, and here is one reminiscing with honesty and realism about women's particular challenge: to create our professional and financial structures in the same period as our peak fertility.
+- I'm too short-sighted, too squeamish for contact lenses and too vain for glasses.
+- I grew up near London Zoo, with which I was obsessed. I would lie in bed at night, thinking about the lions and tigers and wolves that were prowling only a few miles away.
+- Ed Miliband should be out and proud about his abstruse interests, his Master's in Economics, his political obsession, his prioritising of the mental over the physical.
+- When I was at school, I loved maths and read lots of books and was horrified at the idea of having a boyfriend... I was probably a nerd, but then, it was a negative term.
+- I don't know if I'm a writer who plays poker or a poker player who writes.
+- My speeding offences (whether caught or not) are always in situations where the speed limit is 30, but I think it's 40. And I'm never doing 40, always a careful 37.
+- The idea of MPs texting and emailing through debates makes my gorge rise, as it does when a minicab driver makes phone calls at the wheel. I'm not paying you to keep in touch with your mates!
+- Nature made your eyebrows like that for a reason. I don't know the reason. Some people say it's to do with keeping rain out of monkeys' eyes. Whatever. The point is, if you try to redesign your eyebrows with tweezers and pens, it will look terrible.
+- I have quite a good card sense. My grandmother taught me to play bridge, so I had a reasonable sense of the cards and how they work.
+- It may be vain to care too much how you look, but it is impolite to care too little. You do a generous thing for the world when you present yourself properly.
+- The best thing about universal free school meals is that they would remove one of the embarrassing signals, easily picked up by children's supersensitive antennae, of family poverty.
+- I am a big fan of Bournemouth, having enjoyed many happy hours on its sandy beach and crazy golf course.
+- I never wanted poker to be a job. That's partly because I love it, and it's fun, and I didn't want it to stop being fun, and partly because, I suppose, something in me doesn't feel right about calling poker a job. It's not grown-up enough. But it's a hobby that takes up an enormous amount of my time.
+- When I was learning to drive, I thought the big milestones were changing gear, changing lane, and three-point-turns.
+- Some of us find 'relaxing' to be, in itself, nerve-racking. If we aren't doing something useful or, at least, that seems useful, we feel guilty, impatient, and mortal.
+- Moisturise, moisturise, moisturise... is the motto of people who are in the business of selling moisturisers. Your body is already 60% water. If that's not moist enough for you, sit in a puddle.
+- When I was at school, I was forced to play lacrosse, a game in which tiny, rock-hard missiles fly at your head, and you must catch them with a stick to avoid a brain haemorrhage. I was regularly punished for not taking part more wholeheartedly.
+- Weight gain is good because it makes your dresses tight. This is not necessarily classy or flattering, but it means you don't have to iron anything.
+- I'm familiar with that magical mindset during sporting competition where one feels completely zoned in on what's happening. There are occasional nights in poker when the mists have cleared, and I just know what my opponents' cards are. Everything at the table is slow, loud, and easy. The rest of the world is silent.
+- The truth is, I feel sorry for the Old Etonians. Everybody should be judged on his or her own merits. Assuming that toffs are 'out of touch' is more modern and fashionable than assuming they have a 'natural fitness for government,' but it's no fairer.
+- Women are under-represented in TV comedy for a variety of reasons, the hackneyed 'fear that women aren't funny' being one of them.
+- Reverse-parking in a small space is one of those high-pressure situations where a critical, watching eye becomes a self-fulfilling prophecy.
+- After a bath, we all love to dry off with a towel. But do we need it to survive? No. It's a luxury.
+- My 'Only Connect' personality isn't put on: it's definitely me.
+- If you are actually ordinary, the only way to give royal status meaning is to live an extraordinary life. It can't be jeans and burgers and granny doing the babysitting.
+- Many moneyed children grow up with no drive at all.
+- School is supposed to civilise us, to tame our wilder instincts and teach us how to be more sensible, more knowledgeable, and cleverer.
+- A long time ago, my grandfather used to play blackjack with me, when I was very small, and I quite enjoyed that.
+- I'm no longer bossy in the honest sense; I've mastered (mistressed) the art of passive-aggression.
+- I dreamed of growing up and becoming a zookeeper.
+- London Zoo is amazing. I want to take my child there so that she can feel the awe and wonder I felt (and feel) myself.
+- I play poker, a game where there is no edge but the luck of the deal and the skill of the player.
+- Many poker players swear by sleeping a certain number of hours before a tournament, going to the gym in the morning, and 'clearing the mind.' Juggling two jobs alongside my chosen game, I never have time and am invariably sending work emails from my iPhone between hands.

@@ -1,0 +1,21 @@
++++
+author = "Edward Grey"
+title = "Edward Grey Quotes"
+quotes_len = "15"
+description = "the best 15 Edward Grey Quotes"
++++
+- The German Emperor is ageing me; he is like a battleship with steam up and screws going, but with no rudder, and he will run into something some day and cause a catastrophe.
+- The lamps are going out all over Europe; we shall not see them lit again in our lifetime.
+- An understanding is perhaps better than an alliance, which may stereotype arrangements which cannot be regarded as permanent in view of the changing circumstances from day to day.
+- In effect, I was asking that if Russia mobilized against Austria, the German Government, who had been supporting the Austrian demand on Serbia, should ask Austria to consider some modification of her demands, under the threat of Russian mobilization.
+- If the union between England and America is a powerful factor in the cause of peace, a new Triple Alliance between the Teutonic race and the two branches of the Anglo-Saxon race will be a still more potent influence in the future of the world.
+- From the material point of view the proposal is unacceptable, for France, without further territory in Europe being taken from her, could be so crushed as to lose her position as a Great Power, and become subordinate to German policy.
+- Altogether apart from that, it would be a disgrace to us to make this bargain with Germany at the expense of France, a disgrace from which the good name of this country would never recover.
+- I said to the German Ambassador that, as long as there was only a dispute between Austria and Serbia alone, I did not feel entitled to intervene; but that, directly it was a matter between Austria and Russia, it became a question of the peace of Europe, which concerned us all.
+- I had furthermore spoken on the assumption that Russia would mobilize, whereas the assumption of the German Government had hitherto been, officially, that Serbia would receive no support; and what I had said must influence the German Government to take the matter seriously.
+- That Germany was so immensely strong and Austria so dependent upon German strength that the word and will of Germany would at the critical moment be decisive with Austria.
+- The Chancellor also in effect asks us to bargain away whatever obligation or interest we have as regards the neutrality of Belgium. We could not entertain that bargain either.
+- Instead of a few hundreds of thousands of men meeting each other in war, millions would now meet, and modern weapons would multiply manifold the power of destruction.
+- I knew it to be very doubtful whether the Cabinet, Parliament, and the country would take this view on the outbreak of war, and through the whole of this week I had in view the probable contingency that we should not decide at the critical moment to support France.
+- I thought this must be obvious to everyone else, as it seemed obvious to me; and that, if once it became apparent that we were on the edge, all the Great Powers would call a halt and recoil from the abyss.
+- After a big war a nation doesn't want another for a generation or more.

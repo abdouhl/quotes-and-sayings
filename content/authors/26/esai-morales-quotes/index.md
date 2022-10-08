@@ -1,0 +1,44 @@
++++
+author = "Esai Morales"
+title = "Esai Morales Quotes"
+quotes_len = "38"
+description = "the best 38 Esai Morales Quotes"
++++
+- In order to be a lieutenant, you've got to have authority in your voice. No matter how young your face looks, you've got to let your guys know that you're in charge.
+- I'm really, really dumb about describing wine, but I like wine that's full-bodied and dry.
+- All I would say to people who doubt 'Caprica' is: Everything good starts slow.
+- Shows like 'Seinfeld' and 'Friends,' they have, like, one or two damn characters throughout the whole series that are minorities.
+- If you don't look like the ruling class, bring your inhaler.
+- Being an actor you have a lot of expenses.
+- You know, I'm not making top dollar, but when you're making top dollar, there are a lot of people waiting for you to fall.
+- We understand 'Roots,' and that experience was mind-boggling, and it changed the way society viewed race relations. It was incredibly important. With 'Roots,' I was just as proud as anybody else that people of color were getting their stories told.
+- Well, actually yes, in 1988. There was a warrant for me because my assistant hadn't paid a ticket of mine.
+- I believe if people understood each other more, if people took the time and realize it's not 'all about me' and I'm on a big planet with a lot of other people and concerns, maybe we can learn how to get along with each other.
+- I went jogging up on Mulholland. In the middle of my run I had some form of asthma attack and couldn't even walk. I couldn't get a ride one block to my house. I thought I was going to die.
+- I don't get paid like a person that everyone knows, but I get paid so much more in so many ways.
+- Anytime you do something Latino, yeah, I love the color, the spice.
+- I see myself being a father, hopefully a husband, but I'm very gun-shy. The older I get, the further the goalpost.
+- When you have a little 10-month-old who is climbing up your leg because you are their mountain - there's no nobler reason to get out of bed every day. There's no better reason to live, to make sure you provide as much guidance and as much room for that child to thrive.
+- We hear a lot in this country about family, and 'American Family' just shows us a portrait we haven't seen as much of yet. 'American Family' lets us know that being American isn't about the color of your hair or eyes or skin: it's really a state of mind.
+- I don't want to be the 'spice' added to a show. I'm not a condiment!
+- I love bringing roses to a woman when she least expects it.
+- I love shocking people.
+- I'll never lose the sense of being an underdog.
+- Being an American is a state of mind, and to be in a family is to feel the power of belonging, the power of your roots. Family is a tree, the strength of a tree, the roots, the leaves, the past and the present, the future, the fruits, the seeds.
+- My mother taught me when you go someplace, you leave it better than you found it.
+- How often do you get a movie where the coolest character has your own real last name? I played Bob Morales as a cross between my own father - the passion, the fury - and the real Bob Morales. I loved that movie. People, kids always come up to me and tell me how much they still love 'La Bamba.'
+- I like the Beatles. They're at the core of my musicality. And John Lennon's my spiritual father.
+- Frankie is my baby. He is the sweetest dog in the world. Frankie is like the son I never had. He keeps me healthy; I walk and run him. I always feel that I need to spend more time with him and give him more attention. I find myself unloading my emotions on him.
+- I remember doing 'La Bamba' and thinking, 'Do you really think that Latinos will be accepted in mainstream?' and I said, 'Someday I hope so, but there is no guarantee.'
+- In New York, just standing still on the sidewalk is a weird feeling. You have this incessant need to do things. Los Angeles is about kicking back, relaxing, your inner child, peace.
+- I think the legacy left behind by 'Battlestar' speaks for itself. I thought that these avid fans, most of whom were skeptical at first... to turn them into a fan of 'Caprica' as well is a daunting task, a big challenge.
+- My character Esteban is a guy who really didn't think he was gonna be there at this point in his life. He's in his early 30s. He's got a son. He's raising his son as a single father.
+- Do I have to see movies and television about the English throne or the Holocaust every year? There are multiple multi-million dollar movies with the same backdrop. But our Holocaust - meaning Latino - aren't ever told.
+- I think that racism has gotten more subtle, and it's not even racism anymore: it's placism. Like where you live or whether you went to community college or Harvard, and it exists within the race.
+- It's people politics, people dynamics that make a show really good, whether it's 'Desperate Housewives' or 'Lost' or 'The Sopranos.' It's the people we've grown to love or otherwise.
+- I love being irreverent. But I hate being irrelevant. I love being irreverent because at the end of the day your actions belie your intentions.
+- I am tired of our characters being so incomplete. When do we ever save the day in a film? When does a Latino actor get to be the hero?
+- I always pull over for people who need a push.
+- We as Americans of Latin descent are just as American as anyone else of any other descent.
+- I just arrive, they hand me a script and say, do it.
+- I'm a very romantic person.

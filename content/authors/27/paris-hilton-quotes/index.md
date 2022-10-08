@@ -1,0 +1,62 @@
++++
+author = "Paris Hilton"
+title = "Paris Hilton Quotes"
+quotes_len = "56"
+description = "the best 56 Paris Hilton Quotes"
++++
+- I take my dog Tinkerbell seriously. I take my job seriously. But I don't take myself all that seriously.
+- No matter what a woman looks like, if she's confident, she's sexy.
+- I think it's important for girls to be confident. Believe in yourself and... everybody's hot.
+- I don't think there's ever been anyone like me that's lasted. And I'm going to keep on lasting.
+- I'd imagine my wedding as a fairy tale... huge, beautiful and white.
+- I talk in that baby talk voice when I'm on TV, it's a put on.
+- First I wanted to be a veterinarian. And then I realized you had to give them shots to put them to sleep, so I decided I'd just buy a bunch of animals and have them in my house instead.
+- I like it, but it's yellow, and I'm like, I didn't want yellow for my engagement ring.
+- I travel around the world constantly promoting my projects and endorsing products. Yes, I do get paid to go to parties; in fact, I'm the person who started the whole trend of paid appearances. But when you see me at a party, I'm always working or promoting something.
+- Yes, I've kissed a lot of guys. I like to kiss, but that's it. I don't go home with anyone. I sleep with my animals, like my baby monkey, Brigitte Bardot.
+- I get half a million just to show up at parties. My life is, like, really, really fun.
+- You don't have to be an heiress to look like one, if you act like one then everyone will just presume you are one.
+- I love Africa in general South Africa and West Africa, they are both great countries.
+- Life is too short to blend in.
+- Some girls are just born with glitter in their veins.
+- Everything I do is blown out of proportion. It really hurts my feelings.
+- I've made all my money on my own without my family and I work very hard.
+- It's traditional for an heiress to be raised in a sheltered way. No one thinks that's true of me, but it actually was.
+- Some people change when they think they're a star or something.
+- I'm very intelligent. I'm capable of doing everything put to me. I've launched a perfume and want my own hotel chain. I'm living proof blondes are not stupid.
+- All it takes is one drink to mess with the way you drive - it clouds your judgment and slows your reflexes. Don't take any chances. It just isn't worth it.
+- One night stands are not for me. I think it's gross when you just give it up.
+- I really don't like going out anymore. I used to love it, but now it's not fun. I'd rather have friends come over and hot have to worry about crazy people taking pictures.
+- There's nobody in the world like me. I think every decade has an iconic blonde, like Marilyn Monroe or Princess Diana and, right now, I'm that icon.
+- I don't want to be known as the granddaughter of the Hiltons. I want to be known as Paris.
+- A true heiress is never mean to anyone - except a girl who steals your boyfriend.
+- Every woman should have four pets in her life. A mink in her closet, a jaguar in her garage, a tiger in her bed, and a jackass who pays for everything.
+- My kitchen looks like the one from my childhood - very homey, with a little bit of Alice in Wonderland!
+- Being grown up and in a serious relationship, I've learned so much. I'm happier than I've every been.
+- I always knew I had a voice and I've always known I could sing, but I was too shy to let it come out. I think it's the hardest thing to do, to sing in front of people. When I finally let go and did it, I realized it's what I'm most talented at and what I love to do the most.
+- I don't like parties past 2 am. Then it's all losers and weirdos.
+- I have been celibate for about six or seven months, I think. I would rather just make out and kiss someone instead of sex. I'm single. I said I would be single for a year and I am.
+- The only rule is don't be boring and dress cute wherever you go. Life is too short to blend in.
+- All British people have plain names, and that works pretty well over there.
+- That's hot.
+- I'm the kind of person who, if I see a shooting star, I wouldn't stay there and watch it. I'd run to my friends and tell them because I would want everyone to see it too.
+- I get along with guys; most of my friends are guys. It's easier to trust men sometimes. I only have a few close girlfriends that I trust.
+- I'm blonde and tanned and normal-sized! I'm sweet, shy, funny, have a big heart and I'm nice - and I like to eat.
+- I'm not the same person I was. I used to act dumb. It was an act. I am 26 years old, and that act is no longer cute. It is not who I am, nor do I want to be that person for the young girls who looked up to me. I know now that I can make a difference, that I have the power to do that.
+- I don't really think, I just walk.
+- The way I see it, you should live everyday like its your birthday.
+- I don't want to be known as the Hilton heiress, because I didn't do anything for that.
+- The Backstreet Boys were so ten years ago. Whatever.
+- When I was younger, my family would go camping and fishing on our ranches. My dad loves being around all kinds of animals. He's the one who got me to be a really big animal lover.
+- I'm not a kid anymore. And I'm excited for all the amazing things to come.
+- Wal-mart... do they like make walls there?
+- By channeling my inner heiress, I created a new opportunity for young heiresses.
+- I hate the taste of alcohol. When I'm drinking, I'm drinking Red Bull.
+- It will work. I am a marketing genius.
+- It's been my dream to have four babies by 30. I look after animals, so I'd have a lot to give my kids.
+- I hate when a guy brags... or he sweats.
+- What's a soup kitchen?
+- My mom decorated with lots of antiques. I never liked it when I was a little girl - I wanted to live in a modern house. But now I love it.
+- I'm the nicest, most loyal person in the world when it comes to my friends.
+- When Paris has to pee, Paris has to pee!
+- This is Earth. Isn't it hot?

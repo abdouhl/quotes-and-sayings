@@ -1,0 +1,46 @@
++++
+author = "Jamie Vardy"
+title = "Jamie Vardy Quotes"
+quotes_len = "40"
+description = "the best 40 Jamie Vardy Quotes"
++++
+- I like a drink and enjoy being Jack the Lad. I've had a few scraps and spent a night in a cell.
+- When you are moulding 30 an hour, it takes its toll on your body. It got to the point where my back was just hanging off. It was time to say, 'I can't do this any more'.
+- A friend got attacked outside a nightclub just for being deaf. I stuck up for him but ended up getting in a bit of a trouble myself. I played with a tag at Stocksbridge. I had a little curfew. Luckily, it didn't stop me playing football. Being put on a tag, I could have lost playing football again.
+- Confidence is sky high, but we're also all very grounded. We know, in football, nothing can be taken for granted.
+- Fitness has always been one of my strengths. I can do all the long-distance runs. When I was at school and we entered the competitions, I used to do the 100m, 200m, and the 1500m as well, so it's never just been a pace thing.
+- If you're not playing with any confidence, then you're not going to play well at all. You've always got to have that inner confidence, and that comes with the goals.
+- It wasn't nice having to work full-time. It's a rise that I wouldn't have predicted, but it's a good example for younger players of what can be achieved.
+- In the changing-room, I'm seen as one of the jokers. I like to have a laugh; there are quite a few of us. That what helps make a good atmosphere in the changing-rooms. You've got to have a few jokers but obviously serious when the time comes.
+- People keep asking me if I'm watching our rivals' games in the Premier League, but I'm usually on my PlayStation. If I had been watching, it would have been on an illegal stream, so I don't even know why they are asking me.
+- If you go into a tournament thinking that you're not going to do anything, you might as well not be there because you won't achieve anything.
+- My life has changed, but I'm not money-motivated at all; that's the last thing on my mind. I just want to play football, and that's how I've always been.
+- If I go in the gym, it will slow me down. I don't go in for weights or anything like that. Each and every person is different, and this is my way, and I'm sure if someone else tried doing what I do, then it probably wouldn't work for them.
+- I love a good paella, so I'd love to be able to know how to cook one.
+- The word 'racist' is a permanent stain against my name. It's worse than a criminal record. Some people will never forgive me. Others will accept I made a terrible mistake and recognise I have learnt from it. It's on YouTube when my kids type in their dad's name, and it comes up 'Jamie Vardy racist'. On Google, too. It's horrible.
+- No one can take their place or their England shirt for granted. If I want to be in that squad, I need to keep banging in the goals to make sure I stay in the manager's plans.
+- If I'm played out of position, I'll always give 100%, but everyone knows I would rather play down the middle.
+- Obviously, when you're doing fitness work at a club all week and every week, it's all about specific drills for what you need to do on the pitch. So I'd be doing a different drill to the centre-midfielders. It's all specifically tailored for me. For example, my drills are high speed. It's all about trying to break the line with a sharp sprint.
+- When I lived in Hungerford, it was wake up 5:30 A.M., get to the van at 6 A.M. with eight other blokes, drive to Shinfield, which is in Reading, 45 minutes away. Start at 7:30 A.M. to 4:30 P.M. with two half-hour breaks and then home. Train Tuesday and Thursday and then play on Saturday.
+- When training and matches are finished, we'll all go out and have food together; we're always in touch with each other.
+- Being in the Premier League would be a dream come true.
+- There is only one thing I want to do here, and that is play football to the best of my ability. If I let things start distracting me, I'm not going to be able to do that, which will jeopardise the team as well.
+- Everyone works hard for each other, and if we're having an off day, everyone else is there to pick things up.
+- The best present I've ever given someone is myself. I've given it to everyone.
+- Every time I have stepped up a level, I wasn't expecting it to happen, but once it did, I just made sure I worked as hard as I possibly could to stay there.
+- I got given a pair of Christmas socks with penguins on. They know you're obviously not going to wear them. I think they do it just to annoy you, to be honest.
+- After a Saturday game, we're in on a Sunday to cool down and make sure we're fully back at it again. But it doesn't really affect things too much. It's basically like you've had a game on the Saturday, and then you're in the cup on a Tuesday.
+- When I was playing for the reserves, if you got a call-up you got a straight £30. I'd never been paid for football!
+- My diet is not unorthodox. I just eat like anyone else - that's just how I am. Everyone is different. It is just my metabolism that keeps me this slim.
+- Just as I am working hard to adjust to a new level, someone comes along and asks me to move up again. I'm not complaining about it; I just get on with trying to make sure I don't let anyone down. Training with England is just a different gravy again. Movement-wise, finishing-wise, you can learn such a lot from watching the very best in action.
+- Competition for places can only benefit you. If you know you've got that much competition, then you're just going to have to work that extra bit harder so you can catch the gaffer's eye.
+- Moving to Fleetwood was a shock to the system at first. I'd never been at a full-time club.
+- When I was living on my own, for a footballer it's easy to do the things that you're not supposed to, or not what the sport science team says. For example, if there's a packet of crisps, you're going to eat them. The same with a packet of sweets. Go to bed at a certain time? You're not going to if you're on your own.
+- I pinch myself every day anyway. Everyone knows the road I have had in the game and how I have managed to get myself to where I am today.
+- For Secret Santa a few years ago, I bought one of the lads I used to play with a block of cheese.
+- There's a lot of people blocked on my Twitter for various reasons which I don't need to get into.
+- I am so proud of what I've achieved personally, but without the lads around me, nothing would have been possible.
+- I don't really leave the house. Literally, I train, come home, look after the kids, the dogs, my missus... then it's time to go to bed.
+- You do get a chance to think about things when you're at home, but that is when you want to relax and forget about football for a bit. Honestly, you don't really get time to stop and think about things. We have a job to do. That is all we concentrate on, going game by game.
+- You hear players in the past say that it's just a job for them, but for me, it is nothing like that. I literally wish I could play football every day.
+- On a real course, I'd probably want to throw my club in the water if I hit a duff shot. I'll give golf a miss - it's definitely not my sport.

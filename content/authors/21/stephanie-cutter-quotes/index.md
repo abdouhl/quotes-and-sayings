@@ -1,0 +1,20 @@
++++
+author = "Stephanie Cutter"
+title = "Stephanie Cutter Quotes"
+quotes_len = "14"
+description = "the best 14 Stephanie Cutter Quotes"
++++
+- It's one thing to work women into your talking points. It's another to tell them how you are going to educate their kids, how you are going to ensure they get health care, how we are going to rebuild infrastructure, how they are going to get equal pay.
+- Just a few months ago in the Republican primary Mitt Romney said to his opponents, who he was crushing at the time, stop whining. And I think that's a good message for the Romney campaign. Instead of whining about what the Obama campaign is saying, why don't you just put the facts out there and let people decide rather than trying to hide them.
+- Let me tell you the story about Massachusetts under Governor Romney. It did fall to 47th out of 50 in jobs creation. Wages went down when they were going up in the rest of the country. He left his successor with debt and a deficit, and manufacturing jobs left that state at twice the rate as the rest of the country.
+- Either Mitt Romney through his own words and his own signature was misrepresenting his position at Bain to the SEC, which is a felony, or he was misrepresenting his position at Bain to the American people.
+- There's nothing harder than going on TV and saying something that you don't believe. I don't do that anymore.
+- My brother got a .22 for his 12th birthday; I got a .22. He got a hunting knife; I got a hunting knife.
+- Wall Street shouldn't be deregulated. I think Wall Street and Main Street need to play by the same set of rules. The middle-class can't carry the burden any longer, that is what happened in the last decade. They had to bail out Wall Street.
+- Politics gets me out of bed in the morning It's what really interests me. I'm a competitor, but I also feel like I'm contributing, whether it's working on health-care policy in the White House or out here in Chicago.
+- If Mitt Romney and Paul Ryan get elected to the White House, Medicare will be bankrupt by the end of their first term.
+- My philosophy is if you're going to work 24 hours a day, seven days a week, for not a whole lot of money, why work for someone you're not gonna be loyal to?
+- Mitt Romney saying that Barack Obama gets an F is one of the most ridiculous things that he has said in this race.
+- President Obama, through health care reform, strengthened Medicare. How did he do that? Well, he found savings by cutting subsidies to insurance companies, ensuring we were rooting out waste and fraud, and he used those savings to put it back into Medicare.
+- I've been very fortunate to work for great people - so even when the political process gets ugly, I find inspiration in the people around me.
+- The most disappointing thing this week is that Mitt Romney picked Paul Ryan, because he was the intellectual leader of the Republican Party. Because Paul Ryan decided to join Mitt Romney's ticket, he is completely reversed himself on some of the issues he has been very strong on, like the $716 billion in savings that are in two of his budgets.

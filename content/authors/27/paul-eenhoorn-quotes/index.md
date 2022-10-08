@@ -1,0 +1,18 @@
++++
+author = "Paul Eenhoorn"
+title = "Paul Eenhoorn Quotes"
+quotes_len = "12"
+description = "the best 12 Paul Eenhoorn Quotes"
++++
+- There still seems to be a lack of film for the baby boomer generation, if you'd like to call it that. And I think 'Martin Bonner' showed what's possible. Later in life, when you've been working at something for a long time, to actually get some kudos for what you do is wonderful.
+- I was in a band till I was about 17; then I went to television, and I spent seven years doing that. When I came to Seattle, I started to audition for things. The passion's always there, and that's what's been the hard thing: to fit that passion into a normal life. You can't do it. You can't have a normal life and pursue this dream.
+- Interestingly, I'm more closed on set than I am off set. On set, I'm closed. I don't want input. I want to concentrate on what I'm doing with this other person. But outside of that, I'm open. I'm everybody's friend, unless they don't like me.
+- I'm patient when it comes to my career, which is unlike me, but there are no stars in my eyes. I make where I go. It's that sort of thing.
+- I did some stage when I was a kid, around 16 or so. I was living in Melbourne and had a band. I was quite young. We weren't very good. Then I found a band in Perth. We played around for three years. We're in the 'History of Rock'N'Roll,' a book about Perth music.
+- I'm self-opinionated, and I have a sense of self. I can be brutal with agents and have been.
+- From an actor's point of view, if you are watching something, and you see improv, you know it. Because of your experience, you just bloody know that wasn't written.
+- I've always felt I had the talent. I've done a lot in my life. I've written, been in bands, done live TV for a network in Perth. I'm well-trained when it comes to being on a set, which gives you freedom.
+- I walk into a scene, and I do the scene. That's my job. I don't have an objective. I have the words, and I have whoever I'm playing with.
+- I've been on television since I was about 17. I had opportunities - one major opportunity I blew in my 20s. Once I started down this pathway, it was a case of not letting anyone stop me. Not my wife, not my family. It was getting too late to give it a small percentage. I had to give it one hundred percent.
+- I've been writing music since I was a teenager. I play keyboards. I'm not much of a player, but I can write. That will come along. I'd like to do a musical.
+- I still miss music and singing. One day, I'm going to sing with a big band.

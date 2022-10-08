@@ -1,0 +1,23 @@
++++
+author = "John Skipper"
+title = "John Skipper Quotes"
+quotes_len = "17"
+description = "the best 17 John Skipper Quotes"
++++
+- With the polarization of points of view around significant political and social issues, sports is a place where people can sort of talk about something together. And I think that is important to people.
+- Chess is a competition. Checkers is a competition. Mostly, I'm interested in doing real sports.
+- Sports is a mass product, and it's a non-replicable product. You can't knock it off.
+- I actually thought I wanted to be Thomas Wolfe, but I didn't have the talent. So I thought I could edit Thomas Wolfe.
+- I have this thing I used to say at home and in the office: If somebody is calling, unless it's somebody who can fire me, I'll call them back later.
+- The consumption of highlights on ESPN is greater than everybody else's combined. Fifty-six percent of all news and information consumed in sports is consumed on the ESPN platforms.
+- We at ESPN like competition. It makes us better. It makes us sharper.
+- Brand matters. And ESPN is, by far, the most popular sports brand. People trust ESPN.
+- Sports fans have an unbelievable ability at the end of the day, when the game comes on, to kind of put everything aside and watch the game.
+- When you look at what you get in a cable subscription, it is a spectacular value. For $70 or $80 a month is what it would cost a family of four to go to the movies one time.
+- Every bit of knowledge we have demonstrates that there is a complete correlation between playing sports and success and potential for success. Playing sports is good for you physically, mentally, spiritually, psychologically.
+- Things that are unique and rare will cost a lot of money. Houses in East Hampton and Malibu will cost a lot of money because there just aren't that many of them. The value of sports has appreciated because it's the only thing that people have to watch live.
+- I have found - and tennis may be the greatest manifestation of it - Americans have become more international in taste. Remember the old axiom that you have to have American players for Americans to be interested? And in tennis, it's just not true anymore.
+- It is accurate that the Walt Disney Company and ESPN are committed to diversity and inclusion. These are long-standing values that drive fundamental fairness while providing us with the widest possible pool of talent to create the smartest and most creative staff. We do not view this as a political stance but as a human stance.
+- The cable package continues to be the greatest value in the history of entertainment. The average hour watched on cable television costs between 15 and 25 cents. For most people who cannot afford other kinds of entertainment, it is their entertainment.
+- Please watch a little less television. Maybe post a few less comments about the lunch you had today.
+- Sports occupies a central place in our society, and, as such, it is unavoidably cultural in nature and often engaged in societal issues.

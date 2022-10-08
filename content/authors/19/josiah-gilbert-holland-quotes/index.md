@@ -1,0 +1,22 @@
++++
+author = "Josiah Gilbert Holland"
+title = "Josiah Gilbert Holland Quotes"
+quotes_len = "16"
+description = "the best 16 Josiah Gilbert Holland Quotes"
++++
+- Calmness is the cradle of power.
+- There is no royal road to anything, one thing at a time, all things in succession. That which grows fast, withers as rapidly. That which grows slowly, endures.
+- Nature is the master of talents; genius is the master of nature.
+- Joys divided are increased.
+- Nothing so obstinately stands in the way of all sorts of progress as pride of opinion. While nothing is so foolish and baseless.
+- The choicest thing this world has for a man is affection.
+- One thing at a time, all things in succession. That which grows fast withers as rapidly; and that which grows slow endures.
+- The person who does not know how to live while they are making a living is a poorer person after their wealth is won than when they started.
+- The temple of art is built in words.
+- Responsibility walks hand in hand with capacity and power.
+- Scholarship except by accident is never the measure of a person's power.
+- Ideals are the world's masters.
+- God gives every bird its food, but He does not throw it into its nest.
+- The soul, like the body, lives by what it feeds on.
+- A mind grows by what it feeds on.
+- 'Work and wait', 'work and wait' is what God says to us in creation.

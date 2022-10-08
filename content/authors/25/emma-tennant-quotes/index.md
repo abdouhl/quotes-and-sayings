@@ -1,0 +1,14 @@
++++
+author = "Emma Tennant"
+title = "Emma Tennant Quotes"
+quotes_len = "8"
+description = "the best 8 Emma Tennant Quotes"
++++
+- Like all women, I've had a pretty awful time in many ways, but it's always possible to either make a joke or find someone else.
+- I cannot remember a time when I was not interested in both gardening and painting. I must have been born with a trowel in one hand and a paintbrush in the other.
+- When my father died in Greece, leaving my mother strapped, a cheque arrived next day from my Greek publishers who'd just bought two of my books for pounds 500.
+- The fascination of somebody with original creative gifts is something that's always drawn me. I get attached to them, but I can't call it being in love, because the words are so debased.
+- Quite a lot of people wanted me to write about my family, I suppose for fairly obvious reasons, and there was always something that would stop me, I thought they were asking me for the wrong motives.
+- I didn't go to university; I hardly went to school, but I grew up among people well versed in Henry James and Proust, and just felt this endless, total inadequacy.
+- My life has really been about writing, though some think it's all about once having been in a ball dress and having an odd life and marrying all the time. But it's the writing that's always been the point.
+- Because I am really interested in gardening, I do really interesting plants, not even always flowers. And because I have grown them, I really know them like friends. I paint everything from exotic orchids to rosehips growing wild in a hedge. They just have to speak to me.

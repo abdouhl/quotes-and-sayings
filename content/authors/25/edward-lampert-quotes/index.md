@@ -1,0 +1,15 @@
++++
+author = "Edward Lampert"
+title = "Edward Lampert Quotes"
+quotes_len = "9"
+description = "the best 9 Edward Lampert Quotes"
++++
+- The pushback I get is, 'He's a hedge fund guy.' Full stop. Some places, that can be a badge of honor. In others, it's almost a term of derision.
+- I'm not from a retail background, but I am a shopper.
+- The entrance strategy is actually more important than the exit strategy.
+- To operate a company of the size of Sears Holdings or Wal-Mart or Target or Home Depot or Lowe's, you need a combination of skills, and each of those skills needs to be sufficiently strong.
+- Trying to move the volume of products we're talking about from place to place to get it ultimately into the customer's hands, to price these items, to market these items, I think the retail business is incredibly complex. But if you get it right, it's a beautiful thing.
+- I want to be known as a great businessman.
+- I was very clear why we put these companies together and what our goals were. It was really to allow both Sears and Kmart to compete in what I thought was going to be a more challenging but evolving industry.
+- If you're unwilling to try new things and to fail and learn, you don't have a shot. That doesn't mean you are going to be successful, but you have to try to change.
+- I think a lot of times when people talk about merchants, it's almost a nostalgic look back at the time where the world moved at a very different pace, and information was very different.

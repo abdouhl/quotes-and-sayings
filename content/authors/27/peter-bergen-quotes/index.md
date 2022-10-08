@@ -1,0 +1,201 @@
++++
+author = "Peter Bergen"
+title = "Peter Bergen Quotes"
+quotes_len = "195"
+description = "the best 195 Peter Bergen Quotes"
++++
+- In quiet ways far too complex to hold Trump's interest, Muslims in the United States and around the world are helping every day to prevent massacres such as Orlando from happening.
+- European countries simply do not have the ideological framework the United States has in the shape of the 'American dream' that has helped to absorb successfully wave after wave of immigration to the States, including Muslim Americans who are well integrated into American society. There is no analogous French dream or German dream.
+- Abu Musab al-Suri is someone I got to know pretty well because he's a Syrian. Very bright guy, lived in London. He actually was the person who took myself and correspondent Peter Arnett and the cameraman, Peter Juvenal, to interview bin Laden for his first TV interview.
+- How can you prevent an attack by returning foreign fighters if you are not cognizant of their names and links to ISIS?
+- As Michael Scheuer, who ran the C.I.A.'s bin Laden unit until 1999, has pointed out, if bin Laden believed in Christmas, the Iraq war would be his perfect present from Santa Claus. The 9/11 attacks and the subsequent war in Afghanistan severely damaged bin Laden's organization.
+- Since Trump is not quick to forgive the merest of slights, it's hard to imagine him calling on any of the officials who have publicly taken a stand against him to serve in key national security slots.
+- The Obama administration has framed its defense of the controversial bulk collection of all American phone records as necessary to prevent a future 9/11.
+- Like the attack on Pearl Harbor, another hinge event in American history, 9/11 was a great tactical victory for America's enemies. But in both these cases, the tactical success of the attacks was not matched by strategic victories. Quite the reverse.
+- Candidate Trump had previously opined that 'Islam hates us' and had called for 'the total and complete shutdown of Muslims entering the United States,' an argument he has since modified and moderated.
+- The Turkish government will never tolerate the creation of a Kurdish state.
+- Officials in the George W. Bush administration later criticized the cruise missile strikes that were ordered by President Bill Clinton in Afghanistan in 1998 as only 'pounding sand.'
+- Bannon should never have had a permanent seat on the NSC, as he is a political operative, and the NSC has traditionally been a place where American interests are considered rather than narrow Republican or Democratic interests.
+- 'Zero Dark Thirty' is a great piece of filmmaking and does a valuable public service by raising difficult questions most Hollywood movies shy away from, but as of this writing, it seems that one of its central themes - that torture was instrumental to tracking down bin Laden - is not supported by the facts.
+- The special reverence that al Qaeda had for Sheikh Rahman was underlined by a two-hour propaganda videotape that the group's media division released in the spring of 2001, when the 9/11 attacks were in their final planning phase.
+- The E.U. is the latest of a series of multinational organizations set up after World War II to ensure that there would never again be a pan-European war and to create the conditions for a new European prosperity after the destruction wrought by the war against the Nazis. The E.U. has admirably succeeded at both.
+- Both China and Russia felt duped by the U.N. 'no-fly' zone resolution regarding Libya in 2011 that eventually led to the ouster of Libyan dictator Moammar Gadhafi. China and Russia had abstained from the Libyan resolution, and neither country plans to make what they regard as a similar mistake again.
+- The centerpiece of the Bush administration's case for going to war in Iraq was Secretary of State Colin Powell's presentation to the U.N. Security Council on February 5, 2003, six weeks before the invasion.
+- If the Arab Spring was a large nail in the coffin of al-Qaeda's ideology, the death of bin Laden was an equally large nail in the coffin of al-Qaeda the organization.
+- What is tricky for those hoping to utilize such weapons is that TATP bombs are quite difficult to make because their ingredients, when combined, are highly unstable and can explode easily if mishandled.
+- More than a decade and half after 9/11, U.S. military actions in countries such as Syria, Iraq and Afghanistan and several other Muslim nations are governed by the Authorization for the Use of Military Force (AUMF) that was passed in the days immediately after 9/11.
+- Will there be a political backlash against British Prime Minister Theresa May, whose ruling Conservative Party is traditionally seen as 'stronger' on terrorism than its main rival, the Labour Party?
+- In one notorious episode in 2002, in the holy city of Mecca, the religious police prevented girls from fleeing a school that was on fire because they were not properly dressed.
+- McMaster, 54, is the smartest and most capable military officer of his generation, one who has not only led American victories on the battlefields of the 1991 Gulf War and of the Iraq War, but also holds a Ph.D. in history.
+- Six years after al-Awlaki was born, his family moved back to Yemen, but he returned to the States for college and remained there for much of his adult life.
+- It is hard to imagine two more final endings to the 'war on terror' than the popular revolts against the authoritarian regimes in the Middle East and the death of bin Laden.
+- Because 9/11 was carried out by 19 foreign-born Arab hijackers, many assume that all terrorists who attack the West are foreigners.
+- For many terrorists, carrying out an attack allowed them to become the heroes of their own story.
+- The 9/11 attack itself played out around the world, with planning meetings in Malaysia, operatives taking flight lessons in the United States, coordination by plot leaders based in Hamburg, and money transfers from Dubai - activities overseen by al-Qaeda's senior command from secure bases in Afghanistan.
+- Osama bin Laden fervently hoped that attacking the United States would create pressure on American leaders to reduce their support for Middle Eastern regimes. Bin Laden believed that without that American support, the Arab regimes would collapse and would be replaced by Taliban-style rulers.
+- The deep problems that afflict the Middle East are not easy to fix, but they must be dealt with if we are not to see a son of ISIS, or even a grandson of ISIS, developing in the years to come.
+- The Russians have been waging wars with these separatists since the 19th century, but for obvious reasons, Chechen separatist terrorism tends to be carried out by Chechens.
+- So Pakistan is a country that I'm very fond of and have spent a lot of time, but it is a country where conspiracy theories have a life of their own.
+- The image we have of bin Laden in his final years in Abbottabad is of an aging man with a graying beard watching old footage of himself; just another suburban dad flipping though the channels with his remote.
+- Investigations by special prosecutors can take on a life of their own.
+- In the past, Joint Special Operations Command, or JSOC, of which SEAL Team 6 is a key component, has only launched ground raids in Yemen when the lives of hostages held by al Qaeda seemed at risk.
+- It's much harder to detect a lone wolf than it is somebody who's associated with a larger organization who's having planning meetings and making phone calls to people in the organization. And so that is really how the jihad has really developed in the United States.
+- There are all sorts of despicable people who journalists have done interviews with, and it's been useful. Isn't more information better than less information?
+- The fact is, working stiffs with few opportunities and scant education are generally too busy getting by to engage in revolutionary projects to remake society. And history, in fact, shows us that terrorism is generally a bourgeois endeavor.
+- Compounding Iraq's problem is that its economy is highly dependent on oil.
+- On November 28, 2016, Abdul Razak Ali Artan, an 18-year-old legal resident of the United States whose family was originally from Somalia, used a car to mow down a group of people at the Ohio State University.
+- Again and again since 9/11, terror attacks in the West have been carried out by second-generation Muslims who are citizens of the very country they are attacking.
+- Americans generally regard themselves as belonging to an exceptional nation. And in terms of living in a religiously tolerant and enormously diverse country, Americans can certainly take some justified pride.
+- I've interviewed multiple people who know bin Laden... who tend to have a universal picture of what he's like, which is: modest, retiring, unassuming, kind of thoughtful - lots of things that don't fit with a mass murderer, which he is as well.
+- It is in American and Afghan interests for the U.S. to stay in Afghanistan so it doesn't turn into Iraq circa 2014, with the Taliban controlling much of the country while hosting a strong presence of ISIS and al-Qaeda as well as every other jihadist group of note.
+- ISIS despises the Russian government for its support of the Syrian dictator Bashar al-Assad, and so it's no surprise that ISIS began targeting Russia in 2015, around the same time that Russia first intervened in the Syrian civil war.
+- Because of the 9/11 attacks, the framing of terrorism by politicians, the media, and the public too often in the past decade and a half has been that it is Islamist political violence that is the terrorism we need to be concerned about.
+- Mateen pledged allegiance to ISIS during his attack, the worst terror attack on American soil since 9/11.
+- Typically, terrorist attacks produce a rally-around-the flag effect as was the case after 9/11 and the huge outpouring of public support that then-President George W. Bush garnered.
+- Incompetence is a better explanation than conspiracy in most human activity.
+- The reality is that Trump's focus on immigrants is to misconceive of the terrorist problem that exists in the United States.
+- American jihadists are generally motivated by a mix of factors, including dislike of U.S. foreign policy in the Muslim world.
+- In February 2016, Russia arrested seven alleged ISIS militants who were plotting attacks in St. Petersburg and Moscow. The group included Russians and Central Asians and a ringleader who had come from Turkey.
+- Occasionally, Donald Trump says something that is politically incorrect but which also happens to be true.
+- The Second Amendment is, of course, very much part of the American fabric. But the intent of the founders was that the amendment protected the rights of citizens to bear arms in a militia for their collective self-defense.
+- In mid-November 2001, as they moved toward the city of Kandahar, the Taliban's de facto capital in southern Afghanistan, Amerine's team called in airstrikes against advancing Taliban units and more or less obliterated a Taliban column of a thousand men that had been dispatched from Kandahar. It was the Taliban's final play to remain in power.
+- I stepped into the bedroom where he was killed and looked up at the ceiling, where you could still see the patterns of blood that had spurted from bin Laden's head when the bullet fired by a U.S. Navy SEAL tore through the terrorist leader's face.
+- Pakistan's key leaders have succumbed to the assassin's bullet or bomb or the hangman's noose, and the country has seen four military coups since its birth in 1947. Yet the Pakistani polity has limped on.
+- Often it is important to listen to what people aren't saying.
+- Hydrogen peroxide-based bombs were used in the London bombings in 2005; in al Qaeda's foiled plot to attack subways in New York City in 2009 and also in the ISIS-directed Paris attacks in 2015 and the ISIS-directed attacks in Brussels a year later.
+- What made al-Awlaki so influential is that, unlike a number of leaders of al Qaeda such as Osama bin Laden, he was a cleric, so he could present himself as a leading religious figure. Second, because al-Awlaki had spent much of his adult life in the States, he communicated with his followers in colloquial, accessible American English.
+- While the story about the hunt for bin Laden has been exhaustively reported and the key sources and witnesses are in agreement about the main points of the narrative, of course, it's still possible that we could learn new details about the story that would add to the narrative.
+- A key to McMaster's thinking is his 1997 book, 'Dereliction of Duty: Lyndon Johnson, Robert McNamara, the Joint Chiefs of Staff and the Lies that Led to Vietnam.'
+- Trump displays many of the traits of a proto-fascist, and he is also part of a wave of right-wing nationalist movements that is sweeping the West. He can also be positioned in the long, American right-wing tradition of fearing 'the Other,' whether they are Catholics or Jews or, now, Muslims.
+- Tamerlan Tsarnaev, one of the two brothers who carried out the marathon bombing, was a non-practicing Muslim who only became an Islamist militant once his dreams of becoming an Olympic boxer faded. At the time of the attack, he was unemployed.
+- Contrary to what the Americans frequently reiterated, al-Qaeda did not have any relationship with Saddam Hussein or his regime.
+- Trump has long been a fan of Vladimir Putin but seems to be unaware that Russia's goal in Syria is simply the maintenance of its longtime ally President Bashar al-Assad in power. Indeed, Moscow has hitherto shown little appetite to focus on ISIS.
+- The Japanese scored an important victory at Pearl Harbor, but the attack pulled the United States into World War II, and four years later, Japan was in ruins, utterly defeated.
+- Trump, of course, has been very wrong in the past about important issues such as President Barack Obama's place of birth and Mexican immigrants, but the Republican frontrunner is correct in saying that former Republican President George W. Bush did not keep the country safe during the 9/11 terrorist attacks.
+- President-elect Donald Trump has a host of national security challenges to deal with as he assumes office, from the resurgence of the Taliban in Afghanistan to the grinding Syrian civil war to the flexing of Russian muscles under President Vladimir Putin to how to deal with ISIS as the terrorist army retreats in Iraq.
+- Trump has long said he favors a 'safe zone' in Syria to prevent Basher al Assad's regime from carrying out indiscriminate airstrikes against Syrian civilians and to halt the refugee flow out of Syria.
+- It is in Pakistan's own interest that the Afghan army is able to fight effectively against the Taliban, which is more likely if they continue to have American advisers at their side.
+- The inattention of the Bush administration to the threat from al Qaeda had results. Shortly before 9/11, Bush's attorney general, John Ashcroft, turned down FBI requests for some 400 additional counterterrorism personnel.
+- The Bush administration's approach to the war on terror collided badly with another of its doctrines, spreading democracy in the Middle East as a panacea to reduce radicalism.
+- Ground operations are inherently very risky in Yemen. The two previous JSOC raids in Yemen were both in 2014.
+- Sheikh Rahman had a doctorate in Islamic jurisprudence from al-Azhar University in Cairo, the Harvard of Islamic thought. He also had a long history of guiding terrorist groups.
+- Bin Laden was 200 miles away from the area where all of these drone strikes were taking out his key leaders, he was able to indulge in his hobbies... and he was making occasional video tapes and audio tapes to the wider world.
+- Bin Laden had come to the delusional conclusion that the United States was as weak as the Soviet Union had once been.
+- Because Scotland and Northern Ireland want to remain part of the E.U., there is the quite real possibility that Scotland and even Northern Ireland might now choose to go their own way on membership within the E.U. and the 'United Kingdom' would suddenly effectively be only England and Wales.
+- Bin Laden's role in the war against the Soviet occupation of Afghanistan in the 1980s had made him a hero around the Middle East.
+- It's hard to imagine any Muslim fessing up to their secret proclivity for Sharia law knowing they would be deported if they gave the wrong answer.
+- The hard reality is that attacks by vehicles in public places are very hard to defend against in a free and open society. The best defense against such attacks is good intelligence, and that often comes from inside the Muslim community.
+- Trump's pronounced anti-immigrant stance is reminiscent of both Le Pen in France and Orban in Hungary, although he is far from alone in taking such positions in much of today's Republican Party.
+- It is very much in America's national security interests to ensure that the Taliban do not dominate Afghanistan and that neither ISIS nor al Qaeda continues their growth in the country.
+- Bin Laden studied economics and public administration before he turned to a life of jihad.
+- Abedi appears to be one of the many thousands of Western Muslims who have embraced militant Islam, often as a way of trying to resolve the tension between their split identities.
+- ISIS may be a perversion of Islam, but Islamic it is, just as Christian beliefs about the sanctity of the unborn child explain why some Christian fundamentalists attack abortion clinics and doctors.
+- Mattis has been sharply critical of President Barack Obama's policies on Iran and Obama's capping of troop numbers and campaign end-dates in theaters of war such as Afghanistan and Iraq. Mattis also appears to be a skeptic of the Obama-era policy of putting women into combat roles.
+- 9/11 was a sort of hinge event in American history, and all jihadi terrorist plots or attacks are kind of filtered through that lens.
+- In Yemen, the United States conducted more drone strikes in 2016 than any year except 2012, the peak of the campaign in the country, according to data collected by New America.
+- A key flaw of the Obama administration's approach to Afghanistan has been constantly announcing proposed withdrawal dates for U.S. forces, which has enabled the Taliban to believe they can simply wait out the clock.
+- The dangers of TATP bombs can be seen in the case of Matthew Rugo and Curtis Jetton, 21-year-old roommates in Texas City, Texas. They didn't have any bomb-making training and were manufacturing explosives in 2006 from concentrated bleach when their concoction blew up, killing Rugo and injuring Jetton.
+- In Syria, a no-fly zone targeted at Assad's air force and safe zones for refugees fleeing the fighting would help tamp down the death toll that plays into the hands of ISIS and other Sunni militants who can position themselves as the only groups that are really defending the Sunni population.
+- Without U.S. forces in the country, there is a strong possibility Afghanistan could host a reinvigorated Taliban allied to a reinvigorated al Qaeda.
+- Mohammed Taheri-Azar, a naturalized U.S. citizen hailing from Iran, crashed his SUV into a crowd at the University of North Carolina at Chapel Hill in 2006, injuring nine people.
+- Iraqi dictator Saddam Hussein brutally repressed all forms of opposition to his regime, and before the Iraq War, al Qaeda had no presence in Iraq.
+- Imprisoned by its war on terror framework, the Bush administration supported Israel in a disastrous war against Hezbollah in Lebanon in the summer of 2006.
+- Nothing is more powerful than hearing from former members of the group that ISIS is not creating an Islamist utopia in the areas it controls, but a hell on earth.
+- Trump himself has not laid out a clear agenda on the national security issues that are the most pressing for the United States, from the resurgence of the Taliban in Afghanistan to the deepening Syrian civil war to the fight against ISIS in Iraq and Syria and the flexing of Russian muscles under President Vladimir Putin.
+- There is no hint that Trump wishes to engage in or to foment violence against the enemies, such as immigrants, he has identified as undermining the American way of life.
+- If the CIA and other U.S. intelligence agencies were private companies and were chronically unable to accomplish one of their key missions, their shareholders would have long ago revolted, fired their management, and their stock would be trading at values near zero.
+- One of the themes of 'The Longest War,' my book, which came out before the Arab spring happened, was how al-Qaida and bin Laden was losing the war of ideas in the Muslim world, not because the United States was winning them, but because al-Qaida was simply losing them.
+- In 2016, Washington and its coalition partners conducted more than 7,000 strikes in Iraq and Syria. And in Libya, the United States has conducted more than 350 air strikes since August as part of its military campaign against ISIS there.
+- The war on terror, sometimes known as the 'Global War on Terror' or by the clunky acronym GWOT, became the lens through which the Bush administration judged almost all of its foreign policy decisions. That proved to be dangerously counterproductive on several levels.
+- Since Snowden went public, companies such as Apple and Google - two of the world's most valuable companies - have incorporated much greater encryption into their products and have also been at pains to show that they will not go along with U.S. government demands to access their encrypted products.
+- I was the only outsider to visit the Abbottabad compound where bin Laden lived before the Pakistani military demolished it.
+- In February I secured permission to enter Osama bin Laden's compound in the northern Pakistani city of Abbottabad, where he was killed and where he had lived for the last half-decade of his life; the first, and only, journalist to do so.
+- President Obama and a small team of senior national security officials were in the unusual position of acting as al-Awlaki's jury, judges, and de facto executioners.
+- Donald Trump's own mother Mary escaped the bone-crushing poverty of Scotland's remote Outer Hebrides for the promise of New York in 1929.
+- The documentary feature film 'Legion of Brothers' tells the stories of the handful of U.S. Special Forces soldiers who, shortly after the 9/11 attacks, went into Taliban-controlled Afghanistan and, within a matter of weeks, overthrew the Taliban regime.
+- Security services, from Afghanistan to the United States, should be alert throughout the Ramadan period, but especially on the 27th day of the holy month.
+- In picking Gen. Jim Mattis for Defense secretary, President-elect Donald Trump has said that he found his 'Gen. George Patton.' Yet that label may not really capture what makes Mattis a distinctive choice.
+- The money that bin Laden inherited was about 20 million dollars over the course of many years, not the much larger sums some have suggested. In 1994, his family cut him off.
+- Rather than making loose and unsubstantiated claims that Obama and Clinton created ISIS, it would behoove Trump if he advanced some real policy ideas about how to solve the Syrian and Iraqi civil wars. Of course, to do that he would have to get beyond the inflammatory slogans and sound bites that have characterized his campaign.
+- Information-sharing between Western governments about the identities of those who have traveled to Syria and have received militant training is the key to preventing more incidents such as the one at the Jewish Museum in Brussels.
+- Using vehicles as weapons is a tactic that has often used by Palestinian terrorists to target Israelis, but in 2014, an ISIS spokesman had encouraged such vehicular attacks in the West, saying of ISIS' enemies, 'Run him over with your car.'
+- Certain Gulf Arabs support proxy jihadist Sunni groups such as al Qaeda's affiliate in Syria, while Iran supports Shia militant forces such as Hezbollah.
+- If a parent knows that their kid is suddenly becoming infatuated with ISIS, they face a very difficult choice, which is, you know, do I - what do I do?
+- What bin Laden had hoped to achieve in Afghanistan in the post-9/11 period, which was to drag the United States into a protracted guerrilla war like the one he had fought against the Soviets, never happened. Instead, that protracted guerrilla war is now playing out in Iraq, in the heart of the Middle East.
+- Bin Laden was intelligent, well-informed, and low key. The people around him treated him with great deference, calling him 'sheikh,' a term of respect.
+- And in the end, bin Laden died in a squalid suburban compound surrounded by his wives and children and far from the front lines of his holy war.
+- Seymour Hersh is one of the giants of investigative journalism.
+- What did U.S. officials have to lose by saying that bin Laden was being protected by the Pakistanis, if it were true?
+- When ISIS and al Qaeda have attacked or plotted attacks in the West in the past decade or so, they have invariably used hydrogen peroxide-based bombs because acquiring military-grade explosives or dynamite is nearly impossible for would-be terrorists in Western countries.
+- ISIS is even at war with its most natural ally, al Qaeda in Syria.
+- During the campaign, Trump in many ways repudiated President Obama's national security and foreign policy approach on issues like the Iran nuclear deal and immigration. So there's a real question of continuity or disruption with Trump, which wouldn't have existed if Clinton was president-elect.
+- The sitting prime minister, Jose Aznar, who had strongly backed the U.S.-led Iraq War, was unseated by a challenger who then pulled Spanish troops out of Iraq. The Madrid terrorist attacks are generally regarded as being the key to why Aznar, who had been leading in the polls, was defeated.
+- Bush administration officials, of course, deny that they didn't take the threat urgently enough, but there is no debating that in their public utterances, private meetings, and actions, the al Qaeda threat barely registered.
+- For Islamist terrorist groups such as ISIS, the holy month of Ramadan - a time of fasting and prayer for the vast majority of Muslims - is seen as a particularly auspicious time to launch terrorist attacks.
+- As early as 1993, members of bin Laden's group had been planning an attack on the American Embassy in Nairobi, Kenya.
+- When news of the first plane's hitting the World Trade Center reached them, bin Laden's followers exploded with joy. But shrewder members of al-Qaeda and the Taliban leadership in Afghanistan realized that the attacks might not be the stunning victory that bin Laden, and many in the West, took them to be.
+- An intelligence officer and historian, Rayburn published a 2014 book, 'Iraq After America,' which is a must-read for anyone who wants to understand how Iraq descended into chaos in the years after the American troop withdrawal at the end of 2011.
+- A little exposure to a city like Sulaimani will help Trump understand that the Middle East is a much more complex place than he seems to believe. Perhaps Trump could even give a speech at the American University in Sulaimani, just as President Obama did at Cairo University early in his first term.
+- I am very suspicious of the notion that somehow bin Laden was a media creation... Bin Laden's actions made him into a big deal. Not the media.
+- Syria is attracting a lot more Westerners than the Iraq War ever did because it's the perfect Sunni jihad.
+- There is considerable merit to the notion of treating gun violence as a public health matter.
+- Think of ISIS as a pathogen that preys on weak hosts in the Muslim world. In fact, there is something of a political law: The weaker a Muslim state, the stronger will be the presence of ISIS or like-minded groups.
+- When Congress passed the Authorization for the Use of Military Force immediately after the 9/11 attacks, no one could have imagined this authorization would continue to be the basis for American wars that persist a decade and a half later.
+- Syrian refugees fleeing to Europe do not go through anything like the rigorous process experienced by those who are coming to the States, and the volume of Syrians fleeing to Europe is orders of magnitude larger than it is to the United States.
+- We climbed the stairs to the third floor, where Osama bin Laden died early in the morning of May 2, 2011.
+- Virulent anti-Semitism is, of course, a staple of militant Islamist ideology.
+- Adding to your list of enemies is never a sound strategy, yet ISIS' ferocious campaign against the Shia, Kurds, Yazidis, Christians, and Muslims who don't precisely share its views has united every ethnic and religious group in Syria and Iraq against them.
+- Some might say that that while al Qaeda the organization may be basically dead, its ideology continues to thrive and to inspire 'lone wolves' to attack the United States.
+- My quest to meet Osama bin Laden began in North London early in 1997. In the Dollis Hill section, I contacted Khaled al-Fauwaz, the spokesman for a Saudi opposition group, the Advice and Reformation Committee, which bin Laden had founded.
+- On the campaign trail, candidate Trump occasionally raised the idea of creating 'safe zones' for Syrian civilians.
+- In the public's mind, Special Forces are often confused with the 'door kickers' of Special Operations Forces - such as SEAL Team 6 and Delta Force - who are the United States' elite counterterrorism operators.
+- ISIS' key social media-encrypted platform is Telegram, which is engineered by a Berlin-based tech company that can simply ignore the rulings of American federal judges as well as legislation passed by the U.S. Congress.
+- Apostasy is a grave crime in Islam and punishable by death in the eyes of members of al Qaeda.
+- In short, the hunt for bin Laden could not have been accomplished without every form of American intelligence-gathering.
+- Common sense would tell you that the idea that Saudi Arabia was paying for bin Laden's expenses while he was living in Abbottabad is simply risible. Bin Laden's principal goal was the overthrow of the Saudi royal family as a result of which his Saudi citizenship was revoked as far back as 1994.
+- The senior director at the NSC for the Middle East is retired Col. Derek Harvey, an Arabic-speaking intelligence officer with a Ph.D. who served as the head of the U.S. military cell examining the insurgency in Iraq in 2003.
+- The only lethal terrorist to immigrate to the United States as an adult and conduct an attack shortly after arriving is Tashfeen Malik, who was born in Pakistan.
+- The diagnosis that poverty, lack of education, or lack of opportunities have much to do with terrorism requires a fundamentally optimistic view of human nature. This diagnosis leads to the prognosis that all we need to do to solve the terrorism problem is to create societies that are less poor, better educated and have more opportunities.
+- The civil war across the Middle East between the Shia and the Sunni empowers groups like ISIS and al Qaeda who claim to be the defenders of Sunni rights against Shia attack.
+- Afghanistan's winters in the north are legendarily harsh, and southern Afghanistan, by contrast, is bleak desert. These difficulties are compounded by the fact that Afghanistan is one of the world's most heavily mined countries.
+- Trump has claimed he knows more about ISIS than America's leading generals. Clearly, this is also total nonsense; he doesn't seem to have done the slightest thing to educate himself about ISIS.
+- Every lethal terrorist attack in the United States since 9/11 has been carried out by an American citizen or a legal permanent resident, not by recent immigrants or by refugees. So tamping down immigration won't fix the real issue, which is 'homegrown' terrorism.
+- One only has to look at the debacle that has unfolded in Iraq after the withdrawal of U.S. troops at the end of 2011 to have a sneak preview of what could take place in an Afghanistan without some kind of residual American presence.
+- Hersh's account of the bin Laden raid is a farrago of nonsense that is contravened by a multitude of eyewitness accounts, inconvenient facts, and simple common sense.
+- The reason that attacks by American terrorists who are not jihadist militants are sometimes not called 'terrorism' is, in part, because in the United States, terrorism is a crime which has to be in some way be associated with a 'designated' terrorist group such as ISIS.
+- Sheikh Rahman's fatwa was the first time that anyone associated with al Qaeda had given religious sanction to attacks on American aviation, shipping and economic targets.
+- If the party of Lincoln wishes to become the party of intolerance, selecting Trump to be its presidential candidate is a good way forward.
+- The thing that's very puzzling to somebody who's been in Pakistan repeatedly since 1983 is lots of people live in compounds with high walls in Pakistan. I mean, that's so completely routine. In fact, you know, it would be un-routine to have the reverse.
+- In late May 2016, an ISIS spokesman called for attacks in the West during the month of Ramadan.
+- Keeping a relatively small, predominantly U.S. Special Forces presence in Afghanistan to continue to train the Afghan army past December 2016 is a wise policy that would benefit both Afghans and Americans.
+- Anne Richard, a senior U.S. State Department official, testified at a Senate Homeland Security Committee hearing in November 2015 that any Syrian refugee trying to get into the United States is scrutinized by officials from the National Counterterrorism Center, FBI, Department of Homeland Security, State Department and Pentagon.
+- Bin Laden's death is just a punctuation point on a set of problems they've had for a long time. I think the prognosis for al-Qaida and groups like it is really bad, and that's a good thing.
+- The United States didn't ban Italian immigration in the 1920s because a small minority of Italians became members of the Mafia, and the country is a richer place for it.
+- The reason that Islamist militants can assert that jihad is necessary against the perceived enemies of Islam is that there is sufficient ammunition in the Quran to buttress their beliefs. The same could also, of course, be said for the Old Testament, which is full of scenes of violent death visited on the enemies of God.
+- For many, embracing the ideology of Osama bin Laden or ISIS allowed them to become the heroes of their own story as well as actors in a cosmic crusade. For others, a 'cognitive opening' to militant Islam was often precipitated by a personal disappointment or loss.
+- Sanctions on Pakistan have been part of the troubled U.S.-Pakistan relationship in the past and should not be considered as an option in the future.
+- Before 9/11, al-Qaeda was an organization of global reach.
+- The dirty little secret of the intelligence world is that much of what you really need to know isn't exactly a secret anyway.
+- Western Mosul is the historic heart of one of the oldest cities in the world. Its narrow streets and alleyways are impassable for armored vehicles.
+- The American incarceration of Sheikh Rahman was a hot-button issue for al Qaeda for many years.
+- The Trump administration launched the cruise missile strikes in Syria, an act of war, without a U.N. resolution or Congressional authorization.
+- Islam is, to be sure, a big tent, and the one and a half billion Muslims in the world run the gamut from mystical, moderate, pacific Sufis to Salafists.
+- The rise of ISIS starts with a Jordanian thug named Abu Musab al-Zarqawi who founded ISIS' parent organization, al Qaeda, in Iraq. What gave Zarqawi the opportunity to create al Qaeda in Iraq? It was, of course, George W. Bush's decision to invade Iraq in 2003.
+- A decade and a half ago, the U.S. Air Force dropped massive 15,000-pound 'Daisy Cutter' bombs on the Tora Bora complex where Osama bin Laden was hiding in December 2001.
+- In 1999, NATO did impose a no-fly zone in Kosovo without seeking a U.N. resolution to carry out air strikes on Serbian forces.
+- When it comes to the greater Middle East, McMaster brings to the table his own deep knowledge of Iraq and Afghanistan, countries where he served for many years.
+- The Nazis and the Khmer Rouge went to great lengths to hide their crimes against humanity. Instead, ISIS posts its many crimes on social media for global distribution with seemingly no thoughts for the consequences.
+- Syrian dictator Bashar al-Assad belongs to the small Alawite sect and is therefore considered a heretic by many Sunnis; al-Assad runs a secular regime, and therefore he is considered by Sunni militants to be an apostate, and he is inflicting a total war on his Sunni population.
+- Bin Laden comes out of a business background - he studied public administration and economics at university, and he worked for his family company, which was obviously a rather successful enterprise.
+- When Abu Zubaydah was shown a series of photos of al Qaeda members by Soufan, he identified one of them as the operational commander of 9/11, Khalid Sheikh Mohammed.
+- Today, we are not likely to need to organize local militias for our defense now we have something called the Pentagon.
+- Between November 23, 2002, and January 11, 2003, al-Qahtani was interrogated for 48 days at Guantanamo more or less continuously, kept awake for much of that time by loud music being blasted when he was falling asleep, doused with water and subjected to cold temperatures, kept naked and forced to perform tricks as if he were a dog.
+- The Green Berets of U.S. Special Forces 5th Group - known as 'the Legion' - who led the anti-Taliban campaign represent a textbook case of a successful Special Forces campaign.
+- Assad owes his continuation in power to the intervention of Russia in 2015 to prop up his regime.
+- Anwar al-Awlaki was a U.S. citizen by virtue of his birth in Las Cruces, New Mexico, in 1971 while his Yemeni father was studying at New Mexico State University.
+- The less the ISIS 'caliphate' exists as a physical entity, the less the group can claim it is the 'Islamic State' that it purports to be.
+- America has not traditionally been the cramped, frightened country of Trump's executive order that bans Syrian refugees.
+- The commonly accepted definition of terrorism is that it is politically motivated violence directed at civilians by entities other than a state. These kind of attacks can come from the far right, the far left, racists of every stripe, as well as jihadists.
+- Al-Qaeda, which means 'the base' in English, lost its base and training camps in Afghanistan, while its leaders were on the run, captured, or dead. One year after the 9/11 attacks, al-Qaeda was still on life support.
+- At one point people in al Qaeda were actually drawing monthly paychecks when they were based in Sudan.
+- The Sunni militants that make up ISIS are not the underlying problem in Syria and Iraq, but rather they are a symptom of other deeper problems.

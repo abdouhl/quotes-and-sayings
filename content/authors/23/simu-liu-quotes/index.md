@@ -1,0 +1,106 @@
++++
+author = "Simu Liu"
+title = "Simu Liu Quotes"
+quotes_len = "100"
+description = "the best 100 Simu Liu Quotes"
++++
+- I definitely dabbled and had done a number of stunt jobs in which I was doing fighting.
+- It does feel like we get to just carte blanche create a superhero origin story for 2021, for this day and age, that is told through a distinctly Asian American lens.
+- Anti-Asian racism is very real, and it will not be solved with an opulent rom-com or Marvel superhero, but with you - the bystanders - acknowledging the validity of our pain.
+- I am that person that struggled with my identity my whole life.
+- The truth is that Asian people have been targeted and discriminated against for far, far longer than COVID has been around.
+- I loved superhero movies growing up.
+- I'm somebody who feels caught between two worlds a lot of the time.
+- I have always prided myself on being able to speak my mind.
+- The main character is always, you know, this blond-haired, blue-eyed guy who's the high school quarterback or the star of the basketball team. That's all I wanted to be, really, truly. I definitely was not that.
+- I tend to spend way more time than I should on social media.
+- To fully understand the roots of anti-Asian prejudice in America, you need to know about the Chinese Exclusion Act of 1882 that banned all immigration from China, even though it was Chinese immigrants that had essentially built America's railroad system.
+- Because I think it's so easy to look at someone, regardless of where they grew up, where they came from, the language that they speak, to just look at the colour of their skin and all of a sudden reduce them to harmful stereotypes.
+- Representation matters. And it's about more than just actors on a screen. It's about snacks, it's about food, it's about culture, in every possible way.
+- As an actor of color, I was overlooked at every possible opportunity. I was given roles that were almost not roles. It was, like, Scared Asian Guy. Whether I was a scared Asian guy in front of a computer or a scared Asian guy getting robbed in the grocery store, I always played these pathetic, low-status characters.
+- You know, 'Hunt for the Wilderpeople' was a great movie that I thoroughly enjoyed.
+- Of course, we know Shang-Chi is the, in the comics or in the world of Marvel, he is the master of Kung Fu. He is the greatest hand-to-hand fighter in the universe, and so we had to really bring it and I feel like we did it a really big way.
+- I auditioned for 'Crazy Rich Asians' four times and it was very, very hard for me to not get it, because it was like, these 'Crazy Rich Asians' people were the cool kids and I was the one being left out.
+- I loved Spider-Man, Superman, Batman, but I was always keenly aware that people who looked like me could not look like that.
+- In my entire life, I'd wondered why there were no superheroes out there that looked like me.
+- What I'm trying to say is, I'm really happy I'm not a doctor. So, take that mom and dad.
+- I've had dogs in my life pretty much from the moment I've been on my own.
+- I realized, if I don't step into the spotlight, and the person next to me doesn't step in, and the people around me don't step in, then who will?
+- It's every immigrant child's dream to tell your parents they don't have to work anymore.
+- My parents are two academics that came to Canada to pursue academic opportunities.
+- If I were to fight one Marvel superhero, I think I would fight Captain America. We would start all aggressive and then both realise how much we liked and respected one another. We would be friends.
+- I was a dress-up Spider-Man for kids' birthday parties for a while.
+- You're talking to a guy that graduated from business school by the skin of his teeth, only to crash and burn at his first consulting job. What about that C.V. makes me a good representative of Asian Americans and Canadians?
+- We have a lot of heroes. We have Asian heroes, we have Asian American heroes, men, women, of all ages, and not all of them do martial arts. But that doesn't mean that they don't have their own arcs, their own stories, their own subtleties and nuances. And I think that's what's important.
+- Yeah, I went to business school and I actually worked as an accountant for about eight months. It's not what I wanted, but it was definitely a move to appease the parents.
+- Every community should have a superhero. And the truth is, for many of us in the Asian community, we didn't grow up with that.
+- It was an extreme pleasure to be a part of the MCU, and if and when the call comes for me to return to the universe, I will be more than ready.
+- I think so often we have these ambitions or these hopes within us that we kill before we ever let it escape our lips because we are afraid.
+- I believe in the cultural significance of the Marvel Universe and 'Kim's Convenience.' They are two weapons in the same fight and they mean everything to me and the possibilities of what they can represent.
+- Was I a Jackie Chan-level martial arts master? Absolutely not! Not by any stretch of the imagination. I'm an actor. I'm a performer.
+- What needs to change, really, is that we need better representation behind the camera. We need better representation among the people who tell the stories or the people who greenlight the movies.
+- I've always just been such a big fan of the MCU and anything Marvel, really.
+- I remember doing 5th grade math when I was like seven years old. My parents just constantly pushed me, in a good way, to always demand excellence in everything that I did.
+- All of the cultural nuances and the traumas and the complexities that come with being a third-culture kid, these are all nuances that the quote-unquote system of Hollywood is just starting to become privy to.
+- Who you seen on screen shapes who you are.
+- Kids growing up today will have what I never did growing up, which is somebody across that screen reflecting who they are, and showing them what is possible.
+- The first time I tried on Shang-Chi's superhero suit - Marvel has never had an Asian lead, so that was such a rare and impactful moment, for me as an actor but also for people who look like me. I nearly cried. It was so emotional.
+- It's hard enough to celebrate being Asian in normal times. But now, when the whole world is kind of coming down, with all this rhetoric and people getting attacked on the street, you really need to deliberately try to celebrate Asian-ness.
+- We've seen a million versions of the Peter Parker radioactive-spider origin story. We've seen Thomas and Martha Wayne at the opera... over and over again in movies and media, and I think we're ready for something new.
+- I studied finance and accounting in college, and I worked at a massive accounting firm out of graduation.
+- I feel like it's a bit of a misconception that all actors have to be expert martial artists if they're Asian.
+- My parents came to this country with literally nothing.
+- I might be tweeting a lot of things in the future, some of which will be absolute idiocy.
+- We saw David Carradine, who is not of Asian descent, playing an Asian man on the show 'Kung Fu' that originally should have, and was developed for, Bruce Lee. To have that be the legacy that quote-unquote inspired 'Shang-Chi' in the beginning obviously doesn't put us off to a great start.
+- I'd just woken up from a nap, it was around 6:30 in the evening. I was eating some shrimp crackers at my desk. Then I get a call from an unknown number in Burbank, California and my heart immediately skips a beat because I know the Disney home office is in Burbank.
+- There was a cute girl on the crew that I was trying to impress during a very elaborate stunt. I winked at her and, when I started running, proceeded to lose my balance, fall, banged my knee, and ended up sprawled out 12 feet in the air.
+- As an Asian man in the industry, you had to know martial arts.
+- It's important that we meet any sort of hate and negativity with joy and celebration.
+- Things like 'following your passion' and 'finding your creative outlets' didn't mean anything to me because I didn't have that area of my brain.
+- I went through an evolutionary process of learning to have a voice and how to use it, knowing when to step in. I don't always get it right, for sure. However, it's better to speak your mind than hold your tongue and wish you had said something.
+- The first set I ended up on was Guillermo del Toro's 'Pacific Rim' that was shooting in Toronto and they needed a bunch of Asian extras, and for some reason they put their ad on Craigslist.
+- Hawkeye is the best 'Avenger' because he does not rely on superpowers or extraordinary abilities.
+- When the world is telling us, 'We hate you because you're Asian, we hate you because we think you brought this virus to the world'... we need to kind of meet that with an equal and opposing force.
+- I am that person that's always felt like he wasn't enough.
+- Just because there's one Asian American superhero in the MCU, it does not by any means imply that our fight is finished right there.
+- We didn't grow up in any sort of meaningful representation in media apart from, you know, Jackie Chan, Jet Li, Bruce Lee. But, of course, that was different still, because it always played to this narrative of the foreigner from the East.
+- I grew up loving Jackie Chan and Jet Li and certainly Bruce Lee. But as I got older, I started to question: Is that all we have?
+- You know, it's not every day that you get to lead an MCU movie.
+- The most important thing is to show up. You've just got to get your butt out there.
+- Being a Marvel superhero has always been a dream of mine. And so I think every choice that I made in my career, every step that I took, brought me to that point.
+- All around me, I saw people who were taught by their parents, as I was, to just toe the line, not ruffle the feathers, not rock the boat too much and just put your head down, do your work and that's it. And I think that as a community, we're reaching the limitations of that kind of thinking.
+- I kind of love being a superhero.
+- There is a reason why kung fu caught fire and the world became obsessed with it, because it's incredible to watch.
+- My dad is amazing. He has, like, ancient Chinese skills.
+- I would do background and extra stuff, I would do student films, I just found every opportunity I could to be on set, and after awhile I accumulated enough work to get an agent.
+- So when we were building that superhero workout, that Marvel body, it was really important for us not to sacrifice range of motion and explosiveness, because I've still got to be able to throw a punch at the end of the day.
+- Asian men specifically have not been portrayed as the leading man or sex symbol.
+- I got into this business when I was 22 years old, and I didn't have a woke bone in my body. And all I wanted to do was be on screen and for people to pay attention to me, but we evolve and our cause evolves and the conversations today are certainly very different.
+- I spent the better part of my young life searching for people's approval and validation, and not getting any of it.
+- You know, the squeaky wheel gets the oil, and my parents had spent a lifetime not making any noise, and I was like, what happens if I do this? What happens if I rock this? What then, you know? Will anybody listen?
+- I think it is so important to have voices in the decision-making process that are sensitive to the groups that your show or your production represents. In the case of 'Kim's Convenience,' that was Korean Canadians, that was East Asian Canadians, and we rightly felt like we didn't have that voice in the writers' room or at the creators' table.
+- And so it became a priority for me to make sure that all Asian Canadians or Asian Americans or wherever you are, Asian Australians, felt like they belonged.
+- I'm outing myself as a huge comic book nerd.
+- I've seen cashiers, servers, transit operators, bank tellers and customs officers speak much too quickly on purpose as if it pained them to have to spend another second of their lives conversing with my parents.
+- Shang-Chi can definitely throw a punch.
+- Kim's' is one of the most unique shows to hit the air, with its focus on individual and communal growth, family, and most importantly: immigrant culture.
+- I would never in a million years have expected my life to have unfolded the way it did.
+- What I've always really appreciated about MCU superheroes versus elsewhere is that they are trying to disrupt the idea of what a superhero can be.
+- When I was 16 years old, I thought that backflips were like the coolest thing. So I spent like months and months of my life like, literally flipping onto my head.
+- I'm a big Taika fan, even before he did 'Ragnarok.'
+- I had very little time to mentally prepare before I was just kind of thrust into it. And I'm watching all of these movie stars that I idolized sharing the stage with me. And then I'm having dinner with Angelina Jolie because that's how the seating chart worked over at Marvel - and then trying to reconcile all of this in my brain.
+- Not every director can always rise to the challenge of all of a sudden having $200 million thrown at them.
+- If I just track Shang-Chi's journey in the context of table tennis in my life, it actually fits perfectly, and that's why I was able to sink into the character so, so seamlessly.
+- Obviously, learning the martial arts is a big part of my training, but the other part of being a Marvel superhero is, well, looking like a superhero.
+- I'm Asian-Canadian.
+- I've always had a bit of delusional confidence.
+- All I really knew how to do was put one foot in front of the other.
+- The immigrant experience is rarely depicted in mainstream media in a positive light, and for that very reason, 'Kim's Convenience' has a very special place in the hearts of countless fans globally - including mine.
+- When I was like 22 years old, I wrote this bible for a Sunfire series. So, Sunfire is actually one of the members of the first X-Men team, and he's a Japanese mutant who got his powers from a young age and grew up in an environment raised by his uncle to hate America.
+- I was 22 years old, actually, incidentally had just been laid off from my job and I had a dog. My parents just didn't understand any of it.
+- There is something missing in Asian America. They're missing people to tell them, 'It's okay to be who you are - you belong. Just be unapologetically you; you're not less than anybody else.'
+- If it's true that I wouldn't have had a career if it weren't for these conversations about diversity, the importance of representation, then I need to continue to fight that battle for the people that come after me.
+- Shrimp crackers are actually exactly what I was eating when I got the call that I was going to play Shang-Chi.
+- Kim's' gave me my first opportunity to portray an Asian character with significant story arcs and subtleties that most Western Asian actors can only dream of. The show was integral in allowing me to find my voice and shape the perspective and platform that I now have.
+- A superhero represents infinite possibility. It represents the peak of aspiration and courage. And if you see yourself reflected as a superhero, you will give yourself permission to dream anything.
+- My parents were electrical engineers, immigrants from China, and we were always just in a state of struggle, building our life.

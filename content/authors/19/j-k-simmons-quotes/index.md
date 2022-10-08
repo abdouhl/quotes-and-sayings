@@ -1,0 +1,96 @@
++++
+author = "J. K. Simmons"
+title = "J. K. Simmons Quotes"
+quotes_len = "90"
+description = "the best 90 J. K. Simmons Quotes"
++++
+- The retired L.A.P.D. motor cops who work set security now, all wear the same uniform, they're great guys with great stories, and they're great at their job, providing security on sets.
+- I completely agree with feeling the need for or the benefits of being pushed and of being directed on a project and collaborating.
+- I actually have a degree in music and was aware that music was a tool used in therapy. I didn't realize how far it had come since I was in college in the mid-seventies.
+- I read a very romantic book when I was young, when I was in college: Rilke's 'Letters to a Young Poet.' And I've always felt that if you are in any kind of an artistic, creative endeavor, and you feel there's something else you can do for a living and be happy, I think you should do something else.
+- Screaming is hard after a while.
+- I wasn't a comic book aficionado at all when I was a kid, but my cousin Weed was. Every time we went to visit him on the farm, he had two really fun things: comedy albums and comic books.
+- For me, if the words are good on the page, the rest of it comes from spending some time with the script, and not like you're learning lines but absorbing what the script has to offer.
+- I had many, many mentors that I worked with. Music teachers, choir directors, directors in summer stock or in regional theater. You know, people I was able to work with repeatedly and learn from who were really sort of appropriate people for me to work with at a given time in my development as an actor.
+- I've gone back and forth with fine-tuning the kind of conditioning I'm doing. Sometimes trying to shed weight and getting leaner and sometimes trying to pack on a little more muscle.
+- I come from a family of educators. My sister is a college teacher. My dad is a college teacher, but first a junior high teacher.
+- Good material is good material.
+- I've been so blessed to have the opportunities that I've had.
+- If the awards buzz is happening, and it's coming from critics and people in the business and all of that, that's only more good news.
+- In lean times, you get plenty of sleep, and you're not flying around everywhere.
+- For me, the lean times were a wonderful, beautiful time of my life, struggling for many years in regional theater all over the country for not much money.
+- After the second and final time that I got hugely fat in my life and when I lost that weight six or seven years ago, I pretty much decided that I was going to stay in decent shape for the rest of my life.
+- Sometimes I read a really good script, and I just know that it's not a good fit.
+- I never had intention of coming to New York or L.A. and actually doing more than scraping by - you know, doing plays. And as my career sort of progressed of its own volition, I did come to New York.
+- On 'Oz' one day, I got a chunk of a camera embedded in my head, and I was passed out on the floor geysering blood while the set medic stood over me, freaking out. No help whatsoever. I ended up going to the ER and getting nine stitches in my head - real Frankenstein stitches.
+- I'm not a fan of any genre but am a fan of movies that are intelligent and/or funny. That goes across all genres: a horror movie, a zombie movie, alien invaders, chick flick, or raunchy comedy. If it's well done, I'm a fan.
+- A lot of the stuff about white-supremacist groups was very family-friendly: 'We just love our people.' One the surface, you go, 'Gee, what's wrong with loving your people?' But when you love your people to the exclusion of everything else that's remotely different, that's when you get into trouble.
+- With these big superhero movies, everybody is so tight-lipped about everything, there's a certain amount of just going on faith.
+- Most of my friends - when I was five, six, seven years old - their dads were working in an auto plant in Detroit until 5:30, and then they were sat in rush hour. They weren't around as much. My dad finished at three o'clock, so he was just around more.
+- I've had a contemptuous relationship with authority throughout my life. I found myself at odds with authority, and I'm disdainful of blind authority.
+- I play tons of authority figures, whether it's the dad or the cop or the boss. I think it's a combination of how I look, who I am.
+- I have a degree in music, yeah, from the University of Montana. I studied voice and composition and conducting and all that.
+- I am who I am. I have a low voice, and I look like somebody's dad or boss or a police chief, and those roles come my way.
+- I don't often do a lot of that kind of research, but when it's something specific like 'Oz' - which I fortunately did not have a lot of experience with - I will. I read 'The Hot House,' about being on the inside at Leavenworth prison.
+- I've been your yellow M&M for, oh, at least two decades or so, and I've done a lot of other animated stuff in between.
+- I was in New York. I had been doing theater for many years, and then I got hired to a little part - they weren't calling it an extra, but I didn't have lines. It was a 'featured' part.
+- I was not a giant comic book fan as a kid, but to the extent that I did read comics, Spider-Man was always my favorite guy.
+- Music has become so ever-present in our lives. You can't walk through a shopping mall or go into a restaurant without what we used to call Muzak.
+- I like to act. Every other aspect of show business I find uninteresting.
+- Everybody does their homework, and we all come together and just knock it out. There are adjustments to make, and if you have actors who are collaborators and who really know how to listen and be in the scene together, than it works out beautifully.
+- I actually was a musician in college, a composer and singer, and really intended to be the second coming of Leonard Bernstein when I got out.
+- Almost every character I've ever played - and sometimes this is very conscious and sometimes it's not - I need to find what they love.
+- I'm just glad to be able to work.
+- Maybe when my kids are grown up, I can go back to Broadway. It would be great someday, I suppose.
+- I'm just first of all looking for a part that's well written and speaks to me.
+- I would like to find, or I would like a part to come to me that is like the part that Dennis Franz was fortunate to be able to play on 'NYPD Blue,' a sort of similar-looking actor to me, a generic, bald white guy who you would often think of as playing the authority figure. But he was the disgruntled middle-man. That would be a fun character.
+- When I go back to New York all these years later, I'll walk down Seventh Avenue, and I'll hear, 'Yo, Oz!' In New York, I get recognized for that all the time.
+- I've always believed, maybe naively, that 'The play's the thing.'
+- Music to me was never something that I could listen to while reading a book. Especially when I was studying music, if I was going to listen to music, I was going to put on the headphones or crank the stereo, and by God, I was going to sit there and just listen to music. I wasn't going to talk on the phone and multitask, which I can't do anyway.
+- I did Broadway shows. And I started realizing that this is actually how I'm going to make my living. So maybe I should try to do television and film and make a better living and get an occasional residual check so I can pay a mortgage someday.
+- It's nice to be number one on the call sheet.
+- People evolve and it's important to not stop evolving just because you've reached 'adulthood.'
+- I do respond well to a director, a teacher - someone who doesn't accept mediocrity.
+- If you're doing a prison show, HBO is the absolute best place in the world to be doing that because you're not going to have to do all that, you know, 'Prison Break' stuff where you can't really behave and speak like people do in a maximum-security prison.
+- I want to be like Bradley Cooper when I grow up.
+- Things heal. Bad stuff happens, but you go on. Life takes care of it.
+- I was studying music in college. I was singing, I was doing operas and Gilbert and Sullivan operettas, and then I was offered a job as the music director of the Bigfork Summer Playhouse, in Bigfork, Montana.
+- The best complement I ever got from the public or producers or directors is that I just totally blend in and become the character and they don't notice me and that the play happens or the movie happens or the TV show happens.
+- Fortunately, for the first 20 years in my career, I didn't have any other responsibilities outside of myself. I didn't have a wife and kids, so I could afford to sort of barely scrape by, to do theater.
+- When we were shooting 'Oz,' my wife was doing 'Beauty and the Beast' on Broadway, singing and dancing. It was an interesting dichotomy in our house.
+- I don't think I've ever watched a movie to prepare for a role.
+- Education is very important to me.
+- It's OK to turn down stuff that isn't really interesting and spend the summer with my family.
+- If I was doing a musical, I would never listen to the cast album, because I wanted to do my version of something.
+- My overall quest is always to do something that's somehow different from whatever it is that I just got done doing. If that can include occasionally playing an older guy who has a romantic side and a romantic relationship, than that's a real treat.
+- When I read the script and saw the jazz music setting, and when I read the name of the filmmaker was Damien Chazelle, I immediately got this mental image of Antoine Fuqua.
+- I read 'Whiplash,' and I wanted to do it.
+- There's a kind of numbness, a sameness, a lack of motivation in 'good job' culture.
+- Generally, if I read something that I think is really good and that I feel a connection with and is right for me, I see and hear who the guy is, as manifested by me.
+- If you are lucky enough to have a parent or two alive on this planet, call them. Don't text; don't e-mail. Call them on the phone.
+- My general philosophy of playing bad guys, which I've sort of done, you know, half the time is, you know, very few people who we view as bad guys get out of bed and think, 'What evil, terrible thing am I going to do today?' Most people see their motivations as justified - as, you know, justifying whatever they do.
+- I'd always had the concern that being in commercials would affect my credibility when I was getting started as a TV and film actor.
+- I just saw 'Men, Women & Children' last night, and it's a devastating movie in a lot of ways, but it's so well done, so well acted.
+- If I see a now-28-year-old woman coming up to me, she's probably thinking of 'Juno' because she watched it with her parents when she was 18 years old.
+- You can't play a guy who's just a snake, because what do you draw on?
+- I would like to thank the 49 actors who appear on screen in 'Whiplash' for realizing Damien Chazelle's vision so beautifully.
+- I never listened to the Grateful Dead as a teen; the only exposure I got was what came through the walls when my sister was listening to them.
+- Teaching is in my blood.
+- I like to stay home. I don't want to be away shooting in Europe for six or eight months at a stretch.
+- My aunt was so attuned to commercials that she could always identify the voiceover actor.
+- My full name's Jonathan Kimble, but my parents didn't want to call me either. So for a while, I went by Kim, which is a name for a girl or a Korean person.
+- Whether you need to like a character, I don't think that's necessary in order to portray him.
+- Being evil is easy.
+- By the time I started doing TV and film, I was in my forties, so I wasn't going to do the young up-and-comer.
+- Seriously, who doesn't want to slap a 27-year-old movie star?
+- I started out as a singer and a musician, and I was taught that your job is just to get out of the way of Brahms or Arthur Miller or Shakespeare and convey the brilliance that they created.
+- There's another film - a little Greek movie - that hopefully is going to get some distribution here in the U.S., called 'Worlds Apart,' where I also play a 60-year-old guy who looks a lot like J.K. Simmons, who has a romantic relationship with an appropriate woman.
+- I do think you need to understand a character's motivation and perspective.
+- I went from being a jock to a hippie. It was a very clear-cut decision. I had to be one or the other. I had to forsake that other aspect of myself. Or thought that I had to, which is regrettable. Quickly, I was back in the pine trees with the hippies, listening to my Jimi Hendrix and my Janis Joplin and turning on, tuning in, and dropping out.
+- We all want to not repeat ourselves constantly, and explore the limits of our capabilities.
+- I read a lot of scripts, and there's a lot of good writing and a lot of OK writing and a lot of crappy writing. And even with the really good writing, it doesn't necessarily speak to me.
+- When I got out of college, I moved to Seattle because it was the nearest big city and still didn't know if I wanted to be a composer, conductor, singer, actor. I just got day jobs and auditioned and took what came, and the theater doors were the ones opening the most.
+- The first thing I did that was at all in the public eye, other than on stage, was 'Oz,' in which I played the head of the Aryan Brotherhood in a maximum-security prison.
+- My understanding, from what I've learned so far about Commissioner Gordon, is that he's the older guy with the mustache who relates with our hero in a certain way.
+- We're raising a generation of kids who are being overly praised for incredibly minor accomplishments. I think it's counter-productive.
+- I don't respond to authority figures who abuse their authority.

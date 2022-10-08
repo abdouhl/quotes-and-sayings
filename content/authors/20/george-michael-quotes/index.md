@@ -1,0 +1,113 @@
++++
+author = "George Michael"
+title = "George Michael Quotes"
+quotes_len = "107"
+description = "the best 107 George Michael Quotes"
++++
+- The whole business is built on ego, vanity, self-satisfaction, and it's total crap to pretend it's not.
+- I'm not a novelty act from the '80s in most parts of the world.
+- I have more love, success, and security than I could ever dream of.
+- Your political system is actually too democratic. The fact that Americans vote on every bill and proposition can prolong bigotry indefinitely, especially where it is aimed at minority groups.
+- I don't really think that there is anyone in the modern pop business who I feel I want to spar with.
+- The '90s were a bit of a disaster for me in so many ways. On a personal level, I don't think I could have toured. Also, I had some physical problems with my back that are now sorted and I just wasn't in the right state of mind.
+- I have no belief in The Bible or religion, but I think Armageddon was a lucky guess. I honestly think it's going to happen.
+- You can't imagine what it's like playing to people who have been loyal to you for 25 years and haven't seen you for 15.
+- I don't consider Americans bullies, but I do consider the American government bullying.
+- A lot of people like me, who've been around for years and years and years, only really lose it in their forties and fifties.
+- I knew, regardless of anything else, singing in front of an orchestra was going to be inspirational. It would feed me.
+- There's no comfort in the truth, pain is all you'll find.
+- I've achieved what every artist wants, which is that some of their work will outlive them.
+- It's absolutely essential that we have the same safeguards that straight couples do. But I want more than a 50 percent chance of success. I don't want to emulate that.
+- I have never felt any ethnic connection between the Greeks and me other than how hairy I am.
+- The fact I had my father as an adversary was such a powerful tool to work with. I subconsciously fought him to the degree that I drove me to be one of the most successful musician in the world.
+- I am a political person, though not with a big P.
+- Deep down, my ego always thought that I would outlast a lot of people that I was competing against.
+- I'd been out to a lot of people since 19. I wish to God it had happened then. I don't think I would have the same career - my ego might not have been satisfied in some areas - but I think I would have been a happier man.
+- Is my body a temple, or is my life a temple? I'm definitely in the latter category, and I think my life has been better since thinking that way.
+- If someone really wants to hurt you, they'll find a way whatever. I don't want to live my life worrying about it.
+- It takes so much strength to say to your ego, 'You know what? You're going to keep me lonely, so I have to ignore you.'
+- There are so many things and so many aspects to gay life that I've discovered and so many things to write about. I have a new life, and I have a new take on dance music because of that life.
+- I went to prison, I paid my bill.
+- English people have seen me get through scandals.
+- My ego is sated.
+- In the years when HIV was a killer, any parent of an openly gay person was terrified. I knew my mother well enough that she would spend every day praying that I didn't come across that virus. She'd have worried like that.
+- The press seemed to take some delight that I previously had a 'straight audience,' and set about trying to destroy that. And I think some men were frustrated that their girlfriends wouldn't let go of the idea that George Michael just hadn't found the 'right girl.'
+- You'll never find peace of mind until you listen to your heart.
+- I think the media is a real demon.
+- It's almost required with major artists that there's some duality. And I've got duality everywhere.
+- I define my sexuality in terms of the people that I love.
+- It's strange. At some point in your career, the situation between yourself and the camera reverses. For a certain number of years, you court it and you need it, but ultimately, it needs you more, and it's a bit like a relationship. The minute that happens, it turns you off... and it does feel like it is taking something from you.
+- I find it too terrifying to go out in L.A.
+- I have to believe that somebody up there thinks I've still got some work to do.
+- I am really not interested or excited by repeating former successes.
+- I'd like to say things are bound to get better, but I don't really believe it.
+- Because of the media, the way the world is perceived is as a place where resources and time are running out. We're taught that you have to grab what you can before it's gone. It's almost as if there isn't time for compassion.
+- If you don't feel you're reaching something new, then don't do it.
+- I still believe that music is one of the greatest gifts that God gave to man.
+- Apart from some of the videos and haircuts, I don't think I've made any wrong moves, ha ha!
+- It's only when the kids are in their late twenties that families really face up to what they are.
+- My American gay audience have continued to dance and sing to the music I make in a way that straight Americans haven't. I am grateful to them for that.
+- I mean, I've done different things at different times that I shouldn't have done, once or twice, you know.
+- I know that I sound self-satisfied, and I know that I've got an ego, but I don't have an ego problem.
+- Not many people are really that meticulous with what they do, I suppose, but I'm just a control freak and terribly afraid of failure or regret. I work very hard on these things.
+- I know I have a very self-destructive tendency since my mother died, I have got to be honest.
+- With pop stars or film stars, we become the object of people's self-definition, as well as the object of sexual definition.
+- Stars are almost always people that want to make up for their own weaknesses by being loved by the public and I'm no exception to that.
+- In terms of my work, I've never been reticent in terms of defining my sexuality. I write about my life.
+- Even though it's become a really cliched thing to see musicians working for charity, it's still effective and it still has to be done.
+- Celebrity and secrets don't go together. The bastards will get you in the end.
+- I've always been the porky boy in my head.
+- I try very hard to thank my lucky stars and keep it all in proportion and perspective, but it can be very tiring having a smiley face all day.
+- I have got other interests than just making music. I would like to follow those interests through.
+- I watch people who are not driven by creativity any more, and I think how dull it must be to produce the same kind of thing. If you don't feel you're reaching something new, then don't do it.
+- The media has affected everybody's consciousness much more than most people will admit.
+- I'm not anti-American. I've lived with Kenny, a Texan, for six years.
+- It's important to me that I should be free to express myself.
+- If I can just live further from the spotlight I think that'll be better for all really.
+- I've written a whole body of work that I'm incredibly proud of.
+- I can't bear Catholicism.
+- For some strange reason, my gay life didn't get easier when I came out. Quite the opposite happened, really.
+- I'm lucky to be alive.
+- Everything was going my way. I was happily marching into the history books. Then it all just fell apart.
+- The truth is my love life has been a lot more turbulent than I have let on.
+- I don't have joy in watching myself, whereas, actually, I quite like listening to my own music.
+- I would advise any gay person that being out in the real sense can never happen too soon.
+- I left school at 17 and was a star by the time I was 18 - in certain parts of the world anyway.
+- In the very early days of Wham! the attention felt great, but I do wonder how much freedom I gave away by trying to become something I wasn't.
+- I have never thought about my sexuality being right or wrong. To me it has always been a case of finding the right person.
+- I do want people to know that the songs that I wrote when I was with women were really about women. And the songs that I've written since have been fairly obvious about men.
+- I spent years growing up being told what my sexuality was.
+- I think for most of us, our biggest frailties are sexual.
+- I had to walk away from America, and say goodbye to the biggest part of my career, because I knew otherwise my demons would get the better of me.
+- I don't want to look at other people my age in leather. Why would I put it on?
+- I'm 10-12 years into life as an out gay man, and I'm a different person. I think there are things about my journey that might be useful to other people, and coming up with a hit record on its own doesn't seem to be enough anymore.
+- I really have no plans for any kind of career in TV or anything, but if I wanted to become good at it, I could. But I don't really think it's in the cards.
+- I owe my mother who I am, and my father my drive.
+- No one wants to look wholesome at 21!
+- I'm the luckiest writer on earth.
+- I never really told my parents that I wanted to be a pop star or anything. They just knew that I was totally obsessed with music. Funnily enough, my father always used to say that he didn't think I could sing.
+- Anybody who fights for human rights or to make this world a better place. Nurses, doctors, teachers: these are the people who deserve the credit these days.
+- I had been obsessed with insects and creepy-crawlies: I used to get up at five o'clock in the morning and go out into this field behind our garden and collect insects before everyone else got up, and suddenly, all I wanted to know about was music. It just seemed a very, very strange thing.
+- My depression at the end of Wham! was because I was beginning to realise I was gay, not bi.
+- I was brought up when media still kept totally away from violence when it came to children. I don't think it would have made me scared of violence, but I find it repulsive.
+- I write about my life.
+- You can't have a child just to keep a relationship together, can you?
+- I used to believe that George Michael was a total actor. It was self-defeating, because it made me also feel fraudulent.
+- I'm surprised that I've survived my own dysfunction, really.
+- I never minded being thought of as a pop star. People have always thought I wanted to be seen as a serious musician, but I didn't, I just wanted people to know that I was absolutely serious about pop music.
+- When you are trying to express things with metaphors and much more subtlety, that's when you are doing yourself a disservice by making a video.
+- I've been very well remunerated for my talents over the years so I really don't need the public's money.
+- I want to make a pop album - something more upbeat than my stuff was in the '90s.
+- Of course, I want to sell this record - there's no point making it otherwise.
+- I don't really have any traits that I deplore. I get annoyed with myself sometimes, but that's about it.
+- I realised those things my ego needed - fame and success - were going to make me terribly unhappy. So I wrenched myself away from that. I had to. I had to walk away from America and say goodbye to the biggest part of my career because I knew, otherwise, my demons would get the better of me.
+- There are things about my mum that I only realised later, things that make me admire her.
+- I went through a long period where I was afraid of doing things I wanted to do, and you get your courage back, which is what's important.
+- I had very little fear about it, but basically, my straight friends talked me out of it. I think they thought as I was bisexual, there was no need to. But it's amazing how much more complicated it became because I didn't come out in the early days. I often wonder if my career would have taken a different path if I had.
+- I spent the first half of my career being accused of being gay when I hadn't had anything like a gay relationship.
+- I'm not stupid enough to think that I can deal with another 10 or 15 years of major exposure. I think that is the ultimate tragedy of fame... People who are simply out of control, who are lost. I've seen so many of them, and I don't want to be another cliche.
+- I have the audience I deserve. Or at least I have the audience that represents the kind of people that I like.
+- I've never done anything so political before. I've spent years shouting my mouth off about serious issues over dinner tables but never really had the confidence to express my views in a song.
+- There is no such thing as a reluctant star.
+- The first sign of real obsession with music was with an old wind-up gramophone that mum had thrown out into the garage. My parents gave me three old 45s - two Supremes records and one Tom Jones record - and I used to come home from school literally every day, go out to the garage, wind this thing up, and play them.
+- I'm just not security-minded.

@@ -1,0 +1,25 @@
++++
+author = "Julian Schnabel"
+title = "Julian Schnabel Quotes"
+quotes_len = "19"
+description = "the best 19 Julian Schnabel Quotes"
++++
+- I guess I am ruthless too because that's what makes a great artist. But I also respect people, I don't go around stepping on their heads.
+- Because I'm not doing it for the money, I'm doing it because I feel like that story needs to be told or clarified, or something needs to be shown about that.
+- There's been too much attention on marketing. Can't we just talk about the paintings?
+- This camera works like photosynthesis. It is as if you were Xeroxing your own face. The pictures have such physicality: their surface is like fine leather, stained from chemicals. Each one has a body and is more than an image.
+- It's a great excuse and luxury, having a job and blaming it for your inability to do your own art. When you don't have to work, you are left with the horror of facing your own lack of imagination and your own emptiness. A devastating possibility when finally time is your own.
+- It's very difficult, I think, for people to be around you when you're getting lots of attention. It's very difficult for young people to understand what that's about when people start treating you differently when you've been doing the same thing you were doing the day before.
+- I never paid much attention to being Jewish when I was a kid. In fact, I'd say my religion was more surfing than Judaism - that's what I spent most of my time doing.
+- You know, painting has given me a lot of freedom, because for some reason, I've been able to paint things, organize things in a way that I see that don't have any buffers or compromises in them.
+- Traditionally, photography is supposed to capture an event that has passed; but that is not what I'm looking for. Photography brings the past into the present when you look at it.
+- If I hung one of my paintings next to someone else's, I knew mine would kind of pop off the wall.
+- My early paintings weren't that good - I was very influenced by Francis Bacon. But there was a kind of intensity there. And however influenced they may have been by other people, even my earliest paintings were recognisably my own.
+- I wanted to make pictures where you would not know who took them. I also bring the present into the past.
+- I'm not saying I'm the only Jewish person who cares about Palestinian people, but unfortunately, their voices are not necessarily heard as loudly as they should be.
+- Some people must go to extremes to get the world in balance for themselves. Some can't bear bright lights, so wherever they go they search for the dark; they turn the lights down, anything to sustain some level of comfort.
+- I've never made a movie to make money. I've never made a painting to make money.
+- I didn't want to be like everybody else. Art was my religion.
+- My compulsion is to create things.
+- I think when somebody's painting they don't necessarily... I'm not illustrating what I know. I'm mapping out, like topographically, some terrain I am satisfied with, how awkward that mark is.
+- I think that truth is stranger than fiction, and it's nice to know the people you're making a movie about.

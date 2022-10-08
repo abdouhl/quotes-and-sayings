@@ -1,0 +1,40 @@
++++
+author = "Dan Harmon"
+title = "Dan Harmon Quotes"
+quotes_len = "34"
+description = "the best 34 Dan Harmon Quotes"
++++
+- Eight o'clock is hard no matter what network you're on because people have to make a decision to sit down and start watching TV. Every other time slot is a time slot that happens after someone's watching something else.
+- I think that casting is probably the most important thing in television production.
+- I care very much what the fans think. I'm starting to loosen my grip on caring about what critics say, because I think that critics care about what fans think of them, too, so there's a little bit of a refraction there, through that glass.
+- Television is a populous, derivative, democratic medium.
+- I feel like my life has always been the 'Hey Look at Me Show.' I'm not apologetic about that.
+- I wish that television would stop selling our hatred of ourselves, and start seducing us with our love of ourselves.
+- Well, the average person comes home from work really tired, and just wants to flip through channels until they land on the thing that's the least objectionable to them. They're not looking for their new favorite TV show because they know that that search will take forever and they'll go to bed unhappy.
+- When I was a kid I never knew the difference between a sitcom and a drama. I just knew what my parents were watching and what was making them happy.
+- People often ask me about what constitutes a nerd-friendly show - like, does it have to have sci-fi elements? But I think it's just a show that satisfies the secret craving we all have to be obsessed with something and not feel at all stupid about it.
+- I love '30 Rock.' It's one of my favorite shows. It's certainly the gold standard of comedy writing.
+- Emotionally, shows like 'Cheers' and 'Taxi' were classic sitcoms when I was growing up.
+- I don't really have a lot of appropriate feelings for people on an individual basis, but I've always wanted to make people happy.
+- When you watch the sitcoms that were the big hits when I was growing up, TV was still just TV. It was allowed to just be TV. There were three channels that were competing for the whole family and you couldn't take your business elsewhere.
+- There's a fine line between a stream of consciousness and a babbling brook to nowhere.
+- I was raised on NBC television.
+- My passion for 'Star Trek' is actually rooted in my love of television and the art of franchise and a premise designed to stick people together that have to figure out what to do.
+- Everyone knows that there are more people watching any given show than is being registered by the Nielsen system.
+- If your ratings are high and there's money being made, you're allowed to be a perfectionist in television.
+- I feel like I am a good person and a professional, very able leader of men.
+- Class clowns are never allowed to date anybody decent, but you don't get beaten up, you're invited to parties, and everybody likes you.
+- The concept of doing holiday episodes is a huge part of what's fantastic about doing TV. And viewers agree; you see the numbers going up for holiday episodes.
+- I've never done well when I've been appreciated. I've done best when I'm targeted for death.
+- Maybe I am just a jerk.
+- Truthfully, I'm pretty stuck in the '80s.
+- I think women are different, and I think having them in the room is crucial to a family comedy, ensemble comedy, television comedy, where half the eyeballs on your show are women.
+- There's the same percentage of genius happening in both genders, but there's less women writing scripts and out there looking for the job.
+- I am absolutely and inherently self-destructive in that I am always making sure I'm doing what I want to do.
+- I am a collaborator with everyone who agrees that I need to be in control. I happily collaborate with my loyalists.
+- There are lots of emotions that go with the Fourth of July.
+- I'm from Wisconsin so I always feel a little nauseous about begging and trying to trick people into liking me.
+- I don't think it's going to be possible for the next generation of writers to tell stories without telling stories about telling stories.
+- I really like performing for people.
+- The public's perception of your show is what it is, and you don't get to complain how people perceive your show or talk about it.
+- TV in all its ugliness can be a beautiful thing.

@@ -1,0 +1,62 @@
++++
+author = "Paul Cezanne"
+title = "Paul Cezanne Quotes"
+quotes_len = "56"
+description = "the best 56 Paul Cezanne Quotes"
++++
+- I paint as if I were Rothschild.
+- Shadow is a colour as light is, but less brilliant; light and shadow are only the relation of two tones.
+- I could paint for a hundred years, a thousand years without stopping and I would still feel as though I knew nothing.
+- I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.
+- The artist makes things concrete and gives them individuality.
+- I have sworn to die painting.
+- We must not be content to memorize the beautiful formulas of our illustrious predecessors. Let us go out and study beautiful nature.
+- I'll always be grateful to the public of intelligent amateurs.
+- Two sittings a day of my models and I'm totally exhausted.
+- Don't be an art critic. Paint. There lies salvation.
+- I have nothing to hide in art. The initial force alone can bring anyone to the end he must attain.
+- A work of art which did not begin in emotion is not art.
+- Art is a harmony parallel with nature.
+- The day is coming when a single carrot, freshly observed, will set off a revolution.
+- I am more a friend of art than a producer of painting.
+- I've come to the conclusion that it's not really possible to help others.
+- I ask you to pray for me, for once age has overtaken us, we find consolation only in religion.
+- I am a pupil of Pissarro.
+- Doubtless there are things in nature which have not yet been seen. If an artist discovers them, he opens the way for his successors.
+- The painter must enclose himself within his work; he must respond not with words, but with paintings.
+- My nervous system is enfeebled, only work in oils can sustain me.
+- The world doesn't understand me and I don't understand the world, that's why I've withdrawn from it.
+- Pure drawing is an abstraction. Drawing and colour are not distinct, everything in nature is coloured.
+- I am the primitive of the method I have invented.
+- You say a new era in art is preparing; you sensed it coming; continue your studies without weakening. God will do the rest.
+- Keep good company - that is, go to the Louvre.
+- For an Impressionist to paint from nature is not to paint the subject, but to realize sensations.
+- The truth is in nature, and I shall prove it.
+- I allow no one to touch me.
+- Optics, developing in us through study, teach us to see.
+- The awareness of our own strength makes us modest.
+- With an apple I will astonish Paris.
+- A thousand painters ought to be killed yearly. Say what you like: I'm every inch a painter.
+- Is it the factitious and the conventional that most surely succeed on earth and in the course of life?
+- The clear French landscape is as pure as a verse of Racine.
+- Painting is damned difficult - you always think you've got it, but you haven't.
+- Tell me, do you think I'm going mad? I sometimes wonder, you know.
+- There are two things in the painter, the eye and the mind; each of them should aid the other.
+- Painting from nature is not copying the object; it is realizing one's sensations.
+- The most seductive thing about art is the personality of the artist himself.
+- When I judge art, I take my painting and put it next to a God made object like a tree or flower. If it clashes, it is not art.
+- People think how a sugar basin has no physiognomy, no soul. But it changes every day.
+- It is impossible for emotion not to come on us in thinking of that time now flowed away.
+- One does not substitute oneself for the past, one merely adds to it a new link.
+- Is art really the priesthood that demands the pure in heart who belong to it wholly?
+- I want to die painting.
+- If isolation tempers the strong, it is the stumbling-block of the uncertain.
+- It's so fine and yet so terrible to stand in front of a blank canvas.
+- I lack the magnificent richness of color that animates nature.
+- We live in a rainbow of chaos.
+- Here, on the river's verge, I could be busy for months without changing my place, simply leaning a little more to right or left.
+- Genius is the ability to renew one's emotions in daily experience.
+- My age and health will never allow me to realize the dream of art I've been pursuing all my life.
+- An art which isn't based on feeling isn't an art at all.
+- A puny body weakens the soul.
+- With a painter's temperament, all that's needed are the means of expression sufficient to be intelligible to the wide public.

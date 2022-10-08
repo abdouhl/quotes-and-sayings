@@ -1,0 +1,106 @@
++++
+author = "Diane Guerrero"
+title = "Diane Guerrero Quotes"
+quotes_len = "100"
+description = "the best 100 Diane Guerrero Quotes"
++++
+- I want to present the immigrant community in more of a real light.
+- Sometimes I want to bury myself in bed, and I don't want anyone to know anything about me, and I don't want anyone to judge me.
+- It's sometimes a little embarrassing to take selfies, but sometimes I want to take a selfie because I'm like, 'Oh I look cute. I like my hat. I like what I'm wearing, and I want to show it off.'
+- As much as it's been difficult to tell my story over and over again, it has been the best thing that has ever happened to me.
+- Throughout my childhood, I watched my parents try to become legal but to no avail. They lost their money to people they believed to be attorneys but who ultimately never helped. That meant my childhood was haunted by the fear that they would be deported.
+- I am representing my community, in a sense, especially given the fact that there are not as many Latino actors out there.
+- I think despite what we've seen on TV, people like seeing women and knowing about women's stories and their struggles and their truth. I think we've seen it in a lot of these shows - when there's a cast of all women, it does very well.
+- We need to be investing in resources, like Women Step Forward, to provide immigrants with trusted information about their rights and options.
+- I am conscious of the community that I'm representing and don't play into stereotypes.
+- Before I cook, I always have to put on music that parents listened to while cooking. I remember waking up in the morning and seeing my dad making breakfast with music and cutting up the tomato and singing to it and just handling food with such care. So when I cook, I put on salsa, vallenato, cumbia, or anything that reminds me of Colombia.
+- I don't know why I was lucky enough to have people in my community take me in. To be able to continue school. Or why I was lucky enough to find work or go to college. I do know that kind of luck is one in a million.
+- It is a huge myth that our voices don't matter, that our vote doesn't count.
+- My parents were desperately trying to become documented citizens of this country and tried very hard to get there, but to no avail.
+- Even kids who haven't had firsthand experience with the immigration system, I want them to know how families are affected and what kind of system is in place.
+- It's interesting when people access their inner little girl or little boy. I remember doing tons of those exercises when I was in school, where you're trying to dig into your vulnerability. There's no mask for a child, so all those feelings are real.
+- We should be a nation that welcomes immigrants, keeps families together, and ensures that everyone gets a fair day in court.
+- I think one of my best qualities is my ability to empathize with people. Perhaps it's because my journey has been so bumpy.
+- It has never been illegal to be a refugee.
+- I think people want immigration reform. I think people want to see a path for citizenship. I don't think we as a country want to discuss this in the way we do. I don't think we want to separate families. I don't think that's part of our values.
+- I love entertaining people! It's who I am.
+- I want to be viewed like a serious actress, and I'm afraid that people are just going to see me as the poor little girl whose parents were deported when she was 14.
+- My real story is this: I am the citizen daughter of immigrant parents who were deported when I was 14. My older brother was also deported.
+- I feel like you can't really be truthful as an artist and empathize with the human experience unless you know your truth, and you're not living a lie.
+- I was lucky enough to be with my parents until I was 14. Having my parents tell me that I could do anything. I was special. I matter.
+- I went through depression, which is something that we don't often talk about when we look at undocumented communities and deported families.
+- Once I started advancing in my career, I stopped wanting to hide from my reality.
+- Deporting asylum seekers back to violence does not reflect the values of our country.
+- This is the kind of stuff me and my friends talk about. We sit around and drink coffee, and we're really angry: We're like, 'Where's the Latino Museum?' Where can we go with our families, where can we go with our friends to learn about our history?
+- My parents instilled a lot of American values in me. They encouraged me to work hard and told me that anything was possible for me because I was a citizen.
+- We were like any other family with the same troubles and some of the same happy moments.
+- I always thought, 'Wow, I know I have an important story to tell,' but I never really thought it would happen.
+- I loved to sing and dance and play-act, and I always believed that my dream to become an actor would come true because my immigrant parents had taught me to believe in the American dream.
+- It's important that we vote, because this is how we can bring about change and bring about reform, and, honestly, I don't see Donald Trump, anything that he's saying to be effective or comprehensive. Instead of really uniting our country - we are the United States of America - he is dividing us.
+- I dreamed of being an artist.
+- People like seeing people being human and real, and I think that's been lacking on TV.
+- Crazy Jane is a complex individual who always has a lot brewing. She tries to hold things together on the surface, which is something that we all try to do. She uses these different personalities to try to cope with life.
+- 'Forrest Gump' has been one of my favorite movies of all time.
+- My father was desperately trying to be a legal contributor to this society.
+- Love yourself no matter who you are or where you come from.
+- We need someone who's going to govern on behalf of everyone in this country, including immigrants.
+- I can be very moody.
+- People tell me to go back to my country, and I'm an American.
+- We have a lot of comments on the news, we have a lot of rhetoric over what an immigrant is and what a deportee is, but you don't hear any real stories. I don't think we ever had the chance to really tell our side.
+- When you're the child of undocumented immigrants, you learn to keep your mouth shut.
+- I don't think you're ever ready to read your life back to yourself and try to make it entertaining for others.
+- If we value children and family, there's a great need for change, and we should try immigration reform - create a path for citizenship for people already here, update the visa system.
+- I so desperately wanted to fit in. There was a trajectory, and obviously, our society tells us that you go to high school, you graduate, and then you go to college, and from there, you get an internship, you get a job, and some people study abroad, and there are so many things you see that you desperately want to be a part of.
+- My family is broken.
+- Once my family was taken, I became fully aware that my community matters less to some people. That we are treated differently because of the color of our skin or where our parents were born.
+- For me, picking a college was really difficult. I wish I had had my parents there kind of supervising me. But I chose well. I did OK.
+- My parents came here from Colombia during a time of great instability there. Escaping a dire economic situation at home, they moved to New Jersey, where they had friends and family, seeking a better life, and then moved to Boston after I was born.
+- We have to educate our communities about the immigration system and dispel the myths that have been fed to us. Immigration isn't going to go away. A wall isn't going to 'solve' the issue.
+- It's disheartening to see the hate speech and the divisive behavior. But at the same time, I have to believe that smart people and good people of this country don't give in to that.
+- I was voted Most Happy-Go-Lucky in high school. Can you believe that? I was crying every other day by myself, but I was voted Most Optimistic and Most Likely to Have Her Own Television Talk Show.
+- I always wanted to, to the smallest detail, make my parents proud.
+- Growing up without my parents by my side is a weight I still carry today.
+- I remember when I was younger, older folks would say to me, 'There are three things you don't talk about at a dinner party: religion, politics, and money.' But I think the truth is quite the opposite.
+- There are some days that I have to remind myself, and I have to give myself affirmations, and I have to go to yoga or do something nice for myself. I get nervous about putting myself out there, but I want to encourage others to use their voices, too.
+- Immigrants are working hard to give our families a better life. Isn't that what the American Dream is?
+- I would have had a much different story to tell if I had been imprisoned after being separated from my family, without a warm bed and only the cold faces of ICE agents and the crinkly feeling of a Mylar blanket.
+- I want immigration reform to come into fruition, and I want it to be comprehensive, and I want it to have a path to citizenship, and I want to be involved politically every day.
+- When I go to places, I love going to all those kind of amusement parks and kind of cheesy things to do.
+- My parents have always been very honest with me.
+- As a kid, I felt like I had no voice, felt like I had no options, and that's what drove me to this really dark place.
+- Whatever the reason is, I am happiest when connecting with the human experience. It lets me know that I'm not alone in this world.
+- I grew up in Boston.
+- When I've been asked in the past about my dream role, I always expressed how much I'd like to be a superhero.
+- I want us to all look at ourselves and look at our stories. It doesn't matter where you come from or what journeys you've taken. Your stories matter, and they're powerful.
+- I know my family loves me, but the hardest part is to love myself.
+- All of the characters on 'Doom Patrol' explore traumatic pasts, how to deal with those pasts, and how that affects their present and their future.
+- I feel like there's this misconception that immigrants come here and just don't care about the system and paying taxes, and that's not true.
+- I worked a variety of jobs in retail and at coffee shops all through high school. And, though I was surrounded by people who cared about me, part of me ached with every accomplishment, because my parents weren't there to share my joy.
+- I'm not one for lying to children.
+- I definitely had to pave my own path, which wasn't always the easiest thing to do.
+- My job as an actor is to be visible and to tell stories.
+- Anybody who lives in Colombia knows that if you don't have any money - I tell you what - you don't have many options.
+- Just sharing who you are - there's so much value in that.
+- I worked while in high school and college so that I could pay for school. I also had loans.
+- I've experienced colorism in that way: where if you're lighter, then you'll potentially be accepted into society better than if you were darker-skinned.
+- I so desperately wanted to be honest, and I so desperately wanted to love myself and accept myself for who I was.
+- 'Doom Patrol' is doing the most - and the wackiest - things, but when you've been alive in this time, you know it's actually not so wacky. Awful, strange, and inexplicable things do happen.
+- While awaiting deportation proceedings, my parents remained in detention near Boston, so I could visit them. They would have liked to fight deportation, but without a lawyer and an immigration system that rarely gives judges the discretion to allow families to stay together, they never had a chance.
+- Neighbors broke the news that my parents had been taken away by immigration officers, and just like that, my stable family life was over.
+- I am here, a citizen of this country, and I'm saying, 'Hey, the system failed me. I am a good citizen. I contribute to this country, and here I am sharing my story. What are you going to do now?'
+- My father, who worked as a dishwasher, was especially anxious. He did not like being here undocumented.
+- I love making dishes that my mother used to make.
+- I definitely binge-watched 'House of Cards' when it first came out.
+- I think it's always been sort of difficult for people of color to celebrate the Fourth of July and really understand what that means.
+- I learned at a very young age that my parents were undocumented.
+- Every day, children who are U.S. citizens are separated from their families as a result of immigration policies that need fixing.
+- When you watch 'Doom Patrol,' you'll see most of the characters are trying to run away from their feelings and their emotions, and the minute they take a second and look at themselves face to face, that's when things can actually get resolved and get one step closer to peace.
+- If you have money, donate it. If you have time, donate that time. If you have a story to tell, share that story. There's a list of things you can do, and even educating yourself is a form of revolution in my opinion.
+- Even if you can't be an activist every day, when you can be, do it.
+- Freedom has not always meant the same for everyone in this country.
+- I am a proud American, regardless of the fact that my parents were separated from me forcefully.
+- I want to live in a country where we believe in helping each other, where we see where resources are lacking.
+- We need comprehensive immigration reform so that we're not creating this cycle of poverty and depression and everything that comes with separating a family.
+- Some people have issues in their past that might make them tweak out at certain moments, but it's possible to snap back and be a real human being.
+- Since when is it good to separate a family?
+- In my opinion, we're here to be happy; we're here to work hard; we're here to do the right thing; and we're here to save our planet. And I think that we can achieve it.

@@ -1,0 +1,72 @@
++++
+author = "David Longstreth"
+title = "David Longstreth Quotes"
+quotes_len = "66"
+description = "the best 66 David Longstreth Quotes"
++++
+- Being in a band can be really toxic to being in a relationship, considering all the touring and everything. Sometimes when you're on tour, it feels like you're living the same day over and over again.
+- A few things I've noticed about myself as a listener, and the music that I relate to and the music that's continued to mean something to me since I was a little kid or a teenager, is that they're songs that tell stories and songs that come from a place of experience.
+- I was obsessed with what a song was and what the possibilities of language in a song are.
+- I wasn't into chimpanzees or gorillas because I kinda felt like they were the Coke and Pepsi of the primate world.
+- When we're talking about friendships, generosity and fairness and equanimity and sharing and all those things are super-important to me.
+- When it comes to music, I am a dictator. Making a Dirty Projectors record come to life is like making a movie; I'm the one that makes the picture, and then we all figure out how to realise it.
+- Working as a producer, an arranger, and, in some cases, as a writer for some other people gave me a super different perspective.
+- When you make a melody that doesn't come with words from the get-go, sometimes you're just thinking about random vowel sounds that go with it - and it's really, really hard to write lyrics that actually obey the vowel sounds.
+- I do have my more concept-y albums, and then I have the ones that are more about just collections of songs. For me, the first Dirty Projectors record that I put out was like that: 'The Glad Fact.'
+- I love 808s - not only the Auto-Tune but just ,in general, the embrace of a kind of digital style of working.
+- I remember when that Kelis song 'Milkshake' came out, and just how extreme it seemed in terms of that really high triangle part and then the really low subs and then her voice in the middle.
+- I like the idea that songs can communicate in a way no other media can. That's why I write them.
+- Dirty Projectors has always been a band that's been card-carrying modernists in terms of pushing different kinds of abstraction to the fore and trying to take them to the center of the culture or something like that.
+- At the end of the touring on Bitte, looking back on all that stuff, I feel really proud of having written that music and of us for having really played awesomely on those tours.
+- What genres are good for is being like, 'Here are the parameters. Here's something about the way it's going to make you feel. And here's something about the subject matter.'
+- With 'Stillness', I don't think I appreciated how very codified all the different genres were in radio formats and the various constituencies of the culture. But music is music, too.
+- Music has been there for me. Whether good or bad, it's the way that I process experience. As a listener and as a writer.
+- Songs, a while ago, became the medium through which I process most of the information that I receive and feel. But I go back and forth about whether this is all of life or whether you're missing something important in living and whether or not, as a humanist, you're abnegating a certain responsibility if this - this art - is just where you are.
+- For somebody like Kanye, fame is the fullest realisation of his art in a way. It's like an Andy Warhol dream or something. He's able to marshal all of these different artforms and media into his story, in this very layered, idiosyncratic way.
+- A lot of the music I was inspired by growing up - college rock, DIY, what they used to call indie rock - has a value system where truth-telling and authenticity are oppositional with mass media, showbiz, and commerce.
+- There's been no two Dirty Projectors records that have had the same cast of characters every time.
+- I used to feel that musical knowledge and emotional truth-telling were antagonistic. But I was too curious about chords and instruments and recording to stay locked in that mentality.
+- To be in the woods is a special thing. And also just the concept of wilderness as a necessary opposite in a kind of global dialectic. I want there to be wilderness where there are no humans in a world like this. So nature is super important.
+- The more songs I've written, the more I've grown interested in telling a story. When I first began, I had this list of opaque phrases where you can make of it what you want.
+- Steely Dan is a band I'm not that into. Well, I guess I like certain singles.
+- Making a movie really frees up the way you think.
+- The thing that transforms something from being an idea to being a physical reality is work.
+- I got a little baby grand piano off Craigslist for, like, $500. It's a beautiful instrument that you hear on a bunch of the songs. That's that piano on 'Keep Your Name' and 'Work Together' and 'Little Bubble.'
+- I made, like, five records as Dirty Projectors before I got out of college. And then I put a band together when I got interested in going on tour around that time.
+- Kanye has this discursive way of working, getting input from a range of people, that I thought was really cool.
+- Ninety percent of touring is a logistical maneuver, moving your body and everyone else's from one city to the next. You're like a piece of gear. Then you jump out of the box, get onstage, and play. That sounds cynical, but it sucks to move around so much.
+- I've always loved cuneiform; I've always loved the way it looks. I love that it's the world's oldest script. And the creative potential of bad translation or misunderstanding or something has always been at the core of the idea of 'Dirty Projectors.' So the cuneiform is pretty playful - basically, just a joke.
+- What music can do so well is tell the truth in a subjective way.
+- Most of the creative industries have been deskilled by these really powerful ideologies of punk in music and Warhol in the visual arts. I think it would be great for us collectively to ask whether it's had a negative or positive effect in contributing imaginative stuff to our culture.
+- I'd always tended to regard song lyrics as sort of a bastard medium because they're subjugated under the music. If you were to regard them as poetry, it would be bad, embarrassing, confessional poetry - a lot of the lyrics I love.
+- You can have outlandish ideas, but if you don't work at them, they just remain outlandish ideas. Anyone can have an idea. Work is transformative.
+- I do think that one of the best effects the Internet has had on music is that it's allowed these false walls between different music communities to vaporize. We can see that this is a big, complex, interconnected web.
+- You don't write songs, really, when you're on tour.
+- When the Swing Lo Magellan touring wound up, it felt like the end of something for me, and I needed a break from touring. But really, the co-writing and producing I did after this gave me a different perspective on this whole thing. To me, that was like being a different spoke on the wheel.
+- Fame can amplify the message of art in a remarkable, meaningful way.
+- I'm from the East Coast; I think about things dialectically sometimes - in other words, antagonistically. The rhythms that I think of are polyrhythmic, bouncy, loping. The way that I want to approach that is to get, like, a flat-footed Connecticut hard-core drummer to play these bouncy, loping polyrhythms.
+- As far as working with Kanye and Solange, that was amazing. After 'Swing Lo Magellan', I needed a change. Getting to work in that capacity, writing for other people and working for other people as a writer and as a person who's not representing it as the front person or whatever - it's such a different perspective you can get.
+- One thing that I've often done under the Projectors is build an album from a central conceit.
+- When I first heard Bjork's music, I felt like I was a similar-minded thinker, both harmonically and melodically. She takes those things that you naturally assume to be opposite because they're presented that way most of the time, and the way she twines them together is so beautiful. To be able to do that is so powerful.
+- I never really thought of music as a particularly social thing. I experienced music through recordings as opposed to concerts. It just makes you think about the way things are put together, the way things are written as opposed to the showbusiness of something onstage, so no regrets there.
+- I remember when I first saw 'Guided by Voices'; those earlier recordings are so deconstructed, kind of like four-track music, and so artful in their collage and in their weird fragility.
+- When I would go over to friends' houses, and they would be zoning out to Mario Brothers, I just found it the most distasteful thing.
+- The first musical stuff I worked on was after the tour for 'Swing Lo Magellan' had ended and I didn't really know what else to do. I didn't know what music I would write. I just did work for other people - arranging, producing, writing - and all of that seemed to be in L.A.
+- I think, for Solange, it was important to make a super-strong direct statement with 'A Seat at the Table,' and she thought 'Cool Your Heart' was kind of a summer jam that didn't really fit.
+- What appeals to me about 'Blind Willie' is just how sparse that music is. Just this idea - the grain of it, the rawness of it and the simplicity of it. The directness of the language.
+- Bjork has this kind of abstraction and formalism that you associate with art music or avant-garde music.
+- A song is about heartbreak - but what are the constituent feelings? What are the aspects? There is anger, there is guilt, there are all these different things. I guess putting those voices into dialogue together just felt real.
+- A song isn't a newspaper. It might feel direct, but it's not.
+- Sexual harrassment and abuse is intolerable.
+- The people I really admire, like William Blake and John Coltrane and Richard Wagner, had these ridiculously full universes that took their entire lives to describe.
+- Just like any songwriter, the songs come out of where I am in my life and what I'm doing and who I'm hanging out with and the kind of sounds I'm imagining. I always loved the idea of it evolving in the same way that life changes.
+- I've been good at creating new textures and new fabrics, like vocal hocketing, or interlocking guitars, or suggesting new ideas for style... that's what the band has really excelled at.
+- What Joanna and Solange and Kanye all had in common was a mental image of what the sound is supposed to be. As a collaborator, my goal has to be to help them get toward that mental image. That was cool.
+- Art can contextualise and buttress fame. So rather than being antagonistic in the way Fugazi would have had it in 1989, particularly in the present, maybe they are one - they belong to one another.
+- I just have these terrible memories of our first European tour back in 2007. We had hired this van and tour service from the former Czech Republic called Fluff Wheels, and they sent us out with this 19-year-old vegan driver kid who had no money and refused to eat anything.
+- People like to put music and art up against the dehumanizing character of commerce and business corporations.
+- A lot of my vocals were the first time I ever sang the song.
+- I loved 'Nothing Was the Same' so much. For me, that was the first Drake record that I got into.
+- One of the things I really like about West African guitar playing is the way it makes harmony linear. They're really spelling things out and turning chords into melodies instead of just letting them be these hanging blocks of color.
+- It's helpful to just hear things through friends' ears, people who know you well. I guess when I started Dirty Projectors, when I was, like, 20, I always imagined it would be kind of like an amphibious vehicle: something that could go with me wherever I need to go. That kind of constant change has been in the DNA from the beginning.
+- Every Dirty Projectors album is a world unto itself.

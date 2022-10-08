@@ -1,0 +1,33 @@
++++
+author = "Dick Costolo"
+title = "Dick Costolo Quotes"
+quotes_len = "27"
+description = "the best 27 Dick Costolo Quotes"
++++
+- Authenticity is absolutely the key to a great tweet.
+- I was in Shanghai recently, where Twitter is blocked, and yet there were ads and billboards across town with hashtags on them.
+- When we think about the characteristics of Twitter that make it unique, it is all of public, real-time, conversational, and distributed. We are the only platform that is all of those at scale.
+- The interesting thing about the top 200 to 300 tweeters - a lot of them are musicians, actors, etc. LeBron James, etc. I think Lady Gaga is number one. But! They're not all celebrities. There's 'CNN Breaking News.' And the 'New York Times.' And other brands like Gary Vaynerchuk, who aren't really that known outside that world.
+- What I implore you to do is believe that if you make courageous choices and bet on yourself and put yourself out there that you will have an impact as a result of what you do, and you don't need to know now what that will be, or how that will happen, because nobody ever does.
+- I try to spend a lot of time with people outside my direct reports. The view from the top is totally distorted. If you only spend time with your directs, you have no perspective on what's really going on.
+- Twitter needs to continue being a good listener and recognize that the service has been redefined by lots of people, tweet by tweet, but also come up with its own priorities.
+- One of the things that I think I do well as a CEO is that I'm present. When I'm with my employees, I'm there in the moment.
+- If there's ever an example of the importance of making bold bets and focusing on what you love, it's Twitter.
+- One of the great things about Silicon Valley is, irrespective of how competitive you might be with another company or how closely you might be working with that company, there's a great sort of give and take, and camaraderie from - between - some of the executives in the valley and some of the other investors in the valley.
+- Twitter brings you closer. I mean, we see this over and over again from our users. It brings them closer to the action. It brings them closer to their heroes.
+- Twitter is the perfect complement to television. TV has always been social. You talk to the person you're sitting next to on the couch. You talk to the people you're - you know, at work with the next day around the proverbial water cooler.
+- One of the things you learn operating in the technology industry is disruptions are occurring every day.
+- People have Plato's form in their mind of what a leader is, or what a C.E.O. is, and it is a bunch of elements that I really don't conform to at all. I've given this a lot of thought, and I came to the conclusion that I don't care.
+- One of the things that amazes me about Twitter is the way it utterly eradicates artificial barriers to communication. Things like status, geopolitics and so on keep people from talking to one another. Those go away in Twitter. You see exchanges that would never happen anywhere else.
+- The way you build trust with your team is around super-clear communication in that instant when they say, 'I will be sad if you don't do X.' You have to say, 'We're not going to do X, and here's why, and believe me, you'll be much sadder later if I let you go do it and you spend a bunch of time on it and nothing ever happens.'
+- For many people, when they come to Twitter, the language is opaque. We need to push the scaffolding to the background and bring the content forward. The media, the photos, the videos.
+- As a leader, you need to care deeply, deeply about your people while not worrying or really even caring about what they think about you. Managing by trying to be liked is the path to ruin.
+- What launched me toward Feedburner? Well, the Internet happened. When I saw Mosaic, I thought, 'I gotta do this.' I founded and sold a few companies. Feedburner was my fourth.
+- We've recognized that Twitter is the second screen for TV, and TV is more fun with Twitter. There are a bunch of ways that we can be complementary to broadcasters.
+- The way you build trust with your people is by being forthright and clear with them from day one. You may think people are fooled when you tell them what they want to hear. They are not fooled.
+- We have a core value here at Twitter that says we want to defend and respect the user's voice. And that's important to us on a global basis. Someone doesn't sign up for a service expecting that their sign up information is going to be handed over without them being asked... We're going to defend our users' rights.
+- Not only can you not plan the impact you're going to have, you often won't recognize it even while you're having it.
+- You can choose to listen to one end of the spectrum or the other on Twitter, just like you can on television. But hopefully what we've done is given a voice to that broad middle ground.
+- I think if you look down the road for Twitter, we would like to be a company - a service - that is used by billions of people around the world in every country in the world because we feel that the power of Twitter is that it brings people closer to each other, to their governments, to their heroes, etc.
+- When you're doing what you love to do, you become resilient. You create a habit of taking chances on yourself. If you do what's expected of you, and things go poorly, you will look to external sources for what to do next, because that will be your habit. You will be standing there frozen. If you are just filling a role, you will be blindsided.
+- I think that content posted to Twitter is distributed to more platforms, services, sites, online and offline than any other services out there. Would love to see if someone can prove to me otherwise.

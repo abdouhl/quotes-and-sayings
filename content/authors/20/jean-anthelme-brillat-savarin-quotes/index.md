@@ -1,0 +1,27 @@
++++
+author = "Jean Anthelme Brillat-Savarin"
+title = "Jean Anthelme Brillat-Savarin Quotes"
+quotes_len = "21"
+description = "the best 21 Jean Anthelme Brillat-Savarin Quotes"
++++
+- Hearing, which, by the motion of the air, informs us of the motion of sounding or vibrating bodies.
+- The torrent of centuries rolling over the human race, has continually brought new perfections, the cause of which, ever active though unseen, is found in the demands made by our senses, which always in their turns demand to be occupied.
+- Those persons who suffer from indigestion, or who become drunk, are utterly ignorant of the true principles of eating and drinking.
+- The sense of smell, like a faithful counsellor, foretells its character.
+- Tell me what you eat, and I will tell you who you are.
+- I will only observe, that that ethereal sense - sight, and touch, which is at the other extremity of the scale, have from time acquired a very remarkable additional power.
+- I am essentially an amateur medecin, and this to me is almost a mania.
+- The sense of smell explores; deleterious substances almost always have an unpleasant smell.
+- Vegetables, which are the lowest in the scale of living things, are fed by roots, which, implanted in the native soil, select by the action of a peculiar mechanism, different subjects, which serve to increase and to nourish them.
+- The discovery of a new dish confers more happiness on humanity, than the discovery of a new star.
+- The first thing we become convinced of is that man is organized so as to be far more sensible of pain than of pleasure.
+- The German Doctors say that persons sensible of harmony have one sense more than others.
+- Taste, which enables us to distinguish all that has a flavor from that which is insipid.
+- The number of flavors is infinite, for every soluble body has a peculiar flavor, like none other.
+- All men, even those we call savages, have been so tormented by the passion for strong drinks, that limited as their capacities were, they were yet able to manufacture them.
+- All languages had their birth, their apogee and decline.
+- When I need a word and do not find it in French, I select it from other tongues, and the reader has either to understand or translate me. Such is my fate.
+- Sight and touch, being thus increased in capacity, might belong to some species far superior to man; or rather the human species would be far different had all the senses been thus improved.
+- The centuries last passed have also given the taste important extension; the discovery of sugar, and its different preparations, of alcoholic liquors, of wine, ices, vanilla, tea and coffee, have given us flavors hitherto unknown.
+- The senses are the organs by which man places himself in connexion with exterior objects.
+- Nothing is more pleasant than to see a pretty woman, her napkin well placed under her arms, one of her hands on the table, while the other carries to her mouth, the choice piece so elegantly carved.

@@ -1,0 +1,71 @@
++++
+author = "Passenger"
+title = "Passenger Quotes"
+quotes_len = "65"
+description = "the best 65 Passenger Quotes"
++++
+- 'Heart on Fire' didn't do as well as the last record in most territories, but South Africa is one of the places it did really well.
+- I dropped out of school at 17 'cause all I wanted to do was play music. I had odd jobs on the side of gigging until I turned 22, when I was lucky to start doing this full time.
+- The big thing is I'm not with a major label. I've been independent since the get-go, and I've been very lucky to get some good advice on keeping hold of copyright and that kind of stuff.
+- What I love is when I play gigs, it's just me and a guitar - very simple, very direct and intimate, and you hear every lyric, and you hear every detail.
+- I think Passenger is a bit of an ambiguous thing because in the past, it's been a band, or it's been just me, or a duo or whatever, but I kind of like that as well. I think it's whatever that I'm doing with whoever I'm doing it with!
+- My dad's from New Jersey, so I used to go to America a lot. I feel like it is a second home.
+- I know Ed Sheeran writes with a bunch of fantastic writers, but for me, it's quite difficult to be that honest with other people.
+- I try and put myself in other peoples eyes, as I dont feel I've got anything new to say about myself at 23.
+- If you go back to early folk, it's all storytelling; that's exactly what it is: some guy telling a story in a pub to 50 people with a guitar, you know.
+- If you can write a catchy melody and a song that captures people around the world, what better thing to do? Other than 'Let Her Go,' I haven't managed to do that. And that's fine by me.
+- I believe it's important to put all of your energy into what you're doing rather than doing an office job and trying to muster up energy for music. It's been a real blessing to play music full time.
+- Every time you go in to make a record with the same group of musicians, the communication gets better and better. You've got that joint experience, and you learn with every single one that you have on top of that.
+- I think expectations are sometimes dangerous things. I think the only thing you can be sure of is that it won't go to plan. I think that's the only thing that's definite.
+- I think some sing-songwriter music can just be very serious - after an hour and a half of it, you are exhausted - so I try and give it light and shade.
+- I think, and I don't know if it's because of 'Searching for Sugar Man,' but South Africans seem to not have to go with what's popular but what they like, and that's refreshing.
+- America is a funny place; it's a land of extremes, I think. There's fantastic, and there's gobsmackingly dreadful. In every realm you could imagine, they do extremes very well or badly, depending on how you look at it.
+- I write wherever I am. It helps that the writing process, for me, is a lone-wolf mission.
+- I'm very much of that old-school mentality of believing that if it works with an acoustic guitar and a vocal, then it should work within any format - and especially when most of my live work is just guitar and vocals, so it really does have to work with only that.
+- Maybe when I was a kid, when you have those crazy dreams about what music is going to be like - a string of No. 1 hits, a limo, and a fairground in your back garden - and then you start as a musician, and you realize very, very quickly, that's not how things work. So I just let go of all that stuff.
+- Some songs take months to get right, but 'Let Her Go' was so easy. I was no more pleased with it than any other song I'd written.
+- I've grown up on American songwriters my whole life - listening to Paul Simon and Bob Dylan and people like John Prine - you know, classic, real songwriters. They've been the lion's share of what I've really focused on as a writer and as influences, too.
+- I write so much and I release so much music that I think I'm less precious about that stuff than a lot of people.
+- I think we're all survivors, to be honest. I mean, some of us more than others - some of us have to survive far more horrendous things than others. It's all relative: whatever your experience is.
+- I've spent the last 10 years constantly touring and haven't had much reason to stick around anywhere. I'm 34 now, and I've got a girlfriend and a house and two cats. I don't want to run away; I like where I'm at.
+- I've got friends and my family and people who've been around for years and years and years. And those people are never in doubt: They'd be my friend whether I was a homeless dude, or I had a hit single.
+- Before it happened to me, I'd look at other people who had become really successful and think, 'What a dream. That must be absolutely everything they ever wanted.' When it does happen to you, you realize yes, it's incredible. But it also comes with a bit of a weird aftertaste.
+- I'd say 99 per cent of the time I write on my own, just with my guitar, and then it's trying to figure out what it needs in a production sense.
+- I think you've got to be careful with social media. You can get addicted to the buzz of people liking and commenting. It's exhausting.
+- I started busking when I was 24. I was living with Mom and Dad. I'd broken up with my girlfriend and didn't know what I was doing with my life, and I thought, 'Well, this is the last shot - I'm going busking, and let's see what happens.'
+- To be honest, busking was a massive part of becoming aware of homelessness. I used to run into a lot of 'Big Issue' sellers and a lot of people on the street. It really opened my eyes to the kind of life that they live and the options that are open for them - or not, actually.
+- When I wrote 'Let Her Go,' it's not like I was doing anything different. I was just writing a song as I would any other day of the year; it just so happened that this one resonated with people.
+- We plan tours months in advance, and you leave a few days off here and there where you feel you'll be tired after some shows, but if other opportunities keep coming in, those days get swallowed very quickly, and it's an impossibility to get this stuff right.
+- You see a lot of bands and a lot of artists making that mistake: They become successful for doing something, and then they change everything. They change the people; they change the approach. And then, all of a sudden, almost the essence of what you do is gone.
+- Finally I'd found this way where I didn't need a record label; I didn't need to wait for some phone call to tell me, 'Go and do it'. It's like, I'm going to get up with a bag of CDs and an amp and my guitar and make it happen for myself. That was such a liberating feeling, and I think it was the start of everything.
+- You have to play to your strengths, and my strength is the amount of content I create.
+- I've played in some pretty weird settings; busking puts you in all kinds of situations. I can tell you the most depressing gig I've played was in the North of England. At that time, I was playing with a band. We drove 7 or 8 hours to Carlisle to play a 600 - 700 capacity venue - 9 people showed up.
+- When I sat down with all the songs before recording, I realised I'd written a few songs specifically about places in America - there was this song about Detroit and another about Yellowstone National Park. My dad is actually American, so I wrote another song about that side of my family.
+- Some people expect me to have changed overnight because of one big song.
+- I dropped out of college and started gigging around Brighton.
+- If you're a priority artist, then you get an amazing amount of exposure and money thrown. If you are more niche, then it's not necessarily the way forward. If you want Instagram followers and fame, then the major labels are still really great for that.
+- I can play the main stage at the Newport Folk Festival in front of 10,000 people and do all the gigs and stuff I want to do. Then I can go home and get toilet paper on a Sunday morning and not get hassled.
+- I think you're in trouble if you start chasing what you've done in the past. You always need to move on and look forward and do something new.
+- Busking taught me so much on so many levels, not just about being a musician or writing songs - actually about growing up and being a human!
+- 'Hell Or High Water' was written after the end of a relationship, and I do feel like every Passenger album has the obligatory break-up song.
+- I can headline a festival and then literally, 10 minutes later, be walking around, and nobody notices.
+- I think whenever I've thought something might go well, it hasn't, and when I've thought, 'Oh yeah, just chuck it out there,' that's when it kicks off, so now, I don't claim to understand anything.
+- I think, after 'Let Her Go,' I wanted to show people that I don't just write really sad love songs about my ex-girlfriend: that there's another side to Passenger as well that's a bit more up-tempo and more inclined to social commentary.
+- I learned classical guitar as a kid at about 7 or 8 years old. When I was about 14, I started dabbling in songwriting. That's when I got into the folky singer-songwriter style.
+- Busking is the essence of what I do. It's made everything possible.
+- Its pretty humbling, because I go back to the places where I used to play for 13 people, and now there's 1,500.
+- All I really want is for people to really get what I do and connect with the songs and find meaning in them.
+- I have spent a lot of time out in Australia, and so I have a good little fan base out there.
+- I'd get a train to some town and wander about to find a decent spot. Sometimes I'd play for three hours; sometimes I'd get moved on after three songs.
+- Sometimes supporting is difficult because a lot of people go to a gig to see the main act and to have a beer and a chat with their mates, so a lot of the time, even if you were John Lennon, would not listen to you.
+- I still have the mentality of a street musician, because I was one for five years. Every opportunity that comes my way, I feel like, 'Absolutely, let's do this.' Sometimes, it's to my detriment. But I don't think you become successful by not saying yes to opportunities.
+- I'm lucky in the sense that I can write wherever I am - on the bus, in the hotel room, backstage, sitting at home.
+- I can find myself in a situation where, by the time I'm releasing an album, I have the next one written. It is a bit old school.
+- I spent my life on the road touring, and a lot of the songs are written in tour buses and hotel rooms.
+- People sometimes come up to me, and it's like they just want to capture Passenger. I feel like Pikachu. Sometimes, in the more sort of depressing moments, it feels like it's not about the music, it's just about the photo, and that really worries me.
+- I think I just look extremely normal, like just a sort of fairly trendy bearded bloke. Whereas Ed, you'd know it's Ed Sheeran from space, you know; you can see him from anywhere.
+- I don't think I've ever really fitted into the industry and the scene. I feel like I've always been on the cusp.
+- I love that - you get everything from seven-year-olds to 87-year-olds at Passenger gigs.
+- For me, it's always just about playing the song and recording it and giving it what it needs as a song.
+- I'm so lucky to not have to busk anymore, but I realized as soon as I didn't need to do it that I really missed it.
+- Ed Sheeran is a good mate of mine, and he just flies around the place doing every single bit of promo or gig or interview, and it's no wonder that when you combine that with immense talent that he's playing in stadiums and arenas around the world.

@@ -1,0 +1,8 @@
++++
+author = "Dong Dong"
+title = "Dong Dong Quotes"
+quotes_len = "2"
+description = "the best 2 Dong Dong Quotes"
++++
+- No matter if you win or lose, the most important thing in life is to enjoy what you have.
+- Don't judge a person on winning or losing.

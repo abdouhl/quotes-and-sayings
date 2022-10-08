@@ -1,0 +1,95 @@
++++
+author = "Pico Iyer"
+title = "Pico Iyer Quotes"
+quotes_len = "89"
+description = "the best 89 Pico Iyer Quotes"
++++
+- You need to rebel to see the other options and to get a much richer, fuller sense of the world. And it's only once you've worked through that and seen through that that you can come back and accept who you are. You have to try all the other options.
+- 'Globalization' has become the great tag phrase, but when we talk about it, it's nearly always in terms of the global marketplace or communications technology - either data or goods that are whizzing around. We forget that people are whizzing around more and more. On them, it takes a toll.
+- We have more and more ways to communicate, as Thoreau noted, but less and less to say.
+- A single Dallas Cowboys football game uses up as much electricity as the entire nation of Liberia in those same three hours - one reason the globe, if looked at from a certain height, is a cluster of lights surrounded by enormous patches of dark.
+- I think it's in human nature to want to have more, to compete with the other and, at some level, to be dissatisfied if someone else has more than you.
+- To me, part of the beauty of a comma is that it offers a rest, like one in music: a break that gives the whole piece of music greater shape, deeper harmony. It allows us to catch our breath.
+- Certainly, I think Canada is many years ahead of the curve and still the great global pioneer.
+- The one thing perhaps that technology hasn't always given us is a sense of how to make the wisest use of technology.
+- Travel for me is all about transformation, and I'm fascinated by those people who really do come back from a trip unrecognizable to themselves and perhaps open to the same possibilities they'd have written off not a month before.
+- I'm no Buddhist monk, and I can't say I'm in love with renunciation in itself, or traveling an hour or more to print out an article I've written, or missing out on the N.B.A. Finals. But at some point, I decided that, for me at least, happiness arose out of all I didn't want or need, not all I did.
+- The power of affinity lies in its mystery: the way it stands outside everything logical; you step into a crowded room and see a stranger, and somehow you feel you know her better than you know the friends you came with.
+- Wherever we are, any time of night or day, our bosses, junk-mailers, our parents can get to us. Sociologists have actually found that in recent years Americans are working fewer hours than 50 years ago, but we feel as if we're working more. We have more and more time-saving devices, but sometimes, it seems, less and less time.
+- It's an old principle, as old as the Buddha or Marcus Aurelius: We need at times to step away from our lives in order to put them in perspective. Especially if we wish to be productive.
+- Contractions, 'U' for 'you' and the like are wonderful to make communication brief and efficient - but we wouldn't want all our talk to be only brief and efficient. Taking pauses out of language would be like taking the net away from a tennis game. Where would all the fun go?
+- The first time I stepped onto the rooftop of the Potala Palace in Lhasa in 1985, I felt, as never before or since, as if I was stepping onto the rooftop of my being: onto some dimension of consciousness that I'd never visited before.
+- American dreams are strongest in the hearts of those who have seen America only in their dreams.
+- Something in us is telling us we're moving too fast, at a pace dictated by machines rather than by anything human, and that unless we take conscious measures, we'll permanently be out of breath.
+- Places have charisma, in short, as much as people do.
+- In barely one generation, we've moved from exulting in the time-saving devices that have so expanded our lives to trying to get away from them - often in order to make more time. The more ways we have to connect, the more many of us seem desperate to unplug.
+- You can only make sense of the online world by going offline and by getting the wisdom and emotional clarity to know how to make the best use of the Internet.
+- I think the world is always going to be as diverse as it always has been.
+- I sometimes think that so much of our life takes place inside our heads - in memory or imagination or interpretation or speculation - that if I really want to change my life, I might best begin by changing my mind.
+- If I was a parent or a kid, I would need a cell phone, and those things are invaluable, but my kids are out of the house now, and I am thrilled when I wake up to not have a cell phone, and feel like today is stretching out in front of me for 1,000 hours, as it seems.
+- To see the Persia of poets and painters, hiding in plain sight behind the much-maligned Iran of our newspaper headlines, would be my fondest wish.
+- Alas, those six unfortunate souls who have made their way through my books know that every one of them is about Emerson and Thoreau and their dark counters, Melville and Emily Dickinson. Try as I might, I can't get their inspirations, their challenges and sentences and wisdom and questions out of my head.
+- In the two-room flat where I live in Japan, I try to take time every day to step away from the bombardment of e-mails and opportunities and papers around my desk, for an hour, and just sit on our 30-inch terrace in the sun, reading something sustaining, whether 'The Age of Innocence' or the latest by Colm Toibin.
+- What I treasure most at any moment is intimacy, surprise, a sense of mystery, wit, depth and love. A handful of cherished friends offer me this, and the occasional singer or film-maker or artist. But my most reliable sources of electricity are Henry David Thoreau, Shakespeare, Melville and Emily Dickinson.
+- There are literally Internet rescue camps in China and Korea to deal with children that are addicted. Internet disorder is maybe going to count as a psychiatric disorder in a couple of years.
+- The less you struggle with a problem, the more it's likely to solve itself. The less time you spend frantically running around, the more productive you are likely to be.
+- Home is, in the end, not just the place where you sleep, but the place where you stand.
+- When we are kids, we imagine that to define ourselves or to find ourselves means charting your own individuality, making your own destiny, and actually running away from your parents and your home and what you grew up with. Of course, as the years go on, we come to find that we become our parents.
+- Though I knew that poverty certainly didn't buy happiness, I wasn't convinced that money did, either.
+- People are always asking me where I come from, and they're expecting me to say India, and they're absolutely right insofar as 100 percent of my blood and ancestry does come from India. Except, I've never lived one day of my life there. I can't speak even one word of its more than 22,000 dialects.
+- I couldn't follow the events of September 11 because I was proofreading a novel I'd just completed - on Islam and its quarrel with the West - that I'd promised, six months earlier, to deliver to my editor on September 12, 2001.
+- We can't change the world except insofar as we change the way we look at the world - and, in fact, any one of us can make that change, in any direction, at any moment.
+- For centuries, Cuba's greatest resource has been its people.
+- A holy day, after all, is a day for considering everything you otherwise think too little about.
+- I think of myself as living so much outside borders or old categories that I choose as my leaders U2, the Dalai Lama, Vaclav Havel, Sigur Ros, Desmond Tutu, Barack Obama, and the girl next door. By definition, in short, my leaders are the ones who think in terms larger, and more intimate, than any country.
+- In Vancouver, in Sydney and in Orange County, we live among fluorescent stores and streets so brightly lit that you can read a book after dark; in other places across our global body, there are blackouts and curfews every night.
+- A writer is a palmist, reading the lines of the planet.
+- I suppose even when I was growing up, I noticed I was most happy when I was absorbed in something, lost in the moment and forgot the time, whether was conversation, movie, or a game I was playing. That was my definition of happiness. And I was least happy when I was all over the place, distracted and restless.
+- The central paradox of the machines that have made our lives so much brighter, quicker, longer and healthier is that they cannot teach us how to make the best use of them; the information revolution came without an instruction manual.
+- In Japan, I live in a little neighborhood in the middle of nowhere. I don't have a bicycle or a car or anything, so my only movement is within the boundaries of my feet. I feel there's a need for that kind of conscientious objection to the momentum of the world.
+- Writing is how I find out what I believe and what I care most deeply about. It's how I sort through the mess of daily experience and try to make sense of it - by stepping out of it for a while. Writing is how I train a searchlight into the darker corners of my self and the world, as I'm sure I'd never do otherwise.
+- Writing reminds you of how much there is in your life that stands outside your explanations. In that way, it's almost a journey into faith and doubt at once.
+- Almost everybody I know has this sense of overdosing on information and getting dizzy living at post-human speeds.
+- The average American teenager sends or receives 75 text messages a day, though one girl in Sacramento managed to handle an average of 10,000 every 24 hours for a month.
+- If we want to talk about Gross Natural Product, we have to talk about the King of Bhutan's index of Gross National Happiness, too. Certainly I have found, as many travellers before me, that people in the poorest places are often the readiest to shower me, from an affluent country, with hospitality and kindness.
+- In the past, I've visited remote places - North Korea, Ethiopia, Easter Island - partly as a way to visit remote states of mind: remote parts of myself that I wouldn't ordinarily explore.
+- I can still remember the afternoon, on my 15th birthday, when I opened up 'The Virgin and the Gypsy,' D.H. Lawrence's novella, in my tiny cell in boarding school, and whole worlds of possibility opened out that I had never guessed existed. The language was on fire and sang of liberation.
+- Japan functions on the basis of everyone sharing certain assumptions, where each person knows his part in a larger whole. The foreigner sits outside and is threatening. If he comes in, that's the most threatening of all.
+- Not having a car gives me volumes not to think or worry about, and makes walks around the neighborhood a daily adventure.
+- All of us are feeling scattered and distracted as we try to keep up with an accelerating world. But nearly all of us have an answer in our hands, in simply choosing to do nothing and go nowhere for a while.
+- The poverty one still sees in America today is more shocking to me than anything I have seen in Ethiopia or Calcutta or Manila, and has made me, as someone living in a society of great wealth and someone who's never had to worry about the next meal, think seriously about what universal responsibility really means.
+- Like any traveler, I'm always looking for those experiences that are almost unique to any place, and watching films around Alaska of the skies in winter made me want to taste those unworldly showers of light in person.
+- I think one reason, obviously, that I spend so much time in one place is that I've been lucky enough to travel a lot, and now there are other different, invisible trains that are more interesting to me.
+- It's no coincidence that the word 'holiday' suggests a holy day, or that the longest book in the Torah concerns the Sabbath. If you wish to advance in any sphere, the best way is to take a retreat.
+- I think at this point I only write books about questions I really want to figure out. They're indulgences, essentially. I think, 'What would I like to spend five years really thinking about? What could I gain from thinking about for five years?'
+- I write - though perhaps it sounds pretentious to say so - to make a clearing in the wilderness, to find out what I care about and what exactly to make of it.
+- More and more of us feel like emergency-room physicians, permanently on call, required to heal ourselves but unable to find the prescription for all the clutter on our desk.
+- I've yet to use a cellphone, and I've never tweeted or entered Facebook. I try not to go online till my day's writing is finished, and I moved from Manhattan to rural Japan in part so I could more easily survive for long stretches entirely on foot, and every trip to the movies would be an event.
+- The recipe to an unhappy life in Japan is to want to be Japanese if you are not. Anyone who wants to penetrate the country is setting themselves up for tears and disappointment.
+- For more and more of us, home has really less to do with a piece of soil than, you could say, with a piece of soul. If somebody suddenly asks me, 'Where's your home?' I think about my sweetheart or my closest friends or the songs that travel with me wherever I happen to be.
+- We readily go to the health club when our doctor suggests we need more exercise, but we regularly neglect the 'mental health club' that our well-being more truly requires.
+- Like teenagers, we appear to have gone from knowing nothing about the world to knowing too much all but overnight.
+- In many a piece of music, it's the pause or the rest that gives the piece its beauty and its shape. And I know I, as a writer, will often try to include a lot of empty space on the page so that the reader can complete my thoughts and sentences and so that her imagination has room to breathe.
+- It takes 25 minutes to recover from a phone call or an e-mail, researchers have found, and yet the average person receives such an interruption every 11 minutes. Which means that we're never caught up; we're always out of breath, running behind.
+- We all know how we can be turned around by a magic place; that's why we travel, often. And yet we all know, too, that the change cannot be guaranteed. Travel is a fool's paradise, Emerson reminded us, if we think that we can find anything far off that we could not find at home.
+- Abjure all accretions and turn off the lights. Put on some music - Leonard Cohen, say, perhaps his 'Various Positions' - and let your mind cool down. Soon you'll forget there's a word called 'stress.'
+- Older boys were allowed to beat younger ones at my 15th-century English boarding school, and every boy had to run a five-mile annual steeplechase through the sludge and rain of an October day, as horses do. We wrote poems in dead languages and recited the Lord's Prayer in Latin every Sunday night.
+- I remember how, in the corporate world, I always knew there was some higher position I could attain, which meant that, like Zeno's arrow, I was guaranteed never to arrive and always to remain dissatisfied.
+- Where you come from now is much less important than where you're going. More and more of us are rooted in the future or the present tense as much as in the past. And home, we know, is not just the place where you happen to be born. It's the place where you become yourself.
+- It takes courage, of course, to step out of the fray, as it takes courage to do anything that's necessary, whether tending to a loved one on her deathbed or turning away from that sugarcoated doughnut.
+- My Christmas present to myself each year is to see how much air travel can open up the world and take me to places as far from sheltered California and Japan as possible.
+- Travel, for me, is a little bit like being in love because suddenly, all your senses are at the setting marked 'on.' Suddenly, you're alert to the secret patterns of the world.
+- I'm very happy to be a foreigner in Japan, and I can't think of a more wonderful place to live, but at the same time, I would never want to be Japanese, because they are subject to stresses that I am not.
+- The more ways we have to connect, the more many of us seem desperate to unplug.
+- I would never call Jerusalem beautiful or comfortable or consoling. But there's something about it that you can't turn away from.
+- Nearly everybody I know does something to try to remove herself to clear her head and to have enough time and space to think... All of us instinctively feel that something inside us is crying out for more spaciousness and stillness to offset the exhilarations of this movement and the fun and diversion of the modern world.
+- Movement is a fantastic privilege... but it ultimately only has meaning if you have a home to go back to.
+- I think writing is really about a journey of understanding. So you take something that seems very far away, and the more you write about it, the more you travel into it, and you see it from within.
+- In financial terms, my sense is that the distribution of wealth, unequal as it is, is self-perpetuating, and, especially in a linked and accelerating world, the rich get ever more quickly richer while the poor get ever more speedily poorer.
+- It's only by taking myself away from clutter and distraction that I can begin to hear something out of earshot and recall that listening is much more invigorating than giving voice to all the thoughts and prejudices that anyway keep me company twenty-four hours a day.
+- A traveler is really not someone who crosses ground so much as someone who is always hungry for the next challenge and adventure.
+- Hello Kitty will never speak.
+- If we do away with semi-colons, parentheses and much else, we will lose all music, nuance and subtlety in communication - and end up shouting at one another in block capitals.
+- A book doesn't have to be a literary classic, of course, to change us forever.
+- One of the happier ironies of recent history is that even as Tibet is being wiped off the map in Tibet itself, here it is in California, in Switzerland, in Japan. All over the world, Tibetan Buddhism is now part of the neighborhood. In 1968, there were two Tibetan Buddhist centers in the West. By 2000, there were 40 in New York alone.
+- I've never meditated in my life. I don't practice yoga nor any religion. I'm a tourist on the realm of stillness.

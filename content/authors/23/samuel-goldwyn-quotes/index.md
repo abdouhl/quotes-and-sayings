@@ -1,0 +1,70 @@
++++
+author = "Samuel Goldwyn"
+title = "Samuel Goldwyn Quotes"
+quotes_len = "64"
+description = "the best 64 Samuel Goldwyn Quotes"
++++
+- The harder I work, the luckier I get.
+- I had a monumental idea this morning, but I didn't like it.
+- We're overpaying him, but he's worth it.
+- Modern dancing is old fashioned.
+- Please write music like Wagner, only louder.
+- We want a story that starts out with an earthquake and works its way up to a climax.
+- Any man who goes to a psychiatrist ought to have his head examined.
+- That's the trouble with directors. Always biting the hand that lays the golden egg.
+- Let's have some new cliches.
+- Color television! Bah, I won't believe it until I see it in black and white.
+- Here I am paying big money to you writers and what for? All you do is change the words.
+- Pictures are for entertainment, messages should be delivered by Western Union.
+- I can give you a definite perhaps.
+- Give me a couple of years, and I'll make that actress an overnight success.
+- You've got to take the bitter with the sour.
+- This music won't do. There's not enough sarcasm in it.
+- It's more than magnificent - it's mediocre.
+- Some of the regrets I've had about my own career are things I have not done that I should have done. More than some of the things that I've done.
+- Ill give you a definite maybe.
+- It's absolutely impossible, but it has possibilities.
+- Include me out.
+- Give me a smart idiot over a stupid genius any day.
+- Our comedies are not to be laughed at.
+- If I look confused it is because I am thinking.
+- Don't pay any attention to the critics - don't even ignore them.
+- A verbal contract isn't worth the paper it's written on.
+- I was always an independent, even when I had partners.
+- A bachelor's life is no life for a single man.
+- For your information, I would like to ask a question.
+- I'm willing to admit that I may not always be right, but I am never wrong.
+- I hate a man who always says 'yes' to me. When I say 'no' I like a man who also says 'no.'
+- A hospital is no place to be sick.
+- I left home at 15 because Hollywood isn't the best place to grow up.
+- If people don't want to go to the picture, nobody can stop them.
+- Why should people go out and pay money to see bad films when they can stay at home and see bad television for nothing?
+- Spare no expense to save money on this one.
+- I seriously object to seeing on the screen what belongs in the bedroom.
+- The Oscars are a lot different when you are a nominee. You walk around with this big smile on your face, and everyone, even people who work for rival film companies, tells you they voted for you.
+- I never liked you, and I always will.
+- I don't want any yes-men around me. I want everybody to tell me the truth even if it costs them their job.
+- Don't worry about the war. It's all over but the shooting.
+- If Roosevelt were alive today, he'd turn over in his grave.
+- The independents who were our fiercest competitors all succumbed to the one-hit-makes-you-a-genius philosophy. It is a mistake to think you have the magic touch. Show business is roulette. If you start to play for stakes you can't afford, there's no way you can survive.
+- People always say to me, 'It must have been wonderful coming from old Hollywood, with all those movie stars,' but I never knew anyone. I didn't even know who Charlie Chaplin was. My parents really kept me away from it all.
+- When someone does something good, applaud! You will make two people happy.
+- From success you get a lot of things, but not that great inside thing that love brings you.
+- Every director bites the hand that lays the golden egg.
+- Too caustic? To hell with the costs, we'll make the picture anyway.
+- I never put on a pair of shoes until I've worn them at least five years.
+- I'll take fifty percent efficiency to get one hundred percent loyalty.
+- I think luck is the sense to recognize an opportunity and the ability to take advantage of it... The man who can smile at his breaks and grab his chances gets on.
+- I don't think anyone should write their autobiography until after they're dead.
+- If I could drop dead right now, I'd be the happiest man alive.
+- Go see it and see for yourself why you shouldn't go see it.
+- I vicariously lived the life of an independent producer from the time I was four years old. And what was always important was writing, writing, writing.
+- The scene is dull. Tell him to put more life into his dying.
+- No agency is better than its account executives.
+- I read part of it all the way through.
+- No person who is enthusiastic about his work has anything to fear from life.
+- A wide screen just makes a bad film twice as bad.
+- I want everyone to tell me the truth, even if it costs him his job.
+- Television has raised writing to a new low.
+- God makes stars. I just produce them.
+- The reason so many people turned up at his funeral is that they wanted to make sure he was dead.

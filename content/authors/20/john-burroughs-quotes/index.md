@@ -1,0 +1,135 @@
++++
+author = "John Burroughs"
+title = "John Burroughs Quotes"
+quotes_len = "129"
+description = "the best 129 John Burroughs Quotes"
++++
+- A man can get discouraged many times but he is not a failure until he begins to blame somebody else and stops trying.
+- Sometimes I am worried by the thought of the effect that life in the city will have on coming generations.
+- I go to nature to be soothed and healed, and to have my senses put in order.
+- One may summon his philosophy when they are beaten in battle, not till then.
+- My motto is never to try to imitate anybody: I have always looked inward and followed the inward voice.
+- The spirit of man can endure only so much and when it is broken only a miracle can mend it.
+- If I were to name the three most precious resources of life, I should say books, friends, and nature. And the greatest of these, at least the most constant and always at hand, is nature.
+- Naturalists, like poets, are born and then made only by years of painstaking observation.
+- Our flying squirrel is in no proper sense a flyer. On the ground, he is more helpless than a chipmunk, because less agile. He can only sail or slide down a steep incline from the top of one tree to the foot of another.
+- The love of nature is a different thing from the love of science, though the two may go together.
+- When Darwin published his conclusion that man was descended from an apelike ancestor who was again descended from a still lower type, most people were shocked by the thought; it was intensely repugnant to their feelings.
+- He who marvels at the beauty of the world in summer will find equal cause for wonder and admiration in winter.
+- Fear, love, and hunger were the agents that developed the wits of the lower animals, as they were, of course, the prime factors in developing the intelligence of man.
+- We are really here to be happy and to make others happy.
+- To me, nothing else about a tree is so remarkable as the extreme delicacy of the mechanism by which it grows and lives: the fine, hair-like rootlets at the bottom and the microscopical cells of the leaves at the top.
+- Wisdom cannot come by railroad or automobile or aeroplane, or be hurried up by telegraph or telephone.
+- It is the life of the crystal, the architect of the flake, the fire of the frost, the soul of the sunbeam. This crisp winter air is full of it.
+- If one gains an interest in the history of the earth, he is quite sure to gain an interest in the history of the life on the earth. If the former illustrates the theory of development, so must the latter. The geologist is pretty sure to be an evolutionist.
+- The common bees will never use their sting upon the queen; if she is to be disposed of, they starve her to death, and the queen herself will sting nothing but royalty, nothing but a rival queen.
+- Robin is one of the most native and democratic of our birds; he is one of the family, and seems much nearer to us than those rare, exotic visitants, as the orchard starling or rose-breasted grossbeak, with their distant, high-bred ways.
+- How beautiful the leaves grow old. How full of light and color are their last days.
+- The beautiful vagabonds, endowed with every grace, masters of all climes, and knowing no bounds - how many human aspirations are realized in their free, holiday-lives, and how many suggestions to the poet in their flight and song!
+- We are beginning to see that money, after all, is not the main thing. The real values cannot be bought and sold.
+- Travel and society polish one, but a rolling stone gathers no moss, and a little moss is a good thing on a man.
+- August is the month of the high-sailing hawks. The hen hawk is the most noticeable. He likes the haze and calm of these long, warm days. He is a bird of leisure and seems always at his ease. How beautiful and majestic are his movements!
+- Without the emotion of the beautiful, the sublime, the mysterious, there is no art, no religion, no literature.
+- The life of a swarm of bees is like an active and hazardous campaign of an army: the ranks are being continually depleted and continually recruited.
+- The Kingdom of Heaven is not a place, but a state of mind.
+- The homing instinct in birds and animals is one of their most remarkable traits: their strong local attachments and their skill in finding their way back when removed to a distance. It seems at times as if they possessed some extra sense - the home sense - which operates unerringly.
+- I went to the Lake District to see what kind of a country it could be that would produce a Wordsworth.
+- To find the universal elements enough; to find the air and the water exhilarating; to be refreshed by a morning walk or an evening saunter... to be thrilled by the stars at night; to be elated over a bird's nest or a wildflower in spring - these are some of the rewards of the simple life.
+- Whitman was Emerson translated from the abstract into the concrete.
+- There is something very human in this apparent mirth and mockery of the squirrels. It seems to be a sort of ironical laughter, and implies self-conscious pride and exultation in the laughter.
+- The red squirrel is more common and less dignified than the gray, and oftener guilty of petty larceny about the barns and grain-fields.
+- You are always nearer the divine and the true sources of your power than you think.
+- How many thorns of human nature are bristling conceits, buds of promise grown sharp for want of congenial climate.
+- I have thought that a good test of civilization, perhaps one of the best, is country life. Where country life is safe and enjoyable, where many of the conveniences and appliances of the town are joined to the large freedom and large benefits of the country, a high state of civilization prevails.
+- The Nature Lover is not looking for mere facts but for meanings, for something he can translate into terms of his own life.
+- No one else looks out upon the world so kindly and charitably as the pedestrian; no one else gives and takes so much from the country he passes through.
+- The secret of happiness is something to do.
+- In October, a maple tree before your window lights up your room like a great lamp. Even on cloudy days, its presence helps to dispel the gloom.
+- The queen, I say, is the mother bee; it is undoubtedly complimenting her to call her a queen and invest her with regal authority, yet she is a superb creature and looks every inch a queen.
+- Man takes root at his feet, and at best, he is no more than a potted plant in his house or carriage till he has established communication with the soil by the loving and magnetic touch of his soles to it.
+- Without the name, any flower is still more or less a stranger to you. The name betrays its family, its relationship to other flowers, and gives the mind something tangible to grasp. It is very difficult for persons who have had no special training to learn the names of the flowers from the botany.
+- We love the sight of the brown and ruddy earth; it is the color of life, while a snow-covered plain is the face of death. Yet snow is but the mask of the life-giving rain; it, too, is the friend of man, the tender, sculpturesque, immaculate, warming, fertilizing snow.
+- The animal world seizes its food in masses little and big, and often gorges itself with it, but the vegetable, through the agency of the solvent power of water, absorbs its nourishment molecule by molecule.
+- Writing is reporting what we saw after the vision has left us. It is catching the fish which the tide has left far up on our shores in the low and depressed places.
+- Nature teaches more than she preaches. There are no sermons in stones. It is easier to get a spark out of a stone than a moral.
+- I crave and seek a natural explanation of all phenomena upon this earth, but the word 'natural' to me implies more than mere chemistry and physics. The birth of a baby and the blooming of a flower are natural events, but the laboratory methods forever fail to give us the key to the secret of either.
+- To learn something new, take the path that you took yesterday.
+- More than any other poet, Whitman is what we make him; more than any other poet, his greatest value is in what he suggests and implies rather than in what he portrays, and more than any other poet must he wait to be understood by the growth of the taste of himself.
+- The type of mind of Whitman's, which seldom or never emerges as a mere mentality, an independent thinking and knowing faculty, but always as a personality, always as a complete human entity, never can expound itself, because its operations are synthetic and not analytic; its mainspring is love and not mere knowledge.
+- Science has done more for the development of western civilization in one hundred years than Christianity did in eighteen hundred years.
+- Emerson's fame as a writer and thinker was firmly established during his lifetime by the books he gave to the world.
+- A somebody was once a nobody who wanted to and did.
+- A plump, well-fed stream is as satisfying to behold as a well-fed animal or a thrifty tree. One source of charm in the English landscape is the full, placid stream the season through; no desiccated watercourses will you see there, nor any feeble, decrepit brooks, hardly able to get over the ground.
+- I seldom go into a natural history museum without feeling as if I were attending a funeral.
+- The trunk of a tree is like a community where only one generation at a time is engaged in active business, the great mass of the population being retired and adding solidity and permanence to the social organism.
+- As with other phases of nature, I have probably loved the rocks more than I have studied them.
+- One reason, doubtless, why squirrels are so bold and reckless in leaping through the trees is that, if they miss their hold and fall, they sustain no injury. Every species of tree-squirrel seems to be capable of a sort of rudimentary flying, at least of making itself into a parachute, so as to ease or break a fall or a leap from a great height.
+- It seems to me that evolution adds greatly to the wonder of life because it takes it out of the realm of the arbitrary, the exceptional, and links it to the sequence of natural causation.
+- When the woodpecker is searching for food, or laying siege to some hidden grub, the sound of his hammer is dead or muffled and is heard but a few yards. It is only upon dry, seasoned timber, freed of its bark, that he beats his reveille to spring and wooes his mate.
+- Some scenes you juggle two balls, some scenes you juggle three balls, some scenes you can juggle five balls. The key is always to speak in your own voice. Speak the truth. That's Acting 101. Then you start putting layers on top of that.
+- Most birds are very stiff-necked, like the robin, and as they run or hop upon the ground, carry the head as if it were riveted to the body. Not so the oven-bird, or the other birds that walk, as the cow-bunting, or the quail, or the crow. They move the head forward with the movement of the feet.
+- As life nears its end with me, I find myself meditating more and more upon the mystery of its nature and origin, yet without the least hope that I can find out the ways of the Eternal in this or in any other world.
+- My books are, in a way, a record of my life - that part of it that came to flower and fruit in my mind.
+- For anything worth having one must pay the price; and the price is always work, patience, love, self-sacrifice - no paper currency, no promises to pay, but the gold of real service.
+- A sap run is the sweet goodbye of winter. It is the fruit of the equal marriage of the sun and frost.
+- If America wishes to preserve her native birds, we must help supply what civilization has taken from them. The building of cities and towns, the cutting down of forests, and the draining of pools and swamps have deprived American birds of their original homes and food supply.
+- It is always easier to believe than to deny. Our minds are naturally affirmative.
+- I still find each day too short for all the thoughts I want to think, all the walks I want to take, all the books I want to read, and all the friends I want to see.
+- Leap, and the net will appear.
+- England is like the margin of a spring-run: near its source, always green, always cool, always moist, comparatively free from frost in winter and from drought in summer.
+- The Infinite cannot be measured. The plan of Nature is so immense, but she has no plan, no scheme, but to go on and on forever. What is size, what is time, distance, to the Infinite? Nothing. The Infinite knows no time, no space, no great, no small, no beginning, no end.
+- I have discovered the secret of happiness - it is work, either with the hands or the head. The moment I have something to do, the draughts are open and my chimney draws, and I am happy.
+- If you think you can do it, you can.
+- The art of the bird is to conceal its nest both as to position and as to material, but now and then it is betrayed into weaving into its structure showy and bizarre bits of this or that, which give its secret away and which seem to violate all the traditions of its kind.
+- Nearly every season, I make the acquaintance of one or more new flowers. It takes years to exhaust the botanical treasures of any one considerable neighborhood, unless one makes a dead set at it, like an herbalist.
+- England is not a country of granite and marble, but of chalk, marl, and clay.
+- Emerson was such an important figure in our literary history, and in the moral and religious development of our people, that attention cannot be directed to him too often.
+- My life has been a fortunate one; I was born under a lucky star. It seems as if both wind and tide had favoured me. I have suffered no great losses, or defeats, or illness, or accidents, and have undergone no great struggles or privations; I have had no grouch. I have not wanted the earth.
+- Even in rugged Scotland, nature is scarcely wilder than a mountain sheep, certainly a good way short of the ferity of the moose and caribou.
+- Father knew me not. All my aspirations in life were a sealed book to him, as much as his peculiar religious experiences were to me.
+- Joy in the universe, and keen curiosity about it all - that has been my religion.
+- Some men are like nails, very easily drawn; others however are more like rivets never drawn at all.
+- Women are about the best lovers of nature, after all; at least of nature in her milder and more familiar forms. The feminine character, the feminine perceptions, intuitions, delicacy, sympathy, quickness, are more responsive to natural forms and influences than is the masculine mind.
+- When a herd of cattle see a strange object, they are not satisfied till each one has sniffed it; and the horse is cured of his fright at the robe, or the meal-bag, or other object, as soon as he can be induced to smell it. There is a great deal of speculation in the eye of an animal, but very little science.
+- The phoebe-bird is a wise architect and perhaps enjoys as great an immunity from danger, both in its person and its nest, as any other bird. Its modest ashen-gray suit is the color of the rocks where it builds, and the moss of which it makes such free use gives to its nest the look of a natural growth or accretion.
+- I am for 100 per cent Americanism, 100 per cent efficiency, and 100 per cent life. I expect to live to be 100 years old.
+- Life is a struggle, but not a warfare.
+- There is hardly a man on earth who will take advice unless he is certain that it is positively bad.
+- Blessed is the man who has some congenial work, some occupation in which he can put his heart, and which affords a complete outlet to all the forces there are in him.
+- Whitman will always be a strange and unwonted figure among his country's poets, and among English poets generally: a cropping out again, after so many centuries, of the old bardic prophetic strain.
+- Like tens of thousands of others, I have been a spectator of, rather than a participator in, the activities - political, commercial, sociological, scientific - of the times in which I have lived.
+- The human body is a steed that goes freest and longest under a light rider, and the lightest of all riders is a cheerful heart.
+- The country is more of a wilderness, more of a wild solitude, in the winter than in the summer. The wild comes out. The urban, the cultivated, is hidden or negatived.
+- The smallest deed is better than the greatest intention.
+- I always feel that I have missed some good fortune if I am away from home when my bees swarm. What a delightful summer sound it is! How they come pouring out of the hive, twenty or thirty thousand bees, each striving to get out first!
+- Some of the animals outsee man, outsmell him, outhear him, outrun him, outswim him, because their lives depend more upon these special powers than his does; but he can outwit them all because he has the resourcefulness of reason and is at home in many different fields.
+- The distribution of plants in a given locality is not more marked and defined than that of the birds. Show a botanist a landscape, and he will tell you where to look for the lady's-slipper, the columbine, or the harebell. On the same principles, the ornithologist will direct you where to look for the greenlets, the wood-sparrow, or the chewink.
+- Emerson is the spokesman and prophet of youth and of a formative, idealistic age. His is a voice from the heights which are ever bathed in the sunshine of the spirit. I find that something one gets from Emerson in early life does not leave him when he grows old.
+- To treat your facts with imagination is one thing, to imagine your facts is another.
+- In winter, the stars seem to have rekindled their fires, the moon achieves a fuller triumph, and the heavens wear a look of a more exalted simplicity. Summer is more wooing and seductive, more versatile and human, appeals to the affections and the sentiments, and fosters inquiry and the art impulse.
+- We now use the word 'nature' very much as our fathers used the word 'God.'
+- I am sure I was an evolutionist in the abstract, or by the quality and complexion of my mind, before I read Darwin, but to become an evolutionist in the concrete, and accept the doctrine of the animal origin of man, has not for me been an easy matter.
+- Next to the laborer in the fields, the walker holds the closest relation to the soil; and he holds a closer and more vital relation to nature because he is freer and his mind more at leisure.
+- All sounds are sharper in winter; the air transmits better.
+- To regard the soul and body as one, or to ascribe to consciousness a physiological origin, is not detracting from its divinity; it is rather conferring divinity upon the body.
+- I have discovered the secret of happiness. It is work.
+- Birds and animals probably think without knowing that they think; that is, they have not self-consciousness. Only man seems to be endowed with this faculty; he alone develops disinterested intelligence, intelligence that is not primarily concerned with his own safety and well-being but that looks abroad upon things.
+- The naturist must see all things in the light of his experiences in this world.
+- Man has climbed up from some lower animal form, but he has, as it were, pulled the ladder up after him.
+- To many forms of life of our northern lands, winter means a long sleep; to others, it means what it means to many fortunate human beings - travels in warm climes. To still others, who again have their human prototypes, it means a struggle, more or less fierce, to keep soul and body together; while to many insect forms, it means death.
+- To strong, susceptible characters, the music of nature is not confined to sweet sounds.
+- The lure of the distant and the difficult is deceptive. The great opportunity is where you are.
+- The pond-lily is a star and easily takes the first place among lilies; and the expeditions to her haunts, and the gathering her where she rocks upon the dark, secluded waters of some pool or lakelet, are the crown and summit of the floral expeditions of summer.
+- Most young people find botany a dull study. So it is, as taught from the text-books in the schools; but study it yourself in the fields and woods, and you will find it a source of perennial delight.
+- One of the most graceful of warriors is the robin. I know few prettier sights than two males challenging and curveting about each other upon the grass in early spring. Their attentions to each other are so courteous and restrained.
+- A man can fail many times, but he isn't a failure until he begins to blame somebody else.
+- Why, we have invented the whole machinery of the supernatural, with its unseen spirits and powers, good and bad, to account for things, because we found the universal everyday nature too cheap, too common, too vulgar.
+- The very idea of a bird is a symbol and a suggestion to the poet. A bird seems to be at the top of the scale, so vehement and intense is his life, large-brained, large-lunged, hot, ecstatic, his frame charged with buoyancy and his heart with song.
+- Living in the city is a discordant thing, an unnatural thing. The city, a place to which one goes to do business, is a place where men overreach each other in the fight for money. But it is not a place in which one can live.
+- If we take science as our sole guide, if we accept and hold fast that alone which is verifiable, the old theology must go.
+- All birds are incipient or would-be songsters in the spring. I find corroborative evidence of this even in the crowing of the cock.
+- We talk of communing with Nature, but 'tis with ourselves we commune... Nature furnishes the conditions - the solitude - and the soul furnishes the entertainment.
+- There never was a happier or more devoted husband than the male bluebird. He is the gay champion and escort of the female at all times, and while she is sitting, he feeds her regularly.
+- The dog is often quick to resent a kick, be it from man or beast, but I have never known him to show anger at the door that slammed to and hit him. Probably, if the door held him by his tail or his limb, it would quickly receive the imprint of his teeth.
+- Unadulterated, unsweetened observations are what the real nature-lover craves. No man can invent incidents and traits as interesting as the reality.
+- Emerson stands apart from the other poets and essayists of New England, and of English literature generally, as of another order. He is a reversion to an earlier type, the type of the bard, the skald, the poet-seer.

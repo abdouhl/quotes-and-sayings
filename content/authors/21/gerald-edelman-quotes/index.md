@@ -1,0 +1,12 @@
++++
+author = "Gerald Edelman"
+title = "Gerald Edelman Quotes"
+quotes_len = "6"
+description = "the best 6 Gerald Edelman Quotes"
++++
+- The computer is not, in our opinion, a good model of the mind, but it is as the trumpet is to the orchestra - you really need it. And so, we have very massive simulations in computers because the problem is, of course, very complex.
+- Science is imagination in the service of the verifiable truth, and that service is indeed communal. It cannot be rigidly planned. Rather, it requires freedom and courage and the plural contributions of many different kinds of people who must maintain their individuality while giving to the group.
+- Consciousness allows you the capacity to plan.
+- Each brain is exposed to different circumstances. It's very likely that your brain is unique in the history of the universe.
+- Your brain develops depending on your individual history. What has gone on in your own brain and its consciousness over your lifetime is not repeatable, ever - not with identical twins, not even with conjoined twins.
+- Many cognitive psychologists see the brain as a computer. But every single brain is absolutely individual, both in its development and in the way it encounters the world.

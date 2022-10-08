@@ -1,0 +1,21 @@
++++
+author = "Eve Best"
+title = "Eve Best Quotes"
+quotes_len = "15"
+description = "the best 15 Eve Best Quotes"
++++
+- When you are up close to an opera singer, hearing this incredible volume of noise coming from a human being - it's beyond belief.
+- I would love to go and live in the mountains... and make jam.
+- If a part terrifies me, that is definitely a reason to do it.
+- When I left Oxford, I knew I wanted to act, but I was unsure how to go about it.
+- There are so many huge roles in the theatre: if you've got the option to play Hedda Gabler on stage, why wouldn't you choose that over a three-line part in a Hollywood film as somebody's maid or somebody's wife or somebody's best friend?
+- I have never worn a watch. I did at 17 and it annoyed me.
+- I don't like, and I've never been very good at, close-up shots. As soon as you have the camera right there in front of you, it feels like you're in a different reality from the person you are acting with; you lose any real connection with them.
+- I love the Old Vic so deeply, it's like a second home.
+- I am so longing to be domestic,, cooking stew, gardening, hopefully having some children, painting, sitting still in one place.
+- Time is about the need to control. Let go of control and embrace what happens.
+- If you're a woman doing classic theater, the big roles are often destroyers. I've played Hedda Gabler, Lady Macbeth, some of the Chekhovian heroines, Electra, Phaedra - they're all powerful women, but they're forces of negativity.
+- I haven't done the milestoney things - getting married, buying a house, having children.
+- There's this funny thing with pilots that you have to sign the contract to do the whole job before you're even offered the part. And they make about a million pilots a year, but hardly any of them get turned into series.
+- I don't read reviews. I find them very distracting, whether they're good or bad.
+- Changing my name was traumatic for me.

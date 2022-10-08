@@ -1,0 +1,82 @@
++++
+author = "Shirley Maclaine"
+title = "Shirley Maclaine Quotes"
+quotes_len = "76"
+description = "the best 76 Shirley Maclaine Quotes"
++++
+- I think we plan everything, somehow, on another level.
+- When a child comes in, I believe that it's a 'multipersonhood,' and it knows it, its consciousness knows it, and it has a nuclei in the center of its consciousness that is the repository of all experience and all knowledge. And when you look in the eyes of your baby and you feel this sense that they are an old soul, I believe indeed they are.
+- I'd like to introduce someone who has just come into my life. I've admired him for 35 years. He's someone who represents integrity, honesty, art, and on top of that stuff I'm actually sleeping with him.
+- I think when I was in my early twenties and middle twenties I didn't even know I wasn't living up to my potential. A couple of friends told me I wasn't and told me to get my act together, and it made a huge impact on me.
+- Don't be afraid to go out on a limb. It's where all the fruit is.
+- I think male actors get confused by their own vanity.
+- The more I traveled the more I realized that fear makes strangers of people who should be friends.
+- Crystals amplify the consciousness.
+- I'm not interested in fame at all.
+- Things are done according to money these days.
+- I don't do like diva trips and stuff.
+- Remember what people used to say about meditation? Now everyone is doing it.
+- Sex is hardly ever just about sex.
+- I don't know why anybody would be in awe of me.
+- The comedy of class, played so straight, is a wonderful thing for an actor to sink their teeth into.
+- Someday perhaps change will occur when times are ready for it instead of always when it is too late. Someday change will be accepted as life itself.
+- The best way to get husbands to do something is to suggest that perhaps they are too old to do it.
+- I'm a peaceful person once work ethic is established.
+- Women being pitted each other another in Hollywood is an old tactic, but it's not real at all.
+- You know, I think I had my first past life recall when I was 7.
+- We've had so many lifetimes of different cultures and different religions and different points of view and different wars and different loves and different children.
+- I don't need anyone to rectify my existence. The most profound relationship we will ever have is the one with ourselves.
+- I can't advise any of the young ones, because I don't know what their background was, but I would suggest that anyone who wants to be famous more than anything - there's a real problem.
+- You have to be talentedly insecure in order to be a good actress. And then it's the director's job to make you more miserable and get a good take.
+- I've made so many movies playing a hooker that they don't pay me in the regular way anymore. They leave it on the dresser.
+- I was afraid I would get the Oscar for 'Irma La Douce' because it was popular. But I didn't want to because I didn't really think it was that good.
+- I'd like to go to another planet, which I might live long enough to accomplish. Just get on a spaceship and go. But not the moon. I don't see any flowers there. The moon is too close. I want to go further.
+- I look like a real bag lady when I go to Starbucks with my dog and get my chai.
+- I want women to be liberated and still be able to have a nice ass and shake it.
+- My mother was Canadian, so you never knew what she was thinking.
+- Of course, we're all a mass of contradictions.
+- Maybe I'm a dream artist, as they call it.
+- I wasn't afraid of getting old, because I was never a great beauty.
+- I can be a lazy slob.
+- I never would have given up my work to stay home.
+- When times are bad, people like to lose themselves in the sheer glamour of another period: beautiful wardrobes, magnificent meals served in elegant settings.
+- If they would teach us from the time we're little to meditate and get in touch with all that our souls know, we wouldn't fight so much.
+- Movie makers now choose profit over vision.
+- The person who knows how to laugh at himself will never cease to be amused.
+- We need proof in our society.
+- I don't like leaving my dog when I go to England and she is with me all the time.
+- It's a big deal for me to say I'm over politics.
+- Well, success does not mean doing well.
+- I don't think you go out of style when you're living in the present most of the time. And I think that is what I do.
+- I think the hill one has to trudge in order to understand a man's baggage is more of a trek than I'd like to take right now.
+- The mob taught me how to play gin rummy.
+- Remember, I come from such an excessively overdone, red-carpet place called Hollywood. So I'm used to people blowing up their success in ways that are far above and beyond the truth.
+- I've been through so much of my own self-search that I'm not as consumed with who I am as I used to be.
+- I make my mistakes in public.
+- I've gotten crankier in my old age.
+- Women love working together. That's my experience anyway.
+- The more I've learned about me, the more I'm interested in others.
+- For me, the safest place is out on a limb.
+- I don't feel competitive.
+- I love the idea that I'm the oldest one in the room because I can get away with anything!
+- I think of life itself now as a wonderful play that I've written for myself, and so my purpose is to have the utmost fun playing my part.
+- I mean, no one asks beauty secrets of me, or 'What size do you wear?' or 'Who's your couturier?' They ask me about really deep things and I love that.
+- You know when you eat too many sweets and get diabetes? Paparazzi are the diabetes of materialistic culture.
+- I can't give up my own identity.
+- I'm an artist, therefore I think I am sensitive to human pain.
+- Well, when you're relaxed, your mind takes you to the whole reality. There's no such thing as time when you're really relaxed. That's why meditation works.
+- Fear makes strangers of people who would be friends.
+- There are stars who are proficiently paranoid enough to hide what they really think. I can't.
+- I don't have an assistant. I make a lot of people around me my slaves, but no assistant.
+- Of course I'm schooled in the old school method: taking what I think the director wants, then reworking it through my own brain and heart.
+- I live in too many cities.
+- I'm not one for wardrobe.
+- When you walk 10 hours, 11 hours a day by yourself, you are doing a walking meditation.
+- Being old is such a treat!
+- A person who knows how to laugh at himself will never ceased to be amused.
+- People think I'm nuts.
+- It's useless to hold a person to anything he says while he's in love, drunk, or running for office.
+- I don't like to socialise much.
+- The soul is everlasting, and its learning experience is lifetime after lifetime.
+- If anything interferes with my inner peace, I will walk away. Arguments with family members. All that stuff. None of it matters.
+- I mean, I'm just speaking of my own experiences and my own desires, and it's a kind of a childlike wonder that could really possibly speculate on other dimensions.

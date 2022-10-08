@@ -1,0 +1,133 @@
++++
+author = "Peter Singer"
+title = "Peter Singer Quotes"
+quotes_len = "127"
+description = "the best 127 Peter Singer Quotes"
++++
+- More people with HIV/Aids are getting inexpensive anti-retroviral drugs, and their life expectancy has increased, but universal access is still far off, and the disease is still spreading, if more slowly than before.
+- I think ethics is always there; it's not always a very thoughtful or reflective ethics.
+- So I think ethics is the broader thing that's less focused on prohibitions and is more perhaps looking at principles and questions and ideas about how to live your life.
+- So, basically, my view is I don't want to support the exploitation of animals, and within reason, I will do what I can to avoid it, but it's not like it's a religion for me. It's not like I consider I'm polluted if somehow some bit of milk or cheese or something passes my lips.
+- Americans think they're the leader of the world and yet can say that they're putting their economic interests ahead of the lives of - quite possibly - tens of millions of people who over the next 50 years will die because of floods or storms or tropical diseases or whatever. I guess that sort of thing makes me angry.
+- In most countries, it is possible to visit zoos and see bored animals pacing back and forth in cages, with nothing to do but wait for the next meal. Circuses are even worse places for animals. Their living conditions are deplorable, especially in travelling circuses where cages have to be small so that they can go on the road.
+- If governments did not mislead their citizens so often, there would be less need for secrecy, and if leaders knew they could not rely on keeping the public in the dark about what they are doing, they would have a powerful incentive to behave better.
+- You might hold an ethical position that it's wrong to lie, but if you have plans for a war in Iraq, and you want to keep them secret for practical reasons - to reduce casualties, perhaps - and someone asks you about those plans, you may need to lie for a 'good' outcome.
+- In the sense that you're not at the centre of power, like a president or prime minister of a major power, everyone is marginalised; my position doesn't isn't unique in that respect. I think there are different sorts of relevance in different contexts.
+- All the arguments to prove man's superiority cannot shatter this hard fact: in suffering the animals are our equals.
+- When fish experience something that would cause other animals physical pain, they behave in ways suggestive of pain, and the change in behaviour may last several hours.
+- Privacy about giving is counterproductive. There is solid scientific research showing that people are more likely to give if they can see that others are giving. The richest people, in particular, should be setting an example.
+- If we can put a man on the moon and sequence the human genome, we should be able to devise something close to a universal digital public library.
+- Sometimes we know the best thing to do, but fail to do it. New year's resolutions are often like that. We make resolutions because we know it would be better for us to lose weight, or get fit, or spend more time with our children. The problem is that a resolution is generally easier to break than it is to keep.
+- Robots already perform many functions, from making cars to defusing bombs - or, more menacingly, firing missiles. Children and adults play with toy robots, while vacuum-cleaning robots are sucking up dirt in a growing number of homes and - as evidenced by YouTube videos - entertaining cats.
+- In a democracy, citizens pass judgment on their government, and if they are kept in the dark about what their government is doing, they cannot be in a position to make well-grounded decisions.
+- If people are prepared to eat locally and seasonally, then they probably do pretty well in terms of environmental impact.
+- We should aim for our children to be good people, and to live ethical lives that manifest concern for others as well as for themselves.
+- Of those who die from avoidable, poverty-related causes, nearly 10 million, according to UNICEF, are children under five. They die from diseases such as measles, diarrhoea, and malaria that are easy and inexpensive to treat or prevent.
+- I would like us to think about it more explicitly, and not take our intuitions as the given of ethics, but rather to reflect on it, and be more open about the fact that something is an ethical issues and think what we ought to do about it.
+- Well the real concept of basic needs if you cut it right down are simply the physical needs that are unavoidable for all of us. So to have enough calories to keep our bodies going. Have shelter from extreme elements. To have water that is safe to drink, So I think that's the core of it.
+- My own view is that being a vegetarian or vegan is not an end in itself, but a means towards reducing both human and animal suffering and leaving a habitable planet to future generations.
+- It means that, in fact, it's - whether fascist is the right word I don't know - more of a plutocracy than anything resembling a democracy; it has become a nation controlled by a very small, very wealthy elite.
+- Business ethics has always had problems that are distinct from those of other professions, such as medicine, law, engineering, dentistry, or nursing.
+- If we all think only of our own interests, we are headed for collective disaster - just look at what we are doing to our planet's climate.
+- I believe that nationalism is a very strong force, but there are other forces operating; there are tendencies pushing towards a larger picture, especially in Europe, I think; but I still think nationalism is real.
+- More often there's a compromise between ethics and expediency.
+- Bush sees the evil as out there in the wider world, residing in people who 'hate freedom'. Look at his immediate response to the pictures of prisoner abuse; this is not what Americans do, these are not our values.
+- All I say about severely disabled babies is that when a life is so miserable it is not worth living, then it is permissible to give it a lethal injection. These are decisions that should be taken by parents - never the state - in consultation with their doctors.
+- The notion that human life is sacred just because it is human life is medieval.
+- The new freedom of expression brought by the Internet goes far beyond politics. People relate to each other in new ways, posing questions about how we should respond to people when all that we know about them is what we have learned through a medium that permits all kinds of anonymity and deception.
+- The price we are willing to pay for safety cannot be infinite. It is distasteful to put a price on human life, but the more we spend on safety, the less we will have for our other goals.
+- Every profession will have its rogues, of course, no matter what oaths are sworn, but many health care professionals have a real commitment to serving the best interests of their clients.
+- Even in non-democratic countries, people have a legitimate interest in knowing about actions taken by the government.
+- Open government is, within limits, an ideal that we all share. U.S. President Barack Obama endorsed it when he took office in January 2009.
+- We tend to think that people are more to blame for their acts than for their omissions.
+- Then I think the sense of it being one community breaks down; but if you know instantly and respond within twenty-four hours, it's a very different sort of situation.
+- I don't understand the notion that modern farming is anything do to with nature. It's a pretty gross interference with nature.
+- The idea that we can actually have an impact on places more or less instantly, too, by responding in some way or not responding, I think, also makes it true.
+- Had Rumsfeld said at any time 'get me a report on what's going on', he could have had it. You're right, it depends on choices that we make, which parts of the world we want to be in immediate contact with.
+- Ancient recipients of instant news probably couldn't do very much about it, for instance. Xerxes would still need three months to get his army together, and he might not get home for years.
+- You shouldn't say 'animals' to distinguish between humans and non-humans. We are all animals.
+- Interest in business ethics courses has surged, and student activities at leading business schools are more focused than ever before on making business serve long-term social values.
+- I don't think there's anything in the compromise that means that there's a clash of ethics.
+- To make sustainable progress in reducing extreme poverty will require improvements in both the quantity and quality of aid.
+- It was wrong to capture wild animals and confine them in captivity for people to go and gawk at them. And that's basically how zoos got started. But once you do that, and once you have animals that have been bred in captivity, you're really stuck with them in some sense. You can't return them to the wild.
+- It's also much clearer how much damage the occupation of Iraq is doing to America's reputation and prestige around the world; and that's just starting now to hit home in the United States.
+- Several countries - among them Austria, Costa Rica, Denmark, Finland, India, Israel and Sweden - ban or severely restrict the use of wild animals in circuses. In Brazil, a movement to ban wild animals from circuses started after hungry lions managed to grab and devour a small boy.
+- I believe that in this new world that we live in, we often have a responsibility, you know, to actually go beyond the thou shalt nots - that is, the not harming others - and say we can help others and we should be helping others.
+- We need to recognise that what really matters isn't buying more and more consumer goods, but family, friends, and knowing that we are doing something worthwhile with our lives. Helping to reduce the appalling consequences of world poverty should be part of that reassessment.
+- I don't think nationalism is alone holding the field; it's in contention with a lot of different things.
+- I honestly don't know, but if America continues to refuse to reduce its greenhouse gas emissions, I see a bleak future not only for American society, but for the world as a whole. This is a global problem that is not going away, and the United States is an obstacle to solving it.
+- There is no doubt that there is a huge difference between human and nonhuman animals. But what we are overlooking is the fact that nonhuman animals are conscious beings, that they can suffer.
+- Without in any way minimising the economic and psychological blow that people experience when they lose their jobs, the unemployed in affluent countries still have a safety net, in the form of social security payments, and usually free healthcare and free education for their children. They also have sanitation and safe drinking water.
+- If we are concerned about the exploitation of human workers in countries with low standards of worker protection, we should also be concerned about the treatment of even more defenceless non-human animals.
+- There is no humane slaughter requirement for wild fish caught and killed at sea, nor, in most places, for farmed fish.
+- I'm not overly alarmist about it, but I do think there are some worrying signs, like the growing accumulation of wealth by a very small proportion of the population, plus elections in the US are much more dominated by money than anywhere else calling itself a democracy.
+- In a situation where many national leaders do the same thing and look out for national interests, and with an issue like global warming, you're likely to get no solution, so I think you have to have some kind of ethical trump on some of those issues.
+- Do business managers have a commitment to anything more than the success of their company and to making money? It would be hard to say that they do. Indeed, many business leaders deny that there is any conflict between self-interest and the interests of all.
+- The Internet, like the steam engine, is a technological breakthrough that changed the world.
+- If you go back in time you'll find tribes that were essentially only concerned with their own tribal members. If you were a member of another tribe, you could be killed with impunity.
+- If we use goods made from raw materials that are obtained from a poor country without the proceeds being used to benefit the people of that country, we become complicit in a particularly iniquitous form of grand larceny.
+- In most of the world, it is accepted that if animals are to be killed for food, they should be killed without suffering.
+- There is no excuse for keeping wild animals in amusement parks or circuses. Until our governments take action, we should avoid supporting places where captive wild animals perform for our amusement. If the public will not pay to see them, the businesses that profit from keeping animals captive will not be able to continue.
+- When I was a child, my father used to take me for walks, often along a river or by the sea. We would pass people fishing, perhaps reeling in their lines with struggling fish hooked at the end of them. Once I saw a man take a small fish out of a bucket and impale it, still wriggling, on an empty hook to use as bait.
+- In an ideal world, the amount of money we spend on medical research to prevent or cure a disease would be proportional to its seriousness and the number of people who suffer from it.
+- In the real world, 90% of the money spent on medical research is focused on conditions that are responsible for just 10% of the deaths and disability caused by diseases globally.
+- I am not saying that factory farming is the same as the Holocaust or the slave trade, but it's clear that there is an immense amount of suffering in it, and just as we think that the Nazis were wrong to ignore the suffering of their victims, so we are wrong to ignore the sufferings of our victims.
+- Almost everybody accepts that some people can be killed. 'The concept of 'brain death' - the belief that people on respirators can legitimately be killed - shows that.
+- If somebody has an extreme amount of wealth and is not using it for some good purpose, only for their own enjoyment or satisfaction, then clearly there's a moral failing in the world in which we live.
+- They tend to be pretty abstract ones then, like doing what will have the best consequences; obviously you wouldn't specify what consequences are best, they may be different in some circumstances, so at a lower, more specific level, you may well get differences.
+- There's a difference between early and late abortions. If you have a late abortion, where the fetus might feel pain, then I think you should have a good reason. Because then you're inflicting pain. As you go through the third trimester, you need to have more serious reasons to end a pregnancy.
+- It's because I work in ethics, and, more specifically, applied ethics, that I think it's important that if you have things to say that you think are right and you think could make the world a better place, it's important that many people read about them.
+- We have a new generation of very rich people who want to do more with their money than buy a lot of expensive toys. They want to live meaningful lives.
+- An animal experiment cannot be justifiable unless the experiment is so important that the use of a brain-damaged human would be justifiable.
+- I don't think there's much point in bemoaning the state of the world unless there's some way you can think of to improve it. Otherwise, don't bother writing a book; go and find a tropical island and lie in the sun.
+- If you're buying animal products and can go to the farm and actually see how the animals are looked after, yes, that's an important point. That's definitely the best way of assuring yourself that the animals are being well treated.
+- Of those who die from avoidable, poverty-related causes, nearly 10 million, according to UNICEF, are children under five. They die from diseases such as measles, diarrhea, and malaria that are easy and inexpensive to treat or prevent.
+- At the descriptive level, certainly, you would expect different cultures to develop different sorts of ethics and obviously they have; that doesn't mean that you can't think of overarching ethical principles you would want people to follow in all kinds of places.
+- That's a central part of philosophy, of ethics. What do I owe to strangers? What do I owe to my family? What is it to live a good life? Those are questions which we face as individuals.
+- Today, if you have an Internet connection, you have at your fingertips an amount of information previously available only to those with access to the world's greatest libraries - indeed, in most respects what is available through the Internet dwarfs those libraries, and it is incomparably easier to find what you need.
+- For example, one way of giving yourself a strong incentive to reach your goal is to commit to pay money to someone if you fail. Better yet, you can specify that you will have to pay a certain sum to a cause that you detest.
+- Can we really believe that we are living a good life, an ethically decent life if we don't do anything serious to help reduce poverty around the world and help save the lives of children or adults who are likely to die if we don't increase the amount of aid we are giving.
+- Even with censorship, the Internet is a force for change.
+- But I think the majority of cows, and even more so chickens and pigs, are leading pretty miserable lives.
+- If extreme poverty is allowed to increase, it will give rise to new problems, including new diseases that will spread from countries that cannot provide adequate healthcare to those that can. Poverty will lead to more migrants seeking to move, whether legally or not, to rich nations.
+- What you could say, and what I do argue in the book, is that he doesn't have as much concern for the lives of Iraqis as he does for the lives of Americans, or even frozen American embryos.
+- Of all the arguments against voluntary euthanasia, the most influential is the 'slippery slope': once we allow doctors to kill patients, we will not be able to limit the killing to those who want to die.
+- We see things like reciprocity which are fairly central to our view of ethics. But if you're talking about a set of worked-out rules on what we are supposed to do then, yes, it is a human product.
+- Grain that is used to feed animals that end up on our tables as turkeys and hams could have gone to feed starving people.
+- There is no doubt that the world economy is in trouble. But if governments or individuals use this as an excuse to reduce assistance to the world's poorest people, they will only multiply the seriousness of the problem for the world as a whole.
+- I suppose what's happened recently has confirmed suspicions I voiced in the book, and I think made clearer some of those things that I point out. For instance I have a section of the book where I talk about the possibility of torture.
+- I don't eat meat. I've been a vegetarian since 1971. I've gradually become increasingly vegan. I am largely vegan, but I'm a flexible vegan. I don't go to the supermarket and buy non-vegan stuff for myself. But when I'm traveling or going to other people's places, I will be quite happy to eat vegetarian rather than vegan.
+- Most of the robots being developed for home use are functional in design - Gecko's homecare robot looks rather like the Star Wars robot R2-D2. Honda and Sony are designing robots that look more like the same movie's 'android' C-3PO.
+- I find it extraordinary that anyone would have an intellectual conversion to Roman Catholicism.
+- Google has withdrawn from China, arguing that it is no longer willing to design its search engine to block information that the Chinese government does not wish its citizens to have. In liberal democracies around the world, this decision has generally been greeted with enthusiasm.
+- Attempts to defend amusement parks and circuses on the grounds that they 'educate' people about animals should not be taken seriously. Such enterprises are part of the commercial entertainment industry. The most important lesson they teach impressionable young minds is that it is acceptable to keep animals in captivity for human amusement.
+- Paradoxically, resource-rich developing countries are often worse off than comparable countries that lack those resources. One reason for this is that large resource endowments provide a huge financial incentive for attempts to overthrow the government and seize power.
+- Knowing that we can control our own behaviour makes it more likely that we will.
+- The Pentagon said that these prisoners were kept in accordance with the Geneva Convention, and of course I was not reassured by that, but I couldn't prove that that was wrong; so we're clearer about that.
+- We recognize the chicken as another conscious being. It's different from us, but it has a life, and if something is really important for that chicken, if it would work hard to try to get it, and if we can give it without sacrificing something that's really important to us, then we should.
+- When diamonds' role in fuelling violent conflict in Africa gained worldwide attention, the diamond industry established the Kimberley process in order to keep "blood diamonds" out of international trade.
+- Some vegetarians and vegans may object to in vitro meat, because they don't see the need for meat at all. That's fine for them, and of course they are free to remain vegetarians and vegans and choose not to eat in vitro meat.
+- My work is based on the assumption that clarity and consistency in our moral thinking is likely, in the long run, to lead us to hold better views on ethical issues.
+- The hope of Internet anarchists was that repressive governments would have only two options: accept the Internet with its limitless possibilities of spreading information, or restrict Internet access to the ruling elite and turn your back on the 21st century, as North Korea has done.
+- When you look at food as an ethical issue in the Christian tradition, you don't find very much about it. You don't find, as you do in the Jewish or Islamic or Hindu traditions, a lot of restrictions saying you can eat this but you can't eat that.
+- Diamonds have an image of purity and light. They are given as a pledge of love and worn as a symbol of commitment.
+- We need to learn how to capture and kill wild fish humanely - or, if that is not possible, to find less cruel and more sustainable alternatives to eating them.
+- I'm a Utilitarian, so I don't see the rule against lying as absolute; it's always subject to some overriding utility which may prevent its exercise.
+- I can tell you that too much money is corrupting American politics. Don't blame the American public. The U.S. Supreme Court has a lot to answer for, because it has made it impossible for Congress to reduce the corrupting influence of money on American political life.
+- I think I get angry when people cause serious suffering or don't alleviate suffering when they could.
+- Dolphins are social mammals, capable of enjoying their lives. They form close bonds with other members of their group.
+- Many European countries, as well as Australia, Canada, Israel, and New Zealand, have adopted legislation that creates a 'public lending right', where the government recognises that enabling hundreds of people to read a single copy of a book provides a public good, but that doing so is likely to reduce sales of the book.
+- Knowledge is generally considered a good thing; so, presumably, knowing more about how the U.S. thinks and operates around the world is also good.
+- Human decision-making is complex. On our own, our tendency to yield to short-term temptations, and even to addictions, may be too strong for our rational, long-term planning.
+- Scholars have long dreamed of a universal library containing everything that has ever been written.
+- I just don't think that the differences you make by donating to a museum or an art gallery really compare to the differences you make by donating to the charities that fight global poverty.
+- Animals, or at least those who are conscious and capable of suffering or enjoying their lives, are not things for us to use in whatever way we find convenient.
+- To be a utilitarian means that you judge actions as right or wrong in accordance with whether they have good consequences. So you try to do what will have the best consequences for all of those affected.
+- As we realize that more and more things have global impact, I think we're going to get people increasingly wanting to get away from a purely national interest.
+- The belief that the animals exist because God created them - and that he created them so we can better meet our needs - is contrary to our scientific understanding of evolution and, of course, to the fossil record, which shows the existence of non-human primates and other animals millions of years before there were any human beings at all.
+- For a long time, rich countries have promised to reduce poverty but have failed to match their words with adequate action. Of course, some important progress has been made and millions of lives have been saved, but millions more could be saved.
+- Bush is morally a universalist. For instance, he says the freedom is good, the same thing is good, all over the world. So in that sense he's a universalist.
+- Bush doesn't present himself as a realpolitik politician.
+- What is faith? If you believe something because you have evidence for it, or rational argument, that is not faith. So faith seems to be believing something despite the absence of evidence or rational argument for it.
+- We may feel the pain of falling back from a level of affluence to which we have grown accustomed, but most people in developed countries are still, by historical standards, extraordinarily well off.
+- I have never really been fond of animals. I certainly wasn't an 'animal lover' when I became involved in the movement. I just came to be persuaded that animals should be treated as independent sentient beings, not as means to human ends.

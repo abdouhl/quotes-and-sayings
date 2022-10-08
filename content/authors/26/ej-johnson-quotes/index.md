@@ -1,0 +1,69 @@
++++
+author = "Ej Johnson"
+title = "Ej Johnson Quotes"
+quotes_len = "63"
+description = "the best 63 Ej Johnson Quotes"
++++
+- I'm not just some other rich girl who's trying to get a show.
+- We get only one life, and you need to just - give it. Give it your all.
+- I'm very happy with myself and I think - I always say that I think that if you feel like you're not in the right body, then by all means get to where you want to be.
+- First of all, there's the celebrity thing. Like, who are you here for, are you dating me or are you trying to date my dad? These men either just want to be there for one thing and don't want to stay for the real relationship part or they just want to ride the wave and be bougie and bomb and have their picture taken and do all of that.
+- I wear what I want to wear and I do what I want to do and I think everyone should do that.
+- I'm actually studying hospitality and I have a concentration in event planning and design. I study mostly around event management and a little bit of business.
+- I miss those days when I could just walk around under the radar and no one really knew who I was until I wanted them to know.
+- I was always very much a diva.
+- Oh, I shop all over the place, really. Like I love department stores like Barney's and Saks and stuff like that. But I also just like to walk in Soho and find some interesting boutique that doesn't really have a huge name or following, and I'll go in and find something amazing.
+- It frustrated me as a kid. Like, why didn't I just wake up every morning shooting half-court shots from my bedroom?
+- Being able to take control of my life again, take control of what I'm eating and my fitness is enlightening and empowering.
+- I would watch 'the Kardashians' and think, I could do that.
+- I've always known that I wanted to do something in entertainment and fashion.
+- My parents have always been super supportive.
+- I celebrate the things that make me different, and it's worked to my advantage.
+- I just wanted to feel sexy and get male attention and get guys and do that whole experience because I didn't really have that before. And so when I started to get it, I just took it and ran with it.
+- I'm always constantly doing something else.
+- I don't know if I would describe myself as a little goth. But the all black is very New York.
+- Don't let anyone tell you no - don't care about what anyone else thinks.
+- Me and my dad, we go shopping all the time. He helps me pick out clothes and bags and stuff like that. We do share a common love of clothes and traveling.
+- I think that NYC naturally brings out a bolder personality in people.
+- I am very, very, very blessed to have the family that I do.
+- No two days are ever the same, but usually I wake up and immediately check out what's happening online in the fashion world. Doing so inspires me to create and shape my own fashion trends.
+- It's a totally new mindset - I'm completely dedicated to living a new, healthy lifestyle. It's given me a whole new view on life.
+- Obviously if it's a larger bag, you can always debut it at a nice lunch or a good shopping date - maybe like a luncheon or a Dodger's game. Obviously for smaller bags, clutches and stuff, you can always wait for something in the evening like a big party.
+- When it was time to come out, I was obviously scared, as most people are.
+- I don't like to carry things in my pockets.
+- A lot of people ask me if I only get all this attention because of my dad. The answer is no.
+- It's very exciting to have this great opportunity to interview designers for PopSugar. This is certainly my first step toward making my debut in the fashion industry.
+- In high school, I listened to Lady Gaga and I was really obsessed with just being who you are and owning that experience - she was a really big inspiration in that aspect to me and my friends, who were young and growing up, and making our way through the city and the world.
+- You never know what kind of person you're going to be faced with, and you never know what kind of obstacles you're going to have to overcome.
+- I think that New York liberated me in the sense that I moved here when I was 18, so it was a fresh perspective on life. I had been living in L.A. my whole life and I had never lived anywhere else, so being away from family and really making a name for myself was huge for me.
+- I have an allowance for clothes and stuff.
+- The only time it gets weird is which bathroom do I go into sometimes.
+- I realize I'm not going to meet my man at a club, and that's where I used to troll for men.
+- I always wanted to come into the spotlight. I always had dreams and plans of doing my own thing and creating my own image, so it came a little sooner than I thought it would but this is still something I knew I would be going through and would have to experience.
+- I love Rihanna all day, every day.
+- After I got all the love and support from my family then I knew I could go out and conquer the world, I guess.
+- I remember being, like, 4 and 5 and playing in my mom's closet. But also asking questions like 'Who's this?' and 'What's that?,' and my mom explaining to me, 'This is a Chanel and this is a Versace.'
+- Only in 2016 can a brother and sister have problems over the same man.
+- You have to be careful that you're not too involved in so much social media that you miss out on real life.
+- I certainly think it's important to build relationships with movers and shakers in the fashion industry.
+- People are more up front about what they want. That's what I love about New York in general.
+- I've worked as an E! News correspondent covering New York Fashion Week and have appeared on several fashion shows and online sites.
+- I'm having so much fun getting to play around with a lot of different looks, a lot of different outfits, a lot of motifs.
+- I don't feel that I'm in the wrong body. I feel like this is the body I'm supposed to be in.
+- With a strong foundation in place, my goal is to keep progressing forward and continue making my mark within the entertainment and fashion industries.
+- My friends are all about Instagram and all about Snapchat.
+- It's important to come out to yourself first and be comfortable with it. After that, I feel it's important to surround yourself with a group of friends who support you and love you for who you are.
+- I have a lot of personality and I'm funny.
+- I've always wanted to be successful, but I wanted to make sure I found my own way.
+- So I'm definitely coming up in the entertainment world. Definitely a talk show down the line is my ultimate goal and you know, dabbling in fashion and entertainment.
+- Find a workout that's something you love to do.
+- I've completely changed what I eat and how I view food. My friends and family eat really healthy and they've been encouraging me. I feel great!
+- My dad's entire business and enterprises have been about helping the African-American community.
+- I like things that are avant-garde, but at the same time I can also go downtown edgy.
+- I don't feel the need to transition. I'm almost 100 percent positive I won't.
+- All the people that are so quick to say that, like, because I wear womenswear sometimes, that means I'm transitioning. People are just so ignorant and dumb sometimes.
+- I just want a friend with benefits.
+- I play in men's and women's wear, and I kinda mix and things like that.
+- I would love to jet set all around and take all the fashion weeks if I really could. I would love to go from London to Paris to Milan and just do them all. I think that would be amazing.
+- I really think it's important that you not listen to so many fads; you really need to find what works for you.
+- I'm just very comfortable in my own skin. I like my body.

@@ -1,0 +1,41 @@
++++
+author = "Paula Poundstone"
+title = "Paula Poundstone Quotes"
+quotes_len = "35"
+description = "the best 35 Paula Poundstone Quotes"
++++
+- I was diagnosed a number of years ago with obsessive-compulsive disorder - which everyone has, to some degree - and I have this really annoying trait where in conversation, I always steer it back to something that happened to me.
+- Adults are always asking kids what they want to be when they grow up because they are looking for ideas.
+- When I sat down to write I just felt like a geek writing about myself. And then it dawned on me, just because of the way I am, I can't stop talking, and part of the problem is that anything that gets said reminds me of something that happened to me one time, and invariably I cut people off and talk about myself.
+- The problem with cats is that they get the exact same look on their face whether they see a moth or an axe-murderer.
+- I don't have a bank account because I don't know my mother's maiden name.
+- The wages of sin are death, but by the time taxes are taken out, it's just sort of a tired feeling.
+- I have jokes I've told before and will tell again, but my favorite part of the night is talking to the crowd.
+- There are really only so many foods and so many ways you can prepare them.
+- I have a very silly sense of humor. I've never laughed harder in my entire life than seeing someone with toilet paper stuck on the bottom of their shoe.
+- How do you come back? It's one step at a time. I'm optimistic because I don't know what else to be.
+- I'm really more prolific than most stand-ups. My act changes. I do fold in new experiences, new observations, whatever you want to call it.
+- I'm thankful for the three ounce Ziploc bag, so that I have somewhere to put my savings.
+- I talk to a lot of librarians, and there's always a steady drumbeat of how libraries are places of community. But a lot of them have also recently - and just in the nick of time - refurbished, because during this economic downturn, people have a tendency to borrow instead of buy.
+- President Obama could keep a big map with push pins on it to keep track of how many countries hate us, and when we get down to only half, let's have a ball. I'll blow up the balloons myself.
+- When we live up to our Constitution, let's form a Conga line around the Capitol and bungee jump off the dome.
+- I get the first flight out from anywhere I am because I have to come home to my kids.
+- I love talking to the audience, and I must be the luckiest performer in the world. I always land something or somebody that just takes off.
+- I only do two things in my life, and that's take care of my kids and work. Fortunately, these are my favorite things to do, so it works out.
+- My Mom said she learned how to swim when someone took her out in the lake and threw her off the boat. I said, 'Mom, they weren't trying to teach you how to swim.'
+- I'm thankful for Sarah Palin's vice presidential bid, which taught us that Alaska is not in a box off the coast of California.
+- I can make things, but I don't cook them, exactly. Like salmon, I can stick that in a pan. Or the other day I made noodles, but they were hard. It never occurred to me to check them; I just stopped cooking them when I felt they were ready. Really, I'm too absentminded.
+- I'm thankful that my memory is good because my vision is going.
+- I did auditions at a club called the Comedy Connection. They wanted nothing to do with me. But one night they were doing a night of all women comics, and they invited me to do that.
+- I mean, I do love clever and witty, but I think that the 'Three Stooges' were geniuses. They'd have to be for their appeal to have lasted this long.
+- I also like a great Caesar salad with anchovies, although I don't know why some places say 'with anchovies.' If you're making a proper Caesar salad, it's going to have anchovies.
+- I was born in Alabama, but I only lived there for a month before I'd done everything there was to do.
+- When every high school graduate can spell the word, 'inauguration,' let's put lampshades on our heads and listen to his speeches until Obama's voice gives out.
+- I love key lime pie, although it's never made the proper way.
+- I used to watch 'The Waltons' and sob because my family was nothing like that. We had a cruel sense of humor in my family.
+- When we save the rain forest, the polar bear, and Al Gore, we should party so hard that Canada calls the cops on us for noise.
+- I have a horrible memory and I used to consider that a liability, but I've learned along the way that talking to people is really a beautiful thing.
+- I was the youngest in my family. When the other kids went to school, my mother would make them breakfast and then she would go back to bed for an hour, so I was sort of babysat by television.
+- My act is sort of improvisational. I have a skeleton in my head, but no fat or skin on it.
+- I don't need a holiday or a feast to feel grateful for my children, the sun, the moon, the roof over my head, music, and laughter, but I like to take this time to take the path of thanks less traveled.
+- Once I was gone for a month and I was just miserable, so I flew back from Florida for two hours just to be home and see my cats.

@@ -1,0 +1,22 @@
++++
+author = "Smedley Butler"
+title = "Smedley Butler Quotes"
+quotes_len = "16"
+description = "the best 16 Smedley Butler Quotes"
++++
+- Out of war nations acquire additional territory, if they are victorious. They just take it. This newly acquired territory promptly is exploited by the few - the selfsame few who wrung dollars out of blood in the war. The general public shoulders the bill.
+- I served in all commissioned ranks from a second Lieutenant to a Major General. And during that time, I spent most of my time being a high-class muscle man for Big Business, for Wall Street, and for the bankers. In short, I was a racketeer for capitalism.
+- I spent thirty-three years and four months in active military service as a member of this country's most agile military force, the Marine Corps. I served in all commissioned ranks from Second Lieutenant to Major-General.
+- The trouble with America is that when the dollar only earns 6 percent over here, then it gets restless and goes overseas to get 100 percent. Then the flag follows the dollar and the soldiers follow the flag.
+- War is a racket. It is the only one international in scope. It is the only one in which the profits are reckoned in dollars and the losses in lives.
+- War is just a racket. A racket is best described, I believe, as something that is not what it seems to the majority of people. Only a small inside group knows what it is about. It is conducted for the benefit of the very few at the expense of the masses.
+- War is a racket. It always has been... A few profit - and the many pay. But there is a way to stop it. You can't end it by disarmament conferences. You can't eliminate it by peace parleys at Geneva. Well-meaning but impractical groups can't wipe it out by resolutions. It can be smashed effectively only by taking the profit out of war.
+- War is just a racket... I believe in adequate defense at the coastline and nothing else.
+- We must take the profit out of war.
+- My mental faculties remained in suspended animation while I obeyed the orders of the higher-ups. This is typical with everyone in the military.
+- We must permit the youth of the land who would bear arms to decide whether or not there should be war.
+- There are only two things we should fight for. One is the defense of our homes and the other is the Bill of Rights.
+- I helped purify Nicaragua for the international banking house of Brown Brothers in 1909-1912. I brought light to the Dominican Republic for American sugar interests in 1916. In China I helped to see to it that Standard Oil went its way unmolested.
+- I helped make Mexico, especially Tampico, safe for American oil interests in 1914. I helped make Haiti and Cuba a decent place for the National City Bank boys to collect revenues in.
+- The normal profits of a business concern in the United States are six, eight, ten, and sometimes twelve percent. But war-time profits - ah! that is another matter - twenty, sixty, one hundred, three hundred, and even eighteen hundred per cent - the sky is the limit.
+- For a great many years, as a soldier, I had a suspicion that war was a racket; not until I retired to civil life did I fully realize it.
