@@ -1,0 +1,106 @@
++++
+author = "Caroline Lucas"
+title = "Caroline Lucas Quotes"
+quotes_len = "100"
+description = "the best 100 Caroline Lucas Quotes"
++++
+- It's going to take everyone to rebuild a fairer, more sustainable, more beautiful Britain.
+- It used to be said that war was the locomotive of history, with its power to accelerate change. The coronavirus crisis has that same power. It has already shown us who we really are, and how there is much more than unites than divides us. It has shown how governments need to work with their citizens to overcome threats or challenges.
+- The people who serve your fast food lunch or your after-work drinks deserve dignity - and if big companies don't start paying them enough for a decent standard of living, they have the power to close these businesses. But no one goes on strike lightly.
+- Being an MP for a place you love is an extraordinary gift.
+- We know that Brexit would make our poorest communities poorer still. That it would make the powerless even less able to effect change.
+- There is an important message that all political leaders should be taking from the response to coronavirus, and that is that people are prepared to make hard choices for the common good.
+- A government can't cut its way out of a recession any more than you can dig yourself out of a hole.
+- The response to coronavirus has shown what can be done when governments put their mind to it.
+- A public, unified and integrated railway - hardly controversial.
+- The truth is that goodness is hardwired in humanity.
+- Politicians can either keep listening to a small number of polluting fossil fuel companies, who're keen to profit from keeping us hooked on oil, coal and gas, or they can listen to the majority of other voices from civil society to business calling for an urgent switch to low and zero carbon heat and power.
+- No more top-down politics with Westminster dictating what's right for every community. We must all be partners in designing a better future for our country.
+- When threats become unspeakable, unshareable and even unreadable, their power over us only grows.
+- Violence against women is not inevitable.
+- Reminding oneself that not all rules are good rules and sometimes it's good to challenge them is an important part of being an effective parliamentarian.
+- I don't think politics just happens in Parliament. It happens on the streets and in classrooms.
+- Coronavirus has exposed for all what many of us already knew - some of our most important workers have barely enough to live on, and millions are condemned to financial insecurity, inequality and food poverty.
+- Petra Kelly is my inspiration, one of the founders of the German Greens.
+- Actions speak louder than Climate Emergency declarations.
+- Fading are the days in which a cohort of towering power stations ran the game (and captured all the profits).
+- We live in a country of grotesque inequalities.
+- When it comes to topping the 'least popular' lists, MPs have form. Typically, we're pipped to the post only by bankers and traffic wardens.
+- We always knew that whatever party Nigel Farage led - first UKIP and then the Brexit party - was basically a vehicle for his own political self-glorification and now he's proved it.
+- My parents are not people who would want to rock the boat. They wouldn't break the law.
+- Other countries are developing well-being economies - we should do the same. That is the way to create a society which would stand the test of time - for everyone.
+- Clear skies and clean air must become the new normal. We must re-design our cities, reclaiming the streets for cycling and walking, allowing people to walk along streets unpolluted by traffic.
+- Huge public spending and borrowing in the face of an existential crisis is clearly the right thing to do, as is putting people's health and wellbeing above the pursuit of economic growth.
+- The Government needs to recognise that we live on a planet with finite resources - and start measuring our progress as a society by the quality of our lives, not the expansion of our GDP.
+- For expectant mothers there's so much to think about - and so much to prepare for. In amongst those many thoughts and all the excitement are also some concerns, not least the serious worries for many about what will happen at work.
+- Trump is surrounding himself with so many climate sceptics and when he himself says he thinks climate change is a Chinese hoax then there are real concerns.
+- Westminster's hardly a billboard for people-centred politics. Given its makeup, the term 'Commons' is pretty ironic, too.
+- My interest was in renaissance literature, looking at how men were writing for women in the 1590s, a time when many women were being taught to read but not to write.
+- The models that the other parties have used where you have a very powerful leader squashing any kind of independent ideas from the grass roots is not very attractive to the electorate.
+- We promote new fossil fuel infrastructure, from airport expansion and coal mines in the U.K. to oil pipelines in the U.S. Investments are meant to build and secure our shared future - but all these fossil fuel investments are directly fuelling the climate crisis that threatens to undermine that future.
+- Everything from the infrastructure we build to the products we use must now be aimed squarely at building a zero-carbon world.
+- I think we'd be crazy to do anything to the integrity of our policy package, which is progressive, and really dealing with the key social and environmental issues that we face. We're not about to ditch our commitment to nuclear disarmament, for example, to somehow make ourselves more electable.
+- As more and more people demand fair pay, the Government and big corporations are going to have to take notice.
+- Britain was once notorious as the 'dirty man of Europe' with polluted air, raw sewage pumped into the sea and protected sites being lost at a terrifying rate. E.U. laws and the threat of fines changed much of that.
+- I joined the Campaign for Nuclear Disarmament in the 1980s and protested at Greenham Common.
+- We should entrust our young people with a voice to express their views on what their futures should look like.
+- Renewable energy is not unaffordable as the fossil fuel giants would like us to believe.
+- Britain is a parliamentary democracy. Power rests in Parliament, in the House of Commons, and the government - the executive - has to seek the consent of MPs for its legislation.
+- The point about Roosevelt's New Deal was that it was visionary - for the 1930s.
+- We must instil our future leaders with the expertise, knowledge and skills to prevent climate breakdown and restore nature to health.
+- Our railways maintain a healthy economy and society. They keep businesses running and families close. They're a vital public service and must be treated as such.
+- I don't think anybody voted for the Green Party without knowing what our position was on Brexit.
+- Our economy is failing far too many - forcing parents to use foodbanks to feed their children, demonising migrants and condemning all of us to climate breakdown.
+- We must not let the response to the coronavirus crisis make the climate and inequality crises even worse.
+- A girl named Rachel transformed my childhood. Life was safe, suburban and comfortable, but ours was a home without books. I met her aged 11, and she introduced me to the joys of poetry and literature. It opened my mind to ideas I could never have dreamed of.
+- I stand alongside everyone campaigning for better pay and conditions - they are paving the way for a fairer society.
+- The Green Party is full of motivated, driven people who want to make change happen as fast as possible.
+- We have lived with deadly levels of air pollution for years, which have made us more vulnerable to coronavirus.
+- Climate change demands a collective response. We can't expect other countries to act if we don't.
+- Continuing down a path where profit is king is unsustainable for our society, our health and our planet.
+- If we genuinely believe in a bigger future for our country, we have to redistribute both wealth and power - so people can take back control for good, not just for one vote.
+- Once upon a time the Conservative party was a broad church which embraced a range of views.
+- Advanced industrialised economies like ourselves cannot afford to go on growing, particularly if we want to give people in poorer countries a chance of being able to at least meet their basic needs.
+- Labour needs to end its support for expensive nuclear power and vanity projects like HS2, and take a firm stance against the ecologically impossible expansion of airports.
+- Addressing the climate and biodiversity crises requires us to radically change our economic models, moving away from economic growth as the over-riding measure of progress and moving instead towards improving health and wellbeing for people and nature. That means a different economic model taking us towards a sustainable economy.
+- Banks and investors have poured money into dirty energy and high-carbon for decades. While no single policy is a magic bullet for the climate crisis, there is also no way of solving it that doesn't involve a fundamental reimagining of the role of our financial system.
+- We must have the right to name our fears and laugh at those who seek to scare us - or risk giving in to terrorists.
+- Humanity's inclination to be kind during the coronavirus crisis is an unprecedented, uplifting demonstration of solidarity.
+- If a prime minister can suspend parliament to deliver a 'no deal' Brexit, what will the government try to do next with no democratic scrutiny or oversight?
+- Unquestionably, major transformation of the way the U.K. generates its heat and power is essential.
+- Politics is about everything we do from the moment we get up in the morning to the minute we go to bed at night. It's something everybody and anybody can be involved in.
+- I think if people thought we were just like the other parties and would ditch our policies at the first moment we thought we wouldn't get a majority, then we'd become just like all the other parties.
+- In a fair society, the solution to unemployment is not to force people into workfare programmes which do little more than supply big companies with free labour. It's to create jobs that pay a living wage, for example, by investing in new sustainable infrastructure projects and boosting the jobs-rich low carbon economy.
+- The only newspaper in our house when I was growing up was the Daily Mail, and we would never have dreamt of discussing politics around the dinner table. So my involvement in politics came about through activism.
+- I am a longstanding critic of British foreign policy - and an opponent of the authoritarian, quasi-imperialist, racist, homophobic politics of Putin.
+- The creation of regional mayors has done little to reduce the sense that all power is concentrated in Westminster, and all investment in London.
+- I've been in the Green party for a very long time - when was it, 1986 - and I joined the party because I seriously wanted the party to have influence.
+- We need to block dirty diesels getting public money - no question there.
+- I do think that if people are taking the time to think about their environmental footprint when it comes to how many flights they take, whether or not they have a 4X4, whether or not they are going to have a patio heater, then putting the question to themselves about how many kids they are going to have is a reasonable thing to do.
+- When this coronavirus crisis is over, what kind of society will we be? A more important question is what kind of society do we want to be?
+- To the extent that Bernie Sanders was about building a movement of people where challenging things that up until then were unchallengeable, then absolutely we want to be seen in that mould.
+- I accept that as an elected politician I have a number of other tools that I can use to bring about change but I would also say that the Green party remains committed to appropriate non-violent direct action and I think it is a tool in some cases that is legitimate.
+- GDP simply measures the circulation of money in the economy, not whether or not the outcome of using that money is positive or negative.
+- On many issues, Jeremy Corbyn and I are in agreement.
+- I'm a great believer in needing things that give us some hope.
+- Sometimes it takes a sudden change to make you realise just how bad things were.
+- With the huge benefits of investing in renewables, energy efficiency and demand reduction becoming ever more obvious, it's clear that there needs to be far greater scrutiny of the policy decisions that are propelling Britain towards a nuclear future.
+- I don't think Ed Miliband has the courage of his convictions. He's scared he'll be painted by the rightwing press as a throwback to the time of the 'big state.'
+- With pollution from traffic a major source of greenhouse gas emissions, we should be building a transport and planning system that makes car-free travel for shorter distances the norm for the majority.
+- My constituents are my employers - if I let them down I should be accountable to them.
+- I've been arrested a few times. The most high-profile instance was when protesting at the fracking site in Balcombe. It's an industry which will undermine our chances of tackling climate change.
+- I come from a very conventional and non-political background.
+- I think the Greens are posing some of the most important questions of our time, for example how we live sustainably on a planet of finite resources and a rising population, and how do we do that in a way that doesn't exceed environmental limits and which is fair.
+- I think there is a role for non-violent direct action when democratic channels have failed.
+- We can no longer allow special corporate interests to shape our political and financial decisions, while our citizens and communities cry for real climate action.
+- Nuclear weapons remain a costly distraction from the real security threats we face, like climate change.
+- We pride ourselves on our democracy, but when you see the way it actually works, I think it is worthy of contempt.
+- I did try being a vegan.
+- There are lots of things one can criticise about the European parliament, but it does work pretty well in terms of the speed with which you can vote, the fact that there's room to sit, the fact that there are offices when you arrive.
+- We cannot afford to burn the vast majority of known fossil fuel reserves.
+- Many are outspoken about the climate crisis, but conveniently ignore the fact that support for fossil fuels is not just incompatible with curbing emissions but dangerously counterproductive.
+- The billions being spent on Trident replacement would be much better spent on investing in developing the infrastructure we need for a zero-carbon economy, as well as in protecting public services. To use the money on a project that makes Britain and the world a far more dangerous place is politically irresponsible and economically obscene.
+- What does the public want? It wants a vested interest in its own energy provision - driving more efficient behaviour. It wants greater choice and responsibility at a local level. And it wants increased use of renewables to protect the environment.
+- We have always been a party that has had policies on everything, from education to the economy to the environment. We have always said that, if you are serious about the environment, then the policies that you need to change most are the economic policies.
+- The one thing we have that the other parties do not have is a political integrity. No one thinks you join the Green party because you're politically ambitious, or have your own agenda.
+- In the public mind, when they think of politicians, sadly they probably tend to think of men in grey suits doing work behind closed doors at Westminster. I want to get away from the idea.

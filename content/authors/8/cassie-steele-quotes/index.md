@@ -1,0 +1,23 @@
++++
+author = "Cassie Steele"
+title = "Cassie Steele Quotes"
+quotes_len = "17"
+description = "the best 17 Cassie Steele Quotes"
++++
+- I started improvisation at age nine, and I loved it so much I stuck with it. As a by-product, acting was just something I was lucky enough to fall into.
+- I really like action-dramas like 'The Professional' or 'La Femme Nikita.' I'd really like to be in a movie like that.
+- I'll probably never go to prom. I haven't ever been to a high school dance.
+- You never have an indifferent feeling after an audition. It's either gone really well or really terribly.
+- I definitely want to act and I want to sing. If those two fall through, I want to become a writer, probably, like a songwriter for other people, or a novel writer. I write a lot, and I read a lot. I like reading fiction.
+- I like mythology - anything historical.
+- I'm a huge geek, so I love 'Stargate' and 'Firefly.'
+- People ask me all the time which I would prefer doing more, but I honestly can't say. When I'm filming, I'm like, 'No, this is my favorite,' and when I'm writing music and recording and performing, it's like, 'This is definitely it.'
+- I feel like my life is pretty much on display. So much of it is working, and that's really all I want to do. I'm an open book.
+- In my down time, I'm a homebody. I like to do a walkabout. I like my alone time.
+- I have two dogs and a parrot, so they require a lot of attention. They deserve it.
+- My dad probably gave me the best advice growing up. I think it's really just keeping your cool in situations and learning to balance everything.
+- I like my hair long, and I love my bangs. I love them because I can pin them back or keep the fringe with attitude.
+- L.A. is such a big city, and there's so much going on. I mean, you know you're in L.A. when you can just hear sirens all the time.
+- I totally have this thing for Harry Styles from One Direction. But, like, I could totally date the rest of the band as one. I mean, if I could date all of them at one time, that'd be, like, ideal. They seem pretty close, but who knows? Maybe not that close.
+- I came from a very musical family, so I grew up singing karaoke with the family. My family said 'do this' and brought me to singing lessons. I had always been writing poems and songs.
+- I started classical and operatic lessons when I was 8 and become an operatic singer and went to competition. I write my own music. A lot of the songs, growing up, I was into writing dark stories and poems, and one day I started putting melodies to them.

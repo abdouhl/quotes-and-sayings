@@ -1,0 +1,85 @@
++++
+author = "Ben Mendelsohn"
+title = "Ben Mendelsohn Quotes"
+quotes_len = "79"
+description = "the best 79 Ben Mendelsohn Quotes"
++++
+- I came from the outer suburbs of Melbourne, so you do learn how to survive in that environment.
+- There are always dimensions, and the way they get expressed is through the writing and the actors and the director you get to work with on that day. But there are always dimensions, outside of really basic stuff for very young people where it needs to be very clear.
+- Accents are always difficult in their way, but as long as you're not throwing an audience off with it, then that's all it should be.
+- I'm very cagey by nature.
+- I grew up loving the John Wayne and Clint Eastwood westerns.
+- If you're going to be a father and whatnot, yeah, you better be responsible about it as best you can.
+- I don't know that it exists, the perfect family. It's always complicated.
+- I generally feel like people that are doing the wardrobe know more about wardrobe than I do, and they have an overview.
+- The thing about home is that it's a tough place to sustain a career, just by dent of the size of the place. I had about as good a run there as anybody, but it's still a tough ask. I mean, the person I think with the best career in Australia is Ray Meagher, in 'Home and Away.'
+- It's good to surf whatever waves are going on right there as they're happening.
+- I think Kyle Chandler is something of a national treasure.
+- I think some of my favorite Australian films were shot by people that are not Australian. And I think when Dean Semler did 'Dances with Wolves,' for instance, that's a very different-looking Western than what you've seen much of before. It's very rich, color-wise. But we've got our own very proud thing going on.
+- I'm very well known in the industry and relatively well known by people who are aficionados and what not, but outside of that - no.
+- When you're a young boy, you're looking at older men for role modelling. Before I loved De Niro, I loved Clint Eastwood; I loved John Wayne. And James Bond.
+- Most young actors, that's all they're trying to do: Get better at acting and be able to keep doing it. And that doesn't work out for most people.
+- One of the things that I found very confronting in my early working life was that people thought I was some sensitive doe-eyed lovelorn boy, because they'd seen me do that a couple of times. What tends to happen is you get a run of similar roles.
+- For me it's a compliment, playing baddie characters. I take it as a compliment.
+- There's very little different between the way the government operates in America and the way criminals do.
+- The thing about acting is you have to wait to be asked to the dance.
+- You feel an affinity with younger actors, because, you know, it's a very insecure job. And it can be a long time before you feel like, you know, things might be all right.
+- At any period of an actor's life, it's fairly likely that they'll be cast in ways that are reminiscent. That's the way it goes.
+- The people that impress me are Bob Dylan. The ones who keep working, year in and year out, and keep coming up with stuff.
+- Typically, I'll wake up at 4:30 in the morning. It's just the continual jet lag residue, just weird sleeping hours.
+- I think it's that thing of growing up all the time watching American movies and listening to American music. It hits you in a way that's a lot purer because you are not in that culture that you're watching.
+- I did 'Quigley Down Under,' which is quite deliberately placed in Australia, which is a Tom Selleck, Alan Rickman, Laura San Giacomo film from '88, I want to say.
+- I got the first job and kept going. Once I got a job, I very much wanted to keep getting jobs, basically. I did try to learn what I could in those first couple of decades.
+- If you're a 'character actor,' you get hired to play baddies a lot.
+- As an outsider in America, you do see the kind of hypocrisy that's rampant there.
+- Fassbender is fearless; he's a fearless actor.
+- You can certainly extend your adolescence. There's people that are very good at extending it indefinitely.
+- I never felt like someone who was boyish and coming to terms with asking girls out or anything like that, which was what 'The Big Steal' and 'Spotswood' were about. But I guess that's the impression I left on people.
+- The very rough story is this: Melbourne boy, out of both my parents' houses at a young age, lived with my grandmother, drama teacher twisted me into doing this TV thing that I thought my mates were doing, too.
+- For mine, the villains of the piece were always important. In a traditional sense, that's always an important role.
+- 'Animal Kingdom' was an amalgam of two people that I had met-slash-known, not particularly well. They were both very, very scary people for very different reasons.
+- I think there's a lot of mythos about what's required in acting.
+- My general feeling about approach to work is that anyone that's there, they're all there to do the best job they can.
+- I think I've benefited from not being hugely known. It means I have to do something really effective to be noticed.
+- I was with my grandmother, while one of my brothers lived with my dad, and one lived with my mom. It wasn't a great situation. Acting was the one good thing I was involved in.
+- I think now there's much more of a confessional culture. That's not my bag. I come from a slightly older school of thought: 'give 'em nothin.' You don't plead guilty.
+- I basically sat around unemployed in Sydney for three years straight, and the two things that saved me were the rugby league and my dog.
+- 'Star Wars' is populated by so many great types; who wouldn't want to be a Han Solo kind of dude?
+- It's a tougher gig than what people think it is. The proper, real, genuine, worldwide movie stars don't get a lot of downtime from the world outside. That's a tougher price, I think, than what people's fantasy of fame account for.
+- In Australia, even the darkest subject matter has a little pinch of humor. A little sweet to make the sour go down.
+- The people I've encountered who are really dangerous in my life don't go around with their fangs drawn - they are dangerous because of the way they interpret what's going on.
+- I think there's a lot of mythos about what's required in acting. The way that actors talk about acting is generally quite punishing, and I think actors want to put forward the idea that they do all of this work because, you know, it's a post-De Niro world, when, largely, in fact, it's almost never true.
+- It's got a lot more room for nuance and an assumption that people have started from the beginning. 'Bloodline' ends up being like a really good novel.
+- I've spent various periods of my career being thought of as various things, various degrees of substance and ideas.
+- One of my earlier films is 'Quigley Down Under.' That was early on in my career, and that was horsey.
+- 'Slow West' is a western, and it's sort of a twist on the genre stylistically, I think, from what I understand going in.
+- Let me give you a little Mendelsohn 101: I came up in television in the early- to mid- 1980s in Australia.
+- 'Animal Kingdom' is a lot of things, but it's not heartwarming.
+- My favorite-ever version of 'King Lear' is the 1971 film by Peter Brooks. He has this enormous fur thing, and it adds enormous gravitas.
+- Before 'Animal Kingdom,' I wasn't particularly thought of in villainous roles.
+- The first 'Star Wars' film was enormously important. I grew up right smack-bang in the sweet spot of all of those. It's true cinema magic. It's fair to say that, as a kid, I would have been very happy to be Han Solo, and I would have been happy to have gone out with Princess Leia.
+- Once upon a time, they thought I was a sweet, wide-eyed boy that was just trying to figure out how to kiss the girl. Lots of comic relief and adolescent yearnings.
+- 'Animal Kingdom' is a significant comet, and it's cast a tail. It's very hard to see anything post that happening without that.
+- I've been a Ryan Reynolds fan since the first time I saw him.
+- I don't believe in the transformation myth, where if you have more success, life changes for you.
+- I have an intensive relationship with the thing that I'm working on, and I hope that comes through. It's better for me to not worry about the things I can't fix once they're done.
+- The way that actors talk about acting is generally quite punishing, and I think actors want to put forward the idea that they do all of this work because, you know, it's a post-De Niro world, when, largely, in fact, it's almost never true.
+- I don't have memorabilia but try to take a bit of wardrobe, usually because they dress me better than I dress myself.
+- I suspect, for a lot of people who become actors, there's a feeling of wanting to be someone other than who they actually are.
+- I had a pretty good career at home. What keeps you going is not having a plan B. It's a very good thing. I think if I had a viable plan B, I might not have kept going.
+- At 15 I had moved out of my parents' place, and my options were looking pretty narrow. But I had this acting thing and I just wanted to be able to keep going because it was really good. That was all I wanted.
+- I like to call up ghosts of things past for myself when I'm working a lot.
+- I wanted to keep working because work was essentially fantastic - you got to be around people, you got to be in a family, and that family changed from job to job. It was like being in the circus.
+- I think difficult characters are very rewarding to do. They often have facets to them and this and that.
+- It would be excellent to do a 'Star Wars.'
+- I mean, there's a sense wherein you skip a part of childhood, too, when you start working at that age I did; I was out working and out of home at 15, paying my own way in the world.
+- I remember 'The Yearling' was the first film I ever saw, and my mom told me I cried for about four or five days afterwards. I'd be going along during the day and suddenly start crying over what had happened to the little deer.
+- Acting is a bit of a heart and soul exercise with me. It's kind of all I've got.
+- You think of 'Outlaw Josey Wales,' you immediately think of the old Indian guy, Sondra Locke, the old lady with the glasses, beautiful old actress.
+- I got a good-enough adolescence. I mean, there's a sense wherein you skip a part of childhood, too, when you start working at that age I did; I was out working and out of home at 15, paying my own way in the world.
+- 'The Outlaw Josey Wales' is one I watched again and again and again in the early days of VHS.
+- As an actor who has spent twenty years trying to crack America, the day I reached the 'Bloodline' set and found my name on a chair next to Sissy Spacek's was the happiest of my working life.
+- Fifteen years old, out in the world, acting was all I had.
+- If you've been working since you were a teenager and working at a reasonably decent level, then you don't expect that you're going to be firmly in your 40s and start moving up in the world, if you like.
+- $3,000 from a residual cheque was all I made one year.
+- In a very real sense, all you do when you're shooting film or television is you shoot a scene, and then you shoot another scene, and then you shoot another scene.

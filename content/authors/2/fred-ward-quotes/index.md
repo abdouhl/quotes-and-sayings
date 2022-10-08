@@ -1,0 +1,20 @@
++++
+author = "Fred Ward"
+title = "Fred Ward Quotes"
+quotes_len = "14"
+description = "the best 14 Fred Ward Quotes"
++++
+- My career has been a bit strange. I don't think it took the normal route.
+- As an actor, it's fun to play guys who aren't just locked into a male pattern, but a lot of guys you're asked to play are fairly macho and have a certain rigid standard they're living by.
+- I think we're struggling with trying to redefine various positions at this point in history. To allow freedom for women, freedom for men, freedom from those sharply defined gender roles.
+- There was always a creative impulse in me but I never felt rooted to anything.
+- In this play we're dealing with relative truths - who's lying, who's telling the truth. But underneath that, Ed and I have hit this deeper level of intimacy between old friends that comes out in the play.
+- It's a major part of world history that men are trying to kill each other. It's just one slaughter after the other. We talk about it, but no one's really listening.
+- I like to spread myself out. Since I was a kid, I always recognized some void.
+- If some woman tells me how she feels about something, my immediate assumption is that she wants an answer, or that she wants me to solve her problem. In fact, all she wants to do is share, or show how she feels.
+- I was just talking about women, just in terms of understanding them as much as we can ever understand the opposite sex. I'm trying to let go of certain male approaches to things that you inherit, that you grow up with.
+- I doing casual labor by the day. They wouldn't pay you until the next morning. There was a bar that would cash your check if you bought a beer first. A lot of guys never left until they'd drunk up all their money.
+- It's like a prehistoric reflex, you know, going out and getting the meat and bringing it back to the cave. You feel you're supposed to make it better, but more than likely she's asking you to tell her how you feel.
+- In the beginning Remo is a very New York street cop who changes and is changed as he moves along.
+- Trying different things is very important to me. I see people and want to wear their clothes and drive in their cars for awhile. That's probably one reason I became an actor.
+- When you're a father, you know exactly where your heart really is. There's no question of it, no doubt. That part of your life has no second guessing.

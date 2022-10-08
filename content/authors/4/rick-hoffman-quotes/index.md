@@ -1,0 +1,36 @@
++++
+author = "Rick Hoffman"
+title = "Rick Hoffman Quotes"
+quotes_len = "30"
+description = "the best 30 Rick Hoffman Quotes"
++++
+- Don't get me wrong: I've worked, over the course of 14 years, with certain actors that are really just not nice as people, so you don't really care what happens to their show. But someone like Rachael Harris, you hope that woman wins an Emmy.
+- It is such a special place to be when people all over the world enjoy the TV show that you are in.
+- My parents are cartoons. When they come up and visit, they're hilarious. My mother somehow finds a way to get in the way of everything.
+- My parents are always a great litmus test. Based on the amount of shrieks my mother gives when we're out in public, her constant shock when somebody comes up and says something nice.
+- As actors, for the most part, there's that neuroses most of us possess where, in a day of watching, this character get killed off of this show, and that character get killed off of that show - one never knows.
+- The biggest thing I've learned is just to not doubt myself as much as I do. Having self-doubt is definitely necessary, but it's about not letting it get in the way. When it turns into fear, you run into problems.
+- As for what rejuvenates me - deep tissue massages. I am addicted to massages.
+- There's so many more failures than successes for actors. It's like a phobia, fear of cancellation.
+- 'Breaking Bad' is one of my favorite shows of all time.
+- You just want to get it right so badly, so it's stressful when it comes to those vulnerable, dramatic scenes.
+- I've always said that it's like being the winner of three separate lottery tickets - getting a pilot, getting the pilot picked up, and having a show that actually lasts. There are no guarantees, and no one knows where a show is going to go.
+- I can't learn lines comfortably unless I have it done out loud with someone else.
+- No matter what set she's been on over the last 12 years, my mother always finds a way to get in the way. Not in a bad way. Like, she once got caught on a law show I did called 'Philly' trying to take a picture - she was caught on-camera in the background. She does things like this.
+- The only real connection I have with Indian fans is through Twitter, where I try to answer as many questions as I can, or if they write anything nice, I do try and let them know if - that I liked it. I do get a bunch of people from India tweeting to me.
+- I do not like mud baths at all.
+- I had been on four other series that never lasted more than a year and a half. I'd done fine, so you start to wonder, 'Will I ever be one of those lucky actors who get to be part of something lasting?'
+- I'm learning to not worry too much about the future, and it's hard, but I'm doing it.
+- There are no shortcuts, and you can't wing your way through real hard work. I learned the hard way by not taking auditions seriously when I first came out to L.A. and probably wasted a good seven years.
+- I am not a cat lover. I am a dog lover - but I'm only a lover of hypoallergenic dogs.
+- Sometimes I'm gullible; sometimes I'm not.
+- If somebody does something wrong to someone around me, I can be firm. But that's always to protect someone to whom wrong is being done to.
+- I would love to visit India.
+- Before the Netflixs and the Amazons and the Hulus, there was nothing. TV came to a standstill. Movie actors were taking TV parts, and it was just nuts.
+- I am deathly allergic to cats. I mean, I love all animals, but they're not my animal of choice.
+- I can always tell if someone is good in the core.
+- It's one thing to work, but it's another thing to work on a show where people stop you all the time to say nice things.
+- We all know how a lot of actors out there are not exactly the kindest.
+- I'm starting to believe it when someone tells me 'Suits' is popular in another country. We're just acting, but we are reaching so many different kinds of people all over the world.
+- At first I'm sort of answering everything the way you're 'supposed to' answer, and I lost a bunch of followers... I was like, 'What the hell is this all about? What is Twitter supposed to be about? If you're not answering your fans, then what's the point?'
+- The real, raw, driven-to-tears type scenes have always scared me since I was very young working as an actor. And to this very day, I get tremendously neurotic making sure nothing is forced or fake.

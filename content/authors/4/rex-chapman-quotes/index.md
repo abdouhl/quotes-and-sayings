@@ -1,0 +1,34 @@
++++
+author = "Rex Chapman"
+title = "Rex Chapman Quotes"
+quotes_len = "28"
+description = "the best 28 Rex Chapman Quotes"
++++
+- I'm not going to just refrain from giving information I hear just because it might upset some people.
+- I used to enjoy back-picking big guys all the time.
+- I was getting so down on social media because of the political climate and everything on Twitter was so toxic that I wanted off of it.
+- I have really good legs for jumping. I have terrible ankles for landing. I wasn't as good fundamentally as John Stockton or Steve Nash, so I had to play like an athlete, in the air all the time, coming down in vulnerable positions.
+- A social media influencer. I'm not even sure what that means.
+- I realized I'd built up walls and carried grudges for years. I had a lot of animosity, dating back to when I was growing up, toward people who told me that what I was doing datingwise was wrong.
+- I am one of the lucky ones: I had the financial resources and support of family and friends that enabled to me to enter rehab three times. My last stint was in the fall of 2014, and I have now been clean for three years.
+- So I'm not naturally happy all the time, all upbeat. People that know me will tell you that.
+- I treat Twitter like I'm talking to my friends.
+- Well, I tapped into maybe arguably the worst rule in basketball. I wish they would just take it out or amend it greatly. It's a terrible rule, block or charge. I shouldn't be able to stand there and it's a foul. Come on!
+- When I was playing basketball, players weren't thinking about themselves as being a brand.
+- I assume people know how to hit the unfollow.
+- There are many that I will not post. I'm not trying to show a blatant death. I'm trying to show something funny that, every now and then, pushes the envelope a little bit.
+- My home state of Kentucky has been especially hard hit. In 2015, more than 1,300 Kentuckians died after drug overdoses, many with opioids in their system. That's about four per day.
+- Anything that can keep me distracted and from my own brain, it's good.
+- I played basketball at Kentucky in 1986-87 and '87-88 and enjoyed a 12-year NBA career. After multiple injuries and seven surgeries, I developed an addiction to prescription painkillers.
+- I never had to grow up. Everybody did everything for me. I was the first generation in my family to have money, and I had no idea what to do.
+- Individual performance doesn't mean anything to me.
+- I love the University of Kentucky. I bleed blue.
+- I try not to cancel people. But at some point, we got to stand up and say, hey, right is right, wrong is wrong.
+- I just think that everybody likes good things. Everybody likes dogs, everybody likes to feel good and believe the best in people.
+- I'm not a journalist, never pretend to be.
+- I never slept very well when I was playing. Looking back, I was always suffering with depression and mental illness-type stuff I didn't understand.
+- I'm an addict. I've been one my whole life. Most of it was channeled in the right direction, whether it was playing basketball or working out. From the time I was little, my mom said I always needed to be entertained.
+- I've been recognized for much of my life but I learned that when I was fatter I am less recognizable so I got fat but then it almost killed me.
+- I had a good career, but I still feel like I should have done more. It wasn't through a lack of trying. I just couldn't stay healthy.
+- I swim to stay healthy and try to stay as busy as I can.
+- And I hate to bring this up because I'm a 47-year-old man, but I think I was always wanting my dad's approval. We knew he loved us, but he was a different generation.

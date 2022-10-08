@@ -1,0 +1,33 @@
++++
+author = "Columbus Short"
+title = "Columbus Short Quotes"
+quotes_len = "27"
+description = "the best 27 Columbus Short Quotes"
++++
+- Little Walter and Muddy Waters were incredible. And Bo Diddley was doing some great stuff, too.
+- There are as many quality African-American actors and actresses as Caucasians, but it seems that they get a lot more opportunities.
+- Everybody who knows me is like, 'Dude, you've got to chill out.' I can't not work, given where I want to be.
+- Sometimes you get yourselves in situations where you don't realize people are actually testing you. People are actually provoking you.
+- There comes a time when you have to exercise patience.
+- I can say with full sincerity that I am happy. I'm happy because I'm doing what I love and I'm not selling out.
+- I've never put my hands on a woman, physically, ever.
+- I'm afraid of what happens if this career doesn't pan out, because I have so much invested in it that I can't turn back now.
+- I've always been apprehensive about doing comic books, period.
+- Be a creator, not just sitting on the sidelines waiting for someone to call you into the game or call our number.
+- I love working to push the industry forward.
+- I think there's a time when your personal life gets magnified by who we are as celebrities.
+- I never want to have to take certain roles, because I want to maintain a certain level of artistic credibility. But sometimes you're forced to do things for the money.
+- There's a myriad of things that go into why movies don't happen right when you make them. If you make a movie in 2010, sometimes it takes up to a year for post-production, and that puts you into 2011, then you have to figure out what your product is, and that takes some time.
+- If I want to be truthfully honest, I think, dealing with the stress of the situations that I've been going through, medicating with anything, I think, is dangerous because it becomes a crutch.
+- Creating content, creating art, material, being a job creator - it's all very, very important. Very important.
+- I just can't relax. That's my problem.
+- It's like, if you're on a ship, and you're sailing towards your destination, but the ship sinks: that doesn't mean that you have to sink. Just because the ship sinks doesn't mean you have to sink. You just figure it out until a raft comes along, and God will send you a raft. Or He'll send you another boat to get you to your destination.
+- You've got to be honest with yourself aesthetically about who could you play. You want to artistically be true to that character.
+- I want to provide jobs for people.
+- With films, you completely immerse yourself in a character, get into who they are, live it and then release it.
+- Have I ever abused a woman? Never.
+- I think showing heroes as fallible helps us and reminds us that we are ourselves fallible and no man is perfect but we can still achieve great things.
+- The thing about addiction is you think you're getting off on people, and you're not, and the only person you're fooling is yourself.
+- When you do an action movie, you've got to come prepared to do an action movie.
+- I haven't been perfect.
+- I want to play Martin Luther King. That is absolutely a role and a character who is important to the landscape of the world that I really want to play.

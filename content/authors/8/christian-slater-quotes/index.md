@@ -1,0 +1,87 @@
++++
+author = "Christian Slater"
+title = "Christian Slater Quotes"
+quotes_len = "81"
+description = "the best 81 Christian Slater Quotes"
++++
+- In truth, making films doesn't feel like hard work because I always have such a good time doing it.
+- I did regret not graduating high school, but I made a point of going back and getting my GED later. It was important for my kids.
+- Sometimes people come up to me and say, 'You were my teen crush.' I'm honored and I'm touched, but I also ask, 'What happened? Why'd you take the poster down?' I get a little heartbroken in that situation.
+- How do I feel about being a star now? Well I still try to live life and enjoy what I am doing.
+- I operate better with education and awareness, like I think all of us do. I don't like to be walking around in a vacuum, lost in my own thoughts. I'm much better with information.
+- I'm an actor; I have an ego that is sometimes disproportionate to the reality of the situation.
+- I've calmed down, certainly, from the days of being 18, but I'm still having a good time.
+- The '80s was a wild decade, and I had some fantastic times. And I did some really fun work.
+- Theater was definitely part of my roots. My father would take me to plays, and then my mother was always on the lookout for other talent and taking me to see plays. I saw Frank Langella in 'Dracula'... Great, great performances. I was a theater rat, hanging out backstage.
+- It's great, getting the scripts and working with somebody like Sam Esmail, who is such a great leader.
+- I'm trying not to put myself into anything I'm not 100 percent confident about.
+- My father was an actor, and my mother was his agent, so I had it on both sides: the crazy actor and his representation.
+- I've always been fond of Winona Ryder.
+- I'm certainly grateful that there were projects that I did that people responded to. It would be a nightmare if it were the other way around. But it's sometimes a little disheartening.
+- My family was amazing; they exposed me to the world of show business, and, boy, it was the '70s and I got to spend a lot of time backstage at theaters and see the inner workings of how this entertainment industry is really put together.
+- It's always a leap of faith when you get involved with somebody.
+- I have brought a PS2 on set with me before. But games can be really addicting, and that's dangerous. So I tend to keep it fairly limited on a certain level.
+- Drama can be an addiction. It's so, so sneaky. Jealousy - all of those things can really send you in a lot of different crazy directions.
+- My mom put me in a Pampers commercial on TV.
+- I'm blown away by the graphical detail of today's games. I can't imagine that it's going to get any better, but it's just going to continually progress and soon we'll be living in that world.
+- Well, obviously, as soon as I'd finished the script I read a lot of books on Winston Churchill, and started to gain weight and really prepare emotionally, mentally and physically for the role.
+- My mother became a casting director, and she cast me in a soap opera called 'One Life to Live.' I was, like, 8 years old, playing a kid who had hurt himself on a skateboard. I had, like, three lines. I did the lines, and everybody in the studio applauded - I was immediately hooked after that. I was like, 'This is the life for me.'
+- The Internet definitely could be a weapon of mass destruction - it's not going to come in a bomb, it's going to come as a cyberattack. It's pretty amazing to see what a small group of people can do if they really know how to control the universe.
+- I try to stay away from the craft services table on set! That's probably why I am able to still get work in this business: I stay away from junk food.
+- The way I see it, if you're going to make an action movie, you've got to make one with John Woo.
+- Tony Scott was one of the best directors I've ever worked with, and I was devastated when I heard about his death. He was a great guy with great energy. But this is a difficult business, and people's lives are sometimes difficult.
+- I want to do films I can relate to emotionally.
+- I took a lot of time off after Mobsters and although I did something I had never done before, which was to direct a play, The Laughter Epidemic, it felt like a vacation.
+- I lost myself, and a lot of characters I played, I have latched onto some of their identities just because I was so lacking in anything of my own.
+- I've been taking my time now between projects looking for stuff that has a little bit more substance, that isn't surface. Some of the films that I've done in the past really were surface.
+- I can be going through nothing, but within me, in my head, oh my God! It can be a circus.
+- I was a shy, quiet kid. I was happiest playing by myself with my toys, rather than hanging around people.
+- If I make a move, like raise my eyebrows, some critic says I'm doing Nicholson. What am I supposed to do, cut off my eyebrows?
+- Success can be a very difficult thing to deal with.
+- Hopefully, that people could see a progression in my performances because that's how it's always felt to me.
+- 'Heathers' was probably the first time when I started to notice that people were opening doors for me and giving me tables at restaurants, regardless of what I was wearing. A whole world opened up to me that was shocking and weird and different, and I enjoyed it, and, you know, I took great advantage of it at times.
+- I was always such an incredible fan of John Woo, I just wanted to do this film with him.
+- When you sign onto something, you want the character to be redeemable and likeable, hopefully, and understandable.
+- I enjoy the process of TV; I like the pace of it; I like the continual work.
+- I have that glass-half-empty syndrome, and it takes a great deal of effort to climb out of the hole of darkness that I choose to live in mentally.
+- I can promote until I am blue in the face, but ultimately nobody knows what makes a hit.
+- If I'm backed into a corner, the first thing that comes to mind is the robot from Forbidden Planet. But that could be me trying to be kitschy, cool, and cultural, because the real answer is R2D2.
+- I thought I'd get over being insecure if I became famous, but it hasn't happened. It just gets worse, really. You get more and more on edge, more nervous. These are all the things I'm dealing with. You think if you get famous, fear will go away and problems will go away. But they don't.
+- Actors sometimes immerse themselves into it so deeply that the line between who they are and their character can become blurred. For me, I think it's just about getting clearer on my whole life and who I am in order to make it possible for me to play whatever character is presented to me at a particular time.
+- If you can help guide somebody through a challenging moment because you've been there, that ends up becoming a great gift.
+- It's almost like these games are the modern day comic books, especially when you play Alone in the Dark. There's a real story that goes along with it and a movie seemed like the right kind of transition to make.
+- Having kids certainly gets me to ask the question, 'Who is the adult here, and who is the kid?'
+- Eighty-five per cent of the time, people want to talk about 'True Romance.' That's the film I've made that really seems to have stuck with people.
+- When I'm in the kitchen, I don't want anybody else in the kitchen. I have a system - and the system, it's another form of insanity that has grabbed me.
+- I had such a lack of respect for women that I just treated them as a hobby, trying to live up to the supposed image of Jack Nicholson and all those guys who were womanizers.
+- My dad was a theater actor, so I would follow him backstage. And my mom was a casting director. The moment I heard the applause and realized it would get me out of school, I was hooked.
+- I do have a Twitter account, and there's a woman at my agency who got that all set up for me. I don't know how many followers I have. It's not one of those things I check on a regular basis.
+- As I've gotten to know myself over the years, I realised I'm kind of a sweet, sensitive guy, a shy guy, and communication is not something I'm so good at.
+- Some of the characters that I played as a kid were rebellious teenagers, and people would see those performances and project a particular image onto me. And 90 percent of the time, I would do everything I could to live up to that sort of image and be that individual.
+- When I did 'Young Guns II,' I hung out with Emilio and Kiefer, and I once took a trip with Rob Lowe - we jumped trains.
+- I'm not a religious person by any means. But I certainly believe in some kind of a higher power and something looking out for me. I've definitely had angels that have either guided me or helped me through moments in my life, without a doubt.
+- As you get older you learn some balance and mediation in your life - that's where I am right now. I feel pretty comfortable about things.
+- Good judgement comes from experience. Sometimes, experience comes from bad judgement.
+- There's something about doing theatre in London - it sinks a little bit deeper into your soul as an actor. It's something about the tradition of theatre, about performing on the West End stage.
+- I had such a good time working with John Woo and John Travolta, and it was so professional. I want to work with people who are real professionals.
+- I had tutors, but education was just not a priority.
+- I am a gypsy, in a way. It's a condition of my profession.
+- 'Pump Up the Volume' was a film and character that I really responded to. That was a movie about a guy trying to take down the establishment using a ham radio. I feel 'Mr. Robot' has a similar value. This show is about taking down a global empire. I was an anarchist then. I'm getting to be an anarchist again.
+- It still amazes me when I look at some of the films I've been a part of, and some of the people I've gotten to meet and work with. I also look back sometimes and realize that I was lucky to have lived through them and even to have survived them, at times.
+- I don't think of myself as offbeat and weird. As a kid, I saw myself as the type of guy who would run into a burning building to save the baby.
+- The first job I had was a Pampers commercial. And I used to go with my father whenever he would do a performance. I remember clinging to his legs, saying, 'Please. Take me with you.'
+- It's very, very difficult because we're living in a world where they invent things in order to hide things from parents. There are these secret creator app guys who make things to intentionally do that, to keep your parents in the dark, and you've really got to work extra-hard to stay on top of it.
+- The Internet opens up so many doors. It's a phenomenal tool for education but also a way for people to be scary and dangerous. We're living in a world where we can be hacked and exposed.
+- Jail was a result of me not taking time for myself. So I was forced to take some time for myself.
+- Updating passwords and changing them all the time is something I'm involved in.
+- An actor equals, sometimes, an entitled baby. People take care of things for me, and they pay greater attention to things than I was ever capable of doing. But in the last few years, I have learned a great deal more about taking care of things. I pay my own bills now.
+- I think games are starting to branch out. It's not just guys sitting at their computer stations. Games are so fun, that everybody gets into them a little bit.
+- The movies I've made at a certain time of my life were exactly right for the stage of my life, the frame of mind I was in at the time. Each character I've had to play has been me in that time in my life.
+- This is what Hollywood tends to do. It tends to disregard tradition, history and anything factual, twisting it and turning it and making it all okay regardless of what the English may think of it.
+- Sometimes you can tell a wise person not only by what he says but also by what he doesn't say. Remember, it is much better to say little than to say too much and regret it later.
+- There was a time when I felt I should do everything that was offered to me, you know, ride the wave.
+- Strike and struggle precede success, even in the dictionary.
+- I'm not a great card player. Keeping my cards close has always been a challenge for me.
+- After I did Untamed Heart I wanted to do a film that was outrageous. I really wanted to do, you know, a performance. I don't want to allow my image to rule the choices that I make.
+- Art does imitate life, it has to come from somewhere. To put boundaries and limitations on it doesn't make a lot of sense to me.
+- The guys from Atari that are making the next Alone in the Dark game came and we had a great meeting. I'd love to do that. I'm a fan of videogames. I like them. And to get to be part of one of them would be a fun and exciting thing.

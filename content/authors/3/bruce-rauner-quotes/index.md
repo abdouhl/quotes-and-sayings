@@ -1,0 +1,87 @@
++++
+author = "Bruce Rauner"
+title = "Bruce Rauner Quotes"
+quotes_len = "81"
+description = "the best 81 Bruce Rauner Quotes"
++++
+- If yelling and threatening, intimidating and chanting solved problems, Illinois wouldn't have any problems. We're good at that stuff.
+- I will advocate moving the Illinois minimum wage back to the national minimum wage.
+- Government unions should not be allowed to influence the public officials they are lobbying, and sitting across the bargaining table from, through campaign donations and expenditures.
+- I don't have a Rolls. I don't have a jet. That's not me.
+- Ronald Reagan helped me become a Republican.
+- I'm a pretty disciplined investor and pretty disciplined buyer. I do my due diligence. I do my homework. I don't waste money.
+- Incremental increases in the minimum wage won't address the underlying skills and investment gaps in Illinois.
+- Our government workers should be treated fairly and appropriately. They should have a decent retirement, but not a gold-plated system where they can retire multimillionaires in their 50s.
+- Being a successful CEO, where I've driven a bottom line, assembled teams, driven results, that's a critical benefit to running the state government.
+- We have a moral duty to have an efficient government.
+- I certainly don't need a job. Getting re-elected is not on my Top 10 list.
+- I like to spend money on investments.
+- We cannot accept the status quo of throwing more taxpayer money into a broke and broken system.
+- My wife and I believe that there's nothing we do together as a community that's more important than education.
+- Big problems usually come from big sources.
+- There are plenty of examples of very wealthy people who have run for office and failed, certainly in Illinois.
+- I have said, on a number of occasions, that we could have a lower minimum wage or no minimum wage.
+- Government employees deserve to be treated fairly, but they do not deserve a significantly better deal than average Illinoisans get in their own jobs.
+- Let's put Illinois back on the road to prosperity.
+- For many young people, the minimum wage is a stepping stone to higher employment levels.
+- We need to focus on reducing property taxes. We need to focus on education funding. We need to focus on getting term limits on elected officials.
+- I am one of the baddest enemies anybody can have.
+- I've been very engaged in Illinois and Chicago civic activities for a long time; mostly around building businesses and helping entrepreneurs grow companies, but also around education and education reform.
+- I just want the state fixed, and I just want to do the right thing for the taxpayers.
+- The fact is that politics in Illinois is a blood sport. It's really rough. It's really nasty.
+- We have to be bold, tough, and fundamentally change government because Springfield is broken.
+- I don't like to pay lip service. I don't frankly like to talk about stuff.
+- Where I'm an outsider is, I'm not a career politician.
+- Mitch Daniels in Indiana was the best governor in America for eight years. I've gone to Indianapolis to study with him.
+- When my mother was young, only two professions were open to women ; teaching and nursing. She chose nursing, but the teaching profession was full of talented women like her, confined there in part because they had few career options.
+- Voters want conflicting things. They want a lot of government spending, but they don't want higher taxes.
+- Frankly, I would never ask a supporter to bet big on me if I wouldn't bet big on myself. It wouldn't be fair.
+- A C.E.O.'s job is leadership, problem solving, and team building. I've done that my whole career.
+- I tend to think that free-market conservative principles are the best ones for the CEO of a state.
+- I don't care what the headline is. I want the results.
+- The tax money belongs to the taxpayers. It doesn't belong to the bureaucracy. And government is not a welfare system.
+- Given my venture capital background, I know the tech sector well.
+- Success is all about persistence and doing the right thing for the long term.
+- I am a gun owner and a hunter and a gun rights supporter.
+- In democracy - and the good thing about democracy, big change does not happen quickly, and you need a buy-in and a convincing, a selling, an arm-twisting to get big change. And that takes time.
+- We've become a collectivist economy in Illinois. It's crushing us. And no problem is going to get fixed unless we bring more economic freedom into the state. And I believe that very passionately.
+- It takes someone with a unique background to stand up to the threat of a strike and win.
+- I like to do things that get results. Results are all that matters.
+- I'm very thoughtful and disciplined with my money.
+- We have to reduce the tax burden, whether it's income tax for corporations or private individuals, and we should put a freeze on property taxes.
+- To restore our public schools, we must put an end to the selfish agenda of the union bosses.
+- Money's important, but it isn't a motivator for me.
+- Those who want low taxes and healthy job creation know that an unnecessary dollar going to these unions is a dollar that cannot reduce the tax burden on homeowners, small businesses, and job creators.
+- I have my strong views and opinions. I really want to transform Illinois government because this state is failing the taxpayers and the children.
+- I'll be willing to do things that politicians won't do. Because I don't care who I upset.
+- The government union bosses are the most powerful politicians in Springfield.
+- When I was young, I had minimum wage jobs as a busboy, flipping burgers and parking cars.
+- Crisis creates opportunity.
+- I'm a big outdoorsman... I'm a big hunter. Avid fisherman. Hiker. Climber. Scuba diver. Skier. Love the outdoors.
+- I'm not anti-union.
+- Crisis creates leverage to change.
+- These political consultants love business guys who've never been in politics to try and take advantage of them. I get that.
+- State universities in Illinois are a microcosm of our state government - broken with work rules and administrative bureaucracy.
+- If Republicans and Democrats commit to working together, we can reach a bipartisan, common-sense agreement to reverse Illinois' economic decline and set the stage for a bright economic future.
+- I want to do something that I'm proud of and that I can look back on with pride of accomplishment.
+- I've got to pick my fights at the right time.
+- For every challenge we face - unemployment, poverty, crime, income growth, income inequality, productivity, competitiveness - a great education is a major component of the solution.
+- I'm a lover of fairs and corn dogs.
+- The critical thing is that we have to reduce the tax burden.
+- Many of us have been touched by the magic of a great teacher. I know I have.
+- Great teaching requires incredible talent and dedication, strong intellectual ability and interpersonal skill, real discipline and empathy.
+- I'm not the most patient person in the world. I am one of the most persistent people in the world.
+- I think we've got to be competitive here in Illinois. It's critical we're competitive. We're hurting our economy by having the minimum wage above the national. We've got to move back to the national.
+- Illinois will only get economically healthy if we stop focusing on growing minimum wages and start focusing on growing everyone's wages.
+- Government pensions are among the largest cost drivers for state and local governments.
+- We must find a way to balance our tradition as a state welcoming of refugees while ensuring the safety and security of our citizens.
+- I am going to try to rip the economic guts out of Indiana. But we're going to do it methodically and aggressively.
+- Your average person in Illinois doesn't really even know what workers' comp is. The average person doesn't know really what's going on in the pension system. They know their taxes are too high; they know we've got a deficit. But getting that message out and helping the people of Illinois really understand what's going on, that's hard.
+- We've talked through the fact that our family will be attacked. Our family will be dragged through the mud. My businesses that I've helped build and create will be attacked and dragged through the mud. That's politics. I don't spend a lot of time worrying about it or thinking about it.
+- Those who value a strong safety net for our neediest citizens see that every extra dollar spent on these unions is a dollar that cannot go to help the sick, the elderly, and the vulnerable.
+- Our government works should be treated fairly and appropriately; they should have a decent retirement, but not a gold-plated system where they can retire multimillionaires in their 50s.
+- I've completely lost faith in the Democratic Party to truly serve the disadvantaged.
+- I'm a business guy. I'm not a politician.
+- Illinois has every reason to succeed. We have the hardest-working people in America, the best infrastructure in America, and the best location of any state.
+- I want to transform state government. What it takes is a strong CEO type... a leader who can drive things.
+- The people of Illinois sent me to Springfield to end the era of unbalanced budgets and runaway debt.

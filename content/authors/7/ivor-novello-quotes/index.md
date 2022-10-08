@@ -1,0 +1,30 @@
++++
+author = "Ivor Novello"
+title = "Ivor Novello Quotes"
+quotes_len = "24"
+description = "the best 24 Ivor Novello Quotes"
++++
+- The inconvenience, the glaring lights, the long hours of waiting, and the repetition of every scene are all calculated to defeat anything more than a real mastery of love technique.
+- There is an atmosphere about the picture theatre that speaks of entertainment and relaxation. The charming surroundings, good music, and the fact that each visitor is determined to enjoy a few hours of holiday all exert an influence on the mind.
+- A couple of seats at a good picture house cost comparatively little but give a generous return in the shape of freshened minds and freedom from the worries that even the best regulated homes cannot always avoid.
+- Love-making is an art which must be studied.
+- After the war, in which I served as a pilot in the Air Force, I took up films.
+- Actors who are lovers in real life are often incapable if playing the part of lovers to an audience. It is equally true that sympathy between actors who are not lovers may create a temporary emotion that is perfectly sincere.
+- The average person is gregarious; there is something in the spirit of the crowd that adds to the enjoyment of entertainment.
+- Every blessed one of you feels better for that burst of laughter.
+- British girls are as temperamental as Americans.
+- Things which do not require effort of some sort are seldom worth having.
+- We were asked to believe that the variety and the novelty of even the crude films of the early days would provide a means of entertainment which would cut out the stage.
+- Television, they say, will permit a person to be entertained at home, without the effort of going to a picture house, without the trouble of booking seats, without the presence of other people.
+- When the cinematograph first made its appearance, we were told that the days of the ordinary theatre were numbered.
+- There are very few misanthropes, thank goodness!
+- Behind the footlights there is always the applause, which stimulates the actors. On the screen it is a different matter.
+- It has been argued that British girls are incapable of deep feeling or brilliant acting owing to their lack of temperament. This, I am positive, is not true.
+- I began my career with infantile dreams of becoming a composer.
+- A visit to a cinema is a little outing in itself. It breaks the monotony of an afternoon or evening; it gives a change from the surroundings of home, however pleasant.
+- The beautiful heroine might be thinking, How long must I bury my face on this wretched man's shoulder? Such is not the always the case, but quite often it is.
+- There's something Vichy about the French.
+- The crowd may be influenced easily, largely because it is a crowd.
+- The cinema is an institution nowadays, with its roots sunk deep in the hearts of the millions of people who find enjoyment and entertainment in going to the pictures.
+- You cannot isolate yourself from the crowd - even if you want to.
+- The public must suffer untold pangs from the stiffness, the deliberate stifling of emotion, on the part of many British actors.

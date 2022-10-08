@@ -1,0 +1,16 @@
++++
+author = "Baha'U'Llah"
+title = "Baha'U'Llah Quotes"
+quotes_len = "10"
+description = "the best 10 Baha'U'Llah Quotes"
++++
+- Ye are the fruits of one tree and the leaves of one branch.
+- The tabernacle of unity hath been raised; regard ye not one another as strangers.
+- O king! I was but a man like others, asleep upon my couch, when lo, the breezes of the All-Glorious were wafted over me, and taught me the knowledge of all that hath been. This thing is not from me, but from One Who is Almighty and All-Knowing.
+- The Cause of God is not a theatrical display that is presented every hour, of which some new diversion may be asked for every day. If it were thus, the Cause of God would become mere child's play.
+- They that are intoxicated by self-conceit have interposed themselves between it and the Divine and infallible Physician. Witness how they have entangled all men, themselves included, in the mesh of their devices. They can neither discover the cause of the disease, nor have they any knowledge of the remedy.
+- We desire the good of the world and the happiness of the nations that the bonds of affection and unity between the sons of men should be strengthened... what harm is there in this?... these fruitless strifes, these ruinous wars shall pass away, and the 'Most Great Peace' shall come.
+- Through affliction hath His light shone and His praise been bright unceasingly: this hath been His method through past ages and bygone times.
+- In this day the breeze of God is wafted, and His Spirit hath pervaded all things. Such is the outpouring of His grace that the pen is stilled and the tongue is speechless.
+- He Who is your Lord, the All-Merciful cherisheth in His heart the desire of beholding the entire human race as one soul and one body.
+- Verily He answereth him who prayeth unto Him, and is near unto him who calleth on Him.

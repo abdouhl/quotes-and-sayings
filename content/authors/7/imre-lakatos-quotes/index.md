@@ -1,0 +1,18 @@
++++
+author = "Imre Lakatos"
+title = "Imre Lakatos Quotes"
+quotes_len = "12"
+description = "the best 12 Imre Lakatos Quotes"
++++
+- If even in science there is no a way of judging a theory but by assessing the number, faith and vocal energy of its supporters, then this must be even more so in the social sciences: truth lies in power.
+- Philosophy of science without history of science is empty; history of science without philosophy of science is blind.
+- The positive heuristic of the programme saves the scientist from becoming confused by the ocean of anomalies.
+- Blind commitment to a theory is not an intellectual virtue: it is an intellectual crime.
+- The clash between Popper and Kuhn is not about a mere technical point in epistemology.
+- Einstein's results again turned the tables and now very few philosophers or scientists still think that scientific knowledge is, or can be, proven knowledge.
+- There is no falsification before the emergence of a better theory.
+- Research programmes, besides their negative heuristic, are also characterized by their positive heuristic.
+- Indeed, this epistemological theory of the relation between theory and experiment differs sharply from the epistemological theory of naive falsificationism.
+- Our empirical criterion for a series of theories is that it should produce new facts. The idea of growth and the concept of empirical character are soldered into one.
+- The classical example of a successful research programme is Newton's gravitational theory: possibly the most successful research programme ever.
+- It would be wrong to assume that one must stay with a research programme until it has exhausted all its heuristic power, that one must not introduce a rival programme before everybody agrees that the point of degeneration has probably been reached.

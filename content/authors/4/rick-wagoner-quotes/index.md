@@ -1,0 +1,26 @@
++++
+author = "Rick Wagoner"
+title = "Rick Wagoner Quotes"
+quotes_len = "20"
+description = "the best 20 Rick Wagoner Quotes"
++++
+- We don't always agree on stuff, but when it's time to blow the whistle and start the game, we're not still debating.
+- I was willing to go just about anywhere in the U.S. for the best job - except New York City. Of course, I received a job offer from GM - in New York City.
+- This is a game that's going to play as long as you're playing it. It's never going to end. It'll go until I retire, and when the next person has the job, they'll be on it too.
+- Don't worry about planning every step of your life.
+- Ford, as I understand it, had done away with the concept of regional management, and now they've re-introduced that in Europe, so it's kind of a two-way street.
+- All this improvement is great, but all that does is get us in the game to play for improvements that we need in the future, so that we can be aggressive in the marketplace.
+- On Friday I was in Washington for a meeting with Administration officials. In the course of that meeting, they requested that I 'step aside' as CEO of GM, and so I have.
+- I'm not sure we think it's a win to talk about what you're taking out.
+- Honestly, I can't tell you what I what I would be doing if I wasn't chairman of GM, because this is all I've done.
+- We believe in fair exchange rates and Japan doesn't practice that. They have massive U.S. dollar reserves, and they use them to intervene regularly.
+- I remember very clearly at the first budget review having a pretty direct conversation with the head of manufacturing... We began to get huge improvements in productivity and responsiveness. I got a chance to see that firsthand.
+- The big and the fast beat the small and the fast. If you check out the NBA today, they're big and fast.
+- I'm like Sergeant Schultz, I know nothing. We are trying to share ideas around the world. We don't just come up with a great idea in Brazil and ignore it in the rest of the world.
+- History shows you don't know what the future brings.
+- There are some things that I like, like education, wine, and I'd like to be a good cook, although I'm a pretty good eater now.
+- A lot of other things come along with Chapter 11, which basically end up in a lot of pain.
+- Most of the model consolidation we've done is behind us. There will be some fine tuning.
+- It's fine if you're making 1,000 or 2,000 of an electric car, and I think there is value in that in a lot of ways, but it's not going to have a big dent in oil consumption in the country, or CO2 emissions.
+- What I've seen around the world is if the regulatory desires are combined with things that affect consumer behavior - such as in Europe, they tax gasoline very heavily - you do get people to move to very fuel efficient cars; trade off bigger vs. smaller cars.
+- Generally, cars were not built to sit on dealer lots. It encourages the wrong kind of behavior in the whole system.

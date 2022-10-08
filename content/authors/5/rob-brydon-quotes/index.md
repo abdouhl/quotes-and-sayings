@@ -1,0 +1,23 @@
++++
+author = "Rob Brydon"
+title = "Rob Brydon Quotes"
+quotes_len = "17"
+description = "the best 17 Rob Brydon Quotes"
++++
+- I think it's almost an indulgence to focus on the dark side of things. And as you get older, you want to focus on the positive.
+- I do seem to look like a lot of people.
+- When you're doing stand-up, you can comment if something fails, get a laugh from that.
+- I had a moment where I realised I could do silly voices, that lots of people I knew couldn't do silly voices, and that thus I must be able to make money doing silly voices.
+- I think, if you've got children, that's your life. Your 'showbiz' life, if you want to call it that, is a separate thing, and it isn't everything to me.
+- I just look like someone with a long face. Not just A. P. McCoy himself, but some of the horses he rides.
+- I don't think any of my kids would have a good word to say about me. I think they deny that they even know me. At school, they pretend they are Anton du Beke's kids.
+- When you're a kid, I think you want to be a film star. And I'm not as enamoured with that any more. The reality of that life is a lot of travel, and a lot of being away, which is impractical because I have four children, so I don't want to be away that much, not the other side of the world away.
+- I'm a very, very handsome man, and have had to come to terms with it... um, do I like the way I look? In the right light, and with a following wind.
+- Math was a two-part exam and I once didn't go for the second part. I knew I'd done so badly on the first it was hopeless. I re-took it about four or five times. I think I eventually got it by getting the top GCSE grade.
+- If you're a comedian, you are looking for material in daily life.
+- The thing is, when I had my first success it did coincide with the end of my first marriage, and because I went on to have a very, very unhappy two years, I don't think I equate career success with personal happiness.
+- Plus, I've always felt that, if the worst came to the worst in my career, I could always fall back to doing voices on the radio.
+- I still have lots of friends from my pre-success days.
+- There are some people who only know me for cornflakes ads, and that's fine. I have a charmed life.
+- I'm prone to a more depressed outlook on life.
+- I like witty people, people who can be witty on the spot.

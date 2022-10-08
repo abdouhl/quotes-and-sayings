@@ -1,0 +1,30 @@
++++
+author = "Rae Carson"
+title = "Rae Carson Quotes"
+quotes_len = "24"
+description = "the best 24 Rae Carson Quotes"
++++
+- I worked at a job where 90 percent of my coworkers were Spanish-speaking, and some of them were only Spanish-speaking. My rule was if someone came into the office needing something - I worked in HR at the time - they had to bring a Spanish word to teach me. That was the deal.
+- I don't plot with huge detail, just big moments and important elements, and then I have a structure but can fly by the seat of my pants when I write.
+- I do confess to being the exasperated, bossy, know-it-all, overachieving big sister.
+- I've had a love affair with the desert ever since I can remember. No matter what I wrote - contemporary romance, spy thriller, high fantasy - it was going to have a desert in it.
+- The common thread in all my projects is 'girls being awesome.' Can we make that a genre?
+- I was a Social Science major in college, with an emphasis in secondary education. I took as many courses on the American colonial era and westward expansion as I could. This turned out to be wonderful preparation for writing fantasy novels.
+- When you write about faith, people will be upset with you no matter what. I've heard from readers who were disgusted with the depiction of monotheistic religion. I've also heard from readers who were upset because my portrayal of faith did not adhere to their specific doctrines. Fortunately, I have high risk tolerance.
+- I miss my family and friends from Cali a lot. I also miss late-night business hours, hiking in the Sierra Nevada, and house boating in Gold Country. But in Ohio, housing is cheaper, everything is green year-round, and we get glorious thunderstorms. In California, I lived in a place that was infested with black widow spiders.
+- I'd love to see more middle and high school teachers who are not teaching English develop classroom libraries. Our message to kids should be that reading is for everyone.
+- I decided a long time ago to be unfiltered and wholly myself in these areas of social media. I've been very happy with the results of this decision. I feel that I get lots of interaction and loyal support. So I'm grateful for my Twitter and Facebook followers every day.
+- I love George R.R. Martin's 'Game of Thrones' series.
+- I was a teenage girl once. I was not an overweight teenage girl, but I had really bad acne when I was 11 or 12 years old. It was heart-rending, and people made fun of me. People whispered when I walked by in the hallways, and I was sure they were whispering about me. My adult perspective is maybe they weren't.
+- I have tremendous respect for teens who navigate the quagmire that is modern religion. If there is any message in my books, I want it to be that it's okay to ask questions, and it's okay to come up with a belief system all your own. Teens who change their worldviews in the face of tremendous social pressure are heroes to me.
+- I must be honest here; I don't think there's such a thing as 'unconventional' when it comes to YA. YA readers are the most open-minded in the literary world. They'll read anything.
+- I grew up in a cloistered, conservative culture that adhered to strict gender roles. So it's easy to understand why the 'girl dressed as a boy' trope resonated so much. In a world that didn't want to give people like me adventures or significance, books with cross-dressing girls were treasures.
+- It's important to not marginalize any people group in fiction. A complete, authentic-feeling world should include many different elements of life and culture. For this reason, my books will almost always contain people of faith.
+- I'm an atheist and a humanist, so I have no desire to evangelize anyone.
+- I saw 'Star Wars' for the first time when I was four years old. Sure, I thought Princess Leia was awesome. But the character I identified with most was Luke Skywalker. I left the theater certain the Force was strong with me, that I could train to be a Jedi and wield a lightsaber just like Luke.
+- My most profound growth as a writer came when I joined an online critique group. What a harrowing, terrifying, wonderful experience that was.
+- Some of the most common pitfalls I see occur when authors don't check their privilege. Billions are living in a personal apocalypse right this second, so a little research and empathy can go a long way toward developing a convincing world.
+- I dreamed about this as a kid, that I would write - and people would read - a whole series of books. I feel accomplished, giddy, and tired. Mostly, though, I feel thankful. A trilogy is a huge investment on the part of author, publisher, and reader, and I'm grateful that so many people were willing to invest along with me.
+- Competing in pageants made me hyper-aware of the unfair expectations society places on women in terms of youth and beauty. But it also gave me empathy for women who use beauty as a creative exploration. When expressed healthfully, dressing up, doing hair, crafting makeup, etc., is an art form.
+- 'Lord of the Rings' was a childhood favorite, though the adult Rae wishes the women in those books had more significance and agency.
+- The message was always, 'It's good to be pretty, but don't look like you're trying to be pretty!' Inherent in that is a lot of misogyny, I think, because the implication is, 'You must work hard to achieve a feminine ideal for which society has nothing but contempt.'

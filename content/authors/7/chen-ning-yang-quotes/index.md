@@ -1,0 +1,23 @@
++++
+author = "Chen-Ning Yang"
+title = "Chen-Ning Yang Quotes"
+quotes_len = "17"
+description = "the best 17 Chen-Ning Yang Quotes"
++++
+- Qinghua was first established as a preparatory school in 1911. In 1928, it became a university. In 1929, my father joined Qinghua as a professor, so that was also the year that I moved to that campus because my father brought the whole family along.
+- A graduate student who is still learning courses is not really taking a maximum advantage of a research university's offerings. He should already be finished with course-taking, as he would then be able to shape his own taste about what is a good subject for research work in the graduate school.
+- In the final analysis, the incident is seen as originating from an emotional expression of the frustration and anger of the proud people of China who had been subject to ever increasing oppression from without and decadent corruption from within.
+- The three discrete invariances - reflection invariance, charge conjugation invariance, and time reversal invariance - are connected by an important theorem called the CPT theorem.
+- I think America is a new country. It is a young culture. The spirit of the opening of the West is still with the Americans. It's a very practical and individual-based kind of philosophy that had worked in America for a long time, had been very successful. And the spirit is very much there.
+- The law of right-left symmetry was used in classical physics but was not of any great practical importance there. One reason for this derives from the fact that right-left symmetry is a discrete symmetry, unlike rotational symmetry, which is continuous.
+- I should like to say that I am as proud of my Chinese heritage and background as I am devoted to modern science, a part of human civilization of Western origin, to which I have dedicated and I shall continue to dedicate my work.
+- I think in the sciences there is still the general belief that America is still tops. For America to lose that, I think, would be very bad, not just speaking as a scientist myself. I think it would be very bad for the morale of the whole country.
+- The question was heatedly debated of how much Western culture should be brought into China.
+- The existence of symmetry laws is in full accordance with our daily experience. The simplest of these symmetries, the isotropy and homogeneity of space, are concepts that date back to the early history of human thought.
+- As I stand here today and tell you about these, I am heavy with an awareness of the fact that I am in more than one sense a product of both the Chinese and Western cultures, in harmony and in conflict.
+- In the latter half of the last century the impact of the expanding influence of Western culture and economic system brought about in China a severe conflict.
+- There's a real difference of what one believed was one's chief responsibility between American professors and Chinese professors. This was vividly revealed to me when I compared what I could learn in Chicago and what I could learn in China.
+- The strongest interactions are the nuclear interactions, which include the forces that bind nuclei together and the interaction between the nuclei and the z mesons. It also includes the interactions that give rise to the observed strange-particle production.
+- The application of group theory to physics became one of the main branches of physics that I specialized in.
+- Science has become something that everybody knows he has to pay attention to, but not everybody is a believer. So I don't think we should equate science with religion. But, that science is progressively playing a more and more important part in the life of every individual is obvious.
+- I was later to receive an excellent first two years' graduate education in the same University and then again was able to pursue my studies in the U.S. on a fellowship from the aforementioned fund.

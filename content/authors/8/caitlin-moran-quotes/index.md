@@ -1,0 +1,80 @@
++++
+author = "Caitlin Moran"
+title = "Caitlin Moran Quotes"
+quotes_len = "74"
+description = "the best 74 Caitlin Moran Quotes"
++++
+- In the U.K., we have a paper called 'The Daily Mail,' which is quite misogynist. And every day, it just writes pieces about: 'Women, you're going to die now! Women, here's shoes that give you cancer! Women, just hate yourselves!'
+- I think that instead of feminism being a political thing, it should be an act of creativity. It's more of a rock n' roll thing.
+- I never wanted to be famous. It was amusing at first, but now I hate it. I just wanted to be respected by people I respect. And I wanted to be rich. It's best to get rich, then you can do what you want.
+- I do not... look very feminine. Diana, Princess of Wales is feminine... I am... femi-none.
+- Oh God, are you supposed to collect things? I don't collect things. I like throwing things away.
+- I don't think there should be anything that women are embarrassed to talk about in the 21st century, because for the last 100,000 years, men have said everything that's on their minds and described everything they have done.
+- People get really scared when women reclaim words, talk about themselves honestly and also make jokes because it's a really unstoppable combination.
+- Most women I know love the idea of fashion, but the practicalities that go with it are just distressing.
+- I genuinely miss writing now on the rare days I don't write; my mouth waters when I think about writing, and I have an extreme physical reaction to the idea of doing it.
+- I am not good at small talk. I will hide in a cupboard to avoid chitty-chat.
+- You can be socially accepted and tell the truth about what it is to be a woman.
+- The kind of classic pose of a female model is to look kind of sexy and a bit annoyed.
+- I don't regret not going to college. Students learn up to the age of 21, then stop. I'll always be learning - the things that really matter in life. How to sign on, how to get free food, how to be streetwise.
+- I just want Tina Fey to be my best friend. And Lena Dunham. And Oprah, too.
+- I don't think that women being seen as inferior is a prejudice based on male hatred of women. When you look at history, it's a prejudice based on simple fact.
+- I can honestly say that my abortion was one of the least difficult decisions of my life. I'm not being flippant when I say it took me longer to decide what worktops to have in the kitchen than whether I was prepared to spend the rest of my life being responsible for a further human being.
+- The first thing to improve society is not banning abortion, but making sure that everyone who had a child is in the best position to be able to rear it.
+- We think of feminism as an academic subject, but it's not. If you think feminism is academic, you think there's a right or wrong.
+- I love puffins. They are small, round gothic birds, and their babies are called pufflings.
+- There are 3 billion women in the world, so there are 3 billion ways to be a feminist.
+- Feminism, as it stands, well... stands. It has ground to a halt.
+- The revolution doesn't always look perfect.
+- I see feminism as a massive party. It's cool, the idea that 50% of the population can now start doing things and having fun and experimenting with their hair and makeup.
+- Simultaneously, my two biggest heroes are Susan Sontag and Morticia Addams from 'The Addams Family.'
+- What is feminism? Simply the belief that women should be as free as men, however nuts, dim, deluded, badly dressed, fat, receding, lazy, and smug they might be.
+- When I learned that flour pound for pound has as many calories as sugar, and that when eating pasta you're basically eating cake, I was size 23, and my neck was restricting my breathing, and so I got on a microbiotic diet and got myself an exercise bike.
+- If you read all your history books, there are no women in them.
+- Benedict Cumberbatch is very beautiful.
+- I say this in the spirit of feminist encouragement, but I think I'm pretty hot. I've got all the facial features, facing the right way, at the right end, and you can always paint over the bad bits with makeup.
+- In the early '90s, it was grunge; everybody was fully clothed. Alanis Morissette was one of the biggest artists in the world, never wore makeup, wearing Doc Marten boots, and then the Spice Girls turn up, and suddenly it all looks a bit burlesque; suddenly they're the biggest band in the world.
+- It used to be if you wanted something nice to wear, you would sew it yourself for your body type. Women before the 20th century didn't have this problem. Now, it seems we're all squeezed into random designs. They're designed for no one.
+- I've learnt that you tend most to make a div of yourself when you're trying to cover up the fact that you don't know what you're doing. And that simply saying 'I don't know what I'm doing' is a massive relief.
+- Mental health is seen as a massive drag to have to write about - worthy, dull. Something you should 'have' to read / write about.
+- I don't campaign for the end of the aristocracy or the upper classes; I don't really want to destroy anything at all. I just want more plurality.
+- I like a little bit of revolution. I think it's a very good hobby for a young woman. Better than squash.
+- One of the great things about being a writer/journalist is that my boss loves me to go out and do features on being someone else. I did a feature on Kate Middleton, where I went to an incredible fancy state home in the countryside, put on a wedding dress and posed for engagement pictures with a fake Prince William.
+- Flyaway, problem hair is the enemy of feminism, and was probably invented by the Man to crush Susan Sontag.
+- Once you become poor, tired and time-constrained, you become a much better human being.
+- Every woman who chooses - joyfully, thoughtfully, calmly, of their own free will and desire - not to have a child does womankind a massive favour in the long term.
+- I can't think of anything I hate more than a former punk - they are the most self-righteous people in the world.
+- A majority of women's magazines feature women who do amazing things, but then the article focuses on how she ruined it with her shoes.
+- You can crush any woman by suggesting that she's fat, not even saying the word 'fat' but just suggesting she's fat.
+- The word 'spinster' tells you everything you need to know about our attitude of women who choose not to marry.
+- Twitter means all my friends are in my computer. All my ideas are in my computer. I can do whatever I want in there; I'm kind of... bionic.
+- If you can find a frock you look nice in and can run up three flights of stairs, you're not fat.
+- I am pathetically law-abiding.
+- Over-eating is the addiction choice of carers, and that's why it's come to be regarded as the lowest-ranking of all the addictions.
+- I wrote my first book at eight, all of four pages. At 10, I did a 40-page story. At 12, I wrote two stage plays.
+- I'm so glad I spent 10 years being sad and lonely.
+- Men have made the world. And they've made a brilliant job of it. I love men. You know, men, you built Paris and you invented The Beatles, and, you know, and you've taught dogs to say 'sausages.' You know, I love your world. Thank you for it.
+- When I saw 'Pretty In Pink' at the cinema at the age of 11, I just thought it was a period piece from maybe 100 years previously. I had no idea that was what everybody was supposed to be wearing.
+- I hate that tabloid idea of anybody who is famous having to forfeit their privacy.
+- I'm quite British; I've got big, flat feet, and I can't wear heels. I've got very, very pale Celtic skin, so my legs are always a frightening blue color. So when you take out clothes that reveal your legs, shoes that have any kind of heel, no shop will actually take my money.
+- The idea of not being able to control my own fertility genuinely terrifies me. That one mistake might change your life. That everything I am, and do, could be ended by the repeal of laws our mothers fought so hard for, that women had waited for the entire span of humanity to come about.
+- Watching 'Girls' has just given me renewed courage.
+- I know people go on about Twitter, but it is amazing. It's whatever you want it to be, and all the women got in there before the boys.
+- In the end, I want to spend my 60s writing bonkbusters like Jilly Cooper.
+- Telly never has any smart, amusing intellectuals living on a council estate.
+- My parents were hippies. I'm the eldest of eight children.
+- I once went into a meeting, and every woman put her a million-pound bag on the table. Then I'm there with my tote bag and anorak. And I'm like, well, I'm still the most important person in the room right now.
+- As far as I'm concerned, you're a feminist by default if you're born in the Western world right now.
+- The doughy-faced woman has been forced to sit on the sidelines of culture for too long, and it's now time for us to stand up with our big round faces like the moon and say we have things to say, too. We have a round-faced agenda we want to push.
+- I remember, around age three, peas growing in the back garden. Pinching them from their pods and popping them in the mouth was my first realisation that food came from somewhere other than a shelf.
+- My core belief is that if you're complaining about something for more than three minutes, two minutes ago you should have done something about it.
+- If you're not a confident person, pretend to be one.
+- When my children say, 'In the future, Mummy, will things get better or worse for humanity?' I say: 'Who knows, since Amy Winehouse died. It's all in the air now. Eat your broccoli.'
+- If every woman who's had an abortion took tomorrow off in protest, America would grind to a halt. And that would be symbolic: because women grind to a halt if they are not in control of their fertility.
+- Our world is afflicted by poverty. Don't spend all this money on clothes!
+- I've generally got low levels of embarrassment.
+- The thing is, one in three women in the Western world will end up having an abortion, but they never talk about it. When you keep silent about that stuff, it is because you are embarrassed by the societal distaste of the topic.
+- I think there are brilliant jokes to be made about abortion, and we should be able to talk about this in the way that we make jokes about death - you should be able to make jokes about everything.
+- I loved Riot Grrl. Not only was it a punk rock revolution, but it meant you could get dressed for a night out for less than two pounds!
+- I can't live in a world where there are only, like, four kinds of women. Or where every woman is obsessed with cake. The very least I ask is that we have one female character in the world who likes savory things! I don't have any role models who like cheese!
+- Feminism means something - legislation, cultural change - but 'Girl Power' meant nothing more than being friends with your friends.

@@ -1,0 +1,18 @@
++++
+author = "Caleb Carr"
+title = "Caleb Carr Quotes"
+quotes_len = "12"
+description = "the best 12 Caleb Carr Quotes"
++++
+- You want to believe that there's one relationship in life that's beyond betrayal. A relationship that's beyond that kind of hurt. And there isn't.
+- I have to be very careful, however, because I have no intention of providing an excuse for this behavior. It's an attempt to explain how so many women come from backgrounds where the pressure to be a good mother is so severe that if they can't do it, something really snaps.
+- Every human being must find his own way to cope with severe loss, and the only job of a true friend is to facilitate whatever method he chooses.
+- I feel horribly vindicated. Three thousand people died who didn't have to die.
+- I'm still a firm believer that we were definitely put here to use our minds, and that is what makes us different. And that that's the key. If there is anything that is going to stop mankind from being such a beastly, destructive creature, it is reason.
+- I get in trouble when I say things like, 'I'm attracted to violence.' I was a pretty angry kid, and I got into military history largely as a way to vent my own anger. As I got older it narrowed down to a more specific focus on individual violence. I'm just trying to understand where it came from.
+- Warfare against civilians must never be answered in kind. Terror must never be answered with terror.
+- I was a pretty angry kid, and I got into military history largely as a way to vent my own anger. As I got older it narrowed down to a more specific focus on individual violence. I'm just trying to understand where it came from.
+- I, like most of my friends, couldn't believe I bought a mountain called Misery Mountain, because it was so appropriate.
+- I have a grim outlook on the world, and in particular on humanity. Spent years denying it, but I am very misanthropic. And I live alone on a mountain for a reason.
+- I wanted nothing less than to be a fiction writer when I was a kid. If you had told me I would be an artist or novelist when I grew up, I would have laughed in your face.
+- I'm a fairly ascetic person. And I do most of my writing at night. You don't get distracted, your brain goes into what you are writing about, into the world you're writing about, rather than into the world you're in.

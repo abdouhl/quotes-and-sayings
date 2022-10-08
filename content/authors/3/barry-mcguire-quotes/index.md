@@ -1,0 +1,27 @@
++++
+author = "Barry Mcguire"
+title = "Barry Mcguire Quotes"
+quotes_len = "21"
+description = "the best 21 Barry Mcguire Quotes"
++++
+- There's only one drummer. We all travel to his beat. Well, I couldn't sing his song. Because for me, it wasn't a truthful statement. Well, Linda sang it, and it was a monster for her.
+- I know great songwriters. Fred Neil would come up when he was in L.A., we all used to hang out. He would sit there and sing, and we would just melt. I mean, we would go to his recording sessions.
+- And there was a real shedding of the old dogma, like boundaries of morality were being broken down and everybody was into the new party mode of just loving on each other. Which destroyed thousands of us. I lost 16 of my personal friends through that lifestyle.
+- So gradually, and then I had an Italian roadster that I built, it took me five years to build it, it was stolen from me and stripped. I said, well maybe we should have another where we shouldn't steal from each other.
+- Marches alone won't bring integration when human respect is disintegratin'
+- Ah, you may leave here, for four days in space, but when you return, it's the same old place.
+- If you listen to the left track on their album, if you get The Best of the Mamas and Papas, you listen to the left track, you can still hear a little bit of my voice. My son discovered that once.
+- When I wrote 'Green, Green,' it was like a really a statement of where I was at philosophically in my life.
+- I did about a 100 concerts this year. All over the United States. We're cutting back next year to about 40. We generate money for an organization called Mercy Corps.
+- That's why I had to leave Hair on Broadway, because I did it for about a year, and one night I was doing the show, and I realized, well, this is not real. I told the director. He says, man, it was a killer show tonight.
+- And a friend of mine in the Christys, we used to sit up at night and talk and read and wonder if reincarnation, and if it wasn't reality, what would happen to the human spirit when the body dies? Is there an afterlife? Just questions like that.
+- The big turning point, really, was the Beatles' influence on American folk music, and then Roger took it to the next step, and then along came the Lovin' Spoonful and everybody else.
+- I was very laced with drugs myself, but Fred seemed to be even more so than me. That might have had something to do with it. That might have had something to do with nobody wanting to play my records, too, I don't know.
+- To have a songwriter that wrote so specifically what I felt to be true... I've never been much of an actor either. If something is real for me, then I can do it.
+- It was really fun. Well, Bobby was just basically a folk singer. He didn't play with any bands or anything, like all the rest of us. Just played his guitar and sang his songs.
+- There was a report that used to come out back in those days, I don't know if it was the Gavin Report or something like that. And they said, no matter what McGuire comes out with next, we're not gonna play it.
+- I remember we woke up one morning at Denny's house and John Phillips called. He said, you guys okay? We said, yeah, what's wrong, what's going on? He said, well, everybody's dead over at Sharon's house at Terry Melcher's place.
+- You know, the music business is like the Lotto. Just put your numbers down and sometimes they hit, and sometimes they don't. There's just no rhyme or reason.
+- But times changed, and I changed, and I didn't feel that way anymore. The Beatles were happening. I think that was probably the main thing. The Beatles just changed the whole world of music.
+- My buddies worked with me for weeks, and I went up to take my test, and started crying because I couldn't remember the words. I can remember songs. If you put it to a melody, I would have sung it to 'em in a minute.
+- Hate your next-door neighbor, but don't forget to say grace.

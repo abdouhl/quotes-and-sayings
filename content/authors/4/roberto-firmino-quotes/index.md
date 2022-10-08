@@ -1,0 +1,84 @@
++++
+author = "Roberto Firmino"
+title = "Roberto Firmino Quotes"
+quotes_len = "78"
+description = "the best 78 Roberto Firmino Quotes"
++++
+- It's hard to be as good as Ronaldinho and Ronaldo were, but we're going to do our best, both myself and Philippe Coutinho, to get close to them and be the best players we can be for the Brazilian national team.
+- Coutinho is a friend and also a great player. He's got incredible passing ability; he knows how to put attackers in on goal.
+- My job is to help the team, and so I love retrieving the ball as much as scoring or playing the final pass for a goal.
+- I really enjoyed my time in Germany but didn't actually win anything.
+- Everybody knows that Coutinho is a great footballer - here in England, they call him 'The Magician.' He made his decision to join Barcelona, but every time we meet and play for the Selecao, we have a good chat and maintain that friendship. He is an exceptional guy and one of the best friends football has given me.
+- I started out at youth level as a holding midfielder.
+- I always modeled myself on Ronaldinho. He was one of my favourites who I followed a lot - his magic made us want to imitate him and his football. Is my goal celebration a tribute to him? Yes, of course. I like him a lot.
+- I'm not used to doing press conferences, and I don't like giving interviews.
+- I look up to many great players - principally attackers. The two Ronaldos, Romario and Rivaldo all play well.
+- Anfield is the best place in the world to play football; there's no doubt about it. The atmosphere is incredible, and we always get so much strength from our supporters in every single game.
+- I like to relax; of course I do! But when I am inside the pitch, that is it. You have to go on full on from the first minute.
+- I'm accustomed to pressure. It's what we, as players, live. If you don't want pressure, then football is not for you.
+- Playing for Liverpool at Anfield is a very joyous and positive experience.
+- Liverpool are one of the greats in Europe, and being able to be part of the history of such a great club is gratifying to me.
+- I have suffered racial prejudice, and I know how painful it is. People need to take this issue more seriously and engage in this fight against racism.
+- I come from Maceio, where it is very hot all year around. I moved to Florinoples in the south, which is very cold. I passed the tests that were asked of me there, and that got me the move to Germany. I could have stayed in Brazil, but I wanted the challenge.
+- To score my first Selecao goal is a unique emotion.
+- Pep Guardiola had some great clashes with Klopp in German football. They know each other well.
+- Which team in the world would not like to have a player of the quality of Coutinho?
+- You play in different situations and conditions, and you have to come up with new solutions for the problems. It has made me a more rounded player, who can handle different tactics and positions.
+- We lived in a tough neighbourhood where there were gangs, and although my mum made sure I studied at school, they also allowed me to follow my dream to play football.
+- A lot of Brazilians are very superstitious, especially footballers. I'm the same. I always step on to the pitch with my right foot first.
+- I used to be very shy, much more so than I am now. It's great that I've improved in that regard. Every day, I'm getting better and less... embarrassed.
+- It's strange, but I remember just before I moved to Hoffenheim that I had a dream about playing in England.
+- I consider myself to be half-Brazilian and half-German on the pitch.
+- I love playing for Liverpool FC. The fans are excellent and fantastic in how they support us all the way. They support us throughout the games, and the work they do during the match is beautiful.
+- I pray and listen to music on the way to the stadium. I also bless myself just before kick-off.
+- I've always been shy; it's just that I transform on the pitch. I'm a different person. Off the pitch, I'm another person. That's how it has to be.
+- I left Brazil very early, before reaching the top level of the Brazilian championship. That made a difference: I was not seen as a 'name' around the country.
+- Leaving home early is always complicated. But when I arrived in Germany, I encountered an incredible structure built by the company that takes care of my career. They did not leave me wanting for anything. The most complicated thing was really the language. Otherwise, everything was taken care of.
+- I don't think it's a problem if you play well and don't score, when you are creating chances.
+- Professor Tite has played a big role in the Selecao's ascent. He's a brilliant coach, with a unique way of working, but he's also a marvellous person. He makes everyone feel at ease.
+- I just want to win and carrying on winning for Liverpool.
+- I always try to do a bit more than I am asked.
+- I knew Jurgen Klopp from my time in Germany.
+- When people ask what my ambitions are for the rest of my career, I always say that I live in the present.
+- I will keep my time at Hoffenheim and the people I met here in my heart forever.
+- I always want to win games... and titles.
+- I started out as a defender. I played as a full-back, and then I moved into the centre. I played defence right the way through until the Under-18s. Honestly!
+- I think I was born with that desire to win and attention to detail.
+- Certainly my dream is to lift the Premier League trophy with Liverpool, and that's what we are trying to do.
+- By working hard at Hoffenheim, I made it into the Selecao.
+- My family mean a lot to me, but I guess that's like it is with every other player.
+- I learnt a lot in Germany, and the German mentality really helped me. It was an enormous step in my life.
+- I remember the first day getting to Hoffenheim. Minus 20! The weather was different; the food was different. It was cold, and I found it difficult, but I am not someone who gives up.
+- Without a doubt, German football, where I've played for nearly five years, is very similar - maybe just a little less tough than English football.
+- Whenever there is a new song out, we'll sometimes try to rehearse a celebration so when one of us scores a goal, we can celebrate it together. I find this a nice thing between team-mates to show the friendship between us, and I try to do this whenever I can.
+- There is nothing that comes without working for it.
+- My parents gave up things for me when I was growing up.
+- I've been quite hyperactive since I was a child.
+- I just worry about playing well and helping Liverpool go as far as possible in the Premier League. If that is achieved by me scoring goals, even better.
+- I could say Liverpool is the first big club I will play for. It's a massive chance for me to show what I can do.
+- I think the Brazil system is similar to the one we use at Liverpool, with lots of movement, players open out wide, and quality midfielders who join the attack and score goals.
+- We all know how big Liverpool Football Club is. It is a club with a lot of tradition.
+- It comes easy to me to run. I picked a lot of it up from Germany. I had four-and-a-half years there, and I learned you have to be on the automatic button. Press it, and you go: you keep running, chasing and working.
+- I was only 19 when I came to Hoffenheim. Everything was new to me - a strange country, a foreign language. That was not easy at the beginning. Europe was a big adventure to me, and of course I had my doubts.
+- Your eyes are very important as a professional footballer.
+- When I came to Liverpool, in a €20 million transfer, I was expensive.
+- The Selecao go into every competition to win it.
+- I used to finish school and go and play football.
+- I have evolved a lot as a player working with Klopp, who is a very tactical coach.
+- I am very proud of being Brazilian, but I am also thankful for having the chance to play in Germany for four and a half years. I have completely changed the way I play football because Germany is a tougher, faster game which is more tactical with tighter marking.
+- I'd be happy if I was part of a Liverpool side that kept winning titles, cups, and made history.
+- I don't like to lose.
+- I was adapted to European football after playing in Germany for three years, but English football is very different to the Bundesliga.
+- I do have moments when I like to relax, but I'm always moving, and that has always been the case since I was a boy.
+- The harder I work, the luckier I get.
+- If you are in the draw, then you cannot be afraid of anyone.
+- I love Liverpool - it's a great city to live in.
+- Everyone hears stories about what it means to be a Liverpool player, but, until you live it personally, you cannot really understand it.
+- I have always worked very hard in my career. Always working towards a good moment. And when you plan, the rewards appear.
+- I love Safadao; it is an honor to be compared.
+- When I was younger, I played as a right-back. I also played as a central defender, but I realised that I could dominate the ball quite calmly, so I started playing further forward in front of the back four.
+- Being shy has never held me back.
+- I am not someone who enjoys being followed and harassed. I prefer to stay at home with my family than to go out.
+- I am very happy here at Liverpool. It's a very good club at a very high level - a big club.
+- Klopp is a fantastic guy. I rate him as an extremely professional coach, perfectionist, and a winning mentality.
+- Klopp is a great tactician and a great coach.

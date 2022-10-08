@@ -1,0 +1,21 @@
++++
+author = "Christopher Koch"
+title = "Christopher Koch Quotes"
+quotes_len = "15"
+description = "the best 15 Christopher Koch Quotes"
++++
+- When I grew up in Tasmania, you thought that London was home. You waited to go to England as soon as you graduated, in my case on a ship bound for London via Genoa.
+- I think the greatest reward you get as a writer is finding that people who are reasonably receptive and intelligent have liked your book.
+- I make a rod for my own back because people see my novels as quasi documentaries. But it is never history that's the main event of my books. It's my characters.
+- I was completely devoted to reading and books from the age of seven. It took until I was 18 to have the confidence to write poetry.
+- Even a cup of coffee tastes so much sweeter because you've come once again out of the, literally, out of the edge of death, and that's the condition I suppose that a lot of artists and writers would like to be in.
+- Poetry was the first step, and from the age of 18, there was nothing else I wanted to do.
+- I've never set a book in Europe. I've lived in Europe three times, but somehow or other it wasn't the experience that engaged me in that way.
+- I don't have doctrinaire views about how we should relate to Asia. But novelists reflect the world they live in, and that world propels you, to some extent. I'm a creature of the British Empire, and of the period of transition from the Empire.
+- I've known several spies who have wanted to become novelists. And novelists who became spies, of course.
+- Basically, it comes down to this: do you believe in God, or don't you believe in God.
+- The unseen world is what emanates from God.
+- All writers are obviously neurotic... For various reasons, writers retreat into an imaginary world because they find ordinary life rather difficult or boring or both.
+- I do believe in God.
+- Writers to some extent are childish, and it's at the childish level that one really engages with any experience. What really moves you is at the very personal, childish level of the imagination. My business is the imagination, and my imagination is engaged by Asia.
+- I don't believe novels should carry an obvious message. I don't want to write characters you can immediately say are good or bad; as in life, most people are a mixture.

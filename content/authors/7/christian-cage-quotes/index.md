@@ -1,0 +1,105 @@
++++
+author = "Christian Cage"
+title = "Christian Cage Quotes"
+quotes_len = "99"
+description = "the best 99 Christian Cage Quotes"
++++
+- I'm out there every night working my butt off trying to do what I do, and that is entertain every single person that paid their hard earned money for a ticket. So I think people realize that and I think over time, I feel like that's grown, definitely.
+- It's hard to shock people, especially when people want to know, like, spoilers and stuff like that.
+- Coming from a wrestling background with WWE, I know how much the fans love WWE. They come out every time we're there and there are huge crowds and they're always so gracious, and are some of the best fans anywhere in the world.
+- No matter how tired you get, when you get in that ring and hear that crowd road, everything will go away.
+- If you're a Maple Leafs fan, you hate the Canadiens. I'm not a Canadiens fan at all.
+- I've always liked being on the performance end of it. I've come up with different ideas, but as far as being a creative writer, I'm not sure about that. I've always liked the performance end of it and wrestling, getting in the ring in front of a live crowd.
+- When I left I knew I was gonna go back to WWE. But I needed to go because whatever I was doing wasn't working. I needed to take a chance on myself and get better. The only way to do that was take some risks and go somewhere.
+- One day, I was flipping through the channels and I happened to flip the channel onto wrestling. I had never seen it before; I didn't know what it was. I was hooked instantly.
+- WWE is live. There is no second take.
+- I'll always be a wrestling fan.
+- I am in my own hall of fame, that's all that matters.
+- There's just some times when you need a change and you need to do different things.
+- You have to look at your situation, and 'how do I make the best of my situation every single night?' That's what I looked to do.
+- There's very few people that ever have a chance to become World Heavyweight Champion.
+- People seem to want to know stuff that's going to happen before it happens sometimes instead of just enjoying it and following the ride and just seeing where it takes you.
+- Every time I step foot through the ropes, I try to entertain and put on the best match possible.
+- I think I would have liked to have experienced the whole NXT thing.
+- For sure, competition is healthy. It is! It keeps everybody on their toes. It keeps everybody sharp.
+- When you're working with somebody, you work to their strengths. Do you know what I mean? It doesn't matter who it is, whoever you're in the ring with.
+- I never doubted that my talent would shine through in the end, no matter what.
+- With WWE, you're live every single week. You're in an arena, and there can be anywhere from 12,000 to 20,000 people watching you perform.
+- If I had a nickel every time someone asked me if I was going into the Hall of Fame, then... I could buy a lot of stuff.
+- Me, personally, I thrive under pressure.
+- I believe I am one of the best and I work to prove that every night I go out there.
+- There wasn't a huge focus on tag team wrestling when it was Edge and Christian v The Hardys v The Dudleys, but we forced it. We went out there with something to prove every single time and forced everyone to see that we needed to be on the show every week.
+- Wrestlers are very protective and care about what we do and we're always fighting for credibility.
+- I always had aspirations to be the champion. I never gave up.
+- When I moved to Tampa, Florida I remember going to a Kid Rock concert and I was in one of those sky-boxes. When I walked into the sky-box I didn't know he was there, but I hear a, 'Hi, brother!' I turn around and it's Hulk Hogan. I just got 'brothered!'
+- I retired when I was 40. I started when I was 19. I never wanted to be a guy who was a shell of his former self and have people say, 'He's not as good as he used to be.'
+- I think the knock TNA had is they seemed to worry too much about what WWE was doing instead of focusing on their own.
+- Obviously, it's unheard of for anybody to come back from this type of injury that Edge had.
+- It's strange to think that one day you're wrestling, and the next day you're not.
+- With The Brood, it was cool because it had the music, it had the different look and at the time reality-based characters were really starting to take the forefront as opposed to the cartoon character stuff that you'd seen in the past. We were already into the Attitude era. It was kind of a gimmick, but it was a cool gimmick. It wasn't corny.
+- For many many years, the MMA world shunned on the pro wrestling world. They shunned on us for getting action figures and whatnot.
+- Growing up, 'Mean' Gene was the voice of my generation.
+- I felt like when I retired, I was still one of the best in the world and competing at the highest level. I think it's best to bow out and have people remember you at your peak.
+- It's funny, I do think I've been somewhat overlooked, but I've always viewed that as a challenge. Everyone else seems to get more upset about it than I do.
+- Yeah, it's also a huge jump for NXT to come off the WWE Network and come onto cable television. That's huge.
+- I did go to TNA when I left WWE briefly in 2005 for three years. When I went there, it was solely to prove to myself, even if it was on a smaller platform that I could carry main event matches, programmes, and promos and be the face of a show. I needed to do that. I needed to gain that confidence and go back and be able to do it.
+- For me, tag team wrestling will always hold a special place in my heart and I do wish it could have been highlighted more.
+- Wayne Gretzky is the greatest hockey player of all-time, I don't think there is any debate about that. If you look at the records he holds, they'll never be broken or touched. He wasn't the biggest, wasn't the fastest, and didn't have the hardest shot, but no one saw the game developing the way he saw the game develop.
+- We all get into wrestling to go out and perform for our fans.
+- The cool thing about wrestling fans is that they're so passionate.
+- When I was a kid, the guy who was Intercontinental champion was the guy who was next in line for the World Heavyweight championship.
+- It's cool to talk to the fans and get some one-on-one time and shake hands, sign autographs, take some pictures and have conversations with people.
+- I needed to bet on myself. And if you're willing to bet on yourself then sometimes it works out and if you believe in yourself and your abilities that will be the case.
+- I lived my dream and I was able to accomplish my goals.
+- I always said to myself when I walked into the arena 'today they're going to know how good I am' and that was the attitude I carried with me every single time and just felt like at the end, you can't hold talent down. If you have it, eventually it's going to shine through and you just have to keep pushing.
+- The wrestling equivalent to Wayne Gretzky? That's Shawn Michaels.
+- First time I met Hulk Hogan, I had a life-sized poster of him in my room and I idolized him as a kid.
+- Growing up, we were pretty much focused on becoming WWE superstars.
+- Guys like The Revival have this chip on their shoulder and I think that's what you have to do.
+- WWE definitely gives you the forum, the stage to do different things and see what works. That's the cool thing about being in front of a live audience every single week in WWE. You get instant feedback.
+- I always said when I was wrestling that you have tunnel vision because it's all consuming. It's hard to focus on anything else other than what you're doing. When I stepped away from that, I wanted to have my hand in a lot of different pots.
+- If you're in the ring with somebody that doesn't throw good punches, guess what. Don't have him throw any punches. You work to their strengths. It's really not that difficult. You don't try to get them to do things that are out of their realm or whatever. It's not hard. It's not rocket science.
+- The word dream match is thrown around quite a bit, and I mean if you think about it. There's all these possibilities, like what if Edge could face Roman Reigns or Seth Rollins? Or, a guy like AJ Styles.
+- TNA has been great as far as allowing me to have more input creatively on my character and the direction of my character and promos.
+- I think one of the things that the people, the fans, know about me is that every time I step in the ring, I give everything I have to entertain everyone that's spent their hard-earned dollars on a ticket for a WWE event. I think that's apparent.
+- Tag team wrestling is what put myself, Edge, the Hardys and the Dudleys all on the map. It made us into WWE superstars, and without that, I don't think that my singles career would have gone to the places it went to.
+- One of my earliest memories was watching Ken Patera and Big John Studd cut Andre The Giant's hair. That was the first thing that had a serious effect on me emotionally. I was just moping around the house all day. I couldn't believe they did this to Andre The Giant.
+- My biggest fear, the only fear that I have is failing. I hate to fail at anything that I do and that's really my only fear in life, to be a failure.
+- Without sounding too full of myself, with wrestling I felt like I was one of the best in the world and I competed at a very high level for a long time.
+- I think the free agent process is a little bit different because other major pro sports like the NBA or NHL, you're looking at 30 teams. You have 30 options. You don't really have that in this industry. There is one name that stands above all else, and that's WWE. So to really be on top, that's where you have to apply your trade.
+- I'm definitely a veteran. No question. And it always makes me laugh when the younger guys tell me they remember where they were when I contested a certain match. It makes me feel old, but it's cool to hear that.
+- For me, whenever I got into this business, I wanted to be the very best that I could be.
+- I never got a chance to participate in one, but I wanted to be in an iron man match. I really just wanted to go in there and I remember pitching a couple of times too, and it wasn't necessarily for an iron man match, but I wanted to just go out there for a full hour and just do a match.
+- The 'Edge And Christian Show' is evergreen, I guess.
+- Having a long career with real lasting power has always been a goal.
+- I never wanted to be one of those guys who hung on too long.
+- Obviously, there's nothing like being in front of a live crowd. That's what makes a wrestling show - getting that instant feedback and taking them on an emotional journey through what you're doing in a ring. Nothing will ever replicate that.
+- I think people know that every time I go out there, I leave it all in the ring, regardless. So I think there's a certain respect with that and I think that's just grown over the years because I feel like over the course of my career... people know that I never take a night off.
+- With ECW, I had a lot of time for matches. I could go out there and do a 20-25 minute match, where normally I'd get to do a 7-8 minute match.
+- People don't realize what a hard job commentary is. It is so hard and one of the hardest jobs in the industry. I would never say never to anything, but I would need a lot of reps to be good at that job.
+- I've pretty much accomplished everything I've ever wanted to do, except main event WrestleMania, and let's be honest - how many people actually get a chance to do that?
+- When you wrestle on television, you're always fighting for time and the enemy is you're never getting enough of it, you're looking, trying to get more.
+- The cool thing about this business is taking the knowledge you've gained that people have passed onto you and then you pass it along to the next generation.
+- It's kinda like Hulk Hogan whereas any time Hogan walks into a room, he's got that distinctive look. Everybody, whether you're a wrestling fan or not, you know who he is. Chuck has that same thing. Whether you're an MMA fan or not, he'll walk into a room and everyone goes, 'Oh, that's Chuck Liddell.'
+- I'm completely fine with my career. I feel like I accomplished everything I ever set out to accomplish.
+- The goal was to have matches that would stand the test of time.
+- I had worked with The Shield quite a bit, live events and things like that so we had good chemistry in the ring.
+- I don't want anything handed to me, I want to work for everything I have... that's the way I've done everything in my life.
+- I was obsessed with 'Top Spin' for some reason, and I wanted to be the best in the game. I think at one time on Xbox Live I was ranked about 60th. I just couldn't put that one down.
+- To be recognized as one of the best, you need to win that WWE title or the World Heavyweight Championship.
+- We dreamt of that as kids growing up. Like, main eventing, being world champion, walking down that aisle at WrestleMania as the last match, as the main event, as the headliner.
+- When I started in WWE, I was a 24-year-old kid and it was all kind of a whirlwind. I never had the chance to step back and look at it from the outside and assess things from a different level.
+- When I left WWE, I always knew that I wanted to come back when the time was right.
+- I think that if you challenge yourself, then you're going to get your best performances, and every time I go out there, I challenge myself to be better than I was last time.
+- The cool thing about WWE is it's like entertainment boot camp. You're performing in front of a live audience, a different audience every night. You're doing promos in the ring. You're doing talking segments in the back. You're wrestling. You're performing. It's everything all rolled into one.
+- I have talked about this before, I have always been bad at saving memorabilia.
+- I really enjoyed my time on ECW actually.
+- You look at a guy like Drew McIntyre, right? He was released and it actually helped him.
+- I mean, you can't just stop WWE. It is an entertainment company. It puts on a live show every week and prides itself for being out there and working.
+- Wrestling used to be land of the giants and I think MMA has opened he door for smaller, more athletic competitors to climb up the card in wrestling and be top draws and main event.
+- With Edge and Christian, we were like 'Bill & Ted's Excellent Adventure,' the Bill & Ted of WWE. We were kind of goofy, kind of funny, humorous, but then when we had to be serious in the ring, we would get serious.
+- WWE was great to me. I felt like I gave the company everything I had. And they allowed me to live my dream, which was wrestle in WWE.
+- I think I have a little bit of a chip on my shoulder, but I think that's good.
+- I never looked at being second banana to anybody, I never felt that way, ever. If other people did, that's the way they looked at it, but I never did.
+- All three teams will always be linked. If you think of the Dudleys, you think of Edge and Christian and The Hardy Boyz, and vice versa with all those other teams.
+- My favorite Wrestlemania moment is Wrestlemania 2000 in Anaheim. Edge and I won the tag titles for the first time, and back then, we didn't know if we'd ever get the chance to win them, and it was our first real high-stakes match.

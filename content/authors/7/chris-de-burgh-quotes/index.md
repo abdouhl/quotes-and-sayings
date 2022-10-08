@@ -1,0 +1,105 @@
++++
+author = "Chris De Burgh"
+title = "Chris De Burgh Quotes"
+quotes_len = "99"
+description = "the best 99 Chris De Burgh Quotes"
++++
+- You know you get a tube of toothpaste... such a bloody con. You squeeze and squeeze and nothing more comes out? Well, take a pair of scissors and cut it about an inch and a half from the bottom and it's absolutely packed with stuff! I do that, then cut off the top bit, so I can stick that back on and it doesn't dry out!
+- I've got a room full of gold and platinum records, a lot of them are Canadian, and I've got a very soft spot for that country.
+- After university, I set out to see if I could make a career in music. It was a tough journey at first, but by the time I was 23 I'd been signed by A&M Records.
+- I was born in Argentina, and have lived in England, Ireland, Africa and Malta.
+- I've been travelling all my life.
+- I can fix dishwashers. I was brought up in a castle with no money and lots of imagination. I learnt a lot about plumbing at an early age.
+- I will never forget seeing Alien when it came out in 1979. I'm not that big a fan of horror, but I remember the slow build, the claustrophobic feeling on the spacecraft, this tremendous sense of impending doom.
+- I met someone in the West Indies who was not able to walk. I put my hands on him and he was able to get up. I know the tabloids will get excited by this so I try to play it down.
+- Being hydrated is a key thing for a singer, especially if you're spending three hours on stage five nights a week, and wine dehydrates me faster than beer.
+- I went to Bethlehem in Christmas 2015 to do a television show for German TV and we filmed in the Church of the Nativity, literally above the place where Christ was born.
+- I would hate to go out as a legend on tour just playing all the back hits.
+- I am a humanist.
+- You see, when I go on stage I perform with just a guitar and you have to have very strong material to hold an audience from getting bored or restless. One strong way of doing that is the story because everybody will listen to a story.
+- I've been to Australia, Russia and many of places I wanted to see as a child. But I've never visited India. I've had many invitations to play there but it hasn't worked out. People say it's beautiful, but I think I'd react badly to the poverty.
+- I have found myself able to cure people with my hands.
+- The first confrontation I had with an Aussie wine was a well-known Cabernet/Shiraz and it reminded me of boiled sweets. I find a lot of Australian wines unsubtle.
+- Canada has a great tradition of supporting songwriters.
+- I'm not a big consumer at all. I'm very happy with enough.
+- I am much loved.
+- The role of Miss World is one that my daughter has fulfilled to the best of her abilities.
+- The relationship between parents and children who live together is a growing one, and it shifts every day, especially during the teenage years.
+- Philanthropy is never understood by those who don't have it in their own hearts.
+- It's every songwriter's dream to come up with a standard.
+- I love myself. I'm not saying this in a narcissistic way.
+- I remember talking to an architect and he said 'I am making so much money I don't know what to do' - I am in a business where you don't have an idea from one end of the year to the next how what you are going to earn and it is not like a salary that you can guarantee.
+- If you look at the big rock hits I've had - 'High on Emotion,' for example - the songs I write have to have a real meaning. There has to be depth.
+- Vanity is not high on my list of priorities.
+- My wife and I are rock solid together and, curiously enough, always have been.
+- A lot of people think they can become world stars overnight.
+- I am happy in my own skin.
+- In America, if you say 'Chris de Burgh,' they won't have a clue, but they all know 'Lady in Red.'
+- You know what happens if I walk out on the stage in Montreal? They stand up and they cheer for three or four minutes. It just brings tears to your eyes, because it's a love affair.
+- My father fought behind Japanese lines in the second world war and it traumatised him. Everybody who knew him from before said he was the life and soul of the party - fun to be with - but after the war he was different.
+- I've 300 other songs, but 'Lady In Red' is just one of them. Funnily enough, in America, it is massive, but most people wouldn't have a clue who Chris de Burgh was.
+- If you love yourself there's plenty left for everyone else. You just have to deflect natsy things.
+- My dad had a dream of living in an Irish castle, even when we were in Argentina, and in 1960 he found a place without any heat or running water. We had no money, so it was tough.
+- I'm not a great meat eater - I eat it twice a week. But I can't stand fish - my mother says it's because I got a fish bone stuck in my throat when I was little.
+- I know it sounds glamorous, but it was bloody cold growing up in a castle.
+- When I held my first album in my hands, I tell you, there were tears falling down my face. I thought 'This is it. I've arrived. I'm going to be an overnight world star.'
+- I think it's the Canadian spirit that encourages people to dream a little bit.
+- I generally write the songs accidentally. They generally come out of nowhere.
+- When I'm home I love to get the wellies on and take the dog for a walk.
+- I like to be subtle, without being too obvious.
+- I regularly visualise my body from head to toe, and wait for it to tell me if there's anything wrong.
+- I spent a lot of my childhood saying goodbye because I went to boarding school. I didn't resent my parents for sending me there so young as I understood the limitations of the education system in Africa, where we lived at the time.
+- I always bring divining rods when I'm on tour because you can change energy streams by moving furniture around your hotel room.
+- I come from the school of thought that if you want to succeed and stay successful, you've got to put in the hard work at the beginning.
+- In my 20s, I got into giving people massages and realised I was able to encourage their bodies to heal by passing my hands over them. I'd never describe myself as a faith healer - it's just that if someone believes in this type of healing, I can help release whatever blockage it is that's preventing them healing themselves.
+- I think that every songwriter would give their right arm to come up with a standard that is going to be played long after they're dead.
+- I'm far more interested in putting a little more meat into the lyrics than some people are.
+- I studied French and English literature because I liked it.
+- I have always had a long term view on records as I want them to be books and not magazines and newspapers that you discard very quickly.
+- There wasn't a lot of physical tenderness with my parents. There was plenty of love but we weren't into the hugging thing, which now I've totally reversed with my family to the point where it probably drives them crazy.
+- I'm a strong believer in the importance of energies - ley lines, energy streams, whatever you wish to call them - within a house. They can affect your health as well as your happiness.
+- Robert Browning - I like his dramatic revelations, his allegorical form.
+- I know what it's like to go to a concert, wait to hear your favourite song - and then they don't play it!
+- I'm emotionally untouchable.
+- Before I ever did a stage concert, I'd done hundreds of living-room concerts, which helped a lot.
+- I developed my armour at prep school. I was the smallest guy in the school. I got bullied a lot. So I developed broad shoulders.
+- When you're a solo artist and you're not doing well, it can be pretty tough. So when success does come, it feels like you've earned it.
+- In an outdoor environment, you need to be more energetic. The attention of the crowd begins to wander - not like an indoor concert where the audience attention is riveted on to the stage.
+- My mother was actually a breeder, believe it or not, and she used to name horses after some of my songs.
+- I thought I would be an overnight star when I had a hit record in Brazil with my first album - but things didn't work out quite like that.
+- We are not politically naive.
+- I read about wine every day.
+- People always try to pigeonhole you, especially the media, who are happy if they can label you as a particular kind of artist. But the spectrum of songs I write and record is vast.
+- It's tough going out as the opening act of a band especially when you're solo.
+- As a song-writer I have always written with one instrument - either guitar or piano - because I believe that if a song is strong enough to be performed completely stripped down then it is a good one to go on and record.
+- I know journalists like to think that they are read by people like me, but I don't read them.
+- I'm very good to my wife. I never go home.
+- I struggled for so many years.
+- Singing in a restaurant is very demeaning and humiliating but you learn from it, because people aren't there for a show, they're there to eat.
+- I find it amazing when I get letters from people in Israel and people in Lebanon and they both love the music, but in real life they hate each other.
+- I have never subscribed to public confessionals.
+- People just love stories.
+- I made loads of English and Irish friends at university and all they wanted to do was have a good time.
+- I don't spend much on myself. It's a bit of a joke within the family.
+- Music was my first love, and at Marlborough we put bands together and sang the pop songs of the day. Although I couldn't read or write music - I still can't - I taught myself to play the guitar and piano by listening to songs and working out the chords.
+- When you have children, you almost feel like you've made your contribution to the survival of the human species. It's your way of passing the baton.
+- You get pigeonholed. It's a kind of safety device for people who don't really want to look any further outside of the box, but I'm actually impregnable as far as what people say about me.
+- Quite simply, to win Miss World is not a ticket to millions and I've read that so many times.
+- My house is a very calm and beautiful place and is full of positive energy.
+- Love songs are the most complex to write because everyone knows about it.
+- I always have to have what I believe are the pillars of an album - songs which I can go back to and admire personally as a piece of writing.
+- You get tarred with the brush of 'Lady in Red.' I play Russia or China or places all over the world. They don't even speak English but they know the words. You get a big song like that, and people love it or hate it. And if they don't like it, they don't like anything at all by the artist.
+- Every generation has to have its heroes.
+- I know every side of the industry after all these years.
+- I can rock along with the best of them.
+- It's critically important to have family around me, and some of my happiest moments are when I'm just with my family.
+- When I left university, I didn't want to jump into anything right away. Music certainly wasn't a burning ambition.
+- Songs don't just suddenly arrive like a taxi you have to work on them and you have to put a lot of time and energy and self discipline into creating that kind of thing.
+- Canada was one of the first countries that took an interest in my career. Apart from a freak hit I had in South America, Canadians took my 'Spanish Train' album to heart and have stuck with me ever since. They've been very loyal, and it's been a long and rewarding affair.
+- Americans are much easier to please than Canadians. The American taste is less critical. Canadians are more cultured, they are more aware of the arts than Americans.
+- I'd been to South Africa during the Seventies, when it was definitely not kosher to go there. I felt that the best thing to do was to be a missionary and tell people what was going on in their own country because censorship was so dreadful.
+- My secondary schooling was at Marlborough College, Wiltshire, so I'm fond of that part of the world. It's quintessentially English, with village greens, pubs and cricket pitches, and resonates strongly with me.
+- I'm not a fool with my money. I've known what it's like to be poor and I don't splash it around stupidly.
+- Most years, I do 70 or 80 concerts.
+- I remember years ago hearing a top band talking about a song of theirs that was a monster hit and they were really dissing it, saying that they hoped they'd never have to play it again. I thought: 'That's not right. If people love a song, play it.'
+- I believe that music is an international language and deserves to be heard all over the world.

@@ -1,0 +1,29 @@
++++
+author = "Luka Sulic"
+title = "Luka Sulic Quotes"
+quotes_len = "23"
+description = "the best 23 Luka Sulic Quotes"
++++
+- Everything was so fresh and unique to us - it was a whole new world of music. Michael Jackson was so fresh, you know? We could approach it with such fresh ears, which wouldn't be possible if we had been listening to it when we were younger.
+- We tune differently, and we use some tricks. There's just the two of us for much of a concert, so we want a big sound. We do use some guitar effects, distortion and delay. Playing cello with distortion sounds so good.
+- We want to connect all these musical worlds together. We just improvise; we know straight away if its going to work or not. They're not covers - I hate the word cover. We do a transcription: mix it up, put our own spin on it. I think people will be surprised how powerful our show is.
+- Because in classical music cello is not regarded as a popular choice, it's always playing the long, boring notes.
+- For us, it is all about breaking the boundaries between different genres of music and combining different styles of music and performing what we are passionate about. We are so lucky that we can experience both worlds: the more intimate classical world and the wild and crazy world of rock n' roll.
+- We wanted to make a powerful cello sound in order to show to the world the possibilities of the cello and to use it in a different way than the classical way they are used to. We wanted to play something exciting, something crazy, something to draw younger generations to this great instrument.
+- When our video of 'Smooth Criminal' came out, suddenly we started getting all kinds of offers. We were getting calls from TV shows like 'Ellen DeGeneres' and from record labels.
+- Many classical musicians lack pulse and rhythmical strength and precision, so for us it was very important to acquire and learn those.
+- The cello is such a versatile instrument. It can rock like the hardest rock guitar, and it can sing like the human voice. We couldn't do what we do without the classical training. It's a hard instrument to play. There are no frets, and it takes finesse and technique to play.
+- It took us three months to finish the arrangement of 'Thunderstruck.'
+- Even in classical music, the cello doesn't get a lot of respect because the piano and the violin get it all.
+- Of course we had the best possible classical education, which gave us a very strong foundation and tradition. But we also learned a lot by collaborating with different pop/rock artists and especially by recording and working in the studio.
+- Of course, there will always be, you know, conservative classical people who will judge you, but you know, who cares about them?
+- Now, we are still learning how to approach girls, you know, learning what to say, etc., because the practice we've had was with our other girl, the cello. If you noticed, it has the shape of a female.
+- I started playing when I was 5. I'm from a family of musicians.
+- People don't think of cello as a rock instrument, really, and we want people to know all the possibilities that the cello can offer.
+- Don't wait for someone to call you up. You can do anything. You have all the possibilities in the world.
+- Everybody recommends New Zealand. I really want to learn this haka, the traditional dance - I love it; it's so cool.
+- We were never happy with the way cello was recorded, and we wanted to experiment in the studio to make the cello rock as much as possible. On the second album, we had great help from Bob Ezrin, who helped us develop our sound even more.
+- A cello can sound like so many instruments, but it's only one, you know, like a guitar; it has percussive qualities. It can sing like the violin, you know, like a voice.
+- It has endless possibilities, and but what we do with our arrangements, we move the borders of cello playing and discover new ways of new techniques of cello playing.
+- The range of the cello is so big, it can play as low as the double bass and as high as the violin. It has the perfect shape, and its sound is the closest to the human voice.
+- I like to swim a lot, while Stjepan likes to take long walks with girls. He's the very romantic type. Yes, musicians are romantic.

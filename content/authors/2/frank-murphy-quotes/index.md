@@ -1,0 +1,14 @@
++++
+author = "Frank Murphy"
+title = "Frank Murphy Quotes"
+quotes_len = "8"
+description = "the best 8 Frank Murphy Quotes"
++++
+- We would be false to our trust if we allowed the time it takes to give effect to constitutional rights to be used as the very reason for taking away those rights.
+- It can feel like an invasion of privacy, involving an employer in a personal matter.
+- Religious freedom is too sacred a right to be restricted or prohibited in any degree without convincing proof that a legitimate interest of the state is in grave danger.
+- The economy in the Valley will need to grow if students want to come back and work with their specialized degrees. We need to develop more to create more opportunities.
+- I believe that nothing enjoys a higher estate in our society than the right given by the First and Fourteenth Amendments freely to practice and proclaim one's religious convictions.
+- There was a time when the contractual relationship between the employer and the employee was supposed to be none of the public's business. That time has passed.
+- The number one reason I write is to come to schools and see my readers. I would do it for free.
+- Freedom of speech, freedom of the press, and freedom of religion all have a double aspect - freedom of thought and freedom of action.

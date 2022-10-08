@@ -1,0 +1,16 @@
++++
+author = "Frances Conroy"
+title = "Frances Conroy Quotes"
+quotes_len = "10"
+description = "the best 10 Frances Conroy Quotes"
++++
+- As you age naturally, your family shows more and more on your face. If you deny that, you deny your heritage.
+- Marriage is an exercise in torture.
+- It's like real life: We don't get a preview of what's coming up, thank God, and we don't build our own character from what we're going to be informed with in the future.
+- It's actually meditative to sit in a character for an extended period of time, realizing what your relationship is to who you're playing and then letting go, just being there.
+- If you choose to be Frankenstein with Botox and plastic surgery, you've bought your own private mask.
+- Some people ask me, Do they put aging makeup on you? It's just this very nice street makeup.
+- I guess you're happy if you have some kind of balance in you. I'm a human being. I have days when I feel paralyzed, days when I feel like a slug. Then I have days when I have good energy, I've read the newspaper and I've done different things.
+- 'Six Feet Under' was so much about life. Sure, it had a lot to do with death, but that's the fun - that now I became a dead person.
+- I can't form a total picture of things. Because I'm not her.
+- I think the rigors of a TV schedule are brutal and 'Six Feet Under' wasn't a network schedule. We did 13 shows, we didn't do 22. I don't know how people do that. I really don't. I mean the shows are shorter, but wow, it's quite a discipline.

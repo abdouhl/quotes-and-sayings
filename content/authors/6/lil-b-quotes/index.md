@@ -1,0 +1,80 @@
++++
+author = "Lil B"
+title = "Lil B Quotes"
+quotes_len = "74"
+description = "the best 74 Lil B Quotes"
++++
+- I want people to smile when they hear my name.
+- Clams's music to me is where there's no boundaries. It was just exciting for my mind to be as free as Clams's music is.
+- Before Lil B, hip-hop and music in general was in a different space. Lil B really just pushed this independence.
+- My perspective of capitalism growing up in Berkeley, Calif. in a low-income project, growing up poor, is that capitalism wanted to destroy me, they wanted me to become a worker.
+- I don't support violence and I don't support negative energy. I don't support people putting other people down.
+- I don't really do anything unless it's from the heart - I don't like to joke on people, or distract them from something they love.
+- In order to get new things to rap about, you've gotta live.
+- Men lie, women lie, numbers don't.
+- I give it to The Based God who really informs me and gives me that gut instinct and the power to say who's cursed or not. It just comes from a pure place, just trying to bring peace and positivity and love and also awareness.
+- I'm a real guy. I'm not money-laundering. I make money off music, and music is my source of income. It feels good. I'm not selling T-shirts, I'm not doing none of that other crap. Straight music.
+- When I was growing up, man, I didn't know myself. I was striving for respect. Trying to be cool for the girls. I wasn't the biggest dude and I'm a nice guy.
+- I'm actually going to self-produce my next tape that I'm working on, 'Platinum Frame'. This going to be my second official mixtape.
+- I've seen a lot of people stealing from what I do. Some people show love and say thank you and tell me how I was an inspired for them.
+- It's all run by one person, but, real talk, Brandon McCartney is a book author, the Based God is perfect and Lil B is the trendsetter, the person that everyone follows and pays attention to.
+- Sometimes, I know it's not me that makes this music. Like, when the Based God comes, he speaks to me. It's not me, even though I'm there playing the music live, myself.
+- If one person reaches out to me, who am I not to reach back? Even if it takes me a year to reply, they do get that message and they feel it.
+- Growing up low income and poor, I didn't have the best relationship with money.
+- If the white folks feel America is great for everybody, I don't want to change what they love. All I want is to bring my love and respect in the areas of law, policy, business, and banking. That's what I do when I do my extremely rare lectures at universities.
+- You know I think with Black Lives Matter, it is extremely special and important. I definitely feel that.
+- When you're not hearing my voice, I'm working on art. So if you're not hearing me, I'm working for the people and getting inspired.
+- I can joke around and do what I want and be great in my area and play around and be the best, but when I'm with Clams, he's the greatest and amazing, so I'm going to make sure I do what I've got to do.
+- I'm a fan of hip-hop as a whole, period. I love hip-hop. I look at it as a study and I love it.
+- When I was younger, I was thinking of ways I could get respect so people wouldn't bother me. I was down for whatever. I ended up going to juvenile hall, facing a good amount of time for a first-time offense.
+- I'm a funny guy. I want people to laugh. I laugh at myself, I make fun of myself. But at the end of the day everything that I say has a message in it.
+- I came in the gate as an African-American poor kid wanting to be a neurosurgeon but - with American life and the places I was put due to American history and laws and the oppression of black people - I had to make it work in other ways.
+- Me and Clams have always kept it organic with the way we work. It's just always the right time. It's never no pressure. He always comes through if I need him. I always come through if he needs me, and we always meet at that right time.
+- So I got a lot of music because it's all different. I'm not just one side. I wanna show you the good, the bad, and the ugly. I wanna be as truthful as I can because I love music.
+- I think for me, I get so much love that it balances or overpowers the hate. When I started making music, it was kind of flawless for me. I didn't get any hate early in my hip-hop career.
+- I followed the 1.2 million people with my hand. Never faked anything. Never bought any followers or anything like that. So anything on my social media is a hundred percent real.
+- Sometimes you don't go straight from high school or college and get to the NBA from there. Sometimes you have to go when you're a little bit older and try that other route like Jeremy Lin. And he made it.
+- It doesn't matter where you're from. You can be from the hood or the suburbs. You can be poor with no education or a college graduate. No matter your background, you can win.
+- I got started when I was about 15, or 16. My first break through was the Vans song with my group The Pack. That became a worldwide thing.
+- For me, there are a lot of people that want to hear what I have to say. There are a lot of people who want to talk to Lil B, and they care about Lil B. Without the people I wouldn't be able to reach that magnitude of engagement.
+- I feel like my place is to connect hip-hop... with the youth, the older, the middle. Just everybody that's listening to me. My place in hip-hop is really to just connect and show positivity. Put my vibe out there.
+- I feel everything. I feel everything, so when you feel, you know you have emotions and everything. Music is a feeling. Music is energy, vibrations and sounds.
+- I just want all people to be treated equally, all creeds. It would just make everybody's time on earth easier.
+- Sometimes I'm dealing with so much business, and my mind will be so stressed, that I'll go a week without writing... But the benefit of doing everything yourself is that you get a major payoff.
+- I'm not paying attention to Kevin Durant. I don't have any recollection of watching him play. I can't remember how he shoots free throws.
+- Anybody that wants to take a picture with me I'm more than happy - I'm excited about it. I'm building that personal connection with the fans and keeping it.
+- When people are hitting you off Twitter, a lot of times they don't know who you are. They're just hopping on your character and they gon' be hopping on another rapper next. You gotta weed out the real and the fake.
+- I actually got an invite from the 87ers, the D-League affiliate for the 76ers.
+- I'll stand for the anthem, I don't have a problem standing for it.
+- What I mean by being real is just when you are doing dance celebrations, sports celebrations, like the cooking dance or anything like that. When you're an artist, you want to always try your best to do the homework and see where it originated from.
+- I mean, everything that is upon this earth, even from a worm or a caterpillar that blossoms into a butterfly, you know, these things are just amazing.
+- I don't have any contracts, so I don't have to split any money up. That was my main thing - just making sure I'm taking care of myself and taking care of Lil B. Just learning to survive, for myself and as a human in America.
+- Well, Tony Yayo is my dude. Tony Yayo is a big supporter of my music.
+- The Warriors are a lifestyle. I love every Warrior that stayed. They represented Oakland with pride. I love the Warriors. I love Oakland. I love the people.
+- Rappers are definitely role models and definitely should get involved. They're involved in politics whether they like it or not.
+- I was always a good athlete. I just gave up on football.
+- I want people to continue to be creative and to value creativity.
+- If I can really sustain myself and become a powerful entity on the internet, it'll transfer into real life. So right now I'm putting everything into the net.
+- I just like to see and put out what I think is beautiful. And put my swag on it, and my style, and how I feel.
+- I like the Bay Area because it's very diverse, and I'm in touch with the people.
+- I'm a product of the different - whether it be institutional racialism, whether it might be growing up in a low-income area, whether it might be, you know, coming from my mother, my father. I'm a totally different person from my mother and father, but once again I'm from them. We all have our different souls, but I'm from them.
+- I can't make Based God music all the time. The Based God is something that is better than Lil B and better than Brandon McCartney; he's something that I aspire to be.
+- My favorite player in the league is Klay Thompson.
+- Based means being yourself. Not being scared of what people think about you. Not being afraid to do what you wanna do. Being positive.
+- Everything, for me, is fueled off telling my story through music, because I have a lot to say, and it's some urgent things that I have to tell to the world, and help and heal. I know my part that I have to do through music.
+- I've been teaching myself the fundamentals and being around some good players, but also been learning to play team games, playing 3-on-3s, playing 1-on-1s, playing 5-on-5s, playing 21. There are guys bigger than me on the court, but I've had numerous comparisons to Ty Lawson.
+- I'm a human sacrifice. I put myself out there for the people, and hopefully they take the good and the positivity from that.
+- I listen to music all the time. I need music and I love music and I appreciate it. It inspires me.
+- On 'Platinum Flame,' I engineered the beats myself, so I produced and engineered them. So this is getting even truer to myself, how I truly feel.
+- I definitely see myself as as much a feminist as I can try to be. I know I'm not perfect, but I definitely feel the connection with women. I feel them.
+- I decided to make one of the most controversial songs that I could. I want to get under people's skin.
+- After I started based freestyling. Just spending a lot of time learning about myself and entering a higher level within my mind. I was exploring my mind, and I ended up finding the Based God.
+- Before the money or anything, number one, it was just to put out real music, real stuff with a passion, real art.
+- I appreciate women so much. I think the part that they play is that I just admire women. I love every part of the woman. I think the woman is what is amazing.
+- Now, is Lil B jealous of Kevin Durant on the basketball court? Hmm. Maybe. Maybe not. I love basketball. Do I wish I could play in front of all those people everyday, all day? Of course. I love basketball.
+- I just gotta keep doing what I'm doing, and just continuing to grow and progress as an artist. People who are saying that about Lil B need to be innovative and not be tools.
+- I have a song that's called 'Rap Dreams, Hoop Dreams'. Besides education, everybody's got hoop dreams from day one in rap. Rap, sports, music have so much of an impact on the world.
+- I give it all to Based God, I'm just putting stuff together that the Based God gives me.
+- Black Ken' debuted number one on iTunes in hip-hop, and top five or ten top, top five on the whole iTunes, on all genres. It was really cool to be able to self-produce.
+- An artist should appreciate anybody that appreciates their art because really bro, without people I can't do anything.
+- I really like Damian Lillard, I like Iman Shumpert's raps, Stephen Jackson, Allen Iverson and Kobe Bryant. Those are my favorite ones. I like Lonzo Ball, don't know about him as a rapper yet, but I know he's cool.

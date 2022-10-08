@@ -1,0 +1,53 @@
++++
+author = "Caitriona Balfe"
+title = "Caitriona Balfe Quotes"
+quotes_len = "47"
+description = "the best 47 Caitriona Balfe Quotes"
++++
+- I would've been a really big silent movie star.
+- It's true, you never forget your first love, and, for me, that will always be Paris.
+- I never thought of myself doing period. When you're in your acting classes, and you think about the kind of roles you want to play, it's always 'modern relationship drama'-type things.
+- Every so often, we - women in film and TV - get annoyed and frustrated. We kick up a fuss and make some gains. But then we become complacent, and things slide backwards again until the next generation comes up and gets frustrated again.
+- Modelling wasn't a passion of mine, so that made it get old kind of quickly. I was getting very frustrated.
+- When I was 18, I left Dublin and moved to Paris. I didn't speak French. I didn't know anyone. I felt like a fish out of water.
+- When we think about the past, we think, 'It must have been so boring.' It's actually not.
+- The 'Outlander' fans are super-passionate.
+- There's definitely stories I would like to tell; I'd like to see more films focusing on women's lives.
+- Many children with cancer in the developing world can be cured. But without appropriate treatment, few survive.
+- For me, if I have the choice between an extra 45 minutes in bed or getting up at 4:30 A.M. to go to the gym, I will always choose bed.
+- I moved to Paris for two years, then to London, then New York in 2002. In that time, I also lived in Japan, Italy, Germany - I've been a bit of a gypsy.
+- While 'Outlander' is a brilliant period show, Claire represents so many qualities of a 10th century modern-day woman: someone who is forging her own path, fighting for what she believes, and doing so with integrity.
+- 'Game of Thrones' has multiple story lines, multiple countries, and it's complete fantasy.
+- I have two incredible sisters who have very high-powered jobs and kids and, you know, both have their master's; one runs triathlons all the time.
+- Doesn't everyone hate Kristen Stewart?
+- You'll probably find most models are incredibly insecure about their bodies.
+- The herbalist I met a few times - it was great - she gave me literature about the different processes that an herbalist would do to make medicines from certain herbs and things.
+- The idea was always to be an actor.
+- With a male-centric show, the women are usually very two-dimensional.
+- The Scottish Highlands are incredible. There seems to be magic and poetry everywhere.
+- It's great to play someone who's so unafraid of being who she is.
+- New York's definitely got my heart.
+- I enjoyed L.A. because it was nice to be in the sunshine and live in a house with proper wardrobes. I loved the space.
+- I think the first role I ever played was Mr. Bumble in a production of 'Oliver.'
+- The hardest part when I decided to move into acting was trusting I'd made the right decision.
+- How do people move on after they've lost the love of their life? It's a really interesting thing to look at. It happens to people every day: you see people... even in the worst, most war-torn places, people get up and continue with their lives. And it's a fascinating thing about human nature. That ability to just continue on.
+- I saw a documentary on the Naadam festival that happens in Mongolia during the summer. One of the features of it is a horse race across the plains that all the young men enter - some as young as 12 years old. It's such a spectacular sight. It's incredible to think that this is a tradition that has been going on for centuries.
+- I'm kind of a private person.
+- I didn't start traveling abroad until I was 17, but I spent many summers on the beaches of Donegal in Ireland.
+- I would love to direct - or try my hand at it, anyway.
+- I think women today are really struggling with these dual roles: How do you have a full-time career and be ambitious and still take care of your family?
+- When I was a kid, I loved 'Little Women.'
+- It's a hard thing to imagine how somebody copes with grief and at the same time has to build a new life.
+- I grew up in Ireland, and there were so many things we believed in.
+- So often, women are there just to be looked at and be objectified for the titillation of the male audience.
+- The people who used to hold the purse strings were a select group of white, middle-aged men, but that's changing, and the more it continues to change, the more we'll see inclusive stories get told.
+- I was at a restaurant in Glasgow, and I was walking down the stairs. A woman passed me and said, 'Oh my God, what are you doing here?' I didn't know who she was, and I was like, 'Sorry?' She goes, 'Oh no, sorry, I follow you on Twitter. I just didn't expect to see you here.'
+- I guess I always leaned to the theatrical.
+- There is a moment in your story when you can pinpoint the exact time you fell in love, be it with a place or a person. I can remember both like it was yesterday.
+- Glasgow has truly become my home away from home.
+- When I'm not on a crazy schedule, I'll try to do yoga or the gym once or twice a week.
+- I would love to do some theater.
+- Fandom is amazing.
+- Kenzo were celebrating their 30th anniversary, and they did this big, huge show in Paris and invited back all the models who'd walked for them in the 30-year era. How I found myself in the mix, I'll never know.
+- I'm just so glad that I started acting when I did because I had this wealth of life experience. I don't know if I'd have been able to handle it had I gone out to L.A. at 22.
+- I think every credit you get and every film you have your name attached to makes things a little bit easier. It definitely opens doors up, but it's still a grind.

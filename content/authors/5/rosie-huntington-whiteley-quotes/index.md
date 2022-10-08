@@ -1,0 +1,18 @@
++++
+author = "Rosie Huntington-Whiteley"
+title = "Rosie Huntington-Whiteley Quotes"
+quotes_len = "12"
+description = "the best 12 Rosie Huntington-Whiteley Quotes"
++++
+- When I fell into modeling, because I wanted to work in fashion. I wanted to do styling or make-up. I ended getting picked up to be a model instead during my work experience.
+- I'd like to think that I'm brave. That's a really wonderful personality trait to have. I would love to think I'm the type of person to go rescue someone.
+- I can't remember a time where I really battled with my body, but I can remember being asked to lose weight and battling with the advice. It hurt me. Especially as my baby fat naturally melted away as I got older.
+- Well, it's a day-to-day thing. I don't feel comfortable in my body today at all. Any woman will tell you she has her good and bad days and today I did not feel like I looked my best or felt radiant inside or outside.
+- I went along to the audition and I had one page of lines, and I didn't think it went particularly well.
+- Hopefully I'll get to make another movie, so we'll see. But modeling - all the actresses are taking everything over now, with all the modeling endorsements and magazine covers.
+- I'm not going to change my teeth or get a nose job. That manufactured perfection does nothing for me.
+- You can bullied as a young model, but there was a point where I found my voice, effectively.
+- I don't even think when I'm walking down the runway. I don't really breathe either.
+- Being on a Michael Bay set is... well, it's the only set I've ever been on. But I would imagine there's no set that's run quite like it. It's big, it's loud, it's powerful, it's intense, it's dirty, it's hot, it's sweaty - and it's really exciting. There's never a dull moment; there's never a quiet moment.
+- I have the same attitude with work - I like to go to work, I like to work really hard I, like to give everything my all, I like to try things that are new, you know.
+- When I started modeling, I was definitely heavier. I was quite voluptuous in fact. I had a real baby face and baby fat. But I was a baby! I was told I had to get into better shape, but I'm quite stubborn so I didn't.

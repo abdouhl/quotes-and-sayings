@@ -1,0 +1,22 @@
++++
+author = "Bill Scott"
+title = "Bill Scott Quotes"
+quotes_len = "16"
+description = "the best 16 Bill Scott Quotes"
++++
+- No, I was pleased that it is possible for somebody who makes full disclosure as I've done, not only of the contributors, but also how the money is spent.
+- We aren't going to agree on everything and there will be other areas where we will be working together.
+- He seems to want confrontation not only with the legislature and with the other elected officials, but he wants constant confrontation in order to be center stage on the television screen.
+- Literally every department of state government has gone through, or is in a period of, chaos. Not just fiscal chaos, but certainly as we saw in the Department of Children and Family Services and State Fair Agency and many of Walker's departments, there is absolute chaos.
+- It is essential that there should not only be a limit on campaign spending but it should be required to say where that money is spent and how it is spent. I think there has been more abuse in campaign spending, actually, than in campaign contributors.
+- It's kind of hard to spend long hours trying to help people and then find out that the favorite game of the columnist is to sit back and second guess you and try to find something that you did wrong.
+- I think we're probably more unified than ever before because we're in a battle for survival. Not only for survival as the Republican Party, but survival of the check and balance system in our government.
+- He convinced me that if we're going to have honest government that you can't leave it up to the crooks and that honest people have to get involved in government. So I did. I got involved as a criminal prosecutor with the U. S. Justice Department.
+- My job is to interpret the law based on how the legislature and the court has done it and then, of course, to use our system of justice to develop some new legal tools and new concepts.
+- Whether or not we can save Lake Michigan, whether or not we can avoid a breakdown in our criminal justice system are more important than whether or not I'm going to be governor.
+- I was concerned about the link between crime and politics, and I figured out the only way I could do something about it was to get into politics.
+- He has a very extensive public relations apparatus that is paid for by the taxpayers of this state. They are some of the best in the business. and he is a master at getting not only television but other media exposure on the basis of confrontation and chaos.
+- There's no question that any of us who are doing an honest job in government could do a lot better in private industry. During the years I was practicing law as an individual, my salary was a great deal more than it is now.
+- We're involved right now in some very significant legal battles and it would be the wrong thing for me to do to step out in the middle of those battles.
+- I think it is wrong to spend $4 or $5 million in a campaign.
+- Well, I think that those of us in public life that are trying to do a good job, and that are faced with this popular new game that the media has of being critical of everything that anybody in public office does probably are thin-skinned.

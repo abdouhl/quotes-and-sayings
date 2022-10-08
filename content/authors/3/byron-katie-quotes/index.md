@@ -1,0 +1,12 @@
++++
+author = "Byron Katie"
+title = "Byron Katie Quotes"
+quotes_len = "6"
+description = "the best 6 Byron Katie Quotes"
++++
+- I suffered from severe depression for over a decade. My condition deteriorated steadily. I was suicidal.
+- When I was in my early forties, I slept with a loaded gun under my bed. I'd become severely depressed in my thirties, and for almost a decade I spiraled down into paranoia, rage, self-loathing, and thoughts of suicide.
+- One morning, in February 1986, out of nowhere, I experienced a realization. In an instant, I discovered that when I believed my stressful thoughts, I suffered, but when I questioned them, I didn't suffer.
+- I haven't had a single thought for 26 years. I have only understanding. It's somewhat complicated to understand that. I've hardly ever spoken about it. You're in a state of total peace of mind. A kind of nirvana.
+- When we believe in our thoughts, when we tell ourselves a story, we suffer. 'My husband doesn't respect me.' 'I should be thinner.' Those are stories. When there's no story, there's no suffering.
+- I used to sleep on the floor next to the bed, because I believed that I didn't even deserve a bed to sleep in. And then, one morning, a cockroach crawled onto my leg. I looked at it, and suddenly I awoke from a kind of hypnotic trance in which I had been all my life.

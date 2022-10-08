@@ -1,0 +1,106 @@
++++
+author = "Booker T"
+title = "Booker T Quotes"
+quotes_len = "100"
+description = "the best 100 Booker T Quotes"
++++
+- That's something I always say is good to do in life, is to leave our mark in this lifetime.
+- Oh, man, first part of my career was awesome: having my big brother Steve Ray - he's my blood brother, my real brother - having him watch my back for nearly 10 years in WCW.
+- A lot of those young folks look up to me in the city of Houston. I give hope and inspiration and try to change people's lives for the better in the city of Houston.
+- Me personally, I know I've made mistakes.
+- A guy who I always said was my favorite wrestler is Rey Mysterio.
+- I really do like seeing Bobby Lashley get the torch and exactly seeing what he can do with it.
+- There are no barriers, and there is no glass ceiling when you put in the work.
+- I love MMA. I love the sport of it.
+- Racism is something that is taught. We, as a people, need to work to get past that.
+- Aw, man, it's huge to actually have a platform and let the world see Reality of Wrestling as well as to be able to compete with all the other independent companies around the world.
+- Sometimes, watching someone and... Like, for myself, I got a chance to meet Muhammad Ali. He invited me to his hotel, and I got a chance to take photos with him. It was the most awesome moment of my life.
+- Tell your kids you love them as much as you possibly can, because you're not promised one second to the next.
+- I never said that I was retired. I never said that I was never gonna put the boots on ever again.
+- From the beginning of my career, when I first started on the independent circuit, when I went to Global Wrestling Federation in Dallas and then to WCW, all the way through it seems like titles have been around my waist for some reason, and I always give credit to the fans.
+- You've got to be able to think on your own; you've got to be creative. You can't be willing to take a backseat.
+- I'm a nice guy - until you get on my bad side.
+- If we truly want to make America great, we need to fix this racial inequality.
+- I do not see Dean Ambrose leaving WWE to go somewhere else.
+- People really don't understand how hard it is and what it takes to be a WWE Superstar.
+- Just being a commentator is not as easy as people think with going out there and talking for three hours. So, I don't call myself a commentator: I call myself an analyst.
+- That's what my specialty's always been in the wrestling business - going out there and making my opponent look better than he can make himself look.
+- I've got twin babies - a boy and a girl - and it's great.
+- That's what cool about me being here and still being in the wrestling business. I can still give back, even being in the announcer's booth. I still feel like I'm a role model and I have a job to do.
+- Anything worth having is worth working really, really hard for.
+- Actually, a person asked me if I was ever going to come back to WWE. I told them that if I came back, it probably wouldn't be as WWE Superstar, because the young guys are really what it's all about. Bringing me back as an announcer is a great position for me to actually go out and make the young guys bigger stars.
+- If you're not prepared to go out and steal the show every night, your job is going to be much more on the line on a regular basis. If you can master that, that's something that you never really have to worry about.
+- There was a question in my mind, because I am black, if the fans would accept a black world champion. 'Bash at the Bash' was a topsy-turvy night. Finally, when the 1-2-3 came, the fans erupted. All my questions were answered; they really did want to see me win.
+- Sharmell was the first woman that I thought about talking to, and if you listen to Sharmell, she thought I hated her the first time we met because I was always all business.
+- People ask me, 'Man, are we gonna see one more match?' And I've always said, 'Hey, never say never, because you never know what you're gonna do.'
+- People say, 'Respect your elders,' but I always go, 'Respect your young people because they are our future.'
+- Success starts in the household and with education.
+- I know I'm not going to be working with the WWE forever. That's why I'm going to be the Mayor of the city of Houston, so I can move on to the next stage of my life.
+- I always wanted to be mentioned in the same breath as all of the great wrestlers.
+- People don't want to see Hulk Hogan as the bad guy. Hulk Hogan is the ultimate good guy.
+- Pro wrestling is a different animal than pro football and pro soccer. There is going to be a lot of money going out before the bulk of the money can come back in.
+- At the end of the day, it is about taking care of your family. Going out and doing the job like Stevie Ray would say, to the best of your ability until something better comes along. I say that because it's very simple; we are all in the entertainment business.
+- I consider myself an official scout for not just WWE, but the Reality of Wrestling.
+- When you start thinking it is a party instead of putting your suit and tie on and getting your job done and handling your business, you are thinking about the wrong thing.
+- Unions are something wrestlers have been talking about for many years. We would probably wish there was a union, but you have to understand wrestling is not a regulated sport.
+- I trained with a guy by the name of Scott Casey. He actually worked with WWE back in the day, but he didn't become a big star. What I want to teach is what he taught me: that the smallest things are what people are really looking for.
+- I don't think it's up to you to say you belong in The Hall of Fame. That's up to someone else.
+- It's almost like the Monday Night Wars for me all over again. That's the kind of feeling I get with Reality of Wrestling.
+- I've never really considered myself a wrestler. I always considered myself an entertainer, but I always wanted to be better than the guy next to me.
+- I'm not homophobic or anything like that, but when gay people come out, it's like, 'You didn't have to tell me that, because I'm still going to still give you a hug.'
+- Muhammad Ali was my idol, and I always say, if Muhammad Ali had told me the exact same thing my mother, the principal, the security guard, my brothers... you know, the same thing they were telling me that I didn't listen to, I would have listened, just because it came from Muhammad Ali.
+- The thing is you never know what you can do until you try it. Even if you try, you still may fail, but that's when you have to go and prepare because if you're not prepared, you're preparing to fail.
+- I got my name in the hat for 2019 Mayor of Houston, Texas.
+- Kevin Nash came to me; he goes, 'Book, hey, Book, man, you know, this nWo thing is getting real hot, bro. And, man, we need some color, man.' I swear to God, that's how he said it! 'We need some color, bro.' He goes, 'We want to bring you in.' I go, 'Man, thanks, but no thanks. No way.' I said, 'I'm a solo act, man.'
+- Pro wrestling is entertainment, but people get hurt all of the time.
+- It was a great ride, 10-time world tag team champion with my brother and then to work with Sheri Martell back in the days, you know, a dream come true.
+- I never had to deal with racism as a kid, by the grace of God somehow.
+- We listened to Donald Trump speak at the debate about 'Stop and Frisk.' I don't think it's a good way to go through life. I don't think that's going to solve any of our problems. It's actually going to make racial tension a whole lot worse, and it's going to make us feel like we're singled out.
+- Of course I've always wanted to make a decent pay like everybody else.
+- To be able to make a difference in one life is really what I'm all about. To make a change.
+- Just because I wasn't with my brother in the WWE, that doesn't mean I wasn't in the business.
+- My first contract with WCW was, like, $70,000 a year. I didn't know you could make that kind of money doing this. I was like, 'Wow. I think I'm going to stick around for a long time.'
+- For me, fighting is in the blood, and it's something I grew up doing.
+- When I left WWE, TNA offered me a deal. It was a sweet deal: ya sit at home the majority of the year. Just show up every now and then and make some money. That was a sweet deal for me; that was like a vacation.
+- WCW and WWE were two totally different environments. A lot of guys in WCW were making a lot of money, and the work schedule wasn't that hard. You had to earn it in WWE.
+- I really think, Charlotte Flair, come on, her legacy is going to be cemented throughout the years. That's just a given!
+- Personally, I'm not a Republican, and I'm not a Democrat. People need to stop focusing on becoming part of a party and instead voting with their mind and their heart.
+- My dream was to make it in life. I didn't know how it was going to be. My brother guided me toward a wrestling ring, and I gravitated to it very quickly. It seemed like deja vu for me, and I said, 'Wow, I think this might be it.'
+- I always say that Sheri Martell was that one thing that put Harlem Heat on the map, made us a legitimate tag team.
+- I talk about Hulk Hogan being in my corner back in the day... Back in the day, if it wasn't for Hulk Hogan, I don't know if Booker T and Stevie Ray would've gotten the push that we got.
+- You don't just call a person out to a fight if you don't know their background, what they've been through, and how to test them.
+- I went to WWE to prove something. I had to go through Steve Austin, the Undertaker, Edge; I had to go through all of those guys to prove myself.
+- This can be the best job in the world, being a WWE superstar, but it can be the hardest job in the world at the same time.
+- I never had any major surgeries or anything like that. I've had a few career-threatening injuries, but I bounced back from them.
+- The NWO was one of a kind. It was led by three mega-superstars. They knew how to work the business, especially Kevin Nash. He was literally the brains behind that machine.
+- Most people who are not of color, their parents didn't need to tell them how to act around police or what to do if they ever got pulled over. Never, not once. We are taught that in the black neighborhoods. I've been profiled and pulled over, so it's not like I don't know.
+- Baltimore is a great wrestling town.
+- In professional wrestling, I'm sure in combat sports, there's always gonna be testosterone.
+- It was a hell of a ride in WCW. Still, to this day, I will be WCW until the day I die.
+- People see me smiling all the time... they see me pretty much happy all the time. I never carry a frown around.
+- I'll tell you right now, man, if WWE was to call me and say, 'Hey, Book, we want you to do a match with 'Stone Cold' Steve Austin,' I'd do it!
+- Vince Russo stuck up for me in WCW when it came down to who should be world champ. From what I've heard, there was a meeting, and Russo stood up for me. I would not be six-time world champion if it were not for Vince Russo. I would not even be one-time world champion if it weren't for Vince Russo.
+- The nWo almost singlehandedly ruined the business as far as good guys, bad guys, cowboys, and Indians.
+- I actually met Donald Trump and shook his hand and looked him in the eye, and it tells me a lot when you look a person in the eye. He's a man's man first and foremost; you know, you can't pretty much, you know, put him to the side and expect anything less than a good fight.
+- I didn't run into racism until I got into the wrestling business.
+- Everybody is not born with a silver spoon in their mouth. There are only a very small percentage of those types of people, you know what I mean?
+- I look at a guy like Chris Jericho. This guy, man, he's one of the hardest workers.
+- When fathers are actually in the household and more families are educating their children, then our society will be a whole lot better.
+- I love what I'm seeing out there with Pro Wrestling Syndicate, Northeast Wrestling, Big Time Wrestling, and WildKat in New Orleans. There is a lot of good stuff out there.
+- That's been the story of my life - obstacles: trying to figure a way over them, around them, under them; sometimes you have to go straight through them.
+- I make sure I'm smiling every day, I'm laughing every day, no matter how sore or achy I am or whatever.
+- We, as a people, we gotta know when it's time to speak up and when it's time to shut up.
+- The parts of life that drive me are getting that homeless person off the street and helping people receive the education they deserve. I want to be able to help the ones that want the help, but also guide the ones who don't so they are also in a better position.
+- I've always wanted my fans to love me for coming out and performing.
+- Throughout my whole time in wrestling on the road, going out and being around some of the whitest people in the world, I've never had any problems with anybody. It was never black or white. Booker T was just a wrestler. I did that by design.
+- If I catch Corey Graves on the street, I'm gonna do something to him. I ain't gonna do it at the office or the airport, but if I catch Corey Graves on the street, you see that little bouffant hairdo he got? I'm gonna rearrange it for him.
+- After I've sat back and looked at my body of work, thought about it, I go, 'Wow, I guess I am a Hall of Famer.'
+- There's been so many rivals, most of them Canadian guys like Rick Martel, Christian and Chris Benoit. Those guys were all ultimate professionals, every one of them.
+- Corey Graves - he's thrown jabs at me; I've thrown jabs back, you know? And you know, the thing is, Corey Graves, of course, yeah, he's a college educated young man. His vernacular is a little different than mine.
+- Boston is awesome, man. It's a rush to go out there and perform.
+- Everyone deserves a second chance. That's just the way I am.
+- It was something I was dreaming about, to be in WCW or WWE. At that time, it was an escape for me, out of the norm from being a neighborhood kid.
+- You cannot mention Harlem Heat without mentioning Sherri Martel at the same time.
+- My thing has always been preparation. When I was a performer on the roster as one of the guys on a weekly, full-time schedule, I was always prepared.
+- If I got Corey Graves into a fisticuffs, I would beat him down like he stole something.
+- You can become a star overnight, guys. You can be on the street walking one day, and you're on your way to the corner diner, and you had to hitch a ride to get there. And the next day, you can be a huge star, money coming at you from right and left. And you've got to know how to handle that situation.

@@ -1,0 +1,19 @@
++++
+author = "Colin Wilson"
+title = "Colin Wilson Quotes"
+quotes_len = "13"
+description = "the best 13 Colin Wilson Quotes"
++++
+- What I wanted to do was to try to create a philosophy upon a completely new foundation.
+- Whereas in the past optimism had been regarded as rather shallow - because 'oh well, it's just your temperament, you happen to be just a cheerful sort of person' - what I wanted to do was to establish that in fact it is the pessimists who are allowing all kinds of errors to creep into their work.
+- The average man is a conformist, accepting miseries and disasters with the stoicism of a cow standing in the rain.
+- I've always been a pretty hard worker. That's how I've written over a hundred books.
+- Criminals interest me, because they're driven by the same desires as we are, but they take these disastrous shortcuts and end up in a real mess.
+- If you asked me what is the basis of all my work, it's the feeling there's something basically wrong with human beings.
+- If I'd stayed on in London and carried on going to literary parties, it would have wrecked me as a writer.
+- The complex develops out of the simple.
+- A symphony is a stage play with the parts written for instruments instead of for actors.
+- Being very famous is not the fun it sounds. It merely means you're being chased by a lot of people and you lose your privacy.
+- The mind has exactly the same power as the hands; not merely to grasp the world, but to change it.
+- I'm basically a writer of ideas, and the English aren't interested in ideas. The English, I'm afraid, are totally brainless.
+- When I was a teenager I was a total romantic escapist. My world was books.

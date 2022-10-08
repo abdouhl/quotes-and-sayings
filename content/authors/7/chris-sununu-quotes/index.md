@@ -1,0 +1,105 @@
++++
+author = "Chris Sununu"
+title = "Chris Sununu Quotes"
+quotes_len = "99"
+description = "the best 99 Chris Sununu Quotes"
++++
+- There is no doubt that the New England Patriots are the greatest football team of all time, which is why it is my distinct pleasure to proclaim the week of February 4, 2019 as New England Patriots Appreciation Week in the State of New Hampshire.
+- Our pro-jobs, pro-growth economic agenda is paying off for New Hampshire families, allowing them the freedom to spend their money as they see fit.
+- When victims of crime find the strength to come forward and engage in the criminal justice process we must ensure that they have basic rights and protections in place.
+- New Hampshire has one of the oldest housing stocks in the nation, which puts us all at a heightened risk of lead poisoning.
+- New Hampshire has always shown prudence and responsibility in its application of the death penalty.
+- Increasing patient access to more affordable, FDA-approved generic and biosimilar medicines is a proven and tested solution to lowering prescription drug costs.
+- We will not let government bureaucracy stand in the way of helping small businesses.
+- Ensuring a safe and successful summer season for beachgoers and area businesses is a top priority for the State of New Hampshire.
+- Live free or die is not just a slogan on a license plate. It is the very essence of who we are.
+- Regardless of fuel type or technology, every major energy project must face the challenge of siting infrastructure.
+- If we really want to be the Live Free or Die State, we must ensure that New Hampshire is a place where every person, regardless of their background, has an equal and full opportunity to pursue their dreams and to make a better life for themselves and their families.
+- Whether it's the family working hard to make ends meet or the business that has to put off hiring new employees, high electricity costs weigh down on everyone - especially the elderly and those on fixed incomes.
+- Vice President Mondale was an individual deeply devoted to public service.
+- Our nation's tax code is a broken mess of rules and regulations. It rewards special interests, punishes success and holds back millions of Americans seeking better jobs, higher wages, and greater opportunities.
+- Streamlining New Hampshire's regulatory framework is a key priority of my administration.
+- Pretrial detentions of any length can have devastating consequences for a defendant and their families, and therefore should be imposed with great care.
+- The state of New Hampshire is committed to delivering results for New Hampshire's veterans.
+- My administration is committed to advocating for policies that promote New Hampshire's seniors and their caregivers.
+- President George H.W. Bush was a friend to so many of us and his loss will undoubtedly be felt deeply across the Granite State.
+- It is a priority of my administration to continue New Hampshire's long tradition of Environmental Conservationism.
+- We are a no sales tax state. That applies across the board, to our citizens and those in other states. Period.
+- Discrimination - in any form - is unacceptable and runs contrary to New Hampshire's Live Free or Die Spirit.
+- A top priority of my administration has been to strengthen laws for crime victims and their families.
+- I live primarily on chocolate chip cookies and coffee, and I'm prone to singing Katy Perry songs at the top of my lungs in the car. I'm an unapologetic fan.
+- Healthy kids are the foundation of a healthy state.
+- As a parent, I know that the State has no greater responsibility than protecting the safety of our children.
+- If New Hampshire is going to be serious about optimizing our energy system, we must have a siting process that is fair, predictable, and communicative.
+- Virtually everyone agrees that the marriage of a 13-year-old child is unconscionable.
+- Requiring one-sixth of our workforce to have a license in order to get a job is excessive and it robs our citizens of the chance to pursue their dreams while leaving our employers without the qualified employees they need to be able to grow.
+- New Hampshire is a great place to live, work, and raise a family, but there is always more that can be done to help those who are struggling.
+- No employee should be forced to pay any union in order to keep their job.
+- We have to ensure that New Hampshire remains the best place to live, work and raise a family for all Granite Staters, and the Millennial Advisory Council is a big step in the right direction.
+- During Law Enforcement Memorial Week we pay tribute to Law Enforcement Officers who have sacrificed their lives for our safety and thank those who work tirelessly across the Granite State each and every day for their unyielding dedication and bravery.
+- My administration is committed to ensuring Granite Staters have access to clean water.
+- As a part of the ISO-NE grid, New Hampshire energy policy is connected to the decisions of our regional neighbors. It is critical that New Hampshire's ratepayers do not bear the burden of the costly policy decisions of Southern New England.
+- Government cannot guarantee much, but it can and should guarantee freedom of opportunity.
+- We will always remember the victims of the horrific terror attacks of September 11th, 2001.
+- Victims of crime deserve equal constitutional rights - the same rights as defendants. No more, no less.
+- Equal protection under the law mandates that similarly situated criminal defendants be treated equally, regardless of financial means.
+- When crazy comes knocking at the door, you gotta slam it shut.
+- As the father of a young daughter, it is important that the next generation of leaders in New Hampshire feel empowered to lead.
+- We put no greater trust in our government than when we turn on our faucet expecting clean water, and I applaud the Drinking Water and Groundwater Advisory Commission for their hard work in addressing this critical priority.
+- Quick with advice and always caring, the 41st President of the United States was a statesmen, a role model, and an American hero.
+- Work requirements offer opportunities to lifting individuals out of poverty, empower them with the dignity of work and self-reliability while also allowing states to control the costs of their Medicaid programs. They also assist people to gain the skills necessary for long-term independence and success.
+- The Tax Cuts and Jobs Act is a leap forward to a fairer and less confusing tax system.
+- There is no doubt that the most heinous crimes warrant the death penalty.
+- New Hampshire elections are safe, secure, and reliable.
+- In our ever-changing economy, we must make strategic one-time investments to meet the long-term skilled workforce needs of our state and ensure the next generation has the opportunities available to advance their careers.
+- My first responsibility is ensuring the safety of my family and our citizens.
+- Occasionally, well-intentioned legislation can fall apart because of a few misplaced words or technical language that was left out.
+- We believe that the government's job is to create doors of opportunity for you, your family and your business. Then we get out of the way and let individuals have control of their path to success.
+- As Governor, expanding access to STEM programs for students has been a top priority of mine.
+- From aerospace to the life sciences, New Hampshire is home to companies at the pinnacle of innovation.
+- If New Hampshire is going to be able to realize our full potential for economic growth, we need to remove unnecessary barriers to employment like the overuse of occupational licenses.
+- The rollout of the COVID-19 vaccine is one of the largest logistical undertakings our state has ever faced.
+- Republicans and Democrats have long recognized that our corporate tax system hamstrings business, reduces investment, and creates unfairness. Some corporations pay massive tax bills to the federal government while others use tailor-made deductions that enable them to pay close to nothing.
+- New Hampshire charter schools have proven themselves to be an integral part of our state's high-quality public education system for thousands of students.
+- The Granite State has a long and proud tradition of public service, and we have to ensure that it stays that way for generations to come.
+- Many people who have come to know me as the governor of New Hampshire understand that I tend to be a little quirky.
+- Our officers work tirelessly on the front lines every day and truly embody the spirit of selflessness and public service found only in the bravest amongst us. We are forever grateful for their continued courage and sacrifice.
+- As an environmental engineer who spent the early part of my career cleaning up groundwater contamination, I know firsthand the challenges of cleaning up contaminants and the risks posed to human health if we fail.
+- Throughout the COVID-19 pandemic, our teams at the Emergency Operation Center and Joint Information Center have worked around the clock to ensure a consistent and coordinated strategy among our state agencies in addressing the COVID-19 pandemic.
+- As an environmental engineer I spent many years cleaning up PCB contamination, and I know firsthand the costs these efforts can place on individuals and communities.
+- We will never stop emphasizing that New Hampshire is open for business, open for workers, and open for opportunity.
+- New Hampshire is deeply appreciative of our state's firefighters who put their safety at risk and are often exposed to chemicals and substances that increase their risk of cancer in order to keep their neighbors and our communities safe.
+- New Hampshire has led the nation in streamlining government regulation to allow job-creators the opportunity to grow and expand.
+- From the day the first doses of the COVID-19 vaccines arrived in the Granite State, we hit the ground running to get the doses out the door and into the arms of our highest risk health care providers and long-term care residents.
+- As part of the regional metro-Boston area, southern New Hampshire offers all the benefits typically associated with major metro areas yet maintains the advantages of being in a truly enterprise-friendly state: access to a world-class workforce, a pro-business, low-tax environment, and a streamlined regulatory environment.
+- We will not let bureaucracy stand in the way of governing.
+- From day one of my administration, we have been committed to ensuring that New Hampshire's natural beauty - which is critical to our quality of life - is conserved and enhanced for the next generation.
+- Our pro-growth agenda of cutting business taxes and increasing opportunity continues to deliver results for the people of New Hampshire.
+- We are committed to helping more people get into the workforce, as it is critical not only for individuals but also for our economy as a whole.
+- If we can't put our kids on the school bus and know they are safe, nothing else matters.
+- Every family, regardless of their means, should have the opportunity to make sure their children are as healthy as possible.
+- A strong, thriving workforce is necessary for our broader goals to boost economic development and I look forward to continuing our work to again be the jobs engine throughout the region.
+- To permit a private or industrial actor to knowingly pollute our groundwater is unacceptable, and I do not believe in passing the buck to our children and grandchildren.
+- By reducing the highest business tax rate in the developed world, something that we have shown, right here in New Hampshire, is a huge boost to competitiveness that creates new jobs and higher wages.
+- As Governor of New Hampshire, my top priority is the safety of our citizens.
+- In a system where 'innocent until proven guilty' is the ultimate maxim, a person who is charged but not yet convicted of a minor crime should not be sent to prison merely because he or she lacks the financial ability to post bail.
+- Recovery Friendly Workplaces are an opportunity for New Hampshire to help change the culture around addiction by engaging employers in being a proactive part of the conversation by providing tools, resources, and opening up access to treatment.
+- Ensuring a peaceful and orderly transition of power is of paramount importance to our nation.
+- We need greater access to housing in this state to help grow New Hampshire's workforce and retain and attract millennials.
+- New Hampshire is proudly on the forefront of national safety infrastructure.
+- I stand with crime victims, members of the law enforcement community, and advocates for justice in opposing a repeal of the death penalty.
+- Colin Powell devoted himself to the betterment of this country and of every American in all that he did. His legacy and character is one we must remember, and one that we should each seek to emulate in all that we do.
+- If you try to come into our state and force our businesses to collect a sales tax in manner that violates our laws or the United States Constitution, you will be in for the fight of your life.
+- We cannot - and will not - tolerate hatred, bigotry, and violence in our society, and no one should ever have to fear entering their house of worship, regardless of their faith.
+- We must ensure a favorable climate for our state's business community to prosper while enticing businesses outside our borders to make our state their home.
+- We have a long history of making smart long-term investments in New Hampshire.
+- Those struggling with addiction deserve nothing less than our best and we will not fail them.
+- Expanding access to robotics programs for students has been a significant focus of my administration.
+- Small businesses are the backbone of our economy.
+- Our State Constitution says that 'the people of this State have the sole and exclusive right of governing themselves as a free, sovereign, and independent State.' Working together, we will do everything in our power to prevent other States from violating this principle by imposing arcane sales and use tax obligations on New Hampshire businesses.
+- Short term political calculations of the past must give way to long-term investments for the future.
+- Our veterans deserve nothing less than the best care. Period.
+- We will not stop until our schools are the safest in the nation.
+- When it comes to economic opportunity, environmental stewardship or just our 'Live Free or Die' quality of life, Every Day Is a Holiday in the great state of New Hampshire.
+- A healthier state starts with healthier kids.
+- It is incredibly important to me that no child in New Hampshire fears being bullied in school.

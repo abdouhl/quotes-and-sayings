@@ -1,0 +1,17 @@
++++
+author = "Barbara Lee"
+title = "Barbara Lee Quotes"
+quotes_len = "11"
+description = "the best 11 Barbara Lee Quotes"
++++
+- I told Mr. Nader today that a vote for Ralph Nader is really a vote for George Bush.
+- I wish the press were paying more attention to the erosion of the Constitution and the slippery slope that we're getting into, by giving up the right of the Congress to talk about when and how and where we go to war.
+- I am convinced that military action will not prevent further acts of international terrorism against the United States.
+- We need to honor our troops who served and show our support by giving our men and women who served the best health care, the best educational opportunities, and the best job training available. They deserve nothing less.
+- Nine years ago on September 14, 2001, I placed the lone vote against the 'Authorization for Use of Military Force' - an authorization that I knew would provide a blank check to wage war anywhere, at any time, and for any length.
+- We all agree that we've got to bring these terrorists to justice and to make sure that they're never allowed to perpetrate such an evil act as they did. And so all of us are dealing with that. We know that the President has the authority to go to war under the War Powers Act.
+- I am also deeply concerned with the widespread, often undiagnosed, incidents of PTSD and the alarming suicide rates amongst our returning soldiers.
+- As the daughter of a 25-year veteran of the armed forces, I am incredibly thankful for the sacrifices our women and men have made in Iraq, and continue to make in Afghanistan.
+- What they are doing is taking something that otherwise creates pollution and turning it into something useful.
+- We must use all the tools of American power in resolving disputes, including diplomacy. And we must have sufficient congressional debate and oversight before ever putting another U.S. solider in harm's way.
+- The last two elections were stolen. They were stolen and so we will not rest until we reclaim our democracy and this is what today is all about.

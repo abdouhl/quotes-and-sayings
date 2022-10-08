@@ -1,0 +1,88 @@
++++
+author = "Richard Ojeda"
+title = "Richard Ojeda Quotes"
+quotes_len = "82"
+description = "the best 82 Richard Ojeda Quotes"
++++
+- Unions have been under attack for quite some time, and I think a lot of the jobs that we need to create in this country need to be union jobs. People want to be able to get a job that they can rely on to feed their family and pay their bills.
+- I come from the coal fields.
+- I spent 24 years in the United States Army.
+- I ran in the reddest state of the United States of America. I turned almost 35 percent of the people that voted for Donald Trump back to voting for a Democrat.
+- The Democratic Party is supposed to be the party that looks out for the working-class citizens.
+- I'm challenging the powers that be.
+- When I hear Ivanka Trump saying how she looks forward to working side by side with Gen. Kelly - a guy who's got 40 years' worth of experience leading troops all across the world - and she makes handbags, come on.
+- It's so easy to steal from the bottom 99 percent, but try stealing from the top one percent, and they put you under the jail.
+- I'm a stubborn individual.
+- I will stand with unions wholeheartedly, and that's the problem - the Democratic Party wants to say that, but their actions do not mirror that.
+- We always keep saying, 'We're the best, we're the best.' Other countries offer healthcare for their people. We don't, so how are we the best there? We've got poverty all over the place, and it's the haves and the have-nots, so how are we the best there?
+- There's a purpose for me. And my purpose is to wake people up.
+- I was raised here in Logan County, where I was blessed to be in a family that had over 200 years of United Mine Workers of America experience.
+- When President Kennedy come to West Virginia, he spoke about West Virginia and the people that gave the people here pride. And my family, my father remembers when President Kennedy was in Logan County and at places like the smokehouse, standing on chairs, talking to people.
+- I hate the idea of telling a woman what to do with her body.
+- I come from a family of coal miners.
+- My state was blue through and through. The reason why my state went red is because my state is a hard labor state, and the Democratic party pulled pitch and ran away from this place and left our people to fend for themselves with nothing.
+- Put me in a room with 50 people, and I guarantee you 48 them are going to walk out saying, 'Ojeda's my guy.'
+- I'm trying to stand up so that the middle class, the working class, can finally have a say. I put them as my No. 1 priority.
+- I am a Democrat because I believe in what the Democratic Party is supposed to be: taking care of our working-class citizens.
+- The coal industry in West Virginia, when it is down, people can't buy cars; people can't eat in restaurants. Everything suffers.
+- We're not really a state. We're a colony. Everything we've ever had - timber, coal - it's all been extracted out of our state. Our people have been here and have worked in those industries, and they remained poor, but the people outside of our state that are the ones that come and get the timber, get the coal, have become billionaires.
+- Take care of your working-class citizens, and your working-class citizens will take care of you.
+- We need to diversify our economy, but I also think we still have a future in coal.
+- We have elected officials who say they're going to run for office to serve the people. But in reality, they legislate themselves into wealth. They go into office, and after one, two terms, they're worth millions upon millions of dollars, and that has to stop.
+- I believe that if we are going to create jobs in this country, then let's create jobs that will absolutely put the working-class people at work to the point where they have one job. They don't have to work three because they have to work Wendy's, McDonald's, and Walmart to survive.
+- Patrick Morrisey means nothing to me. He is a bootlicker. If shoe polish was poison, he'd be dead.
+- Successful leaders surround themselves with intelligent people.
+- I know coal is dirty, but that's all we got. So as much as I'd love to have clean energy - solar panels everywhere - right now, all we have is coal. The people I love, and the people that I grew up with, that's their livelihood, and I don't want to see them starve.
+- If you believe in something, be willing to explain it.
+- I don't think I'm special.
+- The moment you start asking questions, you become public enemy number one.
+- I will not take corporate money. I don't want it.
+- I'm a combat soldier.
+- That border wall's not going to put one single West Virginian to work.
+- You want to win races? You've got to get out there, and you've got to be vocal, and you've got to work. When you win, you've got to actually represent. You've got to be willing to fight your party.
+- I'm saying right now that if you're going to serve this nation in a federal position, you need to start proving that you're willing to sacrifice first. I'm saying... that people are sick and tired of the millionaires running the system.
+- We need candidates who are deeply rooted in their communities, working-class people who understand the struggles their neighbors face. That is the future of the Democratic Party.
+- Stand up for our sick. Stand up for our veterans. Stand up for the elderly. Protect things like Social Security. Stop allowing people to stick their hands in the cookie jar. Create opportunities for people who live in poverty to elevate themselves out of poverty with a hand up, not a hand out. That's what being a Democrat is!
+- People are tired of the same ol' garbage. They want people that are willing to speak out, speak up, be open and honest with them.
+- If all we've got is the dirt poor and the filthy rich, the dirt poor would eat the filthy rich.
+- I'm trying to fight so that people can have better.
+- The coal miners are working. But there's more than just coal miners in West Virginia.
+- We have to stop letting people come in here and make millionaires and billionaires of themselves off of West Virginia while West Virginia remains poor.
+- I'm not scared of the president of the United States. And I'm not scared to stand up against the president of the United States.
+- I cannot sit here and say I was beaten by Carol Miller. Because Carol Miller did not show up. She did not debate me. She basically avoided everything and just said, 'I'm with Trump, I'm with Trump.' And sadly, that's apparently a victory here in a place like southern West Virginia.
+- My military service has been attacked by people who have never picked up a rifle and manned a post.
+- I'm nothing but a ball of energy.
+- Families in Logan, West Virginia, were going through the same struggles as families in the Bronx, San Francisco, and Houston. This was not a West Virginia problem. This is an American problem, and it has to change.
+- I've dealt with the Taliban and al Qaeda.
+- The Democratic Party needs to take a stand against corporate greed.
+- Big Pharma's the Taliban... They're Al Qaeda.
+- The sun doesn't always shine in West Virginia, but the people do.
+- We need to take care of our veterans. If I'm going to send you away and break you, I'm going to fix you when you come home.
+- In Iraq, I listened to David Petraeus speak every day about how we had to rebuild Iraq's oil infrastructure and protect it. But, if we're going to go trillions of dollars in debt over Iraq, why can't we go billions of dollars in debt and make every single coal-producing plant clean in West Virginia?
+- You can't take a coal miner making $95,000 a year, the only work in these parts where you can support a family without having to hold down three jobs at once... and tell them, 'You can make minimum wage,' or, 'We can give you job training for jobs that don't exist in West Virginia.'
+- I'm real. I'm not polished.
+- Where I come from, Big Pharma's the enemy.
+- I fight like a daggone wild man for labor unions.
+- Just because I support somebody doesn't necessarily mean I'll agree with them always. If they do not do something that's correct, I have the right to make comment.
+- I have been a Democrat ever since I registered to vote, and I'll stay a Democrat, but that's because of what the Democratic Party was supposed to be.
+- If all you have is coal, that's the only thing that we have. Don't hate the coal miner for trying to get the only decent job that we have in West Virginia that can allow them to feed their family.
+- All Americans deserve to see, speak to, and hear from our candidates. No county is insignificant, no community too small, and each person's vote is important.
+- I stand with the working-class citizens.
+- We must look for leaders who have exhibited a lifetime of service to their communities and have proven that their intention is to help people.
+- I've got Republican people from all over that have contacted and said, 'Look, we're going to support you,' because I say what needs to be said.
+- If you look at Middle America and the reason why it's so red is because the Democratic Party cannot relate to them. They definitely have not done anything to support people from where I come from in West Virginia.
+- When I retired from the military, I come home. And the reason why I got into politics is, you know, I spent a lot of time away from my wife and my kids. And I come home, and I found out I have kids in my backyard that have it worse than the children I saw in Iraq and Afghanistan.
+- If you have a great idea, I'll support your great idea. But if you don't have a great idea, I won't.
+- If you don't have a seat at the table, you're on the menu.
+- I will strengthen our unions and our middle-class families so that no longer will they be pushed around by employers but will finally have a seat at the table.
+- I will stand with the working-class citizens over all else.
+- I'd rather fight than eat.
+- We got to fight to protect Social Security.
+- Back when I was in high school, being a Republican was like cursing. Republicans were greedy people who didn't take care of the workingman.
+- I lived in a bubble: my whole entire military career where I thought that everything was perfect. And I thought that every time we went overseas and we fought for this country, we were doing it because we were trying to get other people a sliver of the greatness that we have here in the United States of America.
+- West Virginia built this nation... we deserve respect.
+- Once I got into politics, I saw the real fight, where big money controls everything, and where politicians care more about campaign contributions than the people they're supposed to represent.
+- If I'm stone-cold crazy because I have a hard time going to sleep at night because we have kids that go to bed hungry, then I'll be stone-cold crazy, and I'm OK with that.
+- The reason why the Democratic Party fell from grace is because they become nothing more than elitist. That was it. Goldman Sachs - that's who they were.
+- Get rid of Betsy DeVos.
+- When the rich wage war, it's the poor who fight and die.

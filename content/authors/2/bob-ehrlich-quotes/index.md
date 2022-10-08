@@ -1,0 +1,34 @@
++++
+author = "Bob Ehrlich"
+title = "Bob Ehrlich Quotes"
+quotes_len = "28"
+description = "the best 28 Bob Ehrlich Quotes"
++++
+- I promised her an interesting life and good food, and the rest is history.
+- Leadership is about doing what you know is right - even when a growing din of voices around you is trying to convince you to accept what you know to be wrong.
+- My capital budget maintains my commitment to the education of children, health of the Chesapeake Bay, and safety of all Maryland citizens. We will continue to focus on the five pillars of my Administration as we build today and look forward to the projects of the future.
+- I've always believed the words that came out of my mouth were most comfortable when I'd written them.
+- I support stem cell research, including embryonic stem cell research.
+- We're betting, at this place and this time, we have people ready for change in the state of Maryland.
+- It's appropriate to celebrate public service, and the thoughtful people who choose to serve. They symbolize what is good and decent about this historic citizen legislature, and we thank them.
+- We have no more fundamental obligation in government than to ensure the safety of our citizens.
+- Politics is a contest among people of diverse backgrounds and philosophies, advocating different solutions to common problems. The system only works when principled, energetic people participate.
+- We discussed politics, but we also talked about the importance of hard work, personal responsibility, living within your means, keeping your word. Those lessons stay with you throughout your life.
+- Leaders do not sway with the polls. Instead, they sway the polls through their own words and actions.
+- Maryland has a tradition of Democratic Party conservatism.
+- It's always an uphill battle. You know, I'm a Republican in Maryland. This is the bluest of the blue.
+- Every Maryland family wants financial security, schools that work, quality healthcare, safer neighborhoods, and ever-expanding economic opportunity. These are the building blocks of a superior quality of life.
+- A complete investment in the Obama administration required that any real opposition had to be demonized. The investment in Barack Obama had to be protected.
+- Experts tell us that 90% of all brain development occurs by the age of five. If we don't begin thinking about education in the early years, our children are at risk of falling behind by the time they start Kindergarten.
+- People believed what I said was what I believed.
+- I don't pay any attention to what the 'Baltimore Sun' editorial page says about anything.
+- If President Obama has his way, you won't recognize the government, the free market system, or, frankly, America as you once knew it. His admonitions and his audacious policy goals demonstrate very clear motives: equalize, discourage dissent, and become a nation of apologists.
+- I don't know what leadership is. You can't touch it. You can't feel it. It's not tangible. But I do know this: you recognize it when you see it.
+- We can dig ourselves out of the ditch that the progressives and Obama-ites have driven us into.
+- Serving in Congress has been the honor of a lifetime.
+- Most pundits regard an election year session as an opportunity for the two parties to frame issues and garner political advantage in advance of the approaching election.
+- Some of the most important conversations I've ever had occurred at my family's dinner table.
+- I'm a competitive person.
+- No one heard about Bill Clinton on his first trip to New Hampshire. I showed Mike Huckabee around the state years before he ran, and no one knew him then, either.
+- The United States Supreme Court has voted 6-3 that voter photo ID is constitutional.
+- Thoughtful people of different political philosophies can disagree, but in a very agreeable manner.

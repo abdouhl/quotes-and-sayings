@@ -1,0 +1,18 @@
++++
+author = "Betty Who"
+title = "Betty Who Quotes"
+quotes_len = "12"
+description = "the best 12 Betty Who Quotes"
++++
+- I want it all. I want the Pepsi endorsement. I want the arena shows. I want Times Square!
+- My intent for EPs - and, really, my philosophy on my music - is that every single song has to be worth it.
+- I still feel like the 10-year-old dancing in front of her mirror, mostly to 'No Strings Attached.'
+- Whether or not cutting my hair was the right decision, it empowered me.
+- I don't do filler songs. I don't get them. They don't make any sense to me. Why would I literally waste my time on a song that doesn't hold up to the same standards as the other songs on the album? I won't play it live.
+- I'm very much half-American - my mom is American. I grew up in Australia until I was 16, then I finished high school over here because I got into this performing arts high school.
+- I'm definitely not pushing to find who can I write with or produce with, but of course I'm open to something if it comes up.
+- To avoid sounding like a cliche, I won't say I want to get proposed to in Paris, but Paris. I want it to happen somewhere public where people can be excited that I just got proposed to, and everyone applauds, like in a restaurant - that, or somewhere totally secluded... in Paris.
+- I think it's so important as an artist to stand up for what you believe in, and I think that if equal rights is something that you really believe in, and you have a voice that people listen to, and you need to share that - I think that's really important.
+- I was always obsessed with other performers doing their thing, and Britney 'Live in Las Vegas' from 2001 is my absolute favorite tour DVD of all time.
+- I don't think of Home Depot as romantic, but I do think the Christmas wonderland they put up during the holidays is magical. That is what Home Depot is to me, and that is the only romantic thing about it.
+- I'm a pretty aggressive girl in general. So if there's a boy that I like, you're going to know how I feel. I just put it out there.

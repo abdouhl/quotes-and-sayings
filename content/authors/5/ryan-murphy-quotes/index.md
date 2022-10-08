@@ -1,0 +1,87 @@
++++
+author = "Ryan Murphy"
+title = "Ryan Murphy Quotes"
+quotes_len = "81"
+description = "the best 81 Ryan Murphy Quotes"
++++
+- Larry Kramer wisely realized so early on that to change the world, people have to know you. If they know you and see that we are all the same - that we all have normal hearts - that's the first step. I'm both amazed at the progress and amazed at how far we have to go.
+- I'll ask the writers' room who they voted for Emmy awards, but I'll never ask who they voted for president.
+- When I got my overall deal at Fox, I got amazing bosses in John Landgraf and Dana Walden and Peter Rice. For the first time ever, they said, 'Don't change who you are; be who you are. And write something you want to watch.' That thing was 'Glee,' and it took off from there.
+- I think the great thing about a television set is that it can be turned on and off, and you don't have to watch it if you think it's going to be something that you're not going to like or learn from.
+- I've always felt I've related to women deeply because of being gay and feeling like there was always somebody trying to oppress me, to keep me down, to put me in my place.
+- I'm passionate about actors, and I'm passionate about showing actors in different lights.
+- I feel like I grew up in such a big way in the past couple of years, in a way that I never thought I would. You can't be the enfant terrible when you have the enfant at home.
+- I'm not interested in anything but emotionally driven stories; that's why almost all of my work is exclusively anchored by women.
+- When I talk to young people, I always tell them the biggest lesson I learned was that you shouldn't care about the outcome. If it fails, it fails. Every failure will groom you for your next big reward.
+- I find that women are much more comfortable showing their emotion and inviting you into their emotional landscape.
+- I'm fascinated by the whole clown phobia thing because I personally don't have it.
+- Just because you have a baby on your hip - or one on the way or two at home - doesn't mean you can't go after your dreams.
+- It's a weird thing, my shows. I don't know how to describe it, but I feel because I go about the casting process so slowly that it does feel like an instant family.
+- People think I'm just sort of this P. T. Barnum, razzle-dazzle guy. They think I go out of my way to be outlandish and theatrical at the expense of having emotions. They don't get that there's another side to me, and I keep trying to show that other side.
+- I had a very rocky, difficult, emotional childhood with my parents.
+- I love Larry Kramer's advocacy, and I love him as a person, and I think young people need to see that story.
+- I'd never had a mentor in Hollywood. Men have always been in control of the business, and they usually mentor people who are like them - but two inches shorter.
+- When I was starting out in Hollywood, everything was such a battle.
+- I loved musicals, and I loved Barbra Streisand, and I loved Louis Malle. My tastes were very bizarre, but the thing they all had in common is that they took me out of my life and made me feel something.
+- When I was growing up my favorite show was 'The Mary Tyler Moore Show', and I loved all the stuff that Norman Lear did.
+- I think I have a pattern of nice and lovely and then dark and twisted.
+- I think when you take the big swings - and I've done plenty of big swings that I was told were never going to work - those are always the things that break through.
+- All the big successes of my career have been ideas that, on paper, you think, 'Well nobody's going to go for this because that genre is so dead.'
+- Yeah, at home it's all moonbeams and puppy-dog tails, so I guess I do have a darker side - and I like writing about it.
+- I formed this thing called the Half Foundation, and what I tried to do is quantify hiring practices in Hollywood. Half the population is women, so half of the storytellers should be women. Fifty percent of all the directors in my company are women, and it will forever be that way.
+- I do work with a lot of women in my company, and I write a lot of roles for women over 40. I think, in 'Feud' alone, we have 15 roles for women over 40, which I'm very proud about.
+- Here's the thing: When you tell somebody, 'I love you. I have always loved your work, and I want to show people a different side of you,' it's sort of an interesting thing that in my case, I've been very lucky, where they're like, 'OK.'
+- I love actors, but I really love actresses, and I really love actresses whose work touched and informed my coming-up years.
+- The only way to get through the life I had was just to have a big head of steam and determination.
+- It's interesting when women direct. The work is better. They ask more people to participate.
+- All the things I have done at one point or another have fallen out of fashion, and there's nothing better than trying to bring something back to life.
+- I started off in this business in 1998, and I didn't fit in. There was no place for me, and I always felt like an oddball. Nobody really understood my work or what I wanted to do in my references.
+- As a showrunner, you can never be a 'maybe.' When I do movies, there is a lot of, 'Maybe' and, 'Let's investigate that.' But for TV, it has to be yes or no.
+- I've always been sort of, 'I love it,' or, 'I hate it,' and I think, as a result, I've always been a polarizing person. You either love me or you hate me. There's not a lot of 'Hmmm.'
+- I am not going to do anything unless I am afraid of it.
+- I was very much raised by my grandmother, who actually was Bette Davis - looked like her, acted like her, talked like her. Probably, it was just out of my love and affection for my grandmother that I was interested in Bette.
+- Well, I'm from Indiana. So to me when I was a little kid growing up, Cincinnati was the glamorous New York of it all.
+- I love Olivia De Havilland. She is forever a lady.
+- I don't think there's ever a winner in a feud. It's about emotional pain and an inability to conquer the pain.
+- Sometimes in entertainment, when people have done the Academy Awards - like, for example, in 'The Bodyguard' - I just didn't believe it; it didn't feel authentic.
+- I came of age during AIDS and the terror of that and the sadness and the death and the overwhelming despair.
+- If you look at 'American Horror Story' or 'Crime Story,' these are visceral, action-packed, sometimes bloody episodes of television. They're not 'feminine.' They're not about sexy women sitting around looking beautiful, drinking lattes. These episodes are calling cards to show companies like Marvel, 'Look, women can do these kind of movies.'
+- What I'm interested in doing now is to go and give voices that are not being heard a platform and to sort of bring people into people's homes that you think you may hate or despise.
+- I think John Landgraf sees things in the same way I do. We see eye to eye on a lot.
+- You've not felt the pain of rejection until a television show based on your own life is canceled.
+- Originally, 'Popular' was going to be a movie.
+- I feel every day that everything I create - everything I do - I want it to be a risk. I think when you take the big swings - and I've done plenty of big swings that I was told were never going to work - those are always the things that break through.
+- I lean into fear because I feel like that excites me as an artist.
+- One of the unique things about 'American Horror Story' is, it's very respectful to actors. Actors in many cases don't want to be tied down to a seven-year contract. So my deal with the cast is: you're free after every year: you can come back, or you cannot come back.
+- I love crispy, cool sheets.
+- Tone is everything in TV.
+- In television and the movie business, the people who are promoted and the people who are mentored always look like the white guys.
+- You know, I'm very particular about my sheets. They have to be one hundred percent cotton, with a high thread count. Only cotton. No flannel.
+- I feel every day that everything I create - everything I do - I want it to be a risk.
+- The Hollywood thing is - like, it feels like the biggest thing in the world, and yet it's the smallest town.
+- When I started, you couldn't do anything. A gay person trying to write a gay character in 1998 - it was so difficult.
+- I remember I always felt much more safe standing up on a chair and singing in front of my mother than I was in front of my father!
+- I actually think actors both are drawn to playing real-life historical people and are terrified.
+- With all of my work, it always takes a while for people to get it.
+- I was an altar boy, with a very strict father. And movies were always my escape.
+- I'm very black and white about what I like or don't like, and I've always been that way.
+- One thing I always do is just tell actors that I'm as afraid as they are, because I can sense that, and I feel it, too.
+- I think that the work that Bette Davis and Joan Crawford did was truly extraordinary, and that's their legacy. Not the other petty stuff.
+- I started off as a journalist when I was young and I did not get paid unless I wrote three stories a day.
+- I've gotten death threats, yes. I have. I think anytime you shine a spotlight on homosexuality or minorities and you try and say they are as normal or as worthy as acceptance as others, the people who are on the fringe don't like that and they will come after you. And they have come after me.
+- I believe most people don't go into show business unless they've been majorly unloved as a child.
+- You can't be the enfant terrible when you have the enfant at home.
+- I wanted to create a culture that allowed my children to see the world differently, if only from a strictly visual perspective: to have a child see a room where half of the people are women and minorities is so powerful. I think everyone wants for their children a world that's better than the one they came up in.
+- The greatest thing that you have when you're a showrunner is this opportunity to create worlds.
+- At the end of the day, a divorce is a divorce, and a break-up is a break-up. They are essentially small matters of the heart. They are human stories.
+- Part of being an artist is being able to write about the world you live in and the times that you've been a part of.
+- I would much rather have watched Jill Clayburgh in 'An Unmarried Woman' than 'Star Wars.' Even though I saw that movie when I was 11, I related emotionally to being left and thrown in a trash can on the side of the road. Her damage - I got it. I didn't understand Han Solo at all.
+- For me, growing up in Indiana with cornfields and churches, I was always very intrigued by the Academy Awards - they were a big event. That was the one night of the year when all of the glittering movie stars got together, and I used to love that night because, as a child, it was a way to dream for me.
+- I love 'Girls' on HBO because it's brave and cool.
+- I had been accepted to film school, but my parents couldn't afford it, and yet they made too much money for me to get a scholarship.
+- I love Sarah Jessica Parker; I've worked with her. I think she's amazing... She's a great producer and has a great business acumen.
+- Even though 'Glee' is sometimes a hard road, I am very excited about writing a multi-year arc.
+- I only wrote two fan letters in my life. One was to Bette Davis. And one was to Ron Palillo, who played Horshack on 'Welcome Back, Kotter.' And Ron did not write me back, but Bette Davis did.
+- Joan Crawford and Bette Davis are larger than life. They just are. They sucked all the oxygen out of a room: they're icons; they loom large in our imaginations. But the truth of the matter is both women were diminutive.
+- I think everyone wants for their children a world that's better than the one they came up in.
+- For me, the saddest thing in the world is always lost potential. That is always the most heartbreaking thing, when there's something left to be mined from a situation or a person that goes unexplored; that's a tragedy to me.

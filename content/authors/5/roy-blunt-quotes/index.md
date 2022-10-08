@@ -1,0 +1,35 @@
++++
+author = "Roy Blunt"
+title = "Roy Blunt Quotes"
+quotes_len = "29"
+description = "the best 29 Roy Blunt Quotes"
++++
+- I think the Tea Party has brought important issues to the table.
+- Unfortunately, some in Washington remain tied to the dogma that responsible energy development cannot be achieved without taking a wrecking ball to the environment.
+- I was the first Blunt ever elected to anything.
+- It's not long-term debt if the money is immediately paid back.
+- When it comes to being a responsible steward of the economy, Congress needs to either lead by promoting a pro-growth economic agenda - or, better yet, get the heck out of the way.
+- Whether you're managing the finances for a household of one, a business of a thousand, or a government of several hundred million, there's no more important statement of fiscal intent you can make than putting together a responsible budget - one that acknowledges its available means, and makes a reasonable attempt to live within them.
+- Somebody was telling me about the French Army rifle that was being advertised on eBay the other day - the description was, 'Never shot. Dropped once.
+- I'd be a lot more excited about eliminating earmarks if we reduced all of the spending by whatever the earmarks used to be, but nobody's, apparently, going to talk about doing that.
+- I continue to be a strong believer in the life-saving importance of early detection, and I encourage everyone to be proactive about their preventive screenings.
+- I'm interested in being part of a majority in the Senate.
+- I explained to the president that I've been pleased with my conversations with the Attorney General and Civil Rights Division regarding their helpful understanding that they aren't taking over this investigation, but are conducting a parallel review of the events that led to Michael Brown's death.
+- I'm very much inclined to be a next-chapter guy instead of a last-chapter guy.
+- There may be no issue that better illustrates the differences between Republicans and Democrats than energy. Consider it the 'all of the above' strategy for reducing gas prices, versus the 'all pain, no gain' plan for punishing those who emit carbon (like you).
+- The way to create jobs is to encourage private sector job creators.
+- You are more committed to things that you give money to - whether it is a church or a politician.
+- The Keystone Pipeline is one common-sense step in the right direction to help put more people back to work, reduce prices at the pump, and position our nation for greater energy security now and in the future.
+- People with mental health problems are almost never dangerous. In fact, they are more likely to be the victims than the perpetrators. At the same time, mental illness has been the common denominator in one act of mass violence after another.
+- Law enforcement officials have been candid in identifying ways officers could have handled the situation in Ferguson better, and I trust those recommendations will be helpful as we continue to count on them to protect us.
+- If we're going to talk about economic fairness, or about fairness, one of the most pressing economic issues facing families, seniors, and job creators in Missouri and across America is the strain of skyrocketing gas prices.
+- I'm confident that the commitment of the co-chairs of the Ferguson Commission - along with the work of other local leaders and the Missouri General Assembly - will have a very positive impact as this community works to move forward.
+- More than anything else, a budget request is a statement of national priorities; a clear enumeration of what our country needs to grow its economy and remain in the future the first-rate power it is today.
+- In the case of the Democrats' 2009 budget request, the statement of need could not have been articulated any clearer: We need more spending, historic new tax hikes, and greater control over the way American families live their lives.
+- The shortest path to more American jobs is more American energy and more jobs that relate to American energy.
+- Putting together a sustainable budget requires that we all work together, that we focus our scarce resources on key priorities, and that we strengthen our capacity to deliver the best product we can for the American people. And that takes money.
+- It has come to my attention that Missouri state and local law enforcement agencies may be in need of additional resources due to the unanticipated costs of responding to the unrest in Ferguson.
+- Government did get into the health care business in a big way in 1965 with Medicare, and later with Medicaid, and government already distorts the marketplace.
+- I've thought from the start that a parallel federal investigation into the death of Michael Brown is important. I also believe that our state and local elected officials have been given a responsibility by the people who they work for to get to the bottom of this tragedy.
+- Hey, well, I've been a pretty conservative member of congress.
+- I was raised - my mom and dad were dairy farmers. Once you've made a decision to plant a crop for that year, you can't go back and undo that decision.

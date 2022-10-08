@@ -1,0 +1,106 @@
++++
+author = "Rob Halford"
+title = "Rob Halford Quotes"
+quotes_len = "100"
+description = "the best 100 Rob Halford Quotes"
++++
+- I've often talked about metal being the underdog in rock n' roll music.
+- I'm not an American citizen, but I live in this country and eventually want to become an American citizen because I love this country so much.
+- When you start in any band, I don't think you have any idea as to how long your particular journey is going to last. You really don't have a clue. I think that when you come together as musicians, that's the furthest thing from your mind.
+- I was a huge Rick Astley and Bananarama fan.
+- I discovered that I was gay when I was about nine or ten. I did go out with girls for a while, but it didn't last.
+- The great thing about Priest, in all the years that we've been making heavy metal music, is that we've always kind of carried this metal flag, if you will - this beacon of hope that, no matter what you may be going through in life, there's always a sense of overcoming difficulties, a sense of winning, a sense of coming out on top.
+- Treating one bunch of people this way, and treating this bunch that way. You can't do that. You have to give everybody the same rights.
+- 'Defenders' seems to have a really gritty, hard, uncomplicated vibe about it. Somehow, we made everything sound stronger and more precise than on 'Screaming Vengeance' through Tom Allom's amazing mixing skills.
+- The first thing I will say about looking after your voice is get a pair of in-ear monitors because one of the most common problems singers have is trying to hear themselves on stage.
+- Sometimes when I'm writing lyrics, it's a very loose train of thought, and wherever that takes me, I let it flow.
+- There's always someone that's dealing with a bigger challenge than you are. You've gotta have perspective.
+- With 'Defenders,' we had some very barebones ideas, but the bulk of it came together very quickly over in Ibiza. The main thing I like about that record, looking back on it now, is the change in the texture of the production from 'Screaming For Vengeance.'
+- When you have the thrill and the pleasure to do something that means so much, you'll do whatever you've gotta do to get to that next gig and play that next song.
+- 'Firepower' is the eighteenth full-length studio album for Judas Priest. That's a lot of metal songs over the decades, and the writing process is always the same, really.
+- I'm drawn to singers who have something different to say vocally, and Adele would be in there.
+- I think that essentially, since music was invented, it's basically reached out and touched every single kind of conceivable generation.
+- You've got to be able to compromise in a band; otherwise, somebody's more important than the next guy, and that's never been the case in Priest.
+- On their debut, Korn brought a new definition of metal that was a game changer.
+- The thing about rock & roll, and the black leather biker jacket - it automatically creates an idea about what that person might be about, about their musical taste or their attitude.
+- I like Avenged Sevenfold and Five Finger Death Punch, with whom I did a single.
+- I was in several bands before I joined Judas Priest. Being in those early unknown bands were the stepping stones, really, so I learned a lot in those short few years jumping from one band to another.
+- I sing 'Nessun Dorma' when I warm up backstage.
+- Life is a beautiful thing, but a lot of it, it kind of replicates itself.
+- When I come off stage, I just shut up. I try as best I can not to use my voice at all. You know I love to talk, but I try when I come off stage to have the minimum amount of vocal interaction because I need at least a good 10 hours to just recover from my form of extreme singing.
+- I just love to sing. It makes me feel great, so I'm gonna keep going.
+- As far as putting a rating on music like you do movies, I can see the common sense in that.
+- I love all that kind of gothic Bram Stoker kind of thing. I love to get lost in that kind of escapism.
+- Running away from something doesn't do anything except put distance.
+- It's your human right to push back against something you disagree with. You do that by voting for that guy instead of that guy, or that lady instead of that lady.
+- I like to remain somewhat anonymous. I could never handle the whole Britney Spears syndrome of being noticed everywhere.
+- We're not a band that takes any kind of political stance. That's not what we're about as Priest. But we're observers of what's going on around us in the world.
+- Making a record is an intimate experience. A good producer can get things out of you that you can't get out of yourself.
+- I think I've improved in a lot of ways because of being able to stay clean and sober.
+- We're all people. We all need to just try and find a way to love each other and accept each other and try and make the world a better place.
+- 'Anthems to the Welkin at Dusk,' that's my big Emperor album.
+- Heavy metal is immortal, but we're not.
+- When you make that choice of stepping out and facing the issue of disclosure, you do create this kind of self-imposed negative fear. It's unfortunate it still happens today. 'Do I step out and say I'm a gay guy?' But you have got to do it and live your life on your terms and no one else's terms.
+- It's fun for musicians to step into each other's world. It's like different football teams - it's the same game but a different play.
+- Don't put yourself on a pedestal. Because it's very easy for someone to knock you off.
+- I think I'm still a lone wolf, internally. And I always will be.
+- The thing about gay people is that until we come out of the closet, we're always protecting other people: 'I can't do this, because it's gonna hurt so-and-so.' We're trying to live the lives of other people, and that's the worst thing you can do.
+- The battle goes on for me; as a gay man, I shall not be happy until I see equality across the board.
+- Heavy metal is always going to be there. At its core, it's all about a primitive connection we all need to keep in our lives.
+- I didn't pass my driving test till I was 38!
+- If I was a billionaire, I'd have a warehouse full of Ferrari and Lamborghini, but I'm not.
+- I will always remember the first show I did clean and sober... It was in New Mexico, in Albuquerque. I literally felt elevated, as everything was coming with such clarity.
+- That's the life, really, isn't it? You write. You record. You play. And it never grows old.
+- It's best to keep things as free and open as you can. It's good to have a template, but then you go back and dissect it and see where you can make improvements. That's pretty much been the case with every Priest song that's ever been written.
+- Oh, I've never gone off into that 'the room's not the right temperature, take this tea back' stuff. I still scrub my own toilet and vacuum the carpet, and I have to be able to push my trolley around Morrisons and do my shopping.
+- I love people. I love being in a band. I love making music.
+- Teachers should not need to have to buy books for the kids, or pencils and pens. That's absurd.
+- I kind of have to bite my tongue sometimes with my lyrics.
+- Some songs are dead easy, and others can be quite challenging. Other times, you just have to put it in the bin.
+- When we talk about 'Firepower,' we're talking about the fire and power of heavy metal to prevail and endure difficulties. 'Children of the Sun,' is, to some extent, about climate change and the ecosystem... We want to deliver a message to the people without being too much of a teacher.
+- You've gotta learn to love yourself and live your own life. Then you can go out in the world and try and figure everything else out.
+- We're a rock n' roll band. We play heavy metal music. And we want to give you a great time. That's basically how it all boils down.
+- When you're a musician, one of the things that comes to you in the beginning that is quite unexpected is the reaction from your fans, and to the way your music plays an important part in their life in figuring things out.
+- You don't fully appreciate your band until you're away from them.
+- We've always had this fantastic relationship with America.
+- I never tire of the drive from Phoenix to San Diego, and it is mostly desert, obviously, but you get different varieties of desert terrain.
+- I'm not a frugal person, but I find it difficult to be extravagant materially.
+- It doesn't matter how many records you've made; there's always a new experience you can get with a new producer.
+- This band isn't mostly about being a political protest band. We want to entertain; we want to give you a good time. At the same time, if you look through the history of Priest, there's always been an intelligent factor.
+- I don't think it's right that there's one set of rules for one individual and another set of rules and laws for another individual. That's not the way the world should work.
+- You can't be dismissive of important things. You have to speak out, even if you don't get the results you would like to have.
+- We can either rip your face up with 'Painkiller,' or we can play this beautiful thing called 'Last Rose of Summer' from 'Sin After Sin.' And people love us for that because they don't really know what to expect.
+- I think my heart will always be made of metal, but it would be ignorant of me and kind of foolish to ignore the other emotional connections you can make in all kinds of music.
+- It's very tempting for certain generations to say, 'Well, I just want to be in a band, and I want to be a rock star,' or whatever. That's not what it's about. Firstly, you've got to be in it for the love and the passion that you have for the music, and then you take it from there.
+- If you go to the gym every day, it's not really good. Your muscles get fatigued. Your vocal cords are muscles - they get burned out, they get tired, so you've got to give them the chance to recover and repair during the night.
+- You have to let your musicians in your band be who they are.
+- I kind of blew the doors off the myth that all heavy metalheads are Neanderthal and very limited in their ability to take on subject matter of any human depth.
+- I think that the fact of the matter is that metal isn't really part of the big picture of the gay, lesbian, transgender music scene. But it's certainly there. There's gay metalheads all over the world.
+- Music is there to get you through life's ups and downs, good times and not so good times.
+- Most of humanity just wants to live a peaceful life, don't we?
+- I love heavy-metal music more than anything in the world, but I'm equally drawn to Michael Buble or Michael Feinstein.
+- There are gay and lesbian people in all walks of life, in all different types of professions. I just happen to be a gay man who sings in a heavy metal band.
+- I chew a special brand of gum that you can't get in America. It's British, and it's called Airwaves. It's a menthol eucalyptus gum that is a very soothing thing for me when I'm singing because I'm swallowing, and it also keeps my sinuses and general upper breathing clear. I've got to be able to hit these clear, clean notes.
+- They talk about the American Dream. I still believe in that. I still believe that this is a great country, where great things can happen, where anybody can become president of the United States. Just that simple statement there defines so much about the whole business of liberty and freedom and the pursuit of happiness.
+- When I write lyrics for Priest, I'm writing them for Priest. I'm not writing them for me.
+- When I was a kid, dealing with trying to discover myself, I didn't have anybody to talk to. I didn't have any Internet and didn't have any friends. You felt very alone and very frightened.
+- I've been a huge fan of Gaga since she first burst on the scene. I just love everything that lady represents. First and foremost, her voice is extraordinary. I love her voice. She's an accomplished musician. She plays piano really well. She's just a great songwriter. And she's a beacon of hope for a lot of people in the world.
+- I think the last thing you want in life is to live with regret.
+- To have Judas Priest together? It's a real adventure, and we always feel excited when it's time to create a new record.
+- Metal fans are just as compassionate and caring and tolerant as any other form of music fans are.
+- I've always felt that where Priest has been able to get to, it's been down to discipline, our real love and commitment to making the best music that we can make, and never forgetting our fan base.
+- I love early blues like Bessie Smith, Muddy Waters, and Howlin' Wolf. I listened to the way these people sang, and it was just beautiful - straight from the soul. That, for me, was an inspiration.
+- The moment I came out as a gay man, I never really thought of the consequences. Of course, the proverbial happened: it hits the newswires, and it's this big, big thing.
+- If you look at the history of the LGBTQ community, from my perspective growing up as I did in the U.K. in the '50s, there was just terrible, terrible discrimination, you know? It was extremely difficult to live your life as you should have been allowed to do.
+- This overpowering relief of love conquering any kind of difficulty and hardship in life - that love is forever, even with people that we lost in the physical world.
+- Oh God, don't let me go on Amazon Prime at one in the morning 'cause I always buy something I don't need.
+- We've always tried to convey these strong messages of strength and power and doing good in the world and, at the same time, to not be afraid to look at the difficulties that we experience.
+- As soon as I got my driver's license, I went crazy, and I got the Ford Cosworth, which was this limited edition street racing turbo. It was like this 200-miles-an-hour monster.
+- The fact that there are now gay men and women who can openly serve their country is a wonderful thing.
+- Criticism, maybe cynicism, is just rampant in music, in creativity. Everybody has a perception and a set of opinions based on what that piece of music is doing to them internally.
+- It's a very empowering kind of music, heavy metal is.
+- It's a myth that I received any flak from the metal community over my decision to come out. I have, in fact, received numerous positive responses from fans, as well as e-mails from people who were going through much the same thing. It's horrible to keep something like that secret, and I felt I had to make it public.
+- When I listen to Michael Buble, it's exciting; it's inspiring. I feel the same way with Michael Feinstein or Ryan Adams.
+- When I got clean and sober, that was a major change in my life.
+- Just the basic principles of what makes America work for me are very strong in my heart. It's like no other nation in the world.
+- I pray quite a bit, actually. And even if you don't believe in prayer, just have a go. Pray for a good day, or just pray for your friend, or whatever it might be. And it's amazing, man, 'cause it absolutely works. I guarantee, it genuinely does work.

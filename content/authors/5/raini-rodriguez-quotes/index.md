@@ -1,0 +1,13 @@
++++
+author = "Raini Rodriguez"
+title = "Raini Rodriguez Quotes"
+quotes_len = "7"
+description = "the best 7 Raini Rodriguez Quotes"
++++
+- I am in love with old school funk and soul music. That's what I grew up listening to, and I want to bring that style back with my music. I love artists like Stevie Wonder, Donna Summer, Aretha Franklin, Michael Jackson, Earth, Wind, & Fire, Bruno Mars, Justin Timberlake, and more!
+- 'That's So Raven' was my favorite show growing up! I loved Raven so much! That show is what made me want to be on Disney Channel!
+- Bullying is never fun, it's a cruel and terrible thing to do to someone. If you are being bullied, it is not your fault. No one deserves to be bullied, ever.
+- When I was 11 years old, I was bullied. It mainly started when I moved to California to pursue my dreams of being an actress. Kids back home in Texas, who I thought were my friends, were saying things behind my back. They said that I would never make it because I wasn't talented or pretty enough to be on TV.
+- Sometimes it's easy to see the negative side of things or question why people bully you. You could think, 'Maybe they're right. Maybe I'm not worth it. Maybe I should just quit.' But that's when you should fight the hardest. Now I don't mean fight physically, but mentally. Keep being you.
+- My mom means the world to me. She's always been the one to get me up early for work, help me with my make up and hair, and just be there to support me in whatever I do. She always makes sure that no matter what, I'm happy in what I'm doing.
+- There are different types of bullying; one of the biggest ones out there right now is cyberbullying. I had the privilege of filming an 'Austin & Ally' episode centered on cyberbullying, how it can get out of control, the ups and downs that you feel, and how to deal with it.

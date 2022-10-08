@@ -1,0 +1,14 @@
++++
+author = "Leonid Hurwicz"
+title = "Leonid Hurwicz Quotes"
+quotes_len = "8"
+description = "the best 8 Leonid Hurwicz Quotes"
++++
+- Legal behavior is not incompatible with rational, self-interested behavior.
+- There are two kinds of games in economics. One is the game where people use only legal moves. Then there is the true game, the one like real life, where the strategies and moves people make, some of them contain illegal gains.
+- A game is defined by the players' strategy domains and payoff functions.
+- My father was convinced, I think rightly, that if he stayed in Russia, he would have trouble with Lenin.
+- When you talk about the economic process of a society, sometimes we separate it into two stories. One is about monetary variables. But then, we very often assume the underlying arrangement, the other variable, is 'perfect competition,' which means people do whatever they are supposed to do.
+- A need for enforcement implies the possibility of behavior that violates the rules of the game. The point is that if there were no possibility of violation, then you wouldn't need enforcement.
+- I had the belief that many troubles you could observe on the European continent were due to politicians not understanding economic phenomena. Even if they had good intentions, they didn't have the skills to solve problems.
+- Just because there are people who violate rules, behave illegally and so on, it does not mean that everybody is like that. On the contrary, if you watch certain judges, you observe that they honestly try to implement what they believe the Constitution says and just put it into effect.

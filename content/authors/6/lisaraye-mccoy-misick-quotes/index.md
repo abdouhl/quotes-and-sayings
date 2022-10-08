@@ -1,0 +1,28 @@
++++
+author = "Lisaraye Mccoy-Misick"
+title = "Lisaraye Mccoy-Misick Quotes"
+quotes_len = "22"
+description = "the best 22 Lisaraye Mccoy-Misick Quotes"
++++
+- I've got to be able to get my time off whether it's just enjoying my house or the peace and quiet of my family and being there and cooking for them. I love doing that. I also love doing leisure things. I ride horses. I love to shop. I love to drive!
+- I think it is important for every actress to be able to feel whatever garment she has on because, we as women, we know when we look good. We know when we feel good.
+- I intimidate a lot of men, because I've done a lot. I'm established. I'm successful.
+- I make no apologies for loving the finer things in life or the men I choose to date. I don't feel bad about the person I am. Now, I do have an edge, rawness and realness, and I can tell you I'm going to keep that.
+- As an actress, I have put myself out there as an independent black woman, a single mom, a go-getter, a hustler who isn't afraid to survive.
+- Acting is wonderful, but it's not pulling in the type of money that I want. It's not bringing in the type of money that I am used to or the type of money that is going to supply my lifestyle. I'm a leisure girl; I like to be over in Italy or in Europe, you know shopping or vacationing, you know.
+- I am such a vacation girl. I have little places that I go to frequently! If I am not too busy on a weekend, I try to go someplace like Mexico or Manzanillo or something like that.
+- I know how to play comedy when it's needed. So even when it's really not there, my facial expressions are really great. I have a lot of facial expressions in my face, you know.
+- I'm not into younger men. A couple of years younger, maybe, but I'm not a cougar. I'm not a panther, either.
+- When I was younger, I thought LisaRaye sounded so country, but I've come to really appreciate my family-given name. I was named after my father, David Ray McCoy, and I'm totally a daddy's girl.
+- I've tried everything but celibacy, and I really want to know what it feels like to be touched by someone with a mental touch and not a physical touch.
+- I grew up on the Southside of Chicago. What people don't realize is that my father was a multimillionaire who owned 12 hotels, motels, a steel mill, a radio station, a club, nursing home, and a law office. So I think it's safe to say I'm a little above middle class and I'm a daddy's girl.
+- I have very few friends. I'm an associate of everybody and friend of none.
+- It is much easier to fight through this thing called life with someone, as opposed to fighting alone. I absolutely want to be a wife and to come home to somebody who I know adores me.
+- I want to know what it is to build the foundation of the friendship for real, to have my best friend and not because we're just intimate, but because we're mentally intimate. So I'm waiting for that person to come into my life.
+- Some men are afraid of women who challenge them and demand respect and answers. That's who I am and will always be.
+- I'm one of those women who's not to be messed with. I'm very opinionated and boisterous at times. I'm also kind and humble. I know when to fold and when to hold, and that's important. If my edge scares you, then you have a choice to remove yourself.
+- I've got girlfriends who call me 'Raye' or 'L. Raye', but when somebody calls me 'Lisa', it's like, 'You've got two more times to say that and then I think you're disrespecting me and I'm going to have to cut you!'
+- I'm a talkative person because I like to get to know a person and I like you to get to know me.
+- I learned from my mistakes; I was able to accept the things that were my fault and to be able to grow from that. You have to be able to see growth from your experiences, and I've done that.
+- I want to start dating the man that I'm gonna marry. I want to start having some fun with someone that I know I'm gonna be with. I don't play any games. I'm too old for that. I've been there; I've been around the block.
+- Growing up, I stayed in a child's place. My father was murdered when I was 20. I was a model and never had a real job and my parents took care of me.

@@ -1,0 +1,15 @@
++++
+author = "Bae Doona"
+title = "Bae Doona Quotes"
+quotes_len = "9"
+description = "the best 9 Bae Doona Quotes"
++++
+- My favorite subject was English, and I wanted to study English abroad when I was young, when I was a kid, but my mom said 'No, it's too dangerous to go abroad by yourself.' So I gave up.
+- It was extremely difficult to suppress my emotions, because my character in' A Girl at My Door' goes through so many infuriating situations. It was a lonely process having to portray someone that acts tough but is deeply hurting inside and is unable to express that.
+- In social situations, when I'm surrounded by people, I become very shy. But if there's a camera in front of me, I feel free.
+- If my favourite director gives me a role that is very sparkly? A very brilliant character? I'll do it.
+- Korean cinema is very improvisational, and there is a unique power that stems from this.
+- I don't know... I think I'm quite extreme... When I act, I have to immerse myself into the character... otherwise I can't act... In my private life it's the same... I think.
+- I'm not partial to any system, but at the same time, I'm a Korean actor, so I expect to work mainly on Korean projects.
+- Being exposed to different production environments in Korea, Japan and the U.S. was a great experience, and each system allows you to quench your thirst in a different way.
+- I really love learning and working long hours.

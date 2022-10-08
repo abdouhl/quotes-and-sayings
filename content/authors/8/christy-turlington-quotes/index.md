@@ -1,0 +1,137 @@
++++
+author = "Christy Turlington"
+title = "Christy Turlington Quotes"
+quotes_len = "131"
+description = "the best 131 Christy Turlington Quotes"
++++
+- The seated lotus postures are an amazing way to go into meditation, or simply just to take a moment to ground oneself.
+- Yoga gave me the ability to calm down.
+- It is better to not even try it than to endure the ramifications of either quitting smoking or dying.
+- I've always loved those portraits that Alfred Stieglitz did of Georgia O'Keeffe over several years, which really convey the idea that there's not one image that can capture a woman, because we're changing all the time.
+- Yoga has been the best tool for managing stress and life's challenges. Everything from my studies to my father's death was eased by my practice of it.
+- I don't think that artists of any kind would or could sacrifice their artistic freedom by being more responsible with their influence on people, especially young people.
+- When I was seven months pregnant with my son, my mother and I took a trip to El Salvador, where she's from. Frequent visits with her to see my extended family have taught me how different life can be if you are born into poverty.
+- You can usually tell when I'm happy by the fact that I've put on weight.
+- There has been a lot of media attention around the dangers of drugs used to treat mental illness on the fetus.
+- I have a very heavy-footed walk; I always have.
+- I really wanted to share with people the day-to-day joys that yoga can bring into one's life-not just the physical aspects.
+- I do everything in moderation.
+- May is the month when people focus on mothers more than any other time of year.
+- I remember doing a shoot for Herb Ritts, hanging off the Eiffel Tower - that wasn't your usual day at the office. It was terrifying, and in the end, you couldn't really tell how high I was because the photographer was scared of heights, so he was quite far away from me.
+- Not every model wants to be an actress.
+- Every Mother Counts is a nonprofit organization dedicated to making pregnancy and childbirth safe for every mother. We inform, engage, and mobilize audiences to take action and raise funds that support maternal health programs around the world.
+- I sincerely feel that beauty largely comes from within.
+- I enjoy the celebration of my birthday as much as anyone else does, but I always remember to start my day thanking my mom because she did most of the work the day I came into the world, not to mention all she has done throughout my life that has contributed so much to the woman I am today.
+- Getting older is baggage for so many people but I don't spend time on things I can't control. Wrinkles don't scare me; they're a part of life, and I will and do embrace them, but I look at surgery, and that scares me.
+- Yoga has reinforced and grounded my own spiritual beliefs.
+- I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone - when the time was right for me.
+- Yoga has helped me to see death as more of a gift than a loss, and that has been my experience so far.
+- When 1970s feminism hit the United States, women demanded the right to natural childbirth and to have their husband or another support person in the delivery room. My mother gave birth to me during this time.
+- I never looked at magazines before I started modeling. I was 13 or 14, and none of my friends were into magazines. We were into the fashion of the day, though.
+- I never understand why people have children and then insist on living as though nothing has shifted.
+- I would be very proud to have influenced anyone that I know or don't know to quit smoking.
+- I feel like being a good model for my children is something that I do take seriously.
+- Every year, more than 1 million children are left motherless and vulnerable because of maternal deaths, and children who have lost their mothers are up to 10 times more likely to die prematurely than those who have not.
+- I think there are so many extra benefits to running besides the health ones that come from getting your heart rate up, sweating, and all that other good stuff.
+- I have a beer belly.
+- America's health care system is the most complicated and expensive in the world.
+- I'm not an everyday fragrance person usually. I wouldn't put fragrance on before dropping off my kids or going to the gym.
+- Most of us harbour a significant amount of subconscious fear about death, and act out of this fear in our daily lives.
+- My family knows they are loved. As a mother, it is my job to let them know that they are, and it's a job I take quite seriously.
+- In many countries, women aren't jubilant when they learn they are pregnant. Quite the opposite - they're terrified.
+- I'm not a morning person.
+- So much of religion is exegesis. I would rather follow in the footprints of Christ than all of the dogma.
+- Many models I knew had come from broken families. That makes a significant difference in the way you handle yourself and the choices you make.
+- Every actor is a model to a certain extent, since they have to do so much press.
+- Sacred spaces can be created in any environment.
+- Ayurveda is a sister philosophy to yoga. It is the science of life or longevity and it teaches about the power and the cycles of nature, as well as the elements.
+- With every passing year, I feel more fulfilled.
+- I usually run in the morning and like to have something substantial but light to eat before and after. My go-to choices are either a banana with almond butter or a smoothie.
+- In the world of maternal health, cell phone technology is being used to provide prenatal care, linking pregnant women to health care providers when they can't otherwise reach healthcare facilities.
+- On average, African-American women are 4 times as likely to die from pregnancy related complications. Latina women are at 2 times greater risk.
+- There are disparities in accessing quality maternity health care in most every country, and most all health systems could and must be improved upon if we want to create healthy families who will thrive.
+- Walking strengthens my legs, and I swing my arms to tone my upper body.
+- As a global community, we have to start thinking more seriously about whether there are limits to what our earth can bear and if we're willing to cope with the struggle for limited resources, which only seem to increase as our population does.
+- I have good skin, but it's dry - drier than you would think, considering I have Latin skin. It's fairly transparent, too, so I'm constantly trying to give it nourishment and moisture, but nothing really holds.
+- Even though Haitian women are considered the 'poto mitan' - the 'central pillars' of the family and their communities - they are often the most underserved members of already poor communities.
+- Yoga is about compassion and generosity towards others. It means being mindful of the world around us.
+- A lot has changed since the 1980s, when the United States was a country with one of the greatest numbers of people infected with HIV.
+- Yoga puts me in a place that is a little bit less about doing and more about being, which enables me, in fact, to do more.
+- If we truly value humanity, life, and all that it represents in its highest form, then we need to do all that we can to promote quality of life over the quantity of life.
+- Style is something you either have or don't have.
+- I run year-round and then ramp up my training for a race a few months before.
+- I always run without music. Being disconnected is what I'm addicted to more than anything. There aren't many places where you can be without your phone and computer. I've started to crave and enjoy that time alone.
+- I didn't know anything about running gear when I started out, but after trying a few shoe brands, I've discovered that Brooks are my preferred shoes.
+- Nicotine is both a stimulant and a depressant, so that can make one feel quite imbalanced.
+- After delivering my daughter in 2003, I endured and survived a hemorrhage, the leading childbirth-related complication that takes the lives of thousands of other mothers all over the world.
+- If Mom is healthy, then her child is more likely to thrive, more likely to have a better quality of life and, ultimately, better able to provide for his or herself.
+- On the days I don't run, I do yoga and cross-training.
+- The word 'yoga' means union. It's like everything in yoga yokes or unites you to something higher, the highest part of yourself.
+- Those of us focused on issues related to social justice and equality are grateful for the significant steps President Obama has made to advance women's equality and status all over the world.
+- Access to maternal healthcare is a human right.
+- I never thought I would model for more than a few years.
+- Women are more likely to have a ruptured uterus if they've had multiple C-sections because there's more scar tissue.
+- When you are balanced and when you listen and attend to the needs of your body, mind, and spirit, your natural beauty comes out.
+- Yoga has brought me closer to myself. It's helped me realize the interconnectedness of the mind, body and spirit, in the Buddhist sense of the word.
+- My day-to-day life changes; I don't have any standard day.
+- It's very human to want to make an impact, to contribute to the world. But it's hard to know the how and why. Like, 'Will my small thing make a difference?'
+- It is possible to experience an awakening in this life through realising just how precious each moment, each mental process, and each breath truly is.
+- Cholera is even more severe among populations who are immunologically naive.
+- I almost had to exhaust myself at modeling before I could say, 'O.K., I'm ready for school.'
+- As a parent, I can get so frustrated. Any parent can!
+- Pranayama is the practice of breath control. The word prana refers not only to breath, but also to air and life itself.
+- I want my daughter to see that I am a professional and have commitments, but that I'm there when the family needs me, and so is their father. In some cases, more so.
+- Any spirituality can be enhanced with the practice or study of yoga.
+- We're living in miraculous times where connections are made at the blink of an eye, the tap of a thumb, and the click of a mouse. We can never replace human interaction, but these simple actions can be powerful and meaningful to those we connect with.
+- As long as I was breathing with the contractions and not pushing against them, I felt better. That idea is fundamental-to feel pain and not to resist; to go towards it. It is an incredibly spiritual practice.
+- If we can't support a woman while she is giving life, then we don't support women.
+- I like the big questions.
+- Imagine a world where mothers take as good care of themselves as they do their children and a world where mothers are so supported they're able to do that. That's the world we all need to create because our children, families, and communities are depending on us.
+- Parents should be the most important examples for their children.
+- I'd rather go naked than wear fur.
+- What I did for a living for so many years separated who I was from what I did.
+- In some countries, as many as 91 percent of women have no one at their side to assist them during labor and delivery.
+- I have lots of other mountains that I would like to climb. I have no dream of Everest, but there are some, like Mount Fuji, I'd like to do.
+- I associate wisdom and grace with age.
+- I always recognized that modeling would allow me to see and do a lot, so I looked for opportunities to learn and grow.
+- One thing that has become abundantly clear to me as I have advocated for the health and well-being of girls and women over the years is the innate power we each have within us to establish deep connection with one another and heal ourselves simply by sharing our stories.
+- I think each woman has her own relationship to beauty.
+- I was never directly pressured by peers, but by surrounding myself with others who were experimenting with smoking provided a certain false comfort.
+- Oh, I'm hardly stylish! I'm such a mess. I don't even think about what I'm going to wear; it's the last thing I think about.
+- It turns out that cholera is new to Haiti. It was inadvertently introduced by a group of U.N. peacekeepers stationed in central Haiti who had come from South Asia where it is endemic.
+- Giving birth was probably the most empowering thing I've ever done physically. I was like, 'Now I can do anything. I can run a marathon... I can run three marathons!'
+- More than half of pregnant women in the U.S. are obese, which leads to complications like hypertension, gestational diabetes and high blood pressure.
+- People always think that if you eat anything as a model, it's amazing. I used to tease them and say, you know I'm going to throw up afterwards.
+- As a child, the conversations that I liked to have with my friends - or with anyone, for that matter - were always about religion.
+- I have a son and a daughter; I try to teach them equally about balance, gender, and gender equity.
+- I grew up Catholic. My mother is from El Salvador, so my family on her side is Roman Catholic. My father is Protestant, and while he was spiritual, he wasn't much of a churchgoing person. I think it's fairly common for families to be brought up in the mother's religion.
+- I think mothers are so important. I mean, it seems like such an obvious thing to say, but I think we don't really express that enough, apart from one day a year. So I think we need to come together and celebrate us every day.
+- If you do one thing a day, make it a headstand. It's the king of all postures and has so many benefits. It helps me sleep better and focus.
+- I was really gangly and uncoordinated as a kid. I couldn't even do a cartwheel.
+- Health is your greatest wealth, so experiencing a marathon and seeing what you're capable of is really special.
+- The way I try to live is 'Be here now.' Be your best self now.
+- Imagine the possibilities if humanity banded together before disaster struck to relieve everyday suffering worldwide.
+- In my teen years, I was hanging out with adults - Steven Meisel, Francois Nars, Oribe, Paul Cavaco. We had so much fun! We'd go out in New York.
+- Parents should not smoke in order to discourage their kids from smoking. A child is more likely to smoke when they have been raised in the environment of a smoker.
+- A lot of people have questioned how yoga and their own spiritual beliefs can come together. Yoga actually pre-dates religion.
+- When I was 18, and my looks were what I was - and all that I was - it did feel very limiting.
+- Yoga is not a religion to me.
+- Modeling is a profession where your worth is tied up with looks.
+- It is education that will arm us with the tools that will enable us to succeed and put a stop to the rising rates of preventable death.
+- There have been so many photographers and editors who mentored me over the years. At the very beginning, the person who taught me the most was Arthur Elgort. I always loved working with him. We traveled a lot together.
+- My weight fluctuates, and I haven't always been skinny. I became curvier in my twenties, but I never felt self-conscious about it; going through different periods is all part of being a woman.
+- Fashion is all about references. All these names being thrown around.
+- Lipstick is the easiest way to dress up without doing a lot, but it's hard to maintain, so I always opt for nudes if I'm going out for a long time.
+- As a Global Maternal Health Advocate, I get to travel the world quite a bit, meeting individuals and visiting programs with tremendous potential and incredible vision to improve the quality of life for countless others.
+- I started practicing Yoga at about 18. I had a friend who was doing it and was incredibly disciplined and meditated all the time.
+- Mothers need mothers. Let's be there for one another.
+- Everybody is so anti-aging, but I don't want to look younger than I am. Our face is a map of our life; the more that's there, the better.
+- I haven't left modeling completely; I just took a step out, and I now have the rare luxury of picking and choosing how to spend my days.
+- I've always eaten well and have a balanced diet.
+- I have healed myself through sharing my birth story as well as others' stories in my film 'No Woman, No Cry,' and in various writings and talks about maternal health.
+- I just love being outside.
+- You know, all these sentiments about beauty coming from within, they've always resonated when I've read them, but it takes a bit of living to truly appreciate them. To realise we are so much more than our experiences, that we are who we are because of the lessons we've learnt, now that's what true 'beauty' is for me.
+- In parts of the world where basic infrastructures like paved roads and transportation systems are underdeveloped, people walk for days to reach a health care provider.
+- I was a regular kid with a normal family life.
+- I have my family, which is my main thing; the organization; a modeling career. All these things are important, but family definitely comes first.
+- Like so many new moms, I felt anxiety over the impending birth of my daughter. However, most of the anxiety I felt was around the idea of raising a child. I wasn't focused on potential risks to my health or hers that could occur during the actual birth.

@@ -1,0 +1,106 @@
++++
+author = "Rod Lurie"
+title = "Rod Lurie Quotes"
+quotes_len = "100"
+description = "the best 100 Rod Lurie Quotes"
++++
+- I am a liberal. I have always been a liberal.
+- The freer a society becomes, the freer its arts can flourish and be exported.
+- I don't know a nicer guy in the world than Alan Alda.
+- Trump is the opposite of everything Reagan was.
+- The First Amendment is the First Amendment for a reason - our most cherished right. But it often creates muddy and uncomfortable situations, ones that are the source of great drama and national self-reflection.
+- I often found that my favorite scene that I shoot is often one that I cut out, like in 'The Last Castle' and 'The Contender.' If you look at the deleted scenes, some of the best scenes never made it into the film.
+- There's no need to make any film. The word 'need' is pretty strong. But if there's a purpose behind making the film, there can be a justification for it.
+- 'Nothing But the Truth' is a journalistic thriller that is set during the end of days for print media.
+- If you look at the greatest performances of women, they're usually older... Anne Bancroft in 'The Graduate,' Kathy Bates in 'Misery.' It's a matter of characters having a life experience that makes them interesting.
+- As for Kate Bosworth, I've always admired her. I watched her in a movie called 'Girl in the Park,' which has never been released - not even on DVD. I had a copy, and it was bravura acting I had not seen from her.
+- The United States military is probably the most socialistic institution in the United States.
+- I came to the conviction that film criticism, in and of itself, was an art.
+- I grew up in the home of a political cartoonist, so I was a junkie for politics.
+- I fell in love with 'Ben Hur' when I was 8 years old, and I just knew I had to be involved in movies, even if I was the guy who melted the butter on the popcorn.
+- I think people were a little premature in writing off violent movies. They're going to continue being made, and audiences will continue going to see them.
+- You will never - and I mean never - be able to figure out if I was an Obama guy or a Hillary guy.
+- When reporters are in the business of obtaining hard facts that service the free flow of information, journalists should have a right to obtain that information without fear of personal ruin or incarceration.
+- The point of remaking 'Straw Dogs' is not to replicate the philosophies of Sam Peckinpah at all. What made that film singular was the attitude that he brought to the characters. Oddly enough, that's the one thing that I really wanted to change.
+- There's a difference between 'political films' and 'films about Iraq.'
+- When you make a movie like 'Straw Dogs,' your goal is to have people's eyes remain glued to the screen. It serves you no purpose to turn away from the screen.
+- We are viewed by the world as a quasi-racist state in which we allow natural disasters to obliterate our minority community, in which our penal system is designed to treat blacks unfairly, and in which we let the medical and educational systems in our ghettos fester to the level of some third-world countries.
+- There was never a day at West Point where I didn't ask myself, 'Where would I put the camera?'
+- I really like iconoclastic casting. I really do.
+- We make movies to endorse our own personal feelings. I am not, in fact, a documentary filmmaker. I've got my personal beliefs, and I'm ready to put them out on the table.
+- It's not such a bad thing to bring some naive optimism to Washington.
+- Most people with whom I talk, often quite educated, think the military is made up of knife-between-the-teeth grunts, uneducated robots without any kind of free will whatsoever - people who goose step to Republican philosophy and particularly the Bush cowboy mentality.
+- The ability of the press to print their stories without the government trying to get them to betray their sources is as essential to a free press as the ink it is printed with. Otherwise, who will hold accountable those who hold power over us?
+- People tend to forget about nuclear weapons. We think they are going to remain in silos for the rest of time. As long as they exist, they are going to be used.
+- Every weekend from, like, 1974 to 1978, I'd trudge over to the Greenwich library, which gathered up almost every major newspaper in the country. I would sit there all day long and read and read and read the reviews. I remember being twelve or thirteen and writing to Judith Crist, Pauline Kael, and Roger Ebert.
+- I promise that if there was no Hillary Clinton, there would still be a 'Commander in Chief' - I want to have a hit show that people enjoy, and really, that's it.
+- I think that maybe human beings are conditioned to violence.
+- The way that one feels about the story line of 'Deterrence' can tell us, I believe, about each person's conservatism or liberalism and precisely how tolerant he or she is of racism.
+- When I was a kid, my heroes were not baseball players nor movie stars. My knights in shining armor were film critics.
+- I think that most of the young officers I know are leftists and liberals and Democrats. And the reason is this: All of our soldiers, the men that work for us directly, are minorities - blacks or Latinos. And we empathize with them. Our job is to advise them and help them.
+- What actor doesn't want to walk around a set and be called 'Mr. President?' Playing POTUS is a kind of rite of passage among American actors - our version of playing Hamlet.
+- I believe Sam Peckinpah is one of the greatest filmmakers of all time, and I hold him in high regard.
+- Unfortunately, in this country, when we have the opportunity to be bigots in private, we take it every time.
+- Rehearsing is more about blocking in the case of movies, I think, and blocking, of course, is very important to the beauty of a scene.
+- No matter how far they rise, women never stop being the caregiver. At the end of the day, women bear the emotional responsibility for their families.
+- The truth is that when a man has a child, and it's a girl, and he doesn't change as a man, he's not much of a man.
+- I suppose when any movie dealing with politics is released, there is a knee-jerk assumption that it is propelled by a liberal agenda. That may be true most of the time, but not with 'Nothing but the Truth.'
+- What makes a man is when you go against your own instincts to do to the right thing.
+- 'Monsters of God' isn't just a series close to my heart; it is my heart, and I am very much looking forward to working with my fantastic team in New Mexico to create a top-notch series.
+- We need to get young people involved in the running of this country.
+- You learn quite a bit about your film from test screening audiences.
+- There are a lot of westerns that deal with people standing up for their principles, and that is the predominant theme that has been in my films.
+- I thought I'd give myself 10 years as an entertainment journalist and build up so much clout that there was no way Hollywood could ignore me when I started delivering scripts. Little did I know they were very good at ignoring it.
+- 'Commander in Chief' became a show not about why we should have a woman president but why we should not have a woman president.
+- I think that 'Straw Dogs' as a story is eminently re-makable. It can be modernized and Americanized without a problem and without giving up any artistic integrity.
+- Now, I don't know about my peers, but I get nervous - okay, I genuinely freak out - when an actor starts trying on a Southern accent. That's for Brits trying to find the easiest way to sound American.
+- I still viewed myself as a reviewer when I was on radio. Was it appropriate for me? I think the answer is it's only inappropriate if I allowed it to affect my film reviewing. I don't think you will find any studio that said, 'Yeah, he went easy on us because he was shopping a script.'
+- The truth is that I have never created a president to push a political point of view. I am often looking to create aspirational characters; that's true. But, you know, in the end, it is really up to the actor in front of the presidential seal to decide exactly what kind of president you're going to get.
+- I can be accused of being acerbic as a critic and writer.
+- Simply stated, sometimes journalists can only get their information from informants who must remain anonymous in order to protect their careers and sometimes even their lives: Watergate: Confidential sources. The Pentagon Papers: Confidential sources. Enron: Confidential sources.
+- I loved going to the movies, especially when I was a teenager in the seventies. How couldn't you in what was perhaps the greatest era of auteur cinema?
+- I remember watching movies like 'Fatal Attraction' and watching the audience go bananas at the end of the film.
+- I grew up with an infestation of politics. I'm just nuts about it. It's our form of gladiators in the arena, only they are not in quite as good a shape.
+- I do have this belief that we all have a chance to be great, beautiful people based on how we are raised and our surroundings.
+- There seems to be an interest in connecting the history of the past to the present and asking whether things have really changed. Films like 'The Contender' and 'Bulworth' seem quaint compared with Trump!
+- The truth is that we're not remaking Sam Peckinpah's 'Straw Dogs,' we're making 'Straw Dogs.' We're taking this story, and we're putting our own spin on it. The mere fact that I have James Marsden in it is an indication that it's a very different film than the one that had Dustin Hoffman in it.
+- The election of Obama will say as much about the American people as it does about Obama himself - that our Declaration of Independence means what it says in its opening lines, that being the world's greatest nation means that we offer the world's greatest opportunities.
+- I grew up during Watergate. I was enamored of the study of that.
+- Somebody - and I'm going to guess it was Hitchcock - once said that everyone has their reasons. If you remember that, as a writer, you'll write better than average villains.
+- I was just nine years old when 'Straw Dogs' came out, so I can't really speak to the women of the time, but I can tell you that the women of 2011 are not put-upon, and they're not victims.
+- When you hire Sam Jackson, he'll figure out the character, and he'll figure out the character's look, and he'll provide it to you. With Sam Jackson, you basically yell 'action', you go get a sandwich, and you come back and yell 'cut.'
+- As much as I like Michael Moore - and I'm on the same political side as him - I think his documentaries are really a batch of manipulations and lies.
+- I don't think I'm equipped enough to be giving anyone a civics lesson or any kind of message.
+- 'All the President's Men' is a movie that has a very personal place for me because it made me want to be a journalist, and then it made me want to be a filmmaker.
+- I met Joan Allen at an L.A. Film Critics Awards' dinner, and I said, 'I want to write a movie for you.'
+- Some nights I lie awake at night thinking, 'What's going to stop someone from smashing a chair through my window and coming in the house at two in the morning?' It is very unnerving. It's a realistic scare, which is the worst kind of scare that you could have.
+- I'll tell you this: you can look at all the masculine toughies you want - the Ben Roethlisbergers, the Russell Crowes, the David Petraeuses - but if you want to look at what a man should be - persevering, honest, a person who manifests his intellect into action - you need look no further than Roger Ebert.
+- Take a look at Mila Kunis. When you see her performance in 'Forgetting Sarah Marshall,' you see a beauty there, and also a sadness.
+- I look at 'Straw Dogs' as a very imperfect movie. It's a little bit slow, and its themes are a little bit murky.
+- Every filmmaker wants to get their audience talking.
+- When you do a freeze frame, you have the opportunity to find the exact shot that you want - no guessing.
+- Hollywood is enamored of the 20- to 30-year-old actress, but by the very nature of the life experience of the character, the roles cannot be that rich. You can only have Angelina Jolie in a mental hospital so many times.
+- The common denominator of the great women leaders in the world - Indira Gandhi, Margaret Thatcher, Golda Meir - is that they're dramatically nonsexual.
+- It's very exciting to continue to work at DreamWorks.
+- He may not have been a good actor, and I personally don't think he was a good president, but I'll tell you this: Ronald Reagan was a helluva character.
+- I think our nation cannot stomach the notion of a woman in sexual terms whatsoever: that we are so puritanical that we cannot dismiss the notion of sex from our minds when it comes to women.
+- I have to admit that all of us creatively involved with 'Commander' absolutely intended to put the term 'Madam President' into the zeitgeist. I can't deny it.
+- I shot part of 'Resurrecting the Champ' in Denver, and I spent a summer going to survival school in Colorado Springs.
+- Sometimes, anonymous sources, when merely stating opinions or running a smear campaign, are certainly cowards.
+- Finding out you're able to do something doesn't necessarily mean you want to do it.
+- There was scarcely a month during 1988 when Thomas Harris' novel, 'The Silence Of The Lambs,' was not on or around the top of the 'New York Times' list of America's bestselling books.
+- Just because the boogeyman of the Soviet Union doesn't exist anymore, it doesn't mean the world is living angelically.
+- Former soldiers will almost always gravitate to the anti-war party. This happens for obvious reasons. The men who have been in battle tend not to romanticize it and tend not to take it flippantly.
+- I'm sure when 'Midnight Cowboy' came out, it took a couple of minutes to get used to the voice and the look of Dustin Hoffman, or to even recognize that it was Dustin Hoffman.
+- The fight to get a shield law barring the government from being able to jail journalists is itself a non-partisan battle.
+- I admire how Tarantino finds music that's semifamiliar and not famous: undiscovered gems.
+- Classically, throughout all of our history, the movies in times of crisis have turned to military figures as heroes, because they are the guardians of our nation.
+- Sam Peckinpah's movies probably say more about him than anybody's body of work says about that person. There are running themes in his films that I find eminently fascinating, disturbing, exhausting, and exhilarating.
+- I've been a huge fan of Steven Bochco's for over two decades.
+- If I have to answer one more time, 'Why did you want to remake 'Straw Dogs?'' with the emphasis on the word 'why,' I'm going to flip out.
+- My mom is an exceptionally wise and kind person.
+- Whenever you make a movie, when it's done, as a filmmaker, you never sit there and say, 'Boy, I really got that right.' It's, 'Where did I screw up?'
+- Anything about Iraq is a death sentence at the box office... You can't make movies about an unpopular war while the war is still going on - people don't want to pay to get depressed, though they sometimes will go to movies to get educated.
+- Marc Frydman and I are overwhelmed by the confidence Touchstone Television has shown in us, and we're thrilled to continue trying to knock 'em out of the park.
+- I can't stand to see myself on TV.
+- In my mind, I'm no longer daunted by the idea of a remake. In fact, I now look at it as a genre unto itself - so long as you make it your own.

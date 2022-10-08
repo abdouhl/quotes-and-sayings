@@ -1,0 +1,88 @@
++++
+author = "Camille Kostek"
+title = "Camille Kostek Quotes"
+quotes_len = "82"
+description = "the best 82 Camille Kostek Quotes"
++++
+- When I hear the words 'New York Fashion Week,' I immediately think of Marc Jacobs.
+- In my day-to-day, I don't wear a lot of makeup, but if I have a lot on from a red carpeted event, I'll use a regular makeup wipe to remove it. Then I use a gentle foaming cleanser, which really gets down into the skin rather than just helping remove the makeup.
+- I like to meditate, take baths at home with essential oils and salts and write in a journal.
+- Jet Blue is my preferred airline. I love the cleanliness, technology, and the staff is always wonderful.
+- I like to think of my life as very spontaneous and new all the time.
+- I have a love for anything gold.
+- Confidence is sexy. That's what 'Sports Illustrated Swim' stands for. They have this movement where you can just be beautiful no matter what shape, what size, your height, your body type, your ethnicity.
+- I'm all about being open with how you feel. But I don't believe in feeding into fear. I think that's what keeps me going and feeling hopeful.
+- I feel like it's my duty to share my experience with self-acceptance. I don't want to bore people and talk about myself, but the biggest struggle for me was my body.
+- I'm such a day-to-day person and 'Sports Illustrated' was a 12-year-long dream that finally came true.
+- It's really easy to want to just sleep all day.
+- Write down your fears. Write down your thoughts. Write down the feelings you want to have. Just release it, don't ignore it. It's a lot easier said than done, but once you start practicing some of those things, you'll realize that you have a lot more control over your thoughts, your feelings.
+- It's motivating when someone tells you it's possible to do something that seems impossible.
+- I go to studios and dance all the time. And that's something that will always be instilled in me. That was always my first passion from the time I was 3 years old - dance.
+- I was a dancer, so I always loved watching girls perform and dance and just always looked up to them and their bodies.
+- There's definitely been times when I've been on sets and I was the bigger model in the room, where they're casting girls.
+- Being bikini-ready for me is wherever I am at.
+- I cannot live without a matte sun-kissed bronzer.
+- I like hanging out with retired Gronk cause we get a lot more time together, but I miss going to the games, and dressing up, and suitin' up, and cheering him on.
+- My birthstone is amethyst. I have one from my grandma that's kind of like my good-luck charm. If I'm anxious, I hold it.
+- There's no point in being a relationship if the two of you don't support one another.
+- My number one tip is if you do not need to wear makeup for something, don't.
+- Making sure my skin is hydrated is my number one priority.
+- Whether there's music, there's not music, it's an appropriate time to dance or not, I'm dancing.
+- I have never been one to count calories. I have a lot of friends in the fitness industry and understand girls who do crack down on diets, but I am not like that.
+- I remember loving looking at J.Lo because she had a set of hips.
+- Confidence is everything, and the way you carry yourself, your posture, eye contact, all of that is such a big role in impressions, regardless of your size.
+- We wake up and go to sleep with ourselves every single day. We see ourselves in the mirror from every angle. We know what we look like. We know what makes us happy about our bodies and what upsets us. And we don't need to value the opinions of others at all - especially from people who that we don't even know, or that we don't care about.
+- There are nothing but great things that come out of dancing. People are laughing, people are uncomfortable, it's an ice breaker.
+- When I am sitting in a movie theater with my girlfriends or boyfriend, I think how cool would it be to watch a movie with me in it.
+- For the Patriots, you can be a cheerleader for four years. They can be four consecutive years. You can do two years and take a break, and then come back for two more years. I've actually only completed two years, two seasons with the Patriots cheerleading team.
+- I'm on the road a lot, so I'm always carrying resistance bands with me. I use them in hotels and even on Uber rides or on the plane.
+- Right out of college I was offered a job with 'Saturday Night Football' and I ended up turning it down because I really wanted to travel.
+- I always seek the time to talk to people who are reaching out for help because sometimes you just need that one person to tell you everything is going to be OK.
+- I feel most confident when I am in a dance studio alone.
+- I'm used to homebody, work-mode Rob. Snuggles and movies. Once the offseason hits, we definitely have our fun times in Miami or Vegas, and he is the life of the party.
+- I want to model and I want to do whatever it takes to be a 'Sports Illustrated' swimsuit model.
+- I just want to remind people that you know yourself better than anybody else and if you don't believe in yourself, then who will?
+- It's easy to get spiraled into our phones, the computer screens and read these comments about yourself in the comment sections of photos or articles. And definitely in the modeling world, it's heightened. The trolls come through even more. It can be super hard.
+- I wanna be one of those people that young women look up to.
+- If you're not happy with something, take positive steps.
+- Going to the spa is the ultimate way to unwind, but unfortunately with such a busy schedule, I'm not able to always get to there.
+- It wasn't until I read 'SI Swim' that I was like, 'Wow, I love my freckles, I like my thighs, I like my curves.'
+- I was a girl with freckles and grew into a young woman a little bit more quickly, with hips and thighs.
+- I never travel wearing makeup.
+- I swear by Too Faced's Milk Chocolate Soleil matte bronzer. My boyfriend thinks I eat chocolate before I see him because it smells like it.
+- It's OK to feel good about yourself because it's not doing any good for anybody else to be fearful or spread anxiety.
+- I never took modeling seriously because I was so busy with cheerleading.
+- If someone needs a bobby pin or a safety pin, I always have it.
+- I've been told no a thousand times and 'Model Search' gave me the opportunity to be seen, to be heard.
+- I crave clean food, but do have an occasional chocolate bar or ice cream.
+- Even if you're meditating, practicing yoga, reading a book, or taking a bath - It's so important for our wellbeing to just take some time away from social media.
+- It's kind of tough to get noticed. Sure, I can kick my leg over my head, but how do I get noticed?
+- I knew that if I was going to be a model, that it was going to be in the body type that I am. As an athlete, as a woman with hips and thighs and curves, that was me.
+- I felt I had 'made it' as a model when I was invited to be the first model to shoot for the 2019 'Sports Illustrated' Swimsuit issue.
+- But maybe someday I'll be reporting on the sidelines instead of dancing on the sidelines.
+- I don't believe in crash dieting.
+- I think the greatest thing about partnering with the Arthritis Foundation is the fact that we're raising awareness. I actually called my mom and said, 'I've heard the word 'arthritis' every once in a while come out of your mouth. Do you have arthritis?' And she said, 'Yes, I have knee pain, joint pain and in my hands... I have arthritis.'
+- I love the Kopari Lip Glossy. I always have three of those. Every time I see them, I buy another one because I never want to run out.
+- Just because it may seem like I am so confident, so happy all the time, there are times when I feel low. There are times when I want to curl up in a ball and not expose myself on social media anymore and just close it down because of the trolls.
+- I'm all about spontaneity. I think it makes for greatness.
+- I just want to send the best message possible to women. And I'm just so thankful because I honestly never thought I could model. I've always been told I wasn't tall enough, I wasn't thin enough.
+- Even at the times that I've pushed myself to exhausting limits to get myself at my lightest weight, I did not feel comfortable in that skin.
+- Dance was something that came to me before I could even walk or talk.
+- I didn't even aspire to be a model because I didn't see myself represented, even as simple as the freckles on my skin.
+- I am such a private person.
+- I love to work my glutes and triceps and use a lot of free weights.
+- Being still may sound a little crazy to some, but I really encourage people to simply listen to your own breath and unclog all those thoughts running through your mind. It's important to take a step back.
+- Accepting all that you are will lead you to live your best life and will allow you to be free and your true authentic self.
+- I love eating clean. Like for lunch, I'll have a wrap with hummus, avocado, carrots, tomatoes, cucumbers and bell peppers with a little bit of olive oil and pink Himalayan salt.
+- Oh my goodness, do I aspire to be like Gisele? I just turned 23, I'm enjoying being young and focusing on my career.
+- Passions aren't something you have to think about, they're something you know and feel.
+- That always stuck with me. When I finished school in 2015, I started going to open calls in New York. But I was getting the same response every time: 'Get your measurements down. Take X inches off your thighs and hips.'
+- Pairing jeans with a stiletto and a body suit is my go-to that makes me feel my sexiest.
+- A relationship always feels good when you have your man supporting you.
+- As I grew older and the dance became more competitive and more disciplined, that's when I started to realize that I'm an athlete.
+- I want to break standards.
+- I just think that as much as we say sticks and stones may break my bones, but words will never hurt me - words do hurt.
+- Rob has been one of my biggest motivators. I constantly see the work he takes on, both on the field and off. He's definitely someone I admire.
+- Growing up, it was hard to associate with some of the women who were being portrayed in the media.
+- When I was young, the way I was brought up, my mom made me feel comfortable in my own skin.
+- I decided to turn in my pompoms and focus on modeling.

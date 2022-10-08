@@ -1,0 +1,104 @@
++++
+author = "Finn Balor"
+title = "Finn Balor Quotes"
+quotes_len = "98"
+description = "the best 98 Finn Balor Quotes"
++++
+- Ireland has always been a nation of great athletes from the past: in the nineties, we had Sonia O'Sullivan and Steve Collins.
+- The dojo system in Japan is something very unique. It prepared me not only for wrestling in the States and around the world, but it also prepared me for how to handle myself as an adult in the real world.
+- It's been a bit of a struggle getting used to life in the States, adapting to a new lifestyle.
+- It was a big gamble to come to WWE, and it was a big gamble to come to NXT. Honestly, the gamble paid off.
+- Johnny Saint is someone who I studied as a kid.
+- Every child has played video games growing up and played WWE games. To be part of a video game, it's an unbelievable experience.
+- I think everybody in WWE and NXT want to be involved in WrestleMania. I can huff and puff and push all I want, but that's something you just can't rush.
+- I spent a lot of time in Japan. To me, I felt like my career was kind of marooned out there. I didn't realize the extent of the reach that New Japan had in America and around the world.
+- I quite like walking out in my sweet new Balor Club jacket, popping my collar and being Mr. Cool.
+- I'm not one for reading comments or reading what people say online because, generally, there's a lot of negativity.
+- How I feel as a person and what I support as a person always remains the same, and that is continuing to support LGBT communities around the world.
+- As a kid growing up, I was a huge gamer - The NES, SuperNES, N64, GameCube - and I had a GameBoy, which went everywhere with me.
+- I grew up watching wrestling my whole life, so to get the chance to step in the ring that I've watched on TV so many times is a dream come true.
+- I'm the sort of person with a very short attention span, and I lose interest in things very quickly.
+- If you ever have a question or a problem, if you approach Triple H, he might say the most-obvious thing, but it was the last thing you were thinking. As soon as he says it, you're thinking, 'Oh my, why didn't I think of that?' He's very smart, and we're very lucky to have him at our disposal in NXT.
+- I came to WWE to be on 'WrestleMania' and to be in a 'WrestleMania' main event.
+- I've been put into a lot of situations that could be stressful. That's really helped me mature, both as a performer and as a man.
+- Everyone that watches wrestling as a kid dreams of being a wrestler for WWE.
+- There wasn't one defining moment that I said, 'I wanna be a wrestler.' It was just something that was always inside me.
+- I can honestly say it was the greatest decision of my life coming to WWE.
+- Nobody thought Finn Balor would be in the WWE. Here I am.
+- I don't really pay attention to the news or stuff like that or what's going on in politics.
+- Wrestling has a funny way of regenerating itself, and I'm sure, in the past, a lot of people have asked questions about 'Who's going to replace Sami Zayn in the locker room?' or 'Who's going to replace Kevin Owens in the locker room?' People always step in.
+- For a long time, we had Raw and SmackDown, and there wasn't really anything else. The NXT Universe kinda opened up channels for wrestlers to come in from the independent circuits, like myself.
+- I can't speak of anything but greatness for Roman Reigns. He's one of the all-time greats.
+- I had to use a lot of the lessons I learned from fighting Samoa Joe and apply them to Bray Wyatt.
+- I always wanted to have sort of an alter ego.
+- If you're going to learn about entrances from anyone, you might learn from the Undertaker.
+- I didn't realize how much the paint was going to affect how I moved and how I walked. And it wasn't something that consciously happened. It was because the first time I'd done it was a Tokyo Dome show, I want to say in 2013-14, and I walked out there, and I was a completely different person.
+- I heard Samoans have hard heads, but it turns out what Enzo Amore told me about Samoa Joe's head was true. His head is S-A-W-F-T.
+- My parents have supported me everywhere I've went: U.K. to Japan, NXT.
+- I'm not going to throw in the towel a moment earlier than I think I have to.
+- The Demon character is something I draw on occasion. It's something that requires a lot of focus to tap into and really requires the right situation for me to sort of draw on that darker side of my personality.
+- You can only get better by challenging yourself.
+- I came up in the U.K., which is a very catch-as-catch-can style, and then I somehow ended up in Japan and spent eight years there learning strong style. I got to spend some time in Mexico learning the lucha libre style, and the WWE is a hybrid style of everything mixed together.
+- I'm proud to be the standard-bearer for NXT.
+- I don't do well in social environments.
+- My whole career, I've been climbing or chasing or hunting something.
+- I often find out, once people have trained, you can never really re-train. When you get trained, you learn to lock up; you learn a wrist lock and, okay, onto the next thing, onto the next thing. You never really go back to the fundamentals.
+- It's a very simple answer, how to get my abs so defined. I have a very healthy diet of a lot of laughter. If you laugh all the time, you're consistently flexing your abdominals all the time.
+- It wasn't until later in my career that I really focused on the importance on making an entrance.
+- I'm a big fan of seeing smaller guys vs. big men.
+- When I first broke in, I wanted to be the best technical wrestler on the planet.
+- The NXT women are changing the way women's wrestling is viewed. It's an inspiration to be able to watch.
+- I still can't believe I'm a professional wrestler in the first place. That hasn't sunk in yet. I'm sure I'll look back when I'm 50 or 60, if I make it that far, and think about everything that's happened.
+- I don't see why we should alienate anyone, regardless of sexual orientation, nationality, religion, ethnicity.
+- 2010 was an incredible year for me. I won the Best of the Super Juniors, and went on to win the IWGP Junior Heavyweight title. That was an unbelievable achievement.
+- I've got a pretty wild imagination, and a lot of times, I have to be reeled back in.
+- I'm going to look forward to the future as opposed to looking back at the past.
+- I have no intentions of getting in a UFC cage at all!
+- I'm very lucky to be working at NXT with coaches, especially Matt Bloom, who is open-minded and a great ribber.
+- When you're in NXT, you're really fighting and trying to dig down deep and chase your dream.
+- I want to be part of the growth of NXT.
+- We're all humans living on this tiny little rock, floating through space at, like, thousands of miles an hour. We should all just get along.
+- A lot of people are under the impression that Finn Balor relies on the Demon King, but that is certainly not the case.
+- Myself, Karl Anderson, and Luke Gallows are best friends. We travel together, we train together, we eat together, and we do a lot of things together.
+- Going through secondary school in Ireland, everyone's like, 'What are you gonna do when you finish school? Go to college? Study business? Study electronics?' I was like, 'Well I kinda love wrestling, so I don't see why I should want to study anything else except wrestling.' For me, it was a no brainer.
+- I'm not a very emotional person.
+- Just remember that when I went to New Japan, nobody knew who I was. And I've done okay.
+- I think Finn Balor is more about confidence, a smarter version of Prince Devitt. Otherwise, they have the same core values, same techniques, and the same heart.
+- When kids tune in and see Jordan Devlin, Trent Seven, Pete Dunne, Wolfgang on the WWE Network, and then they see a poster at the town hall for their local wrestling show, they're gonna say, 'Oh my God, that's Pete Dunne. I wanna go see him.'
+- I spent two years at NXT and a lot of times questioned, 'When is this going to happen?' or 'Is this actually going to happen? Am I going to make it to 'Raw?''
+- You can be a big fish in a small pond, but you're only going to be competing against people at that level.
+- Hopefully, I can be a good role model for kids, and they can grow up to follow their dreams just like I am.
+- I was big into hip-hop as a kid, and when I was eighteen, I got into dance and rave music, which was popular in Ireland at the time.
+- The crowd down in Australia is always so energetic, some of the best crowds in the world to perform in front of.
+- I'm very much in a mindset that I take myself out of anything that I'm not involved in.
+- Japan took me in as one of their own and treated me like one of their own.
+- When I first went to Japan, I was wrestling under my real name. The Japanese people have a great amount of difficulty with the letters f, r and l. So three out of the six letters in my first name they couldn't say. It was a bit of a mouthful for those guys.
+- I found, going to Japan, working in the dojos, brushing up on the fundamentals, that's where I really mastered what I was doing.
+- I try and look at the positives in every situation.
+- Balor Club is for everyone.
+- I always go back to my days in NXT and look at my feud with Samoa Joe. That was one of the best periods of growth for me.
+- To go from a small wrestling dojo to the Performance Center was just mind-blowing. The sheer scale - I didn't think anything like that could possibly exist.
+- I'm normally a really humble guy.
+- You can kind of run drills and practice, rehab behind closed doors as much as you can, but there's nothing that simulates being in front of a live audience with live TV cameras.
+- I thrive under pressure.
+- That would be a dream match for me to see Finn Balor versus The Undertaker.
+- Obviously, everyone wants to headline 'WrestleMania.'
+- I've seen a lot of different training schools and dojos, and the sheer level of professionalism at the Performance Center and the state-of-the-art facility just knocked me for a six. It really blew me away.
+- I've been in opening matches of pay-per-views. I've been in main events of pay-per-views, and the same mentality is applied to both, and that is, 'To this point, this is the biggest match of my life, and I'm gonna go out there and give it everything I have.'
+- People won't believe this, but I don't really like being the center of attention.
+- The 'Demon King' takes out a lot out of Finn Balor the man emotionally and mentally.
+- I don't really like to think too far into the future.
+- I've always got a couple of tricks up my sleeve.
+- I started playing soccer when I was 6 years old and started lifting weights when I was 16, so it's not like I never exercised.
+- I worry too much about the present to worry about the future.
+- When you go out there, and you're in the ring, honestly, half the time you forget what city you're even in because you're so focused on what you're doing and the task at hand.
+- I really believe in the power of positive thinking and the collective power of people's thoughts spawning something into becoming reality.
+- Just the extent of the reach that the WWE Universe has around the world is incredible.
+- The whole Demon character was designed for people to hate me more and to be scared of me, and it kind of backfired in the sense that people kind of like it now.
+- I do enjoy a level of intensity that I bring when I'm the Demon, but it's a mindset that takes a couple of days to get into; it's not something I can do every day.
+- It's almost like putting on a mask protects you from people's judgments and lets you completely flow freely, like, with all your aggression and our animosity against anything.
+- I was six years old watching wrestling on TV. I was eight years old watching Ultimate Warrior run to the ring at WrestleMania. I was eighteen years old starting out on a journey in the U.K. wanting to be a professional wrestler.
+- If I'm going to draw something, I don't know the day before what I'm going to draw. It's just very much an interpretation of how I'm feeling that day and what I think is the coolest thing in my brain at that very moment.
+- With regards to the paint, I'm normally quite introverted and shy. I keep myself to myself, and I find that when I hide behind the paint, so to speak, I'm able to let myself go more and move more freely than I can without it.
+- NXT is its own kind of animal, and you're never quite sure how much of that transfers over into WWE and into Monday Night Raw.
+- When I came to NXT, it was very much a developmental brand.

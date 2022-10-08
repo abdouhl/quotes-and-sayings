@@ -1,0 +1,155 @@
++++
+author = "Chanda Kochhar"
+title = "Chanda Kochhar Quotes"
+quotes_len = "149"
+description = "the best 149 Chanda Kochhar Quotes"
++++
+- Aggression at a time when the economy was growing at substantial rates and the retail lending as an industry was growing at a substantial rate was an appropriate aggression. Caution at a time when the economic environment is so uncertain is an appropriate caution.
+- You can maintain work-life balance even while pursuing careers.
+- I learnt to always keep my mind open to new ideas and looked at each new assignment as an opportunity to learn and prove myself.
+- Let me talk about what the banks are doing, and I think the banks have been working to make sure that, as much as possible, we move the currency to the smaller areas and to as many set of customers as possible.
+- I take all the stress on myself so everyone else can work without stress.
+- My belief is India's banking industry will continue to grow at two and a half times the GDP growth rate.
+- Our large size, capital base, robust funding profile, extensive distribution network, diversified portfolio, presence across the financial services sector, and leadership in technology position us very well to leverage the growth opportunities across the economy.
+- Resolution can be in any form - S4A, SDR or restructuring - but we need an enabling environment where bankers feel comfortable to take decisions and where they also feel obliged to implement decisions in a timely manner.
+- We will leverage technology to collaborate with the government in its e-governance initiatives.
+- Lending has come back in retail; it has come back in working capital. It has also come back in other forms, like government contract being given out to companies.
+- When people come and invest in India, they invest on a certain premise, and the fact that the very premise can change worries them a lot.
+- Over the years, we have gone beyond our businesses to take up philanthropic projects in diverse areas - from education to health care to skilling.
+- Normally, we define banks as being either retail or corporate, but ICICI transformed itself from a corporate bank into a retail bank and, now, a universal bank.
+- All my challenges have become opportunities.
+- What is important for a leader is that you walk in a stable manner in your own shoes and do not trip.
+- I thought work and family complete life. Aarti's enthusiasm and energy levels made me realise that life can be even more wholesome and fuller.
+- As far as employees are concerned, clearly I like to communicate with them, since we are more than 40,000 people. I like to communicate either through e-mail or through video conferencing, which we do very often, and stream out videos and interviews. But more than that, I believe in traveling to my branches.
+- Our institutional framework needs to be bolstered further. We have to implement laws like the proposed Bankruptcy Code and GST (Goods and Services Tax), which will create efficiencies and strongly support the business environment.
+- When I moved from consumer banking to international banking, I thought I brought a lot of insights from India we could implement globally.
+- The consolidation that we started in 2009 was clearly the requirement of that time.
+- Mark-to-market losses are not real loss. It's a notional loss.
+- A demography that is digitising rapidly, and the potential to invest in infrastructure, are the key strengths of India.
+- We have always said that over the medium and long term, we will disinvest some part of our holding in our major subsidiary companies, and life insurance is our largest subsidiary company.
+- Over the years, we have financed projects in core industrial sectors like steel, cement, aluminium and petrochemicals, and in manufacturing sectors like automobiles and textiles.
+- My priorities are going to be to play a very balanced role in the sense that I have to keep an eye on the challenges in the environment. At the same time, I have to keep an eye on the optimism that is there for India.
+- Any of our businesses will not exist in the form that is today, will not exist in the same form one year later, two years later... We have to worry about the disruptions in the business models and the practices.
+- If you look at the numbers from 2002 to 2016, we have consistently been market leaders. We have followed a well-articulated strategy, and our focus is to continue that strategy.
+- It's about maintaining balance. Plan better, be organised. I chose to be a working wife and mother. Why should I compromise on either?
+- The restructuring theme can be of various kinds. Some amount of debt gets serviced out of cash flows, some gets back-ended and resolved with sale of non-core assets of the company, and some debt gets converted into equity which might today look like a haircut.
+- I believe that India's long-term growth story is strong, and foreign investors are keen to be a part of it.
+- Our approach on lending has always been that we will lend to India-linked assets, because that's the risk that we understand, and that is the business that has been doing very well.
+- We have to understand that India is a complex country. Everything takes time for the real impact to get translated to the economy.
+- I chose to be a working wife and mother. Why should I compromise on either?
+- The important source of finance is now commercial papers, bonds, and so on.
+- Successful strategic vision lay in the fact that we visualized the retail business to be much bigger, ahead of what others thought it to be.
+- She worked hard till she saw all of us through college and we became independent. I never knew that my mother had such a wealth of self-assurance and belief within her.
+- We actually probably do nothing very special for women. But what we do in a very special manner is to remain an absolute gender-neutral, merit-based organization.
+- I think we have to pick up some sectors where we can make India the global hub in the entire value chain, and the most important sector to pick up should be electronics.
+- The increase in coal production and the efficiency in coal movement are all administrative things that can add a lot to the economic growth.
+- Moving from corporate banking to retail banking to international banking to supervisory roles has meant completely reinventing myself.
+- ICICI Bank was the first bank to recalibrate its ATMs for 2000 and then also for 500 rupee notes, and now we have some ATMs which give out 2000, 500, 100 - all of them.
+- I believe Indian banks have a strong funding profile with largely deposit-funded balance sheets, a large physical presence to cater to the needs of customers, and ability to provide comprehensive solutions to customers.
+- Aim for the sky, but move slowly, enjoying every step along the way. It is all those little steps that make the journey complete.
+- My father, in a way, was a mentor in the way he instilled the basic values and ethics in me. My mother was a mentor by showing me an example to say that if women have tenacity, they can achieve whatever they have to.
+- I have it all because my children did not whine and cry when I was not there.
+- Rising incomes and positive demographics will provide opportunities for retail financial services in India.
+- You have to handle the challenges and emerge stronger from them, rather than allow them to bog you down.
+- We believe the new banks will complement the existing banking system, and there will be opportunities for players to identify mutually beneficial partnerships.
+- The MBA entrance exams are so quantitative-oriented that it keeps out more and more women from joining the MBA classes. If we were to make the entrance exams more all-rounded, you could see more participation.
+- It is always impossible to expect things getting done in 90 days.
+- As far as discom reforms are concerned, they have to be a combination of two parts. One is the existing balance sheet and, therefore, taking care of that. The second important is the reduction in losses going forward.
+- Every quarter, we need to see the portfolio and follow the accounting practice of mark-to-market that values investments according to the prevailing market prices and at the price at which they are made.
+- Innovation is a necessity.
+- I remember the reactions I got when we first visited factories to inspect the projects that we were funding. It was not easy for people to see a woman there. That was a time when most of these workplaces were not even equipped with a loo for women.
+- It's not that the regulator doesn't want the banking industry to grow. The growth of the industry has always been in relation to the GDP (gross domestic product) growth.
+- One thing I would say about the Indian consumer is that as much change and as much technology, innovation that you offer to the Indian consumer, the Indian consumer is very receptive and actually keep expecting more, and we have had that great experience.
+- I use my interaction with both my kids to know how the youth today relates to technology, their expectations in terms of mobility and social solutions by customer services-oriented businesses like banking.
+- Adaptability is a great asset to have because life is so unpredictable, and things can change overnight for any of us.
+- Remember that relationships are important and have to be nurtured and cherished. Also keep in mind that a relationship is a two way street, so be ready to give a relationship just as you would expect the other person to be giving to you.
+- I think India's growth itself will give opportunities for Indian banks to become substantially bigger.
+- ICICI has been a meritocracy. So, a huge amount a lot of responsibilities, big roles, challenges, have been given to women, not because they are men or women or so on, but they were just given to people who have - who the organization believes has the capability to perform.
+- I had to work just as hard as my male colleagues.
+- Business models that are relevant today are not relevant tomorrow and were not in existence yesterday.
+- We believe that rural India is going to be the next driver of growth. You cannot make money overnight there, as you have to set up infrastructure there; the value of transactions is lower - you need a few years before you can really make all those businesses profitable.
+- In a larger sense, we all write our own destiny.
+- Remember to be sensitive to the feelings of people around you.
+- The global market does not understand the India risk as well as we do, and therefore, we have the arbitrage facility of making better margin on the same set of Indian firms than what we would have made by giving rupee loans.
+- Clearly, for an organization to move on, it is the job of the leader to be that sponge that takes the stress from inside and the outside.
+- The Indian banking industry has always been full of competition, and there is enough room for growth.
+- We have a vision of a strong and prosperous India and an equally strong belief that this vision is achievable.
+- I was good with numbers.
+- What's important is that we see each year what the opportunities are, and make use of the opportunity.
+- I think I have it all. But I won't say that the credit for all that goes to me. I think the credit for all that goes to everybody around me. I mean, I have it all because my entire family is so cooperative. I have it all because my children did not whine and cry when I was not there. So, I think it's, you know, in a way, a two-way street.
+- To reap this demographic dividend, we need to enable the youth to acquire skills required to get the job or become self-employed.
+- It is important always to make full use of opportunities that come your way, and at the same time, it is important to not just cope with the challenges but try and convert each challenge into an opportunity.
+- It's not easy to have it all. Frankly, you know, you have to give as much to the career that the career requires and, at the same time, you have to give as much to the family as the attention that's required. But it can be done, yes.
+- Two eyes are given for a reason. One eye to always look at the opportunity. The second eye to always keep looking at the challenges. Because if you don't balance both, it's very easy to get carried away one way or the other. And it's when you balance the two that you find the most sustainable model.
+- Don't cut corners or compromise to achieve your dreams.
+- There are lots of India-related business which is nourished overseas. I mean India-related business that is done off-shore. There are lot of funds that are invested in India and run by Indians but are being operated from outside, mainly because of the taxation laws.
+- An entrepreneur, whether man or woman, has to be willing to take help, whether financial or technical, to grow his or her business.
+- It's very important to have the comfort of the regulator in every geography where you operate.
+- Getting small things like Visa or driving licence should be made easier as we, in financial service sectors, are dealing with financial regulations and tax constraints.
+- If you take existing ideas and make them affordable and scalable, you substantially change business models.
+- What I was told by my parents was that, you know, take this inhibition out whether you're a girl or a boy. Basically, pursue your dream, and as long as you're a capable and hardworking human being, you will be able to follow and fulfill your dream.
+- We need to take the country in the right direction, whether it is around administrative policy decisions or legislative changes or ensuring the macroeconomic stability.
+- Practise and practise to make your dreams turn into reality.
+- If you take existing ideas and make them affordable and scalable, you substantially change business models. India lacks an education system that is research- and creativity-oriented.
+- All three of us - two sisters and a brother - were brought up with an emphasis on academics.
+- Our parents treated all three of us - two sisters and a brother - equally. When it came to education, or our future plans, there was no discrimination between us based on our gender.
+- We have no exposure in Europe and not made any finances to the companies there. So the question of Greek debt crisis impacting the bank does not arise.
+- Make sure you have that conviction to do what you know is right, and once you have it, don't let skeptics distract you from your path.
+- We are monitoring the global companies on a daily basis, and their rating continues to be investment grade. We will take immediate action if anything goes wrong.
+- In India, we have the opportunity to give innovation the kind of scale that no other country in the world can.
+- The biggest challenge for me, for all of us, was that the consumer-credit market was very, very new for India and for ICICI. I was trying to create something that was not just new for me but absolutely unknown to the organization and the country as a whole.
+- The growth that we are targeting for our bank is in line with the banking industry.
+- The real underlying value comes if you can put a company back into a running state and it becomes a successful viable entity if it continues to repay loans.
+- Payments banks can also act as business correspondents of other banks.
+- Our focus is more on secured retail business like housing and car loans. While we will do some unsecured loans - credit cards and personal loans - we will do it primarily with existing customers.
+- As far as the banking industry is concerned - and I am sure it must be true for various industries as well - is that the only thing that is constant is change. Your business models are changing, the customer demands are changing and the regulations are changing constantly.
+- The whole thing of moving the currency through currency sorting and detection machines and so on that was the whole process actually encouraging electronic transactions.
+- What my parents believed was that, you know, the best wealth they could give to us children was to educate us and, you know - give us that foundation.
+- India's growth drivers are actually two growth drivers. One is consumption, which arises out of our demographic advantage. And the other is the investments. Because we need a lot of investment in the country.
+- Take destiny in your own hands.
+- We don't understand the equity market well, and so we deploy funds in fixed-income securities, and like any other securities, investment in those securities also need to follow the mark-to-market accounting principle.
+- We have to address impediments that stall implementation of projects and streamline the process to ensure smooth execution going forward. We need to address the leverage levels among corporates to restart investment cycle.
+- What women need are not benefits and advantages but a merit-based selection process that will allow them to automatically benefit from various opportunities.
+- No one thing can change the face of any sector.
+- When commercial banking opened up for the private sector, I set up the retail-banking division for ICICI and grew it substantially. I then ran the international side of the ICICI Bank for a few years.
+- Punjab is central to our business strategy, and we are an active partner in the state's growth.
+- Rather than worrying about entities, we should worry about the trends in technology that may cause disruptions... if we get so paranoid that banking is no longer going to exist and banks are going to get disrupted, I think that is a different worry.
+- As we were growing retail, and it was a huge growth phase, it was very important to keep our quality under control. Therefore, it was not just distribution, not just back-office operations, but also the risk-management practices. And these we learned together, supported by technology.
+- It's not easy to have it all. Frankly, you know, you have to give as much to the career that the career requires and, at the same time, you have to give as much to the family as the attention that's required.
+- I have always said that a bank's lending rates do not only depend on rate cuts - it is just one signal.
+- Only if you aspire for more will you achieve more.
+- While working hard for my career, I looked after my family and have been there for my mother and in-laws when they needed me around. They reciprocated in kind with their unconditional love and support for my career.
+- Power projects are differently placed to road projects. There's difference stress across different companies across different groups based on their leverage levels.
+- Every entrepreneur, whether man or woman, should start with a robust business structure.
+- If there is a course that is quant-oriented, you need to focus on that, but if it is a course that is more general management-oriented, do you not need entrance examinations which are more all round?
+- A leader has to find opportunities in any environment.
+- I was only a young girl of 13 when my father passed away from a sudden heart attack, leaving us unprepared to take on life without him. We had been protected from life's challenges so far. But without warning, all that changed overnight.
+- I believe in fate, but I also believe that hard work and diligence plays a very important role in our lives.
+- Thankfully I have an ecosystem of in-laws, parents and husband, who are my rocks.
+- Every business has to re-think their own business model and say does it meet this DSM test and do their products and services meet the test of being digital, social, and mobile? I think the banks are doing the same.
+- Nobody likes high interest rates.
+- We have to always set an aspiration for ourselves and then strive to get there.
+- As far as investors and customers are concerned, I make it a point to answer each and every piece of mail that comes to me.
+- It is crucial to bridge the critical gap between manpower availability and employability by providing sustainable livelihood opportunities for all to grow and prosper.
+- I have always been saying that while - the legislative reforms are good, but there are so many low-hanging fruits that we have look for by taking executive decisions. I think the government is actually moving in the right direction.
+- ICICI Group has always been a catalyst in India's growth and continues to support the country in every sphere.
+- Even if it does not become cashless economy, it will become a less cash economy, and I think that itself is going to be a good and big achievement, and I think we are, as a country, gone through many of large changes, and ICICI has been a leader in many of them.
+- In India, we have the opportunity to give innovation the kind of scale that no other country in the world can. Innovation is a necessity.
+- When I moved from corporate to consumer banking, I brought a lot of synergy with me.
+- I think it's important to celebrate your successes. It's important to feel happy about them, but it's equally important to look forward to the next big move.
+- I had to create a team of people who had worked in this industry for other banks. What I brought to that team was ICICI's strategic thinking, but when it came to domain knowledge or product nuances, I had to learn from the team.
+- When we in our sector talk of the adoption of Indian consumers to new products and innovative ways of doing banking, they always exceed our expectations.
+- I always believe that, as you start out, while you should have a big dream - a big goal - but it's also important to move step by step. So, you know, frankly, if you ask me, when I started as a management trainee in 1984, I don't know that I really thought that I would become the CEO.
+- There were so many occasions when I wasn't around for my kids or my husband. But we learnt to work around it.
+- What we see is that we actually have digital channels through which the customers interact, but we also take the absolute brick channels, which is the branch, and convert that experience into a more digitised experience.
+- The scope of activities for payments banks mainly includes acceptance of demand deposits, issuance of ATM/debit cards, payment and remittance services, and distribution of third-party products.
+- Whenever there is a challenge, the key is not to get consumed by the challenge but actually to learn from it.
+- When we look at the credit growth, we should look at it in its totality. Let us not only look at the non-food bank credit growth but also look at the growth across all the instruments of financing.
+- I think competition is good. It finally delivers the best value to the customer, and I think it keeps all the players on their toes.
+- If we look at India and the Indian demographics and the Indian consumer, I think the Indian consumer is going digital, social, and mobile. They want everything in a digital format, everything available on the go, and we socially connected.
+- India did not innovate with the ATMs. But when we brought ATMs into India and made the machines talk in 15 regional languages to the people in rural India, we got millions of transactions on the ATM.
+- Life comprises of both: opportunities as well as challenges.
+- The issue of access to growth capital is common to all entrepreneurs. Any entrepreneur who can demonstrate a credible business model and plan would be able to access to capital.
+- I think everybody wants GST.
+- Mark-to-market losses are not real loss. It's a notional loss. What we can monitor is the credit quality of the underlying papers. Are the companies paying interest on time? Is there any deterioration in the credit quality of these companies?
+- Business has to be done with both head and heart.

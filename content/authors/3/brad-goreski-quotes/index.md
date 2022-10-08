@@ -1,0 +1,166 @@
++++
+author = "Brad Goreski"
+title = "Brad Goreski Quotes"
+quotes_len = "160"
+description = "the best 160 Brad Goreski Quotes"
++++
+- You can't go wrong mixing classic graphics in black and white. It's very Parisienne.
+- What I believe in and the way I work with my clients is we're so quick to say what we don't like about our bodies, but it's really important to say the things we do like about our bodies. If you know you have great legs or a great butt, or if you're curvy, show it off if you're proud of it.
+- Wearing a great shoe is essential for me.
+- I only travel with a carry-on suitcase in most instances.
+- If my assistant goes off and becomes successful, and people want to work with him, I'd take that as a compliment that I'd trained them well.
+- I'm not in the business of holding people's hands after I've expressed to them my needs numerous times.
+- I'm usually in bed by midnight.
+- I want my clients to trust me.
+- With glitzy add-ons, the bright, girly dress you bought for daywear becomes fancy enough for evening.
+- My hope always when I am working with a new client is that I will cultivate a relationship with them: develop a dialogue and a way of working. This makes it easy for a star to trust you.
+- Just because it's summertime doesn't mean you can't wear long pants and blazers - just make sure they're breathable.
+- A slick ponytail is a great way to add a modern, minimal look to your outfit.
+- I shop online mostly. I like to shop from the comfort of my own home without a sales person bugging me.
+- Being fashionable does not mean you have to drain your bank account.
+- Sometimes when I'm being photographed, I hear the voice of this photographer who told me when I was about six while he was taking my school photo that I didn't have a nice smile, and I shouldn't smile in photos.
+- I was heavily involved in musical theater.
+- Everything is very individual for me in the way that I work; I don't just show a rotating rack of clothes.
+- You really do have the license during fashion week to wear the things that you wouldn't necessarily wear to dinner, because it really is a fashion parade.
+- I like to have glasses for day and night.
+- Color-blocking two bold shades feels so modern.
+- I believe that things should be let go once they are discussed. Apology accepted. End of story.
+- The white pump is the new nude heel.
+- I believe everyone should have a pair of 'party pumps,' something with a little bit of sparkle that is attention grabbing and makes you happy.
+- I'm not a table-flipper.
+- Don't let anyone tell you not to do what you want to do.
+- Someone I would love to do a beautiful and glamorous red carpet moment is Lady Gaga.
+- For my skin, Neutrogena dry body oil is heaven!
+- I love what I do. I work a lot, I work all the time, but I love it.
+- There's definitely a fine line between tasteful and tasteless, and as a stylist, it's a line you want to ride very carefully.
+- From shoes that are a size too small to a dress that doesn't fit quite right, there are incredible pieces in most wardrobes that have never been worn.
+- You have to realize I grew up in a real hockey town. And there I was wearing bow ties and watching the gayest movies on the face of Earth, like 'Clueless.'
+- When you're an assistant, you're executing the wishes of your boss.
+- I'm Canadian, so I'm a big fan of the Canadian tuxedo - that's what we call it. I wear it all the time.
+- I was twelve years old when I started reading 'Vogue.'
+- I believe the way we dress on a daily basis is our message we put out to the world.
+- As my own boss, I have the opportunity to get to work with great brands like Old Navy, and I get to style some looks together that people can actually buy and afford.
+- Internships are so instrumental, but not only do you need to get them, you need to work at them.
+- I used to like going out so much, and now I can't get myself to leave home.
+- I give people style tips in Whole Foods. Wherever I go, people want to ask me questions all the time, and I'm more than happy to answer them. I love talking to people.
+- Being a celebrity stylist, there are many tricks of the trade that I use in my house and with my clients.
+- I'm my best billboard.
+- I love New York! It's probably my favorite city in the entire world.
+- I believe every woman should have a flat, a really good wedge, and then the showstopper shoe.
+- Trends in fashion, design and pop culture are taking on more global influence, and of course, one thing that's always in style is color.
+- I am a sale shopper. I love a discounted item.
+- I know what it's like and how hard my assistants work, and I try to treat them as fair as possible and make the office a fun environment.
+- Whether it's a canvas tote or Givenchy, a day bag you love is essential. It doesn't have to be a fashion It bag of the season, either.
+- Every good day starts off with a cappuccino, and there's no place better to enjoy some frothy caffeine than at the Bulgari Hotel.
+- I would love to work with Julia Roberts at some point.
+- Long chiffon pleated skirts look great with sandals or sneakers and a tank top or denim top.
+- Know your personal style.
+- Keep your eyes peeled: Honor's the label to watch. It's quickly becoming a serious celebrity favorite - just ask fans Kirsten Dunst and Kelly Osbourne.
+- I always have my Bose headphones. I have to have the noise-cancelling headphones.
+- If you wear a white polka dot on your legs, you're going to want to wear a black polka dot on top.
+- When Kate Spade New York told me that we would be going to Dubai to celebrate the opening of two stores there, I was so thrilled - Dubai has been a place that I have wanted to visit for quite some time. There was something mysterious about Dubai that I wanted to see for myself so I could draw my own conclusions.
+- Every season challenges me to approach styling in a different way.
+- I know that I basically have the same hair as Beaker from 'the Muppets.'
+- A blouse that hits at the hips or above will keep you from seeming shapeless in a flowy skirt.
+- Leather and lace is such a sexy combination.
+- Peter Som is one of my favorite designers. I love his clothes so much.
+- I'm obsessed with sparkle for men. It's so funny watching people's reaction to a disco-ball shoe!
+- For me, people see me working with my celebrity clients, but it's important to show people how they can make their lives their own red carpet every day.
+- I'm obsessed with the Clarisonic brush. It actually makes you feel like you've had a facial. It helps prevent ingrown hairs after shaving, too.
+- I fall asleep on the couch in front of the TV. It's very rare that I see the end of any show.
+- At the Academy Awards every year, there are best-dressed stars - and worst-dressed stars. But it's the worst-dressed that go down in history.
+- Being on the red carpet is both fun and a little nerve wracking, but more fun.
+- I love it when people know what they like and what looks good on them.
+- I'm a crier. You won't see me lashing out, but you will see me crying a lot.
+- Walk out of the house the way you feel you want to look that day - it doesn't mean you have to stick to that style for the rest of your life.
+- I wear what I want.
+- I like to work out while I'm away - it's good to clear my head and makes me feel cuter poolside.
+- When it comes to underwear, there's nothing worse than a visible panty line. Sometimes it seems like nobody knows that seamless underwear exists. But Calvin Klein makes them. Commando makes them. Hanky Panky makes them. You don't need a drawer full; a few pairs will suffice.
+- My childhood bedroom had wallpaper that was printed with clouds and rainbows.
+- I'm a huge Tweeter.
+- I enjoy lifting weights, but I hate doing cardio.
+- As an Old Navy style attendant, I'm all about upgrading your bare basics and presenting them to your customer as basics you need to have in your wardrobe.
+- As a stylist, it is important for me to always steer my clients in the right direction and to push them when I feel it is necessary.
+- I have been so lucky to have the support of 'InStyle' magazine. My first big women's fashion story was for them.
+- I went to school to be an actor in Canada and realized I hated auditions once I left, which is a huge problem if you want to get a part.
+- I don't avoid trends. You do definitely want to be on-trend, but I do like to pick and choose the things that I'm seeing. And not every trend will work on every client of mine.
+- I'm not opposed to doing a fashion line, but I want to make sure it's the right thing and make sure its something people actually want instead of putting out a bunch of stuff that's already been done.
+- Some nights, you want to be George Jetson, and other nights, you want to be sexy.
+- I think women are usually a little bit nervous about wearing white denim.
+- Paris is one of my favorite cities, but Paris during Fashion Week is everything!
+- Everyone should have a great leather jacket in their wardrobe. It is perfect to wear with a T-shirt and jeans and great pair of high tops.
+- When someone comes forward and is an individual, such as a Lady Gaga or a Katy Perry, people respond to them because there is that sense of innocence. It's obviously dress up and theatre.
+- I'm a stylist, so I've been conditioned to setting up my own clothes like a fitting.
+- Going into 'Details' magazine to pitch concepts for a potential photo shoot was one of the most nerve-wracking things I had ever done. I didn't really know what one did in a pitch, how they were structured, etc., and that freaked me out big time.
+- I gravitate toward floral and graphic prints.
+- One of my style commandments is to always have beautifully radiant skin.
+- I want to keep my clients happy, and the pressure's on me as the boss to manage my three assistants and make sure that everything is getting done. There's less time for tears and more time for bossing people around.
+- I think sometimes when our childhoods are difficult, we forget that there's also a lot of joy.
+- In this day and age of texts, Twitter, and Facebook, we are very rarely surprised by anything anymore - something always leaks out and gets spoiled.
+- Everybody can remember outfits like Celine Dion's backwards Dior tuxedo... these 'worst' dresses become part of pop culture, and we keep referencing them.
+- My sister has been there for me through everything.
+- Whether you are right in the middle of a glamorous event or watching it from the sidelines, the red carpet Oscar events set the stage to showcase the latest designs and styles for those watching around the world.
+- If you keep everything in the same palette of tone-on-tone neutrals, even a laid-back outfit of a slouchy sweater, jeans, and sneakers gives you a longer, leaner look.
+- I have been a big fan of Coco Rocha's for many, many years. I have seen her walk in runway shows, pose like no other in photo shoots, and naturally follow her every move on Twitter and Instagram.
+- I feel very lucky because I get to work in so many different areas of fashion.
+- I sing in full voice in the car and have a tendency to harmonize badly.
+- The Mercedes-Benz Fashion Force car is a statement about New York being one of the greatest fashion capitals of the world and the confident approach to individualistic style that people strive to explore throughout this amazing city.
+- I loved playing with Barbies - that's why I didn't stop!
+- Everyone needs to have a denim shirt in your wardrobe. They work in the evening with a blazer or over your shoulder. They're great to pair with a pair of shorts - roll up the sleeves, unbutton it to show a peekaboo of your tank top.
+- Thom Browne is like a wizard when it comes to clothes. Even though his suits are so shrunken, they feel like pajamas.
+- If you're going to walk out of the house in jeans and T-shirt, what can you do to make that interesting? Is it putting on a bright-colored pair of high-tops or a cool leather jacket?
+- I cancel going out if my hair doesn't look good.
+- A scuffed up shoe on the red carpet or at a big premiere is never okay! It can really alter the vibe of a trendy look.
+- I am preppy, geek-chic with a touch of Bozo the Clown with a touch of 'Showgirls.' Sometimes, I look at myself and think I should put on a red nose, white face and maybe entertain some kids.
+- I like to communicate on my Instagram page with people: use it as a window to my world.
+- I am very lucky to have the opportunity to travel to so many amazing destinations for work!
+- I was a little chubby, rosy-cheeked kid.
+- Overall, we've lost risk-takers on the red carpet at the Academy Awards. All too often, stars play it safe.
+- An embellished top with slim pants is great, even for a wedding.
+- If you do a smoky eye, chances are you will not want to do a strong lip as well. It's never good to gild the lily.
+- I have a very small platform, and if I can use that to reach some kid who's teased for being effeminate or likes clothes, then I've done my job.
+- My whole philosophy is about playing dress-up.
+- Some of the 'worst' red carpet looks of all time, it turns out, were really just ahead of their time.
+- Studs are the easiest way to add some edge to your outfit.
+- Everyone wants to be sexy.
+- I know it's not the '80s anymore, but the '80s are back with a vengeance. Get yourself some neon; whether it's a cute sneaker, a pump or a cross-body bag, add to your wardrobe a pop of neon.
+- I love my dad. There is no doubt about that. He is a wonderful man and a good person. Like many father/son relationships, we have our struggles, our misunderstandings, and our miscommunications. We are very different people, but also very similar at the same time.
+- I love Chanel. Chanel, Chanel, Chanel, Chanel!
+- I work with a lot of lovely ladies.
+- Thom Browne, Michael Bastian... all these people that I love, when I finally get to meet them, I'm like, 'You're a cool guy!'
+- Hollywood and fashion are symbiotic partners, especially during awards season.
+- I love wearing bow ties for no particular reason.
+- A 'lewk' is like, 'I'm wearing a lewk today,' it's something that everybody will notice. It's like you're out of the pages of a magazine, that's a lewk.
+- We need more gay in the world! I really believe that.
+- I was not expecting my sister to ask me to be her best man. I was so honored.
+- Putting on a new pair of glasses or sunglasses is a simple way to completely transform your look - just like a new hairstyle.
+- Any dialogue about fashion is a good dialogue.
+- I'm very proud of my sobriety now.
+- Whether it's something with a chunkier heel or a moto style, you need a great pair of boots.
+- I love working with Rashida Jones. We just have so much fun together.
+- If you are going through something with one of your parents, you know that there is this feeling inside you constantly that something is wrong. Even if you want to pretend that it doesn't matter to you or you don't care, the truth of the matter is that you do, because they are your parents and you love them.
+- I love the big, like, basketball sweats... and I only wear vintage T-shirts to bed, because I like the super-thin ones.
+- It's very rare that I get really upset about something my assistants have done.
+- Fashion Week is like Christmas.
+- We all need relaxed outfits in our arsenals.
+- Scarves, mittens, and hats are a great way to express your personality in the cold weather.
+- I'm more of a Cristal Connors than a Nomi Malone.
+- One of the biggest struggles in starting out on my own was developing a celebrity client base.
+- I love Shay Mitchell. She is so beautiful, talented, and sweet.
+- I love everything about the holidays: the decorations, the parties, and spending time with friends and family. What I love most is that feeling of giving back. Every bit counts.
+- I approach styling as if I were a woman and what I would want to wear to a certain event.
+- There are so many levels in fashion that I'm happy to dip in and dip out of it all.
+- I love having beautiful furniture and things, but I don't want my space to look like a showroom.
+- People aren't hiring me to be a 'yes' man. They have their girlfriends for that.
+- I do hope to increase what I do into a Brad Goreski brand.
+- I love weddings: happy people coming together to celebrate in great clothes.
+- Old Hollywood glamour just seems, well, old.
+- As the stylist, sometimes you see things that you love that don't work, and that's OK. That's why we have fittings!
+- I love red. Red pants. Red suit. Red coat. Red anything.
+- I like to stand out in the crowd. So anytime a designer offers up items that are a little attention grabbing or pushing the boundaries ever so slightly, I'm always game for that.
+- It's so cheesy, but I'm a firm believer in 'If you build it, they will come.'
+- My grandmother, in her retirement home, actually has a picture of me from 'Star' magazine on their fashion police list. I think that's hilarious, but if Grandma approves, then I feel like I am all good.
+- Obviously, sometimes I just feel like looking like a box of crayons.
+- My favorite thing about Milan is that you see these guys, and it's as if a spaceship came out of the most attractive planet invented and just dropped them off all across the city.
+- Fashion allows you to be whoever you want to be.
+- When I used to have braces, I would match my rubber bands to the season.

@@ -1,0 +1,45 @@
++++
+author = "Carly Simon"
+title = "Carly Simon Quotes"
+quotes_len = "39"
+description = "the best 39 Carly Simon Quotes"
++++
+- My father was a classical pianist, and my mother was a singer of just about everything.
+- You usually can't tell what's inspiring until you look back on it.
+- We went to see all the shows. American musical theater and jazz were very big.
+- But when we listened to the radio, it was Bill Haley and the Comets or the Everly Brothers.
+- You're lucky you had that when you were 20. I sure didn't. I was overweight, and I had acne.
+- Well, I tried to get a record deal in 1966 or '67, and everyone thought I was too eclectic.
+- My look was even more solidified when I started singing in Greenwich Village with my sister Lucy. We wore matching dresses as the Simon Sisters.
+- You know when you take the paint off an old canvas and you discover that something's been painted underneath it? That's what I feel like - that part of the old is coming through the new.
+- I always sang standards because the songs I wrote for myself weren't as easy to sing.
+- No, because I've never really changed my style that much.
+- There was a French singer, Francoise Hardy - I used to look at her pictures and try to dress like her.
+- I had a mastectomy in 1998, and then chemo.
+- Sometimes, but the year I lived in France I started to write songs.
+- I've gone through the village of my songwriting and my artistry, and I've gone through lots of different phases, including one where it has been very quiet and abandoned me for a few years.
+- Sometimes my boyfriend would write the lyrics and I would write the melody, and other times I would start from scratch. Or sometimes I would take a local poem and put that to music.
+- I try to get to those peculiar and particular things that you never think of to say.
+- I had this terrible stammer, so I couldn't really speak properly until I was 16 or 17.
+- So I suppose this slightly mature fashion sense happened because of what I had.
+- A really strong woman accepts the war she went through and is ennobled by her scars.
+- I'm still more comfortable with standards than with my own songs.
+- Do you know how many concerts I've done in my whole life, in more than 35 years of performing? Sixty-four.
+- Well, I make every song I sing personal. I've never chosen a song that wasn't.
+- You know, people want to honor me, and on the one hand I just don't want to be a poster child; but on the other, I want to do something classy and great - something where the residuals will go to the cause.
+- I think that most people really know if it's a really great album.
+- We need role models who are going to break the mold.
+- I just want to show off my scar proudly and not be afraid of it.
+- The models for me were more the folk-rock singers of the '60s and '70s.
+- Then I went through a big Peggy Lee stage, then I became Annie Ross, then Judy Collins.
+- We are in this period now where we all are trying to be in shape physically and deny ourselves any pleasure.
+- I took it to heart that in order to be a good person, you never said anything mean about anybody.
+- One of the things that has always motivated me to write is the desire to get it out and look at it in an objective way, so that it doesn't cause me any serious pain by staying inside.
+- I remember being onstage once when I didn't have fear: I got so scared I didn't have fear that it brought on an anxiety attack.
+- As a singer I tried on all these hats, these voices, these clothes, and eventually out came me.
+- Being in this business for as long as I've been in it, it's sort of like living in a town or a city before the war and then after the war and then during the reconstruction and then during the time that it sprawls out to the malls.
+- No, because I was always nervous about being onstage.
+- It didn't matter as much because I'm a singer, not an actress, but my face is more acceptable in a way now than when I first came on the scene, because I'm part black.
+- I think that I've got some pretty bad reviews on albums or songs that later proved themselves.
+- My scar is beautiful. It looks like an arrow.
+- I always think it's interesting to dig a little bit deeper every time you go to someplace that seems like a revelation or a strong connection to an emotional truth.

@@ -1,0 +1,106 @@
++++
+author = "Rory Macdonald"
+title = "Rory Macdonald Quotes"
+quotes_len = "100"
+description = "the best 100 Rory Macdonald Quotes"
++++
+- I know who I am.
+- I just want to hone in on how I like to fight rather than just keep exploring new styles and new martial arts.
+- When you take a pound-for-pound style fight in other weight classes or with guys who have proven themselves against a lot of guys, it opens eyes and gets people talking.
+- My name is a form of an Irish/Gaelic name that means 'Red King.'
+- I want to be a two-division champion.
+- I love fighting different styles and overcoming obstacles.
+- All the guys in the upper echelon of this sport, if one guy's feeling at his best, and one guy's feeling a little under the weather, not at his best that month or that day, you could see drastic changes in performances and victories and losses.
+- I like knees to the head on the ground, kicks to the head on the ground, headbutts. I think those are all really good tools for human body weapons. I think those are important.
+- I want to be fast, agile and strong.
+- I don't like going to decision.
+- I don't really care if people talk, I just want them to watch my fights. I'm really not in this for press or a popularity contest, I'm just here to fight.
+- As I walk in faith every day, God just keeps doing amazing things one after the other. And will continue to do so.
+- I've been doing jiu-jitsu since I was 14 years old. It actually was the martial art that was really stapled in my mind that said, this is what I want to do... I want to do martial arts for the rest of my life.
+- You can't always believe what you hear. Things change so often in this sport, you'd be a fool if you believed everything that came out.
+- When I'm at the gym, I work very hard to achieve my goal and to get better as a mixed martial artist.
+- I have to do what I have to do when I fight. That's all within my hands. That's what's in my control.
+- I'm going to live in the woods one day. Hunt, be weird, not have to listen to people call me a psycho all the time.
+- I'm not here to try and impress anyone or make anyone mad, I'm just going in there and doing what I love, and hopefully people can appreciate what I'm there for, and I'm not trying to be Hollywood star or a Hollywood personality or something.
+- I try to live in the moment and I learn from my losses.
+- It was tough being alone and not having parents around when I was going through high school in terms of staying disciplined, but I adjusted, and stayed focused.
+- I'm not big into drama.
+- I believe in friendship.
+- Instead of a legacy as a fighter, I want to leave a mark in the sport about the good news of Jesus Christ.
+- I can't just keep fooling around every other fight. Have a few good fights and then get unfocused again and have a couple bad fights. I really have to stay the course and stay focused.
+- I fight for myself, not for someone else's opinion.
+- I don't enjoy going into a fight and then having regrets afterwards.
+- I'm a simple martial arts guy.
+- I've sacrificed a lot to get to the top, to the world title. I really sacrificed, and I took a lot of chances. I did a lot of favors, I felt like, for the UFC and I don't think it got returned.
+- For PFL, I get to know my schedule ahead of time. With Bellator, I didn't. They kind of sprung it on me, and they pressured me into taking fights early and things like that.
+- I like plenty of different music.
+- I'm not a dramatic guy.
+- I want to make the most money I can. I want to get paid for what I bring to the table.
+- I'd like to go back to Israel.
+- MMA is my true talent and what I excel at the most.
+- Che Mills is a great fighter, and a worthy opponent. Just because he hasn't been seen in front of the camera that many times doesn't mean he's not dangerous or a great martial artist.
+- I'll fight whoever I have to fight to prove that I'm the best.
+- I think I'd like to prove to people that my skills can carry me through even against bigger skilled guys.
+- The Lord has given me peace and freedom from the pain that haunted me in my heart from my younger years. I would only satisfy myself for a short period of time from winning fights until the feeling would resonate in me again.
+- Standing up for yourself. That's the thing martial artists aren't used to. You've got to really stick up for yourself and be a tough businessman when it's time for negotiations.
+- I'm not a massive guy.
+- I want to overcome obstacles and test myself and find out who I really am.
+- Anywhere I go, anywhere I fight it doesn't matter who's watching or whatever, it's me fighting and there's one guy in the cage you know, that I have to worry about and that's it.
+- I don't ever know the people I fight at all. I just know their name and I show up on the night, they show up, and we fight in a cage and we paid for it. That's what we like to do.
+- After the Jon Fitch fight, about being confused, the Lord's really given me clarity and shined a light on where he wants me to go, how I could answer the calling he's given me.
+- I enjoy martial arts. I love to compete, I love to be at the top. I mean that's why I started in this... I want to let people known what the Lord blessed me with. He changed my circumstances and brought it to an amazing place. And continues to do so.
+- Montreal is not what I'm used to. I'm used to big mountains and the outdoors. I'm not much of a city guy.
+- Win or lose, I know I bring a lot to the table.
+- My career as a 20-year-old, there were ups and downs and things I'm really happy with but there are a lot of things I have regrets about.
+- Being a Christian should be about telling the good things, sharing the good news that the Lord can change us for the better. I want to be an agent for that.
+- Entrance music doesn't make a difference.
+- I've evolved so much, added so many tools to my game. I feel like I've put so many things in my game that I can be aggressive but technical at the same time.
+- I'm not a big personality.
+- I think Bellator gets it, they want to build a character around each and every guy on the roster. They want to build up the names and let people see the real sides of them and they can build that up.
+- Every time you fight for a world championship fighters take pride... it's a special moment to be a main event for a world title fight.
+- I'm not innocent as far as trash talk. I've tried to dabble in it to get some attention but since I really gave my life to Christ and the changes that God has done in my person and it's continuing to develop, I obviously have no interest in being hateful.
+- I'm a Christian, I'm a servant of God first. Not a fighter anymore, first. I also have a family so that comes before fighting. Fighting, it's my sport that I'm passionate about, it's a career, it's how I provide for my family. But it's not what defines who I am.
+- You know what? Life's not about money.
+- One day I changed my cell phone number, but the guy at the UFC in charge of the music didn't know. So he was texting that fan who had my old number, thinking it was me. The fan was selecting my music.
+- If you look back at my fights, if you pick three or four fights in a row, it's possible if you watch my style I'm fighting a different type of style every single fight.
+- I'm fighting the best guys in the world... I would be a fool to think I wouldn't leave with a little blood and a few scrapes here and there. You've gotta learn how to like that stuff.
+- God has really blessed me with the things that I have aspired to do in my career. I'm very grateful for these things.
+- I still and will always have a passion for martial arts and do not believe, as a Christian, that it's wrong for myself to compete in a professional sport that is violent.
+- I think fights that are interesting to the fans interest me.
+- I come from humble beginnings so I don't require a lot to feel comfortable.
+- I never train with wraps. I've always found that they kind of cut off blood flow when you're grappling as well, because you're flexing your forearms and grips and things. It's just something I decided wasn't for me anymore.
+- God really changed my life from where I was at where I first met my wife.
+- For a long time, life was fighting and there was nothing outside of that. At one point, it started to become very empty just because there was a void somewhere in my heart.
+- Look back at my career - I was 19 or 20 years old when I started fighting those guys. As soon as I got into the UFC I was willing to take on the number one guys. I fought Carlos Condit in my second appearance in the UFC.
+- I love jiu-jitsu.
+- When it's a judge's decision, you never know. You can win five rounds and still lose a judge's decision.
+- I feel like I am the best in the world.
+- I'm a little bit more introverted than maybe some of the big personalities in the sport.
+- I think it's completely unnecessary why people want to know why I dress in a suit at a press conference if I'm at a fight. They should ask questions about my fight, not my suit.
+- I'm monotone.
+- I don't consider myself a fighter first any more like I used to,' he explained. 'I was all fight, all fight. And then I met my wife and basically shortly after I was going to church, things like that. Before you know it I was baptized. I accepted Christ as my lord and saviour. And things really changed.
+- I stick to my principles.
+- The more people that are interested in the technical side of things in the actual fight are better for the sport, in my opinion.
+- When you're training every day, you kind of have to have the eye of the tiger. It's like eat, sleep, you've got to be like chewing on steel kind of thing for six weeks. It hardens your body, hardens your mind.
+- I don't really care about people who are ranked below me or whatever. I just want the belt. If other people are calling me out, that's OK. That's on them.
+- There are multiple reasons why I choose to fight for Bellator MMA and Scott Coker. One, they have given me the opportunity to develop and grow a business together. Two, because I already feel respected by the promotion as a professional athlete. And last but not least, because Bellator is offering a setup that no-one in the world can offer me.
+- I got to experience fighting some really good guys, like Demian Maia and Tyron Woodley who are top guys in the division. It was on a big stage, those fights. It gives me experience with top-level guys.
+- I'm a competitive guy. So when push comes to shove when I'm in the cage, I always push to my limits to get the victory because that's who I am.
+- I want big money fights because first and foremost I think I'm worth it.
+- I felt like my Ellenberger fight, I think I fought a really good fight. I was technically on-point, I was sharp, and watching the fight I wasn't disappointed. But I didn't have fun at the end of the day, and that's what I do this for. I want to express myself when I'm up there, like an artist painting a picture.
+- I think people just, when you say something in an interview, they really like to make it their own story rather than, you know they like to spin it off, almost.
+- Some guys train more, some guys train less; everyone needs to cater to what works best for them.
+- I'm a rough guy and I like it when fights get tough.
+- I know what kind of fighter I am, and I want to compete against the best.
+- As I move forward and closer to God I think he's got something for me and I can feel it in my heart, as I keep making steps walking closer to God, I feel it more and more.
+- I feel like - and I think the UFC feels it as well - that I put on good shows every time I fight. The fans have responded well to when I fight - they seem to enjoy it - and that's what I strive to do.
+- I always enjoy longer fights.
+- I have a passion for martial arts and it's a part of my life.
+- I like it when my fights goes like when I fought Paul Daley.
+- A lot of people think it's better to go into berserker mode, but it's not actually. I'm a pretty exciting fighter without going into berserker mode.
+- I'm sponsored by Reebok and I appreciate everything they've done for me. They do a lot for me on a daily basis and they've actually been great.
+- I don't like to take people lightly even if the odds are against them.
+- I've always wanted to be in a tournament since I was a little guy in this sport.
+- Everything I do, it sticks. I move on to a different hobby, but I don't forget about them. I don't drop anything.
+- Canada will always be my home.
+- The Lord has blessed me the skills to fight and be an example of how God has transformed my life for the good.

@@ -1,0 +1,23 @@
++++
+author = "Benjamin Todd Jealous"
+title = "Benjamin Todd Jealous Quotes"
+quotes_len = "17"
+description = "the best 17 Benjamin Todd Jealous Quotes"
++++
+- In a democracy there are only two types of power: there's organized people and organized money, and organized money only wins when people aren't organized.
+- We are confident that the Supreme Court will soon see the direction that this country is headed and enshrine marriage as a constitutional right for all.
+- I often tell people I don't care whether they join the NAACP or some other group, but you better join something.
+- The right to vote is the right upon which all of our rights are leveraged - and without which none can be protected.
+- No person can maximize the American Dream on the minimum wage.
+- Last century we needed lawyers; this century we need big, broad coalitions. When extremists decide to attack all our communities, they must hope that there will be infighting. But we have stood all for one and one for all. That is how we will win.
+- As an American people, what is greatest about our history are the many times we have led this world away from hate, towards hope.
+- With all the other -isms that we deal with, that sort of nameless -ism that we have in too many of our hearts against the poor in this country is what wounds us most broadly.
+- Racial profiling punishes innocent individuals for the past actions of those who look and sound like them. It misdirects crucial resources and undercuts the trust needed between law enforcement and the communities they serve. It has no place in our national discourse, and no place in our nation's police departments.
+- Let us invest less and less in war and tax cuts for the richest 1 percent, and more and more in jobs and schools for the other 99 percent.
+- The black community has been the foundation of the progressive community in this country for a long time.
+- We do not owe allegiance to any candidate because they share our party or our color, but because they share our principles and our conscience.
+- Civil marriage, like all civil rights provided by the government, must be provided equally to all Americans.
+- The difference between a child's aspiration and that family's situation, is the exact measurement of that family's frustrations.
+- There's sort of a persistent misperception that talking about race is black folk's burden. Ultimately, only men can end sexism, and only white people can end racism.
+- Let us nurture the practice of family values, by embracing policies that value families.
+- In this nation, the greatest of all nations, there are no second-class families. That is our great American conviction.

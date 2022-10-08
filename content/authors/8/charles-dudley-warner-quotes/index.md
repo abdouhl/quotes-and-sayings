@@ -1,0 +1,32 @@
++++
+author = "Charles Dudley Warner"
+title = "Charles Dudley Warner Quotes"
+quotes_len = "26"
+description = "the best 26 Charles Dudley Warner Quotes"
++++
+- The boy who expects every morning to open into a new world finds that today is like yesterday, but he believes tomorrow will be different.
+- How many wars have been caused by fits of indigestion, and how many more dynasties have been upset by the love of woman than by the hate of man.
+- People always overdo the matter when they attempt deception.
+- Perhaps nobody ever accomplishes all that he feels lies in him to do; but nearly every one who tries his power touches the walls of his being.
+- There is nothing that disgusts a man like getting beaten at chess by a woman.
+- Mud-pies gratify one of our first and best instincts. So long as we are dirty, we are pure.
+- There was never a nation great until it came to the knowledge that it had nowhere in the world to go for help.
+- One of the best things in the world to be is a boy; it requires no experience, but needs some practice to be a good one.
+- Goodness comes out of people who bask in the sun, as it does out of a sweet apple roasted before the fire.
+- Happy is said to be the family which can eat onions together. They are, for the time being, separate, from the world, and have a harmony of aspiration.
+- There is no such thing as absolute value in this world. You can only estimate what a thing is worth to you.
+- There isn't a wife in the world who has not taken the exact measure of her husband, weighed him and settled him in her own mind, and knows him as well as if she had ordered him after designs and specifications of her own.
+- I am convinced that the majority of people would be generous from selfish motives, if they had the opportunity.
+- We are half ruined by conformity, but we should be wholly ruined without it.
+- The thing generally raised on city land is taxes.
+- What a man needs in gardening is a cast-iron back, with a hinge in it.
+- It is fortunate that each generation does not comprehend its own ignorance. We are thus enabled to call our ancestors barbarous.
+- Everybody talks about the weather, but nobody does anything about it.
+- A great artist can paint a great picture on a small canvas.
+- Simplicity is making the journey of this life with just baggage enough.
+- No man but feels more of a man in the world if he have a bit of ground that he can call his own. However small it is on the surface, it is four thousand miles deep; and that is a very handsome property.
+- The excellence of a gift lies in its appropriateness rather than in its value.
+- Public opinion is stronger than the legislature, and nearly as strong as the ten commandments.
+- Lettuce is like conversation; it must be fresh and crisp, so sparkling that you scarcely notice the bitter in it.
+- Politics makes strange bedfellows.
+- Regrets are idle; yet history is one long regret. Everything might have turned out so differently.

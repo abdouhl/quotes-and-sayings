@@ -1,0 +1,45 @@
++++
+author = "Ray Kurzweil"
+title = "Ray Kurzweil Quotes"
+quotes_len = "39"
+description = "the best 39 Ray Kurzweil Quotes"
++++
+- If we look at the life cycle of technologies, we see an early period of over-enthusiasm, then a 'bust' when disillusionment sets in, followed by the real revolution.
+- What we spend our time on is probably the most important decision we make.
+- I think we are evolving rapidly into one world culture. It's certainly one world economy. With billions of people online, I think we'll appreciate the wisdom in many different traditions as we learn more about them. People were very isolated and didn't know anything about other religions 100 years ago.
+- I decided to be an inventor when I was five. My parents had given me a few various enrichment toys like erector sets, and for some reason I had the idea that if I put things together just the right way, I could create the intended effect.
+- We are beginning to see intimations of this in the implantation of computer devices into the human body.
+- Death gives meaning to our lives. It gives importance and value to time. Time would become meaningless if there were too much of it.
+- New technologies can be used for destructive purposes. The answer is to develop rapid-response systems for new dangers like a bioterrorist creating a new biological virus.
+- Life expectancy is a statistical phenomenon. You could still be hit by the proverbial bus tomorrow.
+- If you write a blog post, you've got something to say; you're not just creating words and synonyms. We'd like the computers to actually pick up on that semantic meaning.
+- Even by common wisdom, there seem to be both people and objects in my dream that are outside myself, but clearly they were created in myself and are part of me, they are mental constructs in my own brain.
+- I consider myself an inventor, entrepreneur, and author.
+- I'm working on artificial intelligence. Actually, natural language understanding, which is to get computers to understand the meaning of documents.
+- Sometimes people talk about conflict between humans and machines, and you can see that in a lot of science fiction. But the machines we're creating are not some invasion from Mars. We create these tools to expand our own reach.
+- When you talk to a human in 2035, you'll be talking to someone that's a combination of biological and non-biological intelligence.
+- Once we have inexpensive energy, we can readily and inexpensively convert the vast amount of dirty and salinated water we have on the planet to usable water.
+- I do have to pick my priorities. Nobody can do everything.
+- By the time we get to the 2040s, we'll be able to multiply human intelligence a billionfold. That will be a profound change that's singular in nature. Computers are going to keep getting smaller and smaller. Ultimately, they will go inside our bodies and brains and make us healthier, make us smarter.
+- The Blue Brain project expects to have a full human-scale simulation of the cerebral cortex by 2018. I think that's a little optimistic, actually, but I do make the case that by 2029 we will have very detailed models and simulations of all the different brain regions.
+- My mission at Google is to develop natural language understanding with a team and in collaboration with other researchers at Google.
+- People say we're running out of energy. That's only true if we stick with these old 19th century technologies. We are awash in energy from the sunlight.
+- A lot of movies about artificial intelligence envision that AI's will be very intelligent but missing some key emotional qualities of humans and therefore turn out to be very dangerous.
+- I'm an inventor. I became interested in long-term trends because an invention has to make sense in the world in which it is finished, not the world in which it is started.
+- Biology is a software process. Our bodies are made up of trillions of cells, each governed by this process. You and I are walking around with outdated software running in our bodies, which evolved in a very different era.
+- The telephone is virtual reality in that you can meet with someone as if you are together, at least for the auditory sense.
+- All different forms of human expression, art, science, are going to become expanded, by expanding our intelligence.
+- By the 2030s, the nonbiological portion of our intelligence will predominate.
+- We appear to be programmed with the idea that there are 'things' outside of our self, and some are conscious, and some are not.
+- As order exponentially increases, time exponentially speeds up.
+- Doing real world projects is, I think, the best way to learn and also to engage the world and find out what the world is all about.
+- Aging is not one process. It's many different things going on that cause us to age. I have a program that at least slows down each of these different processes.
+- Science fiction is the great opportunity to speculate on what could happen. It does give me, as a futurist, scenarios.
+- Supercomputers will achieve one human brain capacity by 2010, and personal computers will do so by about 2020.
+- Our intuition about the future is linear. But the reality of information technology is exponential, and that makes a profound difference. If I take 30 steps linearly, I get to 30. If I take 30 steps exponentially, I get to a billion.
+- By 2029, computers will have emotional intelligence and be convincing as people.
+- No matter what problem you encounter, whether it's a grand challenge for humanity or a personal problem of your own, there's an idea out there that can overcome it. And you can find that idea.
+- Our technology, our machines, is part of our humanity. We created them to extend ourselves, and that is what is unique about human beings.
+- Artificial intelligence will reach human levels by around 2029. Follow that out further to, say, 2045, we will have multiplied the intelligence, the human biological machine intelligence of our civilization a billion-fold.
+- Information defines your personality, your memories, your skills.
+- A successful person isn't necessarily better than her less successful peers at solving problems; her pattern-recognition facilities have just learned what problems are worth solving.

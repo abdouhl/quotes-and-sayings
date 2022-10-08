@@ -1,0 +1,70 @@
++++
+author = "Alexander Mcqueen"
+title = "Alexander Mcqueen Quotes"
+quotes_len = "64"
+description = "the best 64 Alexander Mcqueen Quotes"
++++
+- There are only a handful of designers that influence other designers, and I have to keep one step ahead of the game.
+- I find beauty in the grotesque, like most artists.
+- The turnover of fashion is just so quick and so throwaway, and I think that is a big part of the problem. There is no longevity.
+- I like the concept of dressing people. I used to not care whether people bought the clothes or not, but I kind of like it now. I wouldn't label that commercialism; it's more like I do this work because I want people to wear it.
+- I want to empower women. I want people to be afraid of the women I dress.
+- Now I design what I want to wear, and it works that way.
+- I hate it when people romanticize Scotland.
+- I am a melancholy type of person.
+- As a designer, you've always got to push yourself forward; you've always got to keep up with the trends or make your own trends. That's what I do.
+- When a woman gets dressed up to go out at night, she wants to give 50% away, and hold the rest back. If you're an open book, there's no allure.
+- I find it grotesque when clothes hit you in the face and there's no room for fault. But I don't expect to turn things around all by myself. I'm not a saint.
+- Fame should be left to the film stars.
+- The police need to come down to street level.
+- It's good to know where you come from. It makes you what you are today. It's DNA, it's in your blood.
+- It's not my vision when I cover a woman's face with a chador. I got the idea from a 'National Geographic' photo. I'm just showing their plight in the world.
+- Youth culture now really looks back and embraces the past, but keeps it contemporary but not sticking to one particular style.
+- You can get insular with fashion.
+- I've had good times; I've had bad times.
+- When I'm dead and gone, people will know that the twenty-first century was started by Alexander McQueen.
+- Really, what I'm aiming for is world domination!
+- I work with people I admire and respect. It's never because of who they are.
+- I think I should be a president. President of the United States.
+- I can't get sucked into that celebrity thing, because I think it's just crass.
+- My relationships with producers or photographers - these are relationships that took years.
+- I was never a big networker, but I was a spin doctor, all those shock shows, that's how I got my first backers. But fashion's a scary industry to be in, especially if you've not grown up with it.
+- Fashion should be a form of escapism, and not a form of imprisonment.
+- There has to be a balance between your mental satisfaction and the financial needs of your company.
+- I came to terms with not fitting in a long time ago. I never really fitted in. I don't want to fit in. And now people are buying into that.
+- You can hide so much behind theatrics, and I don't need to do that any more.
+- I want people to be afraid of the women I dress.
+- For a long time I was looking for my perfect equilibrium, my mojo. And now I think I'm getting there: I've found my customer, my silhouette, my cut.
+- It's usually only the intellectual ones who understand what's going on in what I do.
+- I think the idea of mixing luxury and mass-market fashion is very modern, very now - no one wears head-to-toe designer anymore.
+- I'm interested in designing for posterity.
+- Give me time and I'll give you a revolution.
+- I have been skiing since I was in school, but I'm not great. I am never going to break an Olympic record, I just want to go down the hills, on red or blue runs, but not... black.
+- I am married to work.
+- You find a lot of ideas from my shows in adverts now. I find it a compliment.
+- You can only go forward by making mistakes.
+- I'm not interested in being liked.
+- I feel more Scottish than Norman.
+- I was three years old when I started drawing. I did it all my life.
+- Some couture collections have everything including the kitchen sink! Everything gets thrown on to make it look expensive. I find it grotesque when clothes hit you in the face and there's no room for fault. But I don't expect to turn things around all by myself. I'm not a saint.
+- There is something sinister, something quite biographical about what I do - but that part is for me. It's my personal business. I think there is a lot of romance, melancholy. There's a sadness to it, but there's romance in sadness. I suppose I am a very melancholy person.
+- I'm not big on women looking naive.
+- Menswear is about subtlety. It's about good style and good taste.
+- I can design a collection in a day and I always do, cause I've always got a load of Italians on my back, moaning that it's late.
+- I like the idea of infiltrating an area that is not really exposed to me or my work.
+- I'm mad in the front of my mind, but business-minded in the back.
+- I never look at other people's work. My mind has to be completely focused on my own illusions.
+- I want to empower women.
+- For people who know McQueen, there is always an underlying message. It's usually only the intellectual ones who understand what's going on in what I do.
+- Clothes and jewellery should be startling, individual. When you see a woman in my clothes, you want to know more about them. To me, that is what distinguishes good designers from bad designers.
+- British fashion is self confident and fearless. It refuses to bow to commerce, thus generating a constant flow of new ideas whilst drawing in British heritage.
+- Rap music's been around for too long now to be inspirational. The words are, but the music isn't.
+- I come from a different era and I design clothes for our era. I think of people I want to dress when I design.
+- There is a hidden agenda in the fragility of romance.
+- It's a new era in fashion - there are no rules. It's all about the individual and personal style, wearing high-end, low-end, classic labels, and up-and-coming designers all together.
+- Of course I make mistakes. I'm human. If I didn't make mistakes, I'd never learn. You can only go forward by making mistakes.
+- Sting's my ideal man, because he's a real man.
+- I don't want to be too proud, but I have a good personal style.
+- I always wanted to be a designer. I read books on fashion from the age of 12.
+- I just want to be a wallflower. Nondescript. Just not anything. I don't want to see me.
+- Nicey nicey just doesn't do it for me.

@@ -1,0 +1,54 @@
++++
+author = "Ben Okri"
+title = "Ben Okri Quotes"
+quotes_len = "48"
+description = "the best 48 Ben Okri Quotes"
++++
+- The strange thing about Africa is how past, present and future come together in a kind of rough jazz, if you like.
+- Reading, like writing, is a creative act. If readers only bring a narrow range of themselves to the book, then they'll only see their narrow range reflected in it.
+- I know that human beings are capable of anything.
+- I was going to be a scientist.
+- I learned that life will go through changes - up and down and up again. It's what life does.
+- We have fallen into this very mean description of humanity. Naturalism in fiction is too reductive in its definition of human beings.
+- Our time here is magic! It's the only space you have to realize whatever it is that is beautiful, whatever is true, whatever is great, whatever is potential, whatever is rare, whatever is unique, in. It's the only space.
+- Fire is one of my temperaments. It is behind all my work... Fire is a chemical presence.
+- I went to London because, for me, it was the home of literature. I went there because of Dickens and Shakespeare.
+- One of the greatest gifts my father gave me - unintentionally - was witnessing the courage with which he bore adversity. We had a bit of a rollercoaster life with some really challenging financial periods. He was always unshaken, completely tranquil, the same ebullient, laughing, jovial man.
+- I believe in leavening. You can't have words sticking out too much, like promontories. They disturb the density. You have to flatten them, or raise the surrounding terrain.
+- Artists and writers have to deal with the element that makes the real real and the dream real while you are dreaming it. That's where stories and poems get their power.
+- The worst time was 1983. Love and life and everything went wrong. I reached absolute rock bottom. I saw the Minotaur at the bottom of the abyss. I learnt of the harshness of the world and its impartiality to human failure.
+- The magician and the politician have much in common: they both have to draw our attention away from what they are really doing.
+- When you can imagine you begin to create and when you begin to create you realize that you can create a world that you prefer to live in, rather than a world that you're suffering in.
+- To sustain your belief through situations that completely undermine it is quite something.
+- To anyone who is homeless, I say, find a home.
+- I became a sceptic of one way of seeing the world. And I think it is what started me in my awareness that any worldview is superstitious.
+- The fact of storytelling hints at a fundamental human unease, hints at human imperfection. Where there is perfection there is no story to tell.
+- I lived rough, by my wits, was homeless, lived on the streets, lived on friends' floors, was happy, was miserable.
+- It is not important for me as a writer that you leave a piece of writing of mine with either an agreement or even a resonance with what I have said. What is important is that you leave with the resonance of what you have felt and what you thought in reaction to that.
+- We never think that our mothers will die. It was like suddenly an abyss opened at my feet - I was standing on nothing. It was the strangest thing. Her passing away ripped the solidity out of the world.
+- Stories can conquer fear, you know. They can make the heart bigger.
+- I began my writing life as a poet, so poetry has always been fundamental. I evolved from poetry to journalism to stories to novels. But poetry was always there.
+- I am not fighting for success, just to get more beauty out of myself and share it with more people.
+- The poem is never complete in the mind. It emerges, and then it's like an act of unveiling. The unveiling is the longest and most difficult part of it.
+- Some of my reactions are very Nigerian. I still believe that words are things.
+- You cannot come to a Nigerian restaurant without having pepper soup.
+- You see, I was told stories, we were all told stories as kids in Nigeria. We had to tell stories that would keep one another interested, and you weren't allowed to tell stories that everybody else knew. You had to dream up new ones.
+- The greatest religions convert the world through stories.
+- If you are working in an office, where do you find the time to write a novel? But you can finish a short story in five pages. Furthermore, a short story is a perfect place to learn the craft.
+- I study people all the time. For some reason, we're not very good at seeing what's there or hearing what we're hearing.
+- The higher the artist, the fewer the gestures. The fewer the tools, the greater the imagination. The greater the will, the greater the secret failure.
+- Don't despair too much if you see beautiful things destroyed, if you see them perish. Because the best things are always growing in secret.
+- I'm conscious of a series of circles working its way through my life. And at this particular moment I have come round to the beginning of my writing cycle. It begins with poetry. There's hardly a day that goes past on which I don't write poetry.
+- I am one year older than Nigeria at 51. In a human life, 51 might be old. But it is very young for a nation. By that, I mean a Nigeria conscious of itself as a nation.
+- I was born left-handed, but I was made to use my other hand. When I was writing 'Famished Road,' which was very long, I got repetitive stress syndrome. My right wrist collapsed, so I started using my left hand. The prose I wrote with my left hand came out denser, so later on I had to change it.
+- Magic becomes art when it has nothing to hide.
+- 'The Rime of the Ancient Mariner' had a formative effect on me. I think it's one of those works that if you encounter it very early you're doubly enchanted by the beauty of the language and the strangeness of the vision. It stays with you.
+- The acknowledged legislators of the world take the world as given. They dislike mysteries, for mysteries cannot be coded, or legislated, and wonder cannot be made into law. And so these legislators police the accepted frontiers of things.
+- One of the greatest gifts my father gave me - unintentionally - was witnessing the courage with which he bore adversity.
+- Home can be the friend you have been searching for all your life or the person you met once very briefly.
+- Reading is an act of civilization; it's one of the greatest acts of civilization because it takes the free raw material of the mind and builds castles of possibilities.
+- At the heart of 'The Famished Road' is a philosophical conundrum - for me, an essential one: what is reality? Everybody's reality is subjective; it's conditioned by upbringing, ideas, temperament, religion, what's happened to you.
+- Politics is the art of the possible; creativity is the art of the impossible.
+- When I write a poem, I go into a state of self-forgetfulness, and something higher takes over; I like to call it my best self.
+- The most authentic thing about us is our capacity to create, to overcome, to endure, to transform, to love and to be greater than our suffering.
+- The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader.

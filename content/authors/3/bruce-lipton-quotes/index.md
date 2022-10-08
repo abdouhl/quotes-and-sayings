@@ -1,0 +1,40 @@
++++
+author = "Bruce Lipton"
+title = "Bruce Lipton Quotes"
+quotes_len = "34"
+description = "the best 34 Bruce Lipton Quotes"
++++
+- The first six years of a child's life, it is like a tape recorder is on. Everything it sees, smells, touches, experiences in any way, whatever it hears, is being downloaded into the brain before the consciousness of the child is even made apparent.
+- What's very interesting is that when we look at human bodies, we look at our body as a singular entity when it turns out, no, if I could reduce us to a small size as the size of a cell and put you inside your body, rather than seeing a singular entity, what you would see is a metropolis with 50 trillion citizens.
+- Nature is based on harmony. So it says if we want to survive and become more like nature, then we actually have to understand that it's cooperation versus competition.
+- If the brain expects that a treatment will work, it sends healing chemicals into the bloodstream, which facilitates that. And the opposite is equally true and equally powerful: When the brain expects that a therapy will not work, it doesn't. It's called the 'nocebo' effect.
+- Crises are harbingers of evolution.
+- I watch Jon Stewart because I need to laugh. Otherwise, life gets too serious. Besides that, I don't watch any news.
+- One of the first papers I wrote at the University of Wisconsin, in 1977, was on stem cells. I realized that if I changed the environment that these cells were in, I could turn the cells into bone, and if I changed the environment a bit more, they would form fat cells.
+- Modern science is predicated on 'truths' verified through accurate observation and measurements of physical world phenomena.
+- If you have pendulum clocks on the wall and start them all at different times, after a while the pendulums will all swing in synchronicity. The same thing happens with heart cells in a Petri dish: They start beating in rhythm even when they're not touching one another.
+- In a universe made out of energy, everything is entangled; everything is one.
+- Through consciousness, our minds have the power to change our planet and ourselves. It is time we heed the wisdom of the ancient indigenous people and channel our consciousness and spirit to tend the garden and not destroy it.
+- Epigenetics doesn't change the genetic code, it changes how that's read. Perfectly normal genes can result in cancer or death. Vice-versa, in the right environment, mutant genes won't be expressed. Genes are equivalent to blueprints; epigenetics is the contractor. They change the assembly, the structure.
+- Genes are not destiny!
+- Our thoughts are mainly controlled by our subconscious, which is largely formed before the age of 6, and you cannot change the subconscious mind by just thinking about it.
+- Your brain sends out vibrations all the time, and your thoughts affect your life and other people's. They pick up these thoughts and get changed by them. That's why, say, a pacifist gets caught up in a riot situation. It's a field of vibrations - you can 'feel' someone else's thoughts when close to them.
+- The new physics provides a modern version of ancient spirituality. In a universe made out of energy, everything is entangled; everything is one.
+- A person's health isn't generally a reflection of genes, but how their environment is influencing them. Genes are the direct cause of less than 1pc of diseases: 99pc is how we respond to the world.
+- If you take Darwinian theory, make a 'scientific' principle out of it, put it into political action, then you have something like Nazi Germany.
+- We keep thinking that the human is evolving. No, the human has evolved to its extent. What's happening now is the organization of humans: just like cells organize to form people, people are organizing to form humanity.
+- The implication is that this basic idea we have that we are controlled by our genes is false. It's an idea that turns us into victims. I'm saying we are the creators of our situation. The genes are merely the blueprints. We are the contractors, and we can adjust those blueprints. And we can even rewrite them.
+- Each of us is a spirit in material form.
+- Because we're not in harmony with the environment, we're destroying the environment that supports us.
+- We are made in the image of God, and we need to put Spirit back into the equation when we want to improve our physical and our mental health.
+- In reality, a cell is a biological mini-me compared to the human body. A cell has every biological system that you have.
+- The future is to heal back to the mind again. Recognizing that the mind is all powerful - it controls every cell to every degree of its genetic expression.
+- If your environment keeps draining your energy, it's like having a leaky bank account, where any money you're putting into the bank, such as by seeing an energy healer, keeps slipping out. You have to change your environment, including any harmful beliefs, before the energy can stay high.
+- Our thoughts are mainly controlled by our subconscious, which is largely formed before the age of 6, and you cannot change the subconscious mind by just thinking about it. That's why the power of positive thinking will not work for most people. The subconscious mind is like a tape player. Until you change the tape, it will not change.
+- The planet's hope and salvation lies in the adoption of revolutionary new knowledge being revealed at the frontiers of science.
+- Deism is the belief that nature and God are one and the same thing. If you study nature, you're getting insights about God.
+- There's a theory that says that life is based on a competition and the struggle and the fight for survival, and it's interesting because when you look at the fractal character of evolution, it's totally different. It's based on cooperation among the elements in the geometry and not competition.
+- There was a point where there was a vision that we'll get to a certain age, and then we'll retire and be happy. Now that's like, that's being compromised every day. So I think we have to start living happy now and stop waiting for the forty years because by then you'll be so sick, you wouldn't enjoy it anyway.
+- For science, the end of the evolution struggle is simply represented by 'survival.' As for the means to that end, apparently anything goes. Darwinism leaves humanity without a moral compass.
+- If we could get your subconscious mind to agree with your conscious mind about being happy, that's when your positive thoughts work.
+- Science ignores the spiritual realm because it is not amenable to scientific analysis. As importantly, the predictive success of Newtonian theory, emphasizing the primacy of a physical Universe, made the existence of spirit and God an extraneous hypothesis that offered no explanatory principles needed by science.

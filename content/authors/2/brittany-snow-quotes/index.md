@@ -1,0 +1,74 @@
++++
+author = "Brittany Snow"
+title = "Brittany Snow Quotes"
+quotes_len = "68"
+description = "the best 68 Brittany Snow Quotes"
++++
+- My greatest accomplishment is receiving my role on 'Guiding Light.'
+- My big 'don't' would be wearing something just because someone told you it looks cool. I think a lot of people fall victim to that - of doing something that's a trend, but then you can tell if they don't own it or don't like it.
+- He was so good with the kids on the set. He just knew exactly how to handle them. The baby would cry and Vin would hold him and do all these weird sounds and the baby would stop crying. It was really cute.
+- I like Stella McCartney, Chloe, Alexander McQueen, Aaron Featherstone, normal Chanel if I can ever afford it, I'd be wearing that all the time! I like to admire from afar.
+- I know from my own personal experience. I was bullied in middle school and high school and went through my fair share of hard times thereafter. Also, one of my really good friends committed suicide when I was in high school.
+- I have had every hair color. I joke with my hair colorist. She keeps sheets of paper on every hair color that I've had, so she has records of it all. She's done my hair since I was 15, and I guess I have a thick folder going because I've had so many different hair colors.
+- I feel that whole vibe of that tomboy chic thing that's been introduced years ago by Alexa Chung and things in that sort of evolution is what I like to wear. I just like to look effortless because I don't want to put too much effort into it.
+- I have always loved Reese Witherspoon and Amy Adams as role models - I read all their interviews and agree with the fundamentals of how they manage the limelight and also how they look and carry themselves. A huge part of beauty is how you carry yourself and how you deal with certain situations.
+- I wish I was 100 percent confident in my own skin. It's always a process, but getting older, I've become more confident.
+- Well, I had said to my friends, it's going to be good, but I bet it's going to be cheesy in a way. And I didn't think that at all. It's so good and was just so funny.
+- I have to shave every day. If I don't, it's sort of like going to bed without brushing your teeth for me - but I'm a crazy person so maybe that's why.
+- Sometimes I want to do something that's really funny and other times I read an indie script that is going to be made for nothing but I want to do it because I think that I can connect with something in the story.
+- I am a huge fan of Reese Witherspoon, and I always get told that I look like her little sister. So I would love to play her little sister one day.
+- If I don't like what I'm wearing, you can see it on my face in any picture right away. It makes a big difference when you feel like you're wearing your style, and it's something that you picked out, or you feel really good in it.
+- My mom is big on moisturizer and water. She always reminds me to drink a lot of water and wear sunglasses because I always forget them when I go out, even though they are one of my favorite accessories. She always reminds me about wrinkles, and always did, so it's kind of been ingrained into me.
+- I knew that my hair was falling out and I had really weird skin. My face looked really weird and I was getting this fuzz on my face and I was always cold - always to the point of uncontrollably shaking. I was more scared that 85 lbs. wasn't good enough. I wanted to be lower.
+- I've played a prostitute now three times. I don't know how it's come about that way. It's just a matter of me growing up.
+- I think it's just a nerve-wracking thing to sing in a movie in general.
+- It's just interesting that people don't really know about the roles that I play that are darker. I kind of do a huge blend of really big light things but also really dark indie things, and it just sort of happens to work out that way.
+- I'm a really bad twerker - I still haven't figured out how to do it. I actually hurt my back one day. I woke up the next morning, and my back was completely tweaked out... from twerking.
+- It may sound lame, but I've been journaling since I was in third grade. I love it! It makes me feel calm and happy.
+- I'm very claustrophobic.
+- After I play every character, I always walk away and feel a little different. I've experienced something that's not my life, but I've made it my life.
+- I think my least favorite hair color was the hair color that I had in 'Pitch Perfect 2.' They really wanted me to be dark red, and I wanted to be lighter like I was in the first movie, but they didn't want that. But I rocked some light red for a year, after it faded.
+- I love fashion and appreciate it so much, and I feel like it's moving artwork going down a runway.
+- I stay away from things that I know break me out - I am weirdly allergic to mango and almonds. I take evening primrose and supplements that have EFA fatty acids in them to just balance out my hormones and skin, and I take a lot of vitamin C. I drink a lot of water, try to eat really organic, and try to eat things that benefit my skin.
+- On 'Nip/Tuck,' I was a Nazi, so basically for, like, six months. I went into this place where I was wearing a lot of black. Everyone has a dark side, and I can channel that.
+- I use Maybelline New York Great Lash Mascara. Thanks to my mother, I have really long lashes, so I've never had to use too much product. I've used this mascara since I was 15, and it's the only one I use. A lot of people think I wear extensions, but nope, I just apply lots of mascara because it's the one thing that makes me feel pretty!
+- I got a tattoo saying, 'Freedom From Fear' because of 'Black Water Transit.'
+- I can hear someone's voice once, and I can pretty much mimic them. Not to make fun, but I can do an impression of them pretty well.
+- I didn't really work with Vin on it except we talked about it a little bit. I think it was kind of cool because we didn't think it was going to be that emotional. I don't think Vin knew I was going to be that emotional.
+- I'm so single. It's funny. I'm usually a relationship girl. I love being in love and having a partner in crime. But it's good to be your own partner in crime. God, that makes me sound like I have multiple-personality disorder.
+- I play 'Just Dance' all the time - actually my girlfriends and I have slumber parties where we actually do this on a monthly basis and make total fools of ourselves.
+- I go to the gym three times a week and do Pilates three times a week, but not for more than an hour. It's not healthy.
+- It's so cliche to say florals for spring. I really like a vintage-like dress that's floral. You can belt it; I like belts. I like wearing pretty dresses that are really comfortable, that you can spend the day in but also feel girly.
+- I like to mix it up with vintage '70s stuff and I like to wear a lot of guys' clothes. As far as night stuff, I have my stylist direct me in the right way. We have a vintage glamour, age-appropriate, pretty thing going.
+- I keep 'The Paper Bag Princess' by Robert Munsch on my shelf to remind me that my prince will love me no matter what I wear. Cheesy!
+- I've been boxing ever since I was 16. I love surprising people who think a short, blond girl can't fight! Just because I look a certain way doesn't mean I'm weak.
+- Love Is Louder is a movement that is hopefully going to bring some awareness and make some noise when it comes to teens who are feeling suicidal or even just sad, outcasts, and being bullied, and really feel like they have nowhere to turn to.
+- I mean, I'm pretty good in real life, but sometimes people seem surprised that I'm like a normal teenager and wear black nail polish and I'm just a little bit more edgy than the person I play on television.
+- I have this fascination with being on the road, all things music, and the '70s. My favorite movie is 'Almost Famous.'
+- I think the stigma surrounding mental illness and also the stigma surrounding self-esteem issues or insecurities or just even feeling different is something that doesn't really get enough attention. Everybody struggles with feeling alone or that they are going through something they don't quite understand.
+- Have you ever noticed how nice people are at the car wash?! Maybe it's just me, but it makes me happy. Weird, I know!
+- I'm excited for people to realize that I'm 25 years old and not a teenager anymore... even though I still look 18 and can't get into a bar to save my life!
+- I grew up doing all that stuff because I was obsessed with the '50s. I had sock hops for birthday parties. So I've always done The Twist and stuff. It was pretty natural and, with my parents doing it all the time, I'd just copy them. Not very pretty.
+- I will sleep all day; I love staying in bed with my dog and reading and not getting up and checking my phone. And that gets me into trouble because I have things to do, and that's not very productive.
+- A misperception about anorexia is that you don't eat. Not true. Maybe you eat just 500 calories a day. It would be easy for me to say, 'Why didn't my parents notice?' But I didn't want them to. I made sure to eat half a sandwich around my parents.
+- I'm very lazy; if it takes me longer than 15 or 20 minutes to get ready, then I don't want to do it. So I wear a lot of jeans and T-shirts and very normal kind of tomboyish sort of things.
+- I love 'The Bachelor!' Yeah, all people love 'The Bachelor.'
+- I understand and get when kids and teenagers feel like they're alone and it's not going to get better. My advice is that there is a support system out there, there are a lot of people who have been through what you're going through and are going through it now.
+- I'm really into psychology, and I want to be a psych major.
+- Growing up in Florida and having naturally curly hair was a bit tough. I had to learn to do treatments and masks to keep the frizz under control.
+- I was 85 lbs. at my 2000 homecoming dance. But I wanted my collarbones and hip bones to show more. I'd feel my hip bones to make sure they were out. If not, I had more weight to lose. I lost my period until I was 17. I loved that. It meant I wasn't healthy, and I didn't want to be healthy.
+- For many years when I was younger, I let negative things that people said about me affect my life. What I've learned is that it's really important to find the right support network, focus on the positive things in your life and quiet that negative voice in your head.
+- I'm a huge believer in you don't really need anybody to make you feel validated or make you feel secure. When you go to sleep at night, you're with yourself, and when you wake up, you're with yourself. Be happy, just alone, regardless if you're with somebody or not.
+- I have a ladybug on my wrist that I got when I was doing 'John Tucker Must Die,' and I have a tattoo on my ankle that's in Sanskrit that says 'Fearless.'
+- I've worn my share of leopard pink boots to premieres or belts the size of cars. I thought my pink leopard boots were so cool.
+- AOL Instant Messenger was a big thing back in the day, where girls would get on it and make fun of me. There was a certain girl, and she wanted to make me feel bad.
+- With Instagram and Twitter, you're constantly looking at other people and comparing yourself to them, and it's just not beneficial. There is always going to be someone skinnier or prettier or with better skin, and that same girl you're looking at is comparing herself to someone else.
+- At age 12, I was on 'Guiding Light,' and I wanted to be accepted by these adults I was working with. I started with the Eat Right for Your Type diet. A friend who was a little older was doing it. I have a perfectionist personality, so I wanted to do the best job I could. I was not eating anything it said not to.
+- I love hanging out with my friends; I love to run. I box. I'm a huge movie buff.
+- After 'Prom Night' I did two movies where I was playing a prostitute. I gravitate towards characters that have some sort of inner turmoil or some sort of character arc. That's the great thing about acting, so many different things and being really diverse in your choices.
+- I think people assume I only do light things because of the movies that are like 'Hairspray' and 'John Tucker Must Die.' But I think it's all just based on material that I really like and that speaks to me.
+- I stay out of the sun; I'm pretty fair. I don't tan - I burn, so I stay out.
+- Sometimes the characters I find the most compelling are in independent movies. With independent scripts people can take more challenges.
+- Pretty much everything that I pick, when it comes to choosing roles, is just based on things and materials that grabs me. It's pretty much the subject matter that I gravitate towards.
+- Social media, for me, is about interacting with people who follow my career. I don't think my relationship has anything to do with my career.
+- The thing about 'On the Doll,' I was doing 'Nip/Tuck' at the time, and I was doing only 5 or 6 scenes an episode. So I had some free time, and I wanted to do something completely different than what I've ever done before.

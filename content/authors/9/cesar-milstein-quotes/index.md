@@ -1,0 +1,14 @@
++++
+author = "Cesar Milstein"
+title = "Cesar Milstein Quotes"
+quotes_len = "8"
+description = "the best 8 Cesar Milstein Quotes"
++++
+- I wasn't a particularly brilliant student, but on the other hand, I was very active in Student Union affairs and in student politics.
+- As we returned to Argentina, I started seriously to work towards a doctoral degree under the direction of Professor Stoppani, the Professor of Biochemistry at the Medical School.
+- My thesis was on kinetics studies with the enzyme aldehyde dehydrogenase. When that was finished, I was granted a British Council Fellowship to work under the supervision of Malcolm Dixon.
+- The study of the amino acid sequence around the disulphide bonds of the immunoglobulins was my own short-cut to the understanding of antibody diversity.
+- My father was a Jewish immigrant who settled in Argentina and was left to his own devices at the age of 15. My mother was a teacher, herself the daughter of a poor immigrant family.
+- What attracted me to immunology was that the whole thing seemed to revolve around a very simple experiment: take two different antibody molecules and compare their primary sequences.
+- Back in 1962, when I had by accident become the supervisor of Roberto Celis in Argentina, it occurred to me that antibody diversity might arise from the joining by disulphide bridges of a variety of small polypeptides in combinatorial patterns.
+- When an animal is infected, either naturally or by experimental injection, with a bacterium, virus, or other foreign body, the animal recognises this as an invader and acts in such a way as to remove or destroy it.

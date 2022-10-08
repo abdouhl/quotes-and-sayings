@@ -1,0 +1,31 @@
++++
+author = "Christian Dior"
+title = "Christian Dior Quotes"
+quotes_len = "25"
+description = "the best 25 Christian Dior Quotes"
++++
+- Zest is the secret of all beauty. There is no beauty that is attractive without zest.
+- Women, with their sure instincts, realized that my intention was to make them not just more beautiful but also happier.
+- A country, a style or an epoch are interesting only for the idea behind them.
+- Bright reds - scarlet, pillar-box red, crimson or cherry - are very cheerful and youthful. There is certainly a red for everyone.
+- Without foundations, there can be no fashion.
+- In a machine age, dressmaking is one of the last refuges of the human, the personal, the inimitable.
+- From his very first works, it was clear that Henri Sauguet would bring spontaneity, romance, and a nonacademic approach back to modern music.
+- Deep in every heart slumbers a dream, and the couturier knows it: every woman is a princess.
+- The detail is as important as the essential is. When it is inadequate, it destroys the whole outfit.
+- Finally, everything that has been part of my life, whether I wanted it to or not, has expressed itself in my dresses.
+- The tones of gray, pale turquoise and pink will prevail.
+- Women are most fascinating between the ages of 35 and 40 after they have won a few races and know how to pace themselves. Since few women ever pass 40, maximum fascination can continue indefinitely.
+- Haute couture is like an orchestra, for which only Balenciaga is the conductor. The rest of us are just musicians, following the directions he gives us.
+- I wanted to be considered a good craftsman. I wanted my dresses to be constructed like buildings, molded to the curves of the female form, stylizing its shape.
+- All I required to be happy was friendship and people I could admire.
+- You can wear black at any time. You can wear it at any age. You may wear it for almost any occasion; a 'little black frock' is essential to a woman's wardrobe.
+- White is pure and simple and matches with everything.
+- A woman's perfume tells more about her than her handwriting.
+- Colour is what gives jewels their worth. They light up and enhance the face. Nothing is more elegant than a black skirt and sweater worn with a sparkling multi-stoned necklace.
+- We were emerging from the period of war, of uniforms, of women-soldiers built like boxers. I drew women-flowers, soft shoulders, fine waists like liana and wide skirts like corolla.
+- After women, flowers are the most lovely thing God has given the world.
+- My dream is to save women from nature.
+- A dress is a piece of ephemeral architecture, designed to enhance the proportions of the female body.
+- On vacation, you can wear all the colorful and casual clothing that you like, but you must always be elegant.
+- You can never really go wrong if you take nature as an example.

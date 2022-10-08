@@ -1,0 +1,58 @@
++++
+author = "Barbara Kruger"
+title = "Barbara Kruger Quotes"
+quotes_len = "52"
+description = "the best 52 Barbara Kruger Quotes"
++++
+- All the gossip and craziness becomes a kind of sustained narrative which, in turn, can become history. It's scary.
+- Money talks. It starts rumors about careers and complicity and speaks of the tragedies and triumphs of our social lives.
+- I want people to be drawn into the space of the work. And a lot of people are like me in that they have relatively short attention spans. So I shoot for the window of opportunity.
+- Teaching at university isn't like teaching in an art school.
+- I mean, making art is about objectifying your experience of the world, transforming the flow of moments into something visual, or textual, or musical, whatever. Art creates a kind of commentary.
+- I think that every so-called history book and film biography should be prefaced by the statement that what follows is the author's rendition of events and circumstances.
+- I feel uncomfortable with the term public art, because I'm not sure what it means. If it means what I think it does, then I don't do it. I'm not crazy about categories.
+- I'm living my life, not buying a lifestyle.
+- I think I developed language skills to deal with threat. It's the girl thing to do-you know, instead of pulling out a gun.
+- Look, we're all saddled with things that make us better or worse. This world is a crazy place, and I've chosen to make my work about that insanity.
+- There's a moment of recognition. It's that white-light kind of stuff that just 'works.' I love that. And you know it when it happens, whether it's a movie, music, a building, a book.
+- I just say I'm an artist who works with pictures and words.
+- I don't necessarily think that installation is the only way to go. It's just a label for certain kinds of arrangements.
+- Do you know why language manifests itself the way it does in my work? It's because I understand short attention spans.
+- I have problems with a lot of photography, particularly street photography and photojournalism - objectifying the other, finding the contempt and exoticism that you might feel within yourself or toward yourself and projecting it out to others. There can be an abusive power to photography, too.
+- I think there are lots of ways to make good work. You can throw big bucks at a project and make what some would call crap, or you can work very modestly with eloquently moving results.
+- Direct address has been a consistent tactic in my work, regardless of the medium that I'm working in.
+- I think what I'm trying to do is create moments of recognition. To try to detonate some kind of feeling or understanding of lived experience.
+- Power doesn't just exist. It is threaded through different mechanisms of control. I'm interested in those complexities. But I want to address that in very forthright language and sometimes with images.
+- I think there are different ways of being rigorous, and I am asking people to be as rigorous in their pleasure as in their criticism.
+- Although my art work was heavily informed by my design work on a formal and visual level, as regards meaning and content the two practices parted ways.
+- I always say that I'm an artist who works with pictures and words, so I think that the different aspects of my activity, whether it's writing criticism, or doing visual work that incorporates writing, or teaching, or curating, is all of a single cloth, and I don't make any separation in terms of those practices.
+- I had to figure out how to bring the world into my work.
+- Even when I was a little girl, I remember going to the Museum of Modern Art. I think my parents took me there once or twice. And what I really remember is the design collection.
+- I've always thought that it's good to watch the news to find out what everybody else is looking at and believing, if only because that's how consensus is constructed.
+- I think that art is still a site for resistance and for the telling of various stories, for validating certain subjectivities we normally overlook. I'm trying to be affective, to suggest changes, and to resist what I feel are the tyrannies of social life on a certain level.
+- I think people have to set up little battles. They have to demonize people whom they disagree with or feel threatened by. But it's the ideological framing of the debate that scares me.
+- It's hard for me to understand how working-class people support themselves.
+- The reason why bookstores are going out of business in the States is that people just can't focus on longer narratives now - even narrative film is in crisis in many ways, unless it's an adventure film.
+- It's good to keep in mind that prominence is always a mix of hard work, eloquence in your practice, good timing and fortuitous social relations. Everything can't be personalized.
+- I'm an artist who works with pictures and words. Sometimes that stuff ends up in different kinds of sites and contexts which determine what it means and looks like.
+- Prominence is cool, but when the delusion kicks in it can be a drag. Especially if you choose to surround yourself with friends and not acolytes.
+- I believe that who we are, and consequently the work that we make, whether we're visual artists or writers or journalists or filmmakers, is a projection of where we were born, what's been withheld or lavished upon us, our color, our sex, our class. And everything we do in life to some degree is a reflection of that context.
+- I've always been very tied to language.
+- I think that designers have an incredibly broad creative repertoire. They solve. They create images of perfection for any number of clients. I could never do that. I'm my client. That's the difference between an artist and a designer; it's a client relationship.
+- Listen: our culture is saturated with irony whether we know it or not.
+- I'd always been a news junkie, always read lots of newspapers and watched the Sunday morning news shows on TV and felt strongly about issues of power, control, sexuality and race.
+- I like suggesting that 'we are slaves to the objects around us,' that 'plenty should be enough,' or that the 'buyer should beware,' within the context of conventional selling space.
+- Things change and work changes. Right now I like the idea of enveloping a space and getting messages across that connect to the world in ways that seem familiar but are different.
+- You know, one of the only times I ever wrote about art was the obituary of Warhol that I did for the Village Voice.
+- Women's art, political art - those categorisations perpetuate a certain kind of marginality which I'm resistant to. But I absolutely define myself as a feminist.
+- I've never worked in advertising - my experience was as an editorial designer for magazines - but you could say, in the bigger picture, that magazines are vehicles for colour advertising.
+- Seeing is no longer believing. The very notion of truth has been put into crisis. In a world bloated with images, we are finally learning that photographs do indeed lie.
+- I'm trying to deal with ideas about histories, fame, hearsay, and how public identities are constructed.
+- I didn't finish college; my parents didn't graduate college - we didn't have a pot to piss in. I'm from Newark, New Jersey. I had to work. I didn't think it would be possible for me to be an artist without having a job.
+- There are so many moments and works that influence us in what we do. Movies, music, TV and, most importantly, the profound everydayness of our lives.
+- If most American cities are about the consumption of culture, Los Angeles and New York are about the production of culture - not only national culture but global culture.
+- I try to deal with the complexities of power and social life, but as far as the visual presentation goes I purposely avoid a high degree of difficulty.
+- If I bring up political power, personal power, it sounds like they're my terms, and they're not.
+- Warhol's images made sense to me, although I knew nothing at the time of his background in commercial art. To be honest, I didn't think about him a hell of a lot.
+- One thing I learned working at magazines was that if you couldn't get people to look at a page or a cover, then you were fired. It was all about how you create arresting works, and by arresting I mean stop people, even for a nano-second.
+- What makes the production of my work so expensive? The whole installation thing - the construction, the objects, the technology. It really adds up.

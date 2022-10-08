@@ -1,0 +1,30 @@
++++
+author = "Rafael Van Der Vaart"
+title = "Rafael Van Der Vaart Quotes"
+quotes_len = "24"
+description = "the best 24 Rafael Van Der Vaart Quotes"
++++
+- I love to play big games, it makes you a bigger player.
+- Andre Villas-Boas wasn't the ideal coach for me. He bought Gylfi Sigurdsson and then told me he would be his new No.10.
+- I've always said the one change that would've been nice is if I'd been a bit faster - like fast enough to be able to run past people instead of just being overtaken all the time!
+- It's really important that when you come to a club, you know the history. My dream was always Real Madrid or Barcelona, but for the fans of Tottenham, the club is the biggest in the world. So that's how I treated it.
+- When I was young, the best moment came when I was 10 and I got invited to the academy. I remember getting all this Ajax training gear and suddenly I was able to call myself an Ajax player.
+- Every time I walked into White Hart Lane, I got goosebumps. I felt so privileged to play there, to make the people happy.
+- When your relationship is good, you can tell somebody the truth.
+- I think the Premier League is the best league in the world.
+- Football is important but it's not the most important thing.
+- I'm not a player any more, I'm a fan, and I want to see somebody who wants to win and wants to fight.
+- Twenty-seven is a great age to play. There is so much ahead of you.
+- Andre Villas-Boas wasn't the ideal coach for me.
+- When you put something on Instagram, the English people are always so positive. As a player, you need that.
+- The way I played, Tottenham was the best phase of my career. It's always a warm feeling when I think back.
+- I didn't want to be the next version of any player - I wanted to establish my own name.
+- I think it's a good match, Dutch players playing in England.
+- When I was younger, I always knew I was a pretty good player, but it was impossible to foresee how far I'd go. I had a left foot and vision like no one else, but I wasn't the quickest and my right foot wasn't so great, so there were things I needed to work on.
+- When I lose the fun in football, it's better to quit.
+- I never had anything against Arsenal, but when I joined Spurs I tried to learn about the club's traditions and I soon found out about the magnitude of the match.
+- Leaving Tottenham was not by best choice but, apart from that, there haven't been too many regrets in my career.
+- But Tottenham is pure football and pure people... nice, warm people. That's why I like Tottenham. And everybody who comes to the stadium can smell the history.
+- At home, I make the decisions.
+- I like to relax and watch TV and play with my little boy. I like to play some tennis as well.
+- I like to play football, and of course I like to play for Tottenham, but I try to enjoy every game because that's the most important thing, to have fun on the pitch, and then you can play good.

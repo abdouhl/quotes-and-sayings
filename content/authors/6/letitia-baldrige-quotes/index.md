@@ -1,0 +1,104 @@
++++
+author = "Letitia Baldrige"
+title = "Letitia Baldrige Quotes"
+quotes_len = "98"
+description = "the best 98 Letitia Baldrige Quotes"
++++
+- We ought to be vigilantes for kindness and consideration.
+- I think that what we should do is have short, clipped conversations on the telephone so someone can always get us, not talking about inane stuff and having someone trying to get you. I also think we've just got to be more sensitive toward other people and not call them at night if you know they've been working.
+- Politeness decrees that you must listen to be kind; intelligence decrees that you must listen to learn.
+- You don't need the White House to please people. You can be 24, earning $22,000 a year, and have people over to your tiny apartment. It's all about sharing and thinking about what will make others happy.
+- The Kennedys tried to avoid using the big U-shaped table, but when they couldn't, they had several tricks - including keeping the flowers simple - to keep it from appearing overly stiff and formal.
+- Tea time is a chance to slow down, pull back and appreciate our surroundings.
+- If somebody is disrespecting somebody, we should step in - even at the risk of getting slugged over the head.
+- Manners are nothing more than thinking about somebody else.
+- The '80s have not been a gracious decade, and people are seeking ways to be nice to each other.
+- Backpacks are obtrusive. They're great for school kids and mountaineers, but a woman is supposed to look enticing and glamorous at night. They obscure one of a woman's most erogenous zones, the nape of her neck. I suppose they're good if you want to keep men away.
+- If you really screw up, send roses.
+- There are major CEOs who do not know how to hold a knife and fork properly, but I don't worry about that as much as the lack of kindness.
+- Eating American-style, you put the knife down and clang. Continental is silent and efficient.
+- When someone is wearing a dress that makes her look fat, don't say 'That's a great dress.' It always comes off badly.
+- At home, we're listening to TV or playing with our computers, so our entertaining is rusting. We don't know how to be good hosts and guests in business situations.
+- We're a nation of latchkey children. Manners start at home, and no one is at home teaching manners so that children have respect for others.
+- I've become a master of the apology.
+- Writers on etiquette receive a continuous flow of questions on subjects such as 'When is it too early in the season to wear white accessories?' and 'What is the proper gift to send to a family in mourning?'
+- Going to a party uninvited always has been a negative action. It never has been acceptable. At the very least, it upsets kitchen preparations, parking arrangements, and even details such as space for hanging coats and depositing dripping umbrellas.
+- I've had three broken legs and two knee replacements. But I'm very good at apres golf.
+- Administrations had come and gone in Pennsylvania Avenue, but many old entertaining traditions had survived - thru habit and not thru merit.
+- Doubleday is used to my talking about manners because I am, after all, known for that, and that's my persona.
+- If you take five taxis a day, one driver will be nasty, and the other four are perfectly nice. You remember the nasty one. But you should remember the four who were nice.
+- Crashing could not be more inconsiderate to a host. It is a negative act because hosts likely have a particular plan for the event, an intention to move guests' attitudes in a certain direction.
+- When you pass 70, you forget your enemies. You think about the nice people instead.
+- The best thing we can do to save the planet is set a good example for our kids at home.
+- The First Lady has a lot of power. I hope Hillary Clinton realizes that.
+- We need grace in our lives, and I'm not talking about heavenly grace. I'm talking about human grace. We should try and be warm and friendly.
+- You'd be surprised how much easier it is to conduct business over tea than over lunch or dinner in a bustling restaurant.
+- Look at all those unattractive people talking about depraved things all day long on TV talk shows. People can talk about themselves, yet the art of conversation, which has to do with sharing, is disappearing. I feel as though I am chasing a runaway locomotive.
+- We have lost the art of conversation. People are shy and don't know how to approach other people, and they are missing opportunities for relationships. And no one's entertaining at home anymore. They're not having people over for dinner.
+- It's nice to compliment people on what they're wearing, but don't make insincere compliments.
+- A real thank you does not come by e-mail. They come in the mail in an envelope. And what comes out of an envelope is a beautiful thing to touch and to handle and to pass around for everyone to read.
+- I don't ever knock anybody; that's bad manners.
+- I saw an e-mail from one guy who's about 23 to one of peers. His parting sign-off was 'Don't let the bedbugs bite.' Now that's really poetic.
+- Manners make the world work. They're not only based on kindness but also efficiency. When people know what to do, the world is smoother. When no one knows what to do, it's chaos.
+- People are less grateful than they used to be.
+- For every step forward in electronic communications, we've taken two steps back in humanity. People know how to use a computer and answering machines but have forgotten how to connect with one another. Our society is unraveling. We're too self-obsessed.
+- It's stylish to have people over. But unstylish to make them bring food. It's so tacky, making everybody appear at the door with a dish. Better to order in, use a caterer or bring prepared food into your kitchen.
+- I've had a charmed life.
+- Good manners are cost effective. They not only increase the quality of life in the workplace, they contribute to employee morale, embellish the company image, and play a major role in generating profit.
+- President and Mrs. Kennedy would walk into the East Room with their honored guests, preceded by the military color guard, who then posted their flags behind the receiving line. This ceremony never failed to move all of us, no matter how many times the staff witnessed it.
+- Chivalry isn't dead. It's just no longer gender-based.
+- Knowing when and where to sit is something every young executive should learn. A junior person who comes barging into a room and takes any seat he wants catches the disapproving eye of senior management.
+- A bride is a bride the first time around. The white dress and the white veil are symbolic. So many people are breaking the rules that people don't know what the rules are.
+- Europeans are easily offended by errors in their titles or full names. Their exasperation is equal to that shown by Americans when the department store fouls up their bills.
+- If you care enough to look right, you care enough to act right. And vice versa.
+- You don't want to work so hard that you can't enjoy your guests.
+- The custom of going to a party only when we have been invited is a necessary, attractive, decent way for a party to evolve.
+- That's how a nation's manners are going to be taught - from watching others' behavior and learning from the effects of that behavior.
+- When writing a thank-you if you've had lunch with someone downtown, send an e-mail. If somebody is giving you a dinner party in his or her home and all the work that takes, that person deserves a written thank-you.
+- CEOs are called by their first names by young whippersnappers. That makes everybody uncomfortable. We need order and structure back in the workplace.
+- A man or woman can be known and respected for good taste, regardless of job or income level, if they make good choices in clothes, have good table manners, are kind and organize their home to look warm, welcoming, clean, and appropriate to their station in life.
+- A really first-class company uses really fine stationery.
+- The polished executive is ultimately the happy executive who can walk gracefully through life.
+- I'm for anything that teaches consideration and kindness. If one can teach one's son to dance with the ugliest little girl in the room, that's the best lesson they can ever learn.
+- For years, people have re-dialed when the line was busy. They waited their turn. When I'm put on hold, I always hope that as my revenge, their other call will be someone wanting to sell them something.
+- If golfers know they look good, they will play better. I think that is valid for men and women.
+- More young people are aware of the need for thank yous and aware of the tremendous impression they make.
+- Jeans should never be worn to someone's home if you are having dinner there.
+- I believe in teaching manners without causing fisticuffs.
+- Arranging an official dinner in an embassy is a little like writing a script for a play. The prolog is the guest list, often the most difficult part of the whole creative operation.
+- When somebody throws something out the car window, honk at them, but don't give them the finger. We've got to temper our negative feelings about people who desecrate the environment.
+- Go to any bookstore, and you'll see thousands of books on etiquette, which suggests there's a lot of self-help going on. There is hope.
+- For every rude executive who makes it to the top, there are nine successful executives with good manners.
+- Jeans of any sort should not be worn in nice restaurants. They pollute the landscape. They should also not be worn in the workplace if no other workers wear them. However, if your office is casual, go for it.
+- We have a lot of societal problems that we have to fix in the 1990s.
+- Most people don't know how to take compliments. That's the biggest problem in America - we're hesitant to give compliments and embarrassed at getting them.
+- I never made any money, but I had the best jobs in the world.
+- I have grandchildren who are going to need every cent I make.
+- One cannot reject an entire nation because of the politics of its leader.
+- If you're making a social call, don't call past 8 P.M. The evening is a time when people need a respite from their work - a time to unwind, uninterrupted.
+- I talk about beepers going off in the middle of a concert and people being late and not apologizing, and people not RSVP-ing, and adult children going back to live with their parents, which we didn't have in the '60s and '70s.
+- Everybody forgets names and faces, and it's just inconsiderate to expect someone who isn't your boss or your sister-in-law to know exactly who you are.
+- What the bride should do is call guests who have young children and say: 'I'd love to have the kids at the wedding, but we won't have room. Would you get a baby sitter, and when we get back from our honeymoon, we'll have you guys over?'
+- An excellent wine, someone's best attempt at cooking, and the candles and flowers on the table can turn the simplest dinner into an unforgettably romantic event.
+- We are not passing values on to our children. We are not sitting down at the dinner table talking about the tiny things that add up to caring human beings.
+- At tea time, all the noise, greed and aggressiveness of the '80s can be drowned out. For 45 minutes, anyway.
+- If you are someone's guest on a corporate jet, the most important thing to remember is not just to be on time, but to be early. If you hold up the departure of the jet by as much as 10 minutes, you may cause the plane to wait in line for another hour or two before obtaining new clearance.
+- Make people have a smile when they finish your e-mail.
+- Business colleagues who have not seen each other for a long time but who have a good relationship can always shake hands warmly and grab each other's right upper arm or shoulder with their free left hand. Men and women executives should not kiss each other in public.
+- We need to reach out - spend more time together.
+- I don't care what your politics are, I would wager that if you asked any American woman which administration would she have most liked to work for as social secretary, she would pick Jacqueline Kennedy's White House as the place to be.
+- Nothing ruins the flow of conversation more quickly than refusing a compliment you have just received. Never disagree with something nice that is said to you or about you.
+- Nothing gets on other people's nerves at the office more than a whistler. And the sad part is, these whistlers don't know they're doing it. Someone should, tactfully, tell the whistler how much it disrupts the office environment.
+- It's very important with these young people who are graduating and getting married to write thank-you notes.
+- The whole art of flirting has simply disappeared. This probably will do further damage. If we're going to become so uptight that we can't say nice things to each other, then we've had it!
+- When in doubt, look at what everyone else is doing.
+- I'm a businesswoman, and Ms. is an appropriate form of address.
+- I'm all for Hillary Clinton. I want her to avoid the barbs of women who hate women who work. But I'm known as a Republican in Washington. I'm probably the last person she'd call.
+- There is so much bad manners and oafishness in large corporations.
+- Before the Kennedys were elected, there had been older Presidents. Then here was this devastatingly attractive young couple with two beautiful children. They were so intelligent, graceful, gracious and funny. They enjoyed life so much. That's what caught America's eye.
+- To have people to the White House and worry about the price of things is laughable.
+- Kids today and for the last 20 years have held the fork and knife in unbelievable ways. They hold the fork with a fist and the knife like a saw and they shovel it in. It doesn't matter to them which way they hold their knife and fork. They eat every which way. I'm amazed they get food into their mouths at all.
+- All of the First Ladies were good, creative and strong. I've always said they should be paid.
+- It behooves everyone to move forward, think forward.
+- If the flu situation in your town is serious, cancel a large long-awaited party you had scheduled, but promise the guests in an e-mail that you will reschedule the party as soon as possible.
+- I was considered the luckiest of all the female gypsies since I landed the job as social secretary to Ambassador and Mrs. David Bruce at the American Embassy.

@@ -1,0 +1,25 @@
++++
+author = "Ida Lupino"
+title = "Ida Lupino Quotes"
+quotes_len = "19"
+description = "the best 19 Ida Lupino Quotes"
++++
+- I knew it would break his heart if I didn't go into the business.
+- That's one of the things I resent the most violently. To have to take your own life and give it away to the public, in pieces.
+- I'd rather work all night and sleep all day... perhaps I was a mole in my last incarnation.
+- I'd love to see more women working as directors and producers.
+- Any woman who wishes to smash into the world of men isn't very feminine.
+- I'm mad, they say. I am temperamental and dizzy and disagreeable. Well, let them talk. I can take it. Only one person can hurt me. Her name is Ida Lupino.
+- Today it's almost impossible to do it unless you are an actress or writer with power... I wouldn't hesitate right this minute to hire a talented woman if the subject matter were right.
+- Come hell or high water, adopted or my own. I am going to have, I must have some kids.
+- Whereupon, at the tender age of thirteen, I set upon the path of playing nothing but hookers.
+- Keeping a feminine approach is vital - men hate bossy females.
+- I take a script and mull over it and underline the bits I want to emphasize. When I go to the set, I know exactly what I want to do.
+- You cannot play naive if you're not.
+- I never wrote just straight women's roles. I liked the strong characters. I don't mean women who have masculine qualities about them, but something that has some intestinal fortitude, some guts to it.
+- I didn't see myself as any advance guard, or feminist.
+- I had no desire to crash a man's world.
+- Often I pretended to a cameraman to know less than I did. That way I got more cooperation.
+- 'The Sea Wolf' is the story of a man who believes only in brute force. He is so firm in belief in his own ideas that he despises all who disagree with him. He preaches the doctrine of intolerance. He flaunts the notion that democracy is anything but weakness.
+- A woman in show business isn't honest with herself... so how can she be honest with another woman? We are, all of us, acting every minute of the day and night.
+- I cannot tolerate fools - won't have anything to do with them. I only want to associate with brilliant people.

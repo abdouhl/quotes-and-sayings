@@ -1,0 +1,103 @@
++++
+author = "Rey Mysterio"
+title = "Rey Mysterio Quotes"
+quotes_len = "97"
+description = "the best 97 Rey Mysterio Quotes"
++++
+- My elementary school teachers were big on pushing kids to read. If you read a certain amount of books, they would provide you with incentives, sort of like what we are doing with the WrestleMania Reading Challenge.
+- That's really what drew me into wrestling. To see my own uncle put on the mask every Friday to go into the ring, and me putting on his masks to play wrestle with him. It was a whole different world when it came down to sports.
+- My main reason for leaving WWE was to heal up my body - to give it a rest - and to spend time with my wife and my kids.
+- Even when I was a young kid, I always told my uncle that, when I became a wrestler, I wanted to be Rey Mysterio, Jr. and I wanted to wear the mask. I always pictured myself wearing a mask. I dreamed about it for so long. I wanted to be one of those luchadores who wore the mask, the cape, and the fancy outfits.
+- As you get older, your body doesn't hold up as much.
+- In Mexico, to become a pro wrestler, you have to have a wrestling license, and to get a license, you have to pass a wrestling test.
+- I'm enjoying life at my fullest. Sometimes you realize that money isn't everything.
+- My knee bends only to a 60 degree angle. Normally, like on my right leg, my heel can touch my glute if I just pull my leg back. On my left side, there's still a big percentage missing. That has made me change my style in the ring.
+- Sometimes when I get asked by younger wrestlers, 'Do you have any advice for me? What do you think you can help me on?' and I tell them I think the best advice is to try and outdo yourself. Always be unique, always be creative. I think that was part of my success. I never wanted anybody to be on top of me. I always wanted to be number one.
+- It's all about the style and what you can bring to the table - how exciting you can be.
+- I learn from each match that I have, especially when it's a different opponent.
+- I would never intend to hurt anyone I'm in the ring with. It's entertainment, it's a performance, it's a sport.
+- I am the underdog - the 5-foot, 6-inch wrestler. The kids don't say, 'I can beat Rey.' Instead, they say, 'I can be like Rey.'
+- I have to say, the first time I stepped into the ring, it was probably at the age of 4. That's when I was hanging out with my uncle, my mom's brother, Rey Mysterio Sr. It runs in the family; it's stayed in the family.
+- Reading has helped motivate me to become a spokesperson for programs like the WrestleMania Reading Challenge. It has motivated me to become more involved in my community and to keep learning new things.
+- Growing up in wrestling, I would see my uncle put on his mask before he walked into auditoriums. The kids would run up to him and ask for autographs and pictures, and seeing him lacing up his boots in the locker room and putting on his mask before heading to the ring, that was all so real to me. That was the modern day superhero to me.
+- Keep in mind, lucha libre hasn't been displayed in the U.S. in abundance. It's been subtle. The pioneer was Mil Mascaras. Then that died down, and new talent was rising. Eddie Guerrero was the next one, then Konnan. Konnan had big success.
+- Competition is always good, but I truly believe that 'Lucha Underground' has nothing to do with WWE or their programming. We are completely different, you know. And, in a way, we have more to offer.
+- No matter how much cardio you do - running or biking or whatever - it's never the same as being in the ring.
+- When you're in WWE, it's a part of that contract signing, that grind. You're on-call 24-7. That's why you become the star that you are.
+- What I have on my left calf is two skeletons; when you put them together, they form a heart, and it says, 'Love till Death.' That represents me and my wife - 'til death do us part.
+- We never had a trampoline, but I wished I did. We'd sneak into a friend's pool and use their trampoline to practice backflips.
+- When anyone talks about lucha libre and that style of wrestling, the first person they think of is Mil Mascaras. The other man the true wrestling fan will think of is El Santo. These were the names that came to me when I was growing up.
+- I've never had any prima donna attitude against me. It's always been very respectful.
+- I think, most definitely, my style has been changing throughout the years, and that's because of the injuries that I've had, the multiple surgeries on my left knee.
+- When you, as a fan, go to see a wrestling show, you don't know what the predetermined outcome is. You take a seat and enjoy the ride - and it's a hell of a ride.
+- I've got a Kanji symbol on my shoulder; it's for my son and means 'strength and power.' I have my son and daughter's names, Dominik and Aalyah, written on the inside of the left and right biceps, too.
+- I am excited to join Combate Americas on NBC UNIVERSO, and look forward to building this incredible MMA sports brand and supporting the extremely talented athletes on its growing roster.
+- I am excited by the opportunity to join such an extraordinary group of athletes and be a part of the 'Lucha Underground' family.
+- I am always updating and coming up with something fresh, whether it's a colour, a trend, or a design, as my uncle always taught me to be unique and different.
+- Instead of being like the other kids going to soccer or football practice, I was wrestling every day.
+- My uncle inspired me, and it was because of him that I become a wrestler, but besides him, the one Superstar that really caught my attention growing up as a kid was 'Macho Man' Randy Savage.
+- Dark matches are usually off-camera. Sometimes you don't even wrestle in front of the crowd, you wrestle in front of the agents - but my first match with WCW was on a pay-per-view.
+- I do recall at one point being part of WWE and other guys taking the risk of stepping away, and a lot of guys don't do it because of the fear that it's not going to be the same.
+- Reading takes me to a different place than my everyday life. I usually get fully involved in what I'm reading about, so it's a great escape.
+- I always said when I was younger that I want to wrestle until I'm 40 or even in the 50s as long as I can still keep doing the same style of wrestling that I do.
+- I don't think there will ever be another company that has what Lucha Underground has. It's very unique, exciting, and fresh - this is really something new.
+- I remember when I first walked into an American locker room, and no one had ever seen a 130-pound wrestler before. Those guys thought I was such a joke.
+- For me, the people who doubt me only fuel me to prove them wrong. I want to prove to them that I am better than they think I am and that I deserve to be on top and I deserve to be World Heavyweight Champion.
+- When you talk about Mexican culture, it's wrestling and soccer.
+- A lot of people have doubted me because of my size. They think someone like me doesn't deserve to be in the main event, but I think if they knew me, and knew what I've been through in my career, they would respect me.
+- At one point, I left Mexico to continue my career globally, and a new star came about. He is known now as Myzteziz, but back then he was known as Mistico, and then Sin Cara when he joined WWE. I would have to say the fans, in their eyes, see a lot of similarities between us.
+- It was an honor to be invited to visit Real Madrid's training ground and meet Raul, Ronaldo, Kaka, and all the other footballers that play for such a successful team.
+- I feel like, with how medicine is evolving, something will be out there soon that can help you heal from arthritis. That might be what helps my longevity and pushes me to keep performing.
+- Kids aren't scared to pat my shoulder when I come down the aisle to the ring.
+- I always kept the fans happy. They always saw a different Rey, whether it was a mask, a design, a color. I never gave them the same thing twice and always kept them on their feet. They were always excited to see what Rey was going to bring to the table.
+- I actually use Randy Orton as an example to my son because he wants to start training in January. My son is a big kid - he's 6'1", 205 - and I insist that he must watch and learn from Randy's style.
+- For the fans to be able to enjoy a lucha libre match between Eddie Guerrero and Rey Mysterio, I think, I don't want to be flattering myself, but that's probably some of the best lucha libre matches that I had throughout my career, and we were able to demonstrate it to the fans around the world.
+- Mexico has a big roster, and there's a lot of talent. The United States is limited in what you can do. 'Lucha Undergound' is the gateway to any luchador who wants to come and be part of this roster.
+- Soccer runs in my blood.
+- I made good money at WWE and traveled the world and interacted with my fans, but I missed a lot of family time. That really hits me.
+- My body had given up on me at one point. And as many injuries as I've had over the years, I truly believed that my body needed to rest and not be on the grind like it's been for the last 15 years.
+- I think a lot of the fans want to see the high-flying action and be entertained. I don't think there is a better division out there than the cruiserweights to do that. It could be a pigeonhole for some, but at the end of the day, it's about whatever makes you happy as a performer.
+- I would hope to end my career here if it came down to it and take other roles with 'Lucha Underground.' I see a lot of the style I was raised on here, and I think I can help out with the young upcoming talent and hope to be around here as long as it lasts.
+- WrestleMania is a week of activities and family-oriented fun, and then there is the special night at the end of it where you can see history being made.
+- I've been very close to Konnan for many years now. I thank him for much of my success in this industry. He opened the doors for me in AAA, ECW, and WCW. I'm very thankful.
+- There's a lot of talent out there with just the normal physique. The 'cross-fit' type physique - that's the new exercise that took over.
+- When you're young, you don't really think about what's going on. At least, in my case, I was always so hooked on being so innovative and didn't worry about what happened yesterday. I just wanted to focus on today and make it better. I was like that every day. I just made sure that every night I was at my best, at the best level I could be.
+- I'll never get my chest tatted up, and I'm not big on tattoos on the legs. I'm running out of space on my body; I'd like to get more but I haven't figured out where I'll put them or what I want to get.
+- There is a lot of things out here that sometimes you don't realize because you're inside the circle, but once you're out, there's a lot of things that pop up, and you'd be surprised.
+- I don't regret any steps that I take in life.
+- We all have split personalities; we all wear masks at some point in our careers.
+- When I was 17, I got a call from Konnan. He told me that he was about to start up a new promotion called AAA. A lot of the popular wrestlers were going to come to work for him, and he wanted me to be one of them.
+- That whole 'Giant Killer' era was actually kind of fun for me. That is what elevated my name in WCW.
+- My favorite place to read is next to the pond in my backyard.
+- There's definitely no hard feelings with WWE. I'm very thankful to them for the opportunity that was given to me.
+- I am always on the lookout for new gear. If I walk into a Louis Vuitton store, and they have a belt that I don't have, I want it straightaway.
+- On my left forearm, I've got a gothic cross with a tombstone in the center with the initials 'E' and 'G' for my friend, the late Eddie Guerrero.
+- After so many surgeries, I had to modify my game. I know what I can and can't do in order to keep performing for a long period of time.
+- I always think to myself that if I was able to transition from lucha libre style to American style, then I can always go back. You never lose your roots.
+- That's one of the reasons why I left WWE: not to feel tied up or pressured into fulfilling a certain number of work dates throughout the week or month - because of my injuries.
+- There's a huge fan base behind NXT, which is cool because that opens up the door to younger talent that maybe at one point thought that it was impossible to ever get into WWE, but now, there it is.
+- Evan Bourne is just like me. Hopefully, he can pick out his offensive moves, because he's got so many, and he's so incredible to watch. I just hope he takes the advice of all of us who have been around a little bit longer and he can tone it down. That way, he can last a lot longer.
+- I think titles are important to your career. Whether you reign as champion for a long time or just have it for the time being, to be part of a company and be their champion is always good to have on your resume.
+- Mascaras' physique, in terms of symmetry and size, and his style in the ring really made him stand out. He really did live up to his name 'The Man of 1,000 Masks.' I think he had 1,000 masks and more. You would really never see him wear the same outfit twice... He was always very, very colorful.
+- El Santo's movies were kind of out there, but Mil Mascaras did the more reality-based type sci-fi movies. You could say he was one of the first to open the notion for those that subscribe to the mentality that this is sports-entertainment.
+- To me, being a role model is awesome. It's a blessing.
+- I always wanted to return to the company that gave me my first opportunity. Thanks to AAA, Rey Mysterio was born.
+- When writing 'Behind the Mask,' I opened up on every level. Hopefully, even the more knowledgeable fans, who really know me, will be surprised when they read it.
+- I literally wear a mask. When I take it off, I'm a father. I'm a husband. I like to come home, and I like to spend time with family, and I like to travel, and I like to have a good time. And I like to be a kid every now and giggle and play with my kids.
+- Those who have not seen wrestling before have probably tuned in to 'Lucha Underground' and go, 'Whoa! This is a TV series turned into wrestling.'
+- To the fans, thank you for your patience and concern. They've been on point with my career, especially after my injuries.
+- My uncle was a second father to me. I spent most of my childhood with him.
+- It is a privilege to be able to represent this sport and have a chance to share my love of Lucha with passionate wrestling fans around the globe.
+- I'm a big family guy. I want to do more with them.
+- 'Lucha Underground' is the evolution of wrestling. It's high-style, high-flying, fast-paced hybrid style wrestling, and we're actually paying homage to lucha libre for the first time.
+- I always said when Edge and I were tag team partners that we had great chemistry together. Then we ended up parting our own ways and facing each other, and we found that chemistry again as opponents. It doesn't matter how you put Edge and myself in the ring, we're going to make sure that we give you what you pay for.
+- It was just so cool to put on my uncle's masks and wrestle with him. I knew that's what I wanted to do. I wanted to be a part of this world.
+- Being part of WWE is beautiful. You're on the biggest stage of them all. You're living well; you're making good money, and the only flipside to that is that you're on the grind, and you've got to be committed. You've got to make sure to understand what being on the grind is.
+- It was a big man's sport at one time. Maybe I had something to do with breaking that barrier and having WWE open up their eyes so they can sign younger, lighter talent.
+- I've always wanted to do some kind of merchandising/clothing line/action figures because I know the fan base that I have are very loyal and dedicated, and they've always loved the action figures and other merchandise.
+- Prince Puma is the crispest dude in that ring.
+- You never say never, but I am very, very comfortable in the position I'm in with 'Lucha Underground.' I love their schedule, I love their style, I love what they have to offer.
+- I don't want to be the kind of wrestler that has to do it because he needs the money.
+- I'm trying to enjoy my time at home and be around my kids.
+- There was one time I wrestled Eddie Guerrero in a ladder match for the custody of my son.
+- It just goes to show, if you remain focused and you have a dream and you have a desire to do something, then no matter what gets in your way, you can never lose hope. It's possible.

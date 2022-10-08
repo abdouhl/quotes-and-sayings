@@ -1,0 +1,14 @@
++++
+author = "Ray Mckinnon"
+title = "Ray Mckinnon Quotes"
+quotes_len = "8"
+description = "the best 8 Ray Mckinnon Quotes"
++++
+- I love telling stories, whether I'm the human instrument that helps tell that story, or I'm the man behind the curtain.
+- All the collaborators of storytelling, in film and television, have to be partly self-centered because they need to do their work the best they can, and that's what makes them really good at what they do, but then they also have to be a part of the socialist society, for the greater good.
+- Truth may be stranger than fiction on a plot and narrative basis, but fiction can investigate tone in a way that things based on a true story can't.
+- When I'm writing something and I'm really into it, that's all I can think about, and it becomes the most important thing in the world to me, and it may not be that, in reality.
+- With writing fiction, I'm either not courageous enough or just not suited for telling truths in a more conventional way. As an actor, I inhabit those characters as I'm writing them.
+- 'Deadwood' was just a wonderful opportunity for me. Outside of my own things that I've written, I hadn't had the opportunity to play a character with that amount of depth and range.
+- 'Rectify' is un-busy. It might soothe you, if not distract you, from all you got going on.
+- I think I'm a better collaborator, in seeing the bigger picture and trying to just help that, and not be so self-centered in whatever my task is, which is being an actor.

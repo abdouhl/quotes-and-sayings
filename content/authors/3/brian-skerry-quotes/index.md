@@ -1,0 +1,35 @@
++++
+author = "Brian Skerry"
+title = "Brian Skerry Quotes"
+quotes_len = "29"
+description = "the best 29 Brian Skerry Quotes"
++++
+- Under the snowcapped mountains of Fiordland National Park, freshwater streams empty into the saltwater fiords, creating a unique ecosystem. This is a heavily wooded park, so the water in the streams is stained with tannin, a substance found in plants that makes clean water seem dirty, though it isn't.
+- For a photographer, sharks are a stirring subject, possessing a perfect blend of grace and power. They have been sculpted by evolution and are ideally suited for whichever ecosystem they inhabit, from coral reefs to the open ocean.
+- I think that going to the beach as a child, being in the water and smelling that salt air and hearing the seagulls, it had a real calming effect. But also, it was a mysterious thing - I remember wondering what was under those dark New England seas.
+- Most whale photos you see show whales in this beautiful blue water - it's almost like space.
+- I typically shoot underwater with my regular camera in an underwater housing, and then I usually have two big strobes that I use to light. But with whales, you're not going to be able to really light a 45-foot subject. Your strobes are only effective for maybe five or six feet underwater.
+- I flipped through a book on harp seals in the late 1970s and saw images of them swimming in emerald green pools of water surrounded by huge sheets of ice. Right then I was hooked, and I knew this was a story I wanted to do.
+- New England waters are some of my favorite - they are some of the richest waters because they are temperate waters and nutrient-rich, and therefore provide food for so many animals, from giant whales to sharks to everything else.
+- For where Kingman is located, the coral cover is unique in the world. I refer to it as a universe of hard corals. You are not going to find soft corals like in the western Pacific - places like Indonesia, Palau, or Fiji.
+- Remove the predators, and the whole ecosystem begins to crash like a house of cards. As the sharks disappear, the predator-prey balance dramatically shifts, and the health of our oceans declines.
+- All in all, the dives I made in Fiordland were some of the best I've ever made.
+- The Bahamas has mangrove nurseries, coral reefs, shallow sea grass beds, and deep oceanic trenches - all perfect ecosystems for sharks. Photographing multiple shark species in exquisite water was the assignment I had dreamed about from the start.
+- The bohar snapper - they have these huge canines. I got bit by one. One took a chunk out of my ear - they are much scarier than the sharks.
+- I finally became a scuba diver at age 15 or so, and a couple of years after that, I attended a dive show that is held every year in Boston. It's the oldest one in the world and it's still going on - it's called the Sea Rovers.
+- Since the majority of the oxygen we breathe comes from the ocean, not to mention much of the world's protein, it is not an exaggeration to say that when our oceans' health declines, our very survival is at risk.
+- I have been blessed to realize my dream of becoming an underwater photojournalist, but with that, I feel an obligation and sense of urgency to share what I have seen with others.
+- I swam with my first shark in the 1980s. I was 20 miles off the coast of Rhode Island, working with a group of marine scientists. Late in the day, a 5-foot long blue shark swam into our chum slick. For the next hour, I marveled at the animal's stunning indigo color and the elegant way she moved effortlessly through the sea.
+- I think that most people would associate big schools of fish with healthy coral reefs. At Kingman, the predators keep the herd thin, so there aren't a lot of big fish schools.
+- On Cape Cod, great white shark stocks have been growing, or at least becoming more concentrated, because of the multiplying numbers of seals around Monomoy Island. We are fortunate to have such abundance of these sharks in our own waters. Around the globe, we are killing in excess of 100 million sharks each year.
+- I've been diving for about 30 years, and I can honestly say that I've had some amazing encounters with sharks, squids, and other whales. But the encounter with the right whales in the Auckland Islands was probably the best thing I've ever done. It was just that amazing.
+- Kneeling on the sea bottom in a place known as Tiger Beach, I watched a 12-foot- long female tiger shark cruise over the turtle grass with three silver bar jacks swimming in front of her nose.
+- I love storytelling, I love being a visual person, and it just made perfect sense to be an underwater photographer and explore the ocean and work with scientists.
+- The Oceanic White Tip is considered one of the most dangerous sharks in the sea along with the Great White and Tiger. It is responsible for some of the most famous episodes of man-eating in history, such as when the U.S.S. Indianapolis sank in 1945.
+- I still think there's a big part of the population that has a lot of misinformation about sharks. But I think it's beginning to change a little bit. As good information about sharks permeates popular culture, things may start to change.
+- As a young boy, I was very interested - as I still am - in all sorts of adventure and exploration. I thought about being an astronaut, a dinosaur scientist, or marine biologist, but I clearly was drawn to the ocean and to the water.
+- Sharks don't particularly have a great interest in divers. It seemed that in a normal dive, I would jump in the water, and one or two gray reef sharks would swim in and kind of check me out - and then they would keep their distance. So they weren't particularly threatening or anything to be afraid of.
+- I have photographed sharks in waters around the globe, and I always want more and yearn to peer deeper into their world. To feed my passion and to raise awareness, I developed a story about sharks for 'National Geographic' magazine.
+- I was the first journalist allowed on a hunting boat during harp seal season in almost 15 years. Around the late 1970s, white coat pups became the poster child for the anti-fur movement, and by the '80s, the media was lambasting the hunters for killing them.
+- For decades I have tried to peel back the layers of mystery surrounding many marine creatures, though most have held tightly to their secrets. One animal that keeps me pondering is the shark. Spellbound by these enigmatic animals since I first encountered them in New England, I never tire of watching their special blend of power and grace.
+- Photography can be a powerful instrument for change, and photojournalists can tell stories that make a difference.

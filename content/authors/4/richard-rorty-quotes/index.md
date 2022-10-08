@@ -1,0 +1,16 @@
++++
+author = "Richard Rorty"
+title = "Richard Rorty Quotes"
+quotes_len = "10"
+description = "the best 10 Richard Rorty Quotes"
++++
+- I think you can have a Left that isn't culturally conservative talking about lunch-bucket issues.
+- I think that a good Left is a party that always thinks about the future and doesn't care much about our past sins.
+- The usual picture of Socrates is of an ugly little plebeian who inspired a handsome young nobleman to write long dialogues on large topics.
+- Always strive to excel, but only on weekends.
+- The world does not speak. Only we do. The world can, once we have programmed ourselves with a language, cause us to hold beliefs. But it cannot propose a language for us to speak. Only other human beings can do that.
+- Well, what there ought to be is an international labor organization, a confederation of the trade unions of all the countries speaking for the workers who are competing with one another, and talking about the difference in wage levels between, say, Europe and Indonesia.
+- I think of an intellectual as just being bookish, being interested in history books, utopian ideas, that kind of thing.
+- Truth is simply a compliment paid to sentences seen to be paying their way.
+- The difference between people and ideas is... only superficial.
+- There is nothing deep down inside us except what we have put there ourselves.

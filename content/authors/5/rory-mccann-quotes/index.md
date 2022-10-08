@@ -1,0 +1,29 @@
++++
+author = "Rory Mccann"
+title = "Rory Mccann Quotes"
+quotes_len = "23"
+description = "the best 23 Rory Mccann Quotes"
++++
+- I'm a man's man. I go out climbing and live outdoors.
+- The thing that I just discovered, which fascinates me really - my name, McCann, the translation isn't 'Son of Ann'... It comes from 'Canis' - as in 'canine' - as in 'dog!' My name - Rory McCann - means Rory Hound, Rory Wolfhound.
+- If I had a long-term partner, I don't think I'd be an actor. It'd be too much of a strain; you have to work too hard to balance that life with a family and a mortgage and all that stuff - it would be too much.
+- I have friends who are blacksmiths in the north of Scotland, so I took a few master classes with,them. I loved learning a new skill. I will never look at a piece of wrought iron the same way now. I can now make semi-decent knife blades and candlesticks myself.
+- I'm just about to move to a place that you can only get there by rowing a boat across a loch, which I'm thoroughly looking forward to it. It's not got electricity or anything.
+- What do I know about women? I don't know anything.
+- There were times at the start of it all when I would be standing, terrified, in front of the cameras and people I considered 'real' actors. I had no idea what was happening, what the guy with the clipboard did, or if people in the studio were looking at me because it was their job to look at me or because they thought I was making a mess of things.
+- My roles aren't huge, but it's a start.
+- Home for me is my boat, really.
+- I've got to say my mother is the most important woman in my life, and not just because she is a 'Scotsman' reader.
+- In the business I meet some beautiful women, but to be honest, 80 per cent of them are raving lunatics and are to be avoided. It's just insecurity; actors are generally quite insecure. I wouldn't date, or I've never had a fling with an actress, and I'd quite like to keep it that way.
+- When I get a job, I make phone calls to every single person I know and tell them not to bloody call me.
+- I live out in the country in Scotland and know that if I close my eyes, I can recognise every sound.
+- I am very lucky in that if I don't get a job for six months or a year, I've got other things I can do and am fit enough to still do physical work.
+- I'm on my boat, training, rehearsing; I spend all my energy on the job that's coming up, and I found that's the way that works for me. The more energy you have on set, the better you'll be; it's all about being alive in that moment and listening.
+- I was a bit of a late developer, and everyone was saying, 'Whatever you do, don't shave,' and I hadn't really started shaving. I remember rubbing the soot from a kettle on to my bumfluff to make it look more like I had a beard.
+- I wouldn't say I'm that social... I'm either sailing my boat by myself or living in some small place.
+- I don't have a mortgage or kids, so I can lie low and tighten my belt if I need to.
+- I was a lumberjack for years, a pub bouncer, I've sung in a band; in fact, I still sing, and I even trained myself to be a tree surgeon.
+- I can't get on girls' wavelengths at all. I think we are completely different. I don't know, maybe that's the way it should be. If we could all get along occasionally though, that would be nice.
+- I don't have a mortgage, I don't have a wife and I don't have kids, so I'm quite happy bumbling along.
+- I'm single because I move about so much that I can't really get attached.
+- I have the will of a flip-flop.

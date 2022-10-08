@@ -1,0 +1,77 @@
++++
+author = "Frank De Boer"
+title = "Frank De Boer Quotes"
+quotes_len = "71"
+description = "the best 71 Frank De Boer Quotes"
++++
+- Missing the last European Championship in 2016 and the World Cup 2018 has created a gap. That's a shame.
+- I won in 1992 the UEFA Cup.
+- You can be nervous when the referee starts the game but you must get rid of all the nerves and enjoy a great stadium and great pitch.
+- When I was approached to become national coach in 2020, I thought it was an honor and a challenge, but I was also aware of the pressure that would come upon me from the moment I was appointed.
+- Serie A has improved a lot in the last couple of years. The football played here is very modern now.
+- I want to add something to a club, something which people can say: 'That's the hand of Frank De Boer.'
+- There is a new generation coming through at Ajax with Justin Kluivert, Donny van de Beek, Frenkie de Jong and Matthijs de Ligt.
+- You see a lot of times that when a player comes through to the first team and gets the big contract, they do not take the second step because they think they have made it. The truth is that this is when it really starts.
+- These five-and-a-half seasons I was working with Ajax as the head coach, and four-and-a-half as the trainer of the academy, it cost me less energy than the eight months of Inter and Crystal Palace.
+- At the derbies between Real Madrid and Barcelona there is a great atmosphere.
+- I played a lot of times at the beginning at Ajax as a left full back with a fantastic combination with Mark Overmars but I think as a central defender and a leader in the back it was my best role I think.
+- I will always support not only women who do soccer, but do youth sports.
+- The philosophy of the club, the structure of the club, the core values for me are very important issues.
+- At Inter, we spent so much time dealing with politics, with agents. That took up 50 percent of my time, when it should have been 10 percent.
+- Your mind is still the fastest weapon. You can run and run but you must be smart.
+- Serie A has really grown and it's getting better and better. In my eyes it's a huge league.
+- When I'm still the manager of Palace, I will give 100 percent.
+- I just focus on what I can do.
+- Messi will be the best in the world for many more years. Not just because of his goals - he also has made many assists over the last couple of years. A complete player.
+- The age between seven and 14 is so important. The basic techniques are in that, and afterwards it's mentality. Tactically, between seven and 14 or six and 14, they have to have good coaches and understand the basic things of football: control the ball, know where the ball is, those kinds of things.
+- My job is to perform with Atlanta. I like it here.
+- Everybody knows you cannot expect us to win every game.
+- Against big clubs with fantastic players sometimes you will be pulled back, but still you have to be in the kind of shape where you can transition, be dangerous, or get the ball.
+- Talent is important, but it's more important that you have character. Combined with talent, you can be a very good player.
+- I am firmly convinced that you have to create a fantastic atmosphere during a tournament.
+- I'm convinced I can be a good coach.
+- This is typical Mourinho. Rashford is the biggest talent you have in England. He needs games. He should be playing every week. Instead, he buys Lukaku, he buys Sanchez.
+- The most important thing I tell my players is to play their own game and show guts.
+- When I played at Ajax, we felt as if we were 1-0 up when we took to the field. We already knew in advance of games that we were going to win.
+- I was attracted by the opportunity of managing in the Premier League.
+- Kris Commons and Scott Brown are key players for Celtic.
+- If I see progress, then I am satisfied.
+- There's no use to have 70 percent possession if the opponent is creating more chances than you are.
+- I want to thank Inter for having appointed me at this great big club. I want to bring this club to where they should be.
+- It's not a problem that you make mistakes in a match, but what I cannot accept is when you make them because you don't want to listen.
+- Wilf is a player because of his speed, because of his quality, because of his technical ability sometimes he will look up and go past two or three players.
+- The most important thing is that I'm enjoying myself.
+- Normally, Celtic dominate in their own league but it's difficult to get good results in Europe.
+- The problem is that everybody thinks I play the way I've always played, and that's totally wrong.
+- I will never forget the incredible supporters here in Atlanta, they are truly special.
+- It's a little luck and a little how you are able to go physically and mentally for all 90 minutes. They say that is typical German soccer. Maybe now it is typically Dutch.
+- It is always sad when a player has to drop out injured.
+- You can be dominant without the ball by trying to move the opposition where you want them to go.
+- Wilf is so fast he will get fouled a lot.
+- When you're just 21, as many of my players are now, it is difficult to consistently perform.
+- I have my own style and identity and I will always keep doing that.
+- I'm always thinking of the good in every player, but it's not like that. If they can stab you in the back, they stab you in the back.
+- I would not leave Ajax for nothing. But Spurs are a club that I feel good about. They play good football.
+- If you play in Holland, you aren't recognized as a very good player.
+- I want a team where the fans are excited to come to our games, to see a team that wants to win and wants to fight for every minute.
+- It was complicated in Italy - not just for the language, but also for the way I transmitted my messages and my ideas.
+- It's always positive to have more of the ball than the opponent, but you have to do something with it.
+- Every league starts with homegrown players.
+- You have three groups. One who is happy. Then players who are doubtful, but still feel they have a chance. And then, you have the losers at that moment, who will go to the second group and try to influence them. They are poison for your team. At Inter, and also at Crystal Palace, you've got to get rid of those players.
+- I was always a player who demanded the maximum at training and to try to finish as high as possible. I have that as coach, too.
+- If there are watching, for the World Cup final, 500 million people or something like that, and 100 million for a women's final, that's a difference. So it's not the same.
+- I really like being a coach.
+- I'm grateful for the opportunity I've had with Atlanta United.
+- I talk with every player individually and as a team.
+- Coaching in Major League Soccer and living in Atlanta has been a wonderful experience and a welcome new challenge.
+- I wanted to show the world who Frank De Boer was because I missed 1996 and then in 1994 I played the World Cup in USA and I played in 1992 in the European Cup and I didn't show really the Frank De Boer for the whole world and I was really focused and eager to show myself.
+- David Silva is not physical but he is still one of the best players in the Premier League because he is a smart thinker.
+- I always think that from 17 until 22, you have to play every week, 30, 40 games in a year.
+- You should not shirk from tough tackles during a training session, but after that you shake hands.
+- This Dutch national team is a team of friends, guys who work for each other and are good for each other. I think it's nice to see.
+- Hopefully we will see a lot of women doing sport and especially soccer, because I love soccer.
+- After training, what do you do? Do you go to the gym or in 10 minutes are you in your car? That's how eager you are to reach the highest level. It's sweating to be a professional.
+- Ninety percent has to come from yourself, your inner-energy, motivation to get the most out of yourself.
+- Every English club in the Premier League has money so there is the possibility to do something.
+- I will give always my best. I will continue that until the end.
+- If I play at cards, I want to win and, coming into the games, I want to win, always, with the best result, with the respect to our opponents.

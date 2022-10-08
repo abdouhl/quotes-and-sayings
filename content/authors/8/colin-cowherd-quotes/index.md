@@ -1,0 +1,106 @@
++++
+author = "Colin Cowherd"
+title = "Colin Cowherd Quotes"
+quotes_len = "100"
+description = "the best 100 Colin Cowherd Quotes"
++++
+- August 1 is the beginning of football season to me.
+- Southern California and Las Vegas are my kind of places.
+- Do I think he's got character? Yeah. You don't play defense like that without deeply caring about teammates... John Wall plays real defense. He's got real character.
+- I don't mind long, extended trips to warm weather destinations.
+- A sports writer who covers baseball could go up to Tony La Russa and have a real baseball argument, and Tony would listen and it would seem reasonable.
+- Tom Brady is aspirational. He married a supermodel. He's creating a global brand. He has houses in Costa Rica, Montana. Tom's always been about growth and evolving. That's not Boston.
+- Joe Burrow's self-esteem - and this is really important - is tied to what Joe Burrow thinks of himself. It is about confidence, focus, judgement, maturity.
+- All-Star games don't resonate with me.
+- This radio business I'm in is full of guys who read the sports page and rip crap off.
+- Even when I agree with the Twitterverse, I don't like the means by which they reach the conclusion. It's a really scary place. And I'm not comfortable with that.
+- Parlays are for suckers and college kids.
+- I'm in talk radio. A story breaks, I need an opinion. I'm not ESPN News.
+- The culture at ESPN, I found when I left, isn't the same as when I came. It wasn't as much fun.
+- Strong families equal strong leaders.
+- It's baseball. You don't think a general manager can manage? Like it's impossible? The game is too complex? I've never bought into that, 'Baseball's just too complex.' Really? A third of the sport is from the Dominican Republic.
+- My parenting philosophy pretty much boils down to this: I love my kids; I tolerate yours. Mine just make common, age-appropriate mistakes - phases, let's call them - while your kids are completely undisciplined and probably need counseling.
+- I was Mike Schmidt without any of the power.
+- Leadership is IQ, it's not skills.
+- I don't worry about what I said, I worry about what I'm saying tomorrow.
+- A soccer star is on the field for two hours. In hockey, your star player is on the ice for 20 minutes.
+- The Dominican Republic has not been known in my lifetime as having world-class academic abilities.
+- I've always been very outspoken and very risk oriented.
+- It's hard to put into words how much fun it is for me, as a broadcaster, to build something with really smart, talented people.
+- I had great high school coaches.
+- You have to know what you are and what you're not. And I'm not a politico.
+- Big game? I'll take Cam Newton over Aaron Rodgers.
+- A lot of these coaches, they're almost like military leaders, and the media is the enemy. Football coaches are just wired tight.
+- We're in an on-demand world. You can do real-time commentary now with no barriers. I don't have to drive to a studio, don't have to put makeup on. I don't have to go to a studio and get miked up.
+- I think you have to constantly challenge your staff. I have to challenge myself; you get more interesting answers that way.
+- Andy Reid really dominated the NFC with Donovan McNabb as his best quarterback, got to a Super Bowl. Then he goes to the AFC, wins with Alex Smith. He's won with five or six quarterbacks.
+- I try to broaden every discussion out, make it very relatable to fans.
+- I can't control myself. I wish I could. I've gone to parties, I've gone to games, and I drive home and think, 'God, can't you just not argue for once? Can't you just take what people give you and be happy with their answer?'
+- Sometimes my tone stinks.
+- It's amazing what good coaching can do to a team.
+- Here's something that's interesting if you look at basic metrics or numbers in this country - 71% of African-American men: no dad at home. No disciplinarian. Fathers are often the louder voice, the disciplinarian. Many of those kids don't grow up with a dad.
+- The hardest working guy when I got into this business was Jim Rome... That guy grinds it every day. You don't know anybody that works like him.
+- Who likes being wrong? I don't like being wrong.
+- If I had gone to a big network at age 28, I'd have been a big failure. I wasn't ready and needed to make a decade of mistakes.
+- So we all want to be liked; I just don't always think I'm that likeable. I think my personality is really 50-50.
+- I can be harsh but I don't think I'm mean.
+- I never go on the air and lie.
+- I can age more elegantly if I curate talent.
+- Talent? Overrated. Leadership? Underrated.
+- One of the things that was really attractive to me about Fox is they have the NFL, and baseball playoffs.
+- I mean ESPN plucked me out of nowhere and I'm forever grateful for the opportunity. I don't love the way it ended. But I'm not a grudge-holder.
+- The demographics of this country are changing. And the people coming to this country are soccer fans, not hockey fans.
+- Hockey is no longer a big four. It's football, basketball, baseball and soccer. Now, I'm not talking MLS. I'm talking COPA, World Cup, men's, women's, MLS, youth... and there's a lot of reasons for it.
+- I think when you host a radio show, just like Jon Stewart hosts a show, I think sometimes I bring up stuff... that makes people cringe.
+- I have high hopes for my kids, and I'll defend them to the death.
+- Do I think John Wall has grown up? Absolutely. Do I think he was immature when he broke into the league? Absolutely.
+- Quarterback in the NFL is a public position.
+- I don't see myself as subversive. I just don't necessarily buy what people tell me initially.
+- Twitter has created a certain momentum that is not always fact-based. I worry about that because I still live in a world where you need to have two sources.
+- Well, I came from a small little town on the beach - Grayland, a town of about 1,000 people. I was the quarterback and a basketball player at Ocosta High School. It was a great community to grow up in.
+- I don't like Derrick Rose, he'd rather score than distribute. That's not who I want as my point guard.
+- Derek Jeter always felt like New York: the good-looking single guy for all those years. He felt like a Yankee.
+- I don't live in a would of looking back.
+- There's not a single NFL writer in the country who could diagram a play for Bill Belichick.
+- I really latched on to announcers who were good storytellers.
+- Tom Brady is fun and happy. Boston is cranky and intense.
+- If you look at women in sports, they generally have to be more qualified because it is kind of a man's world. Guys will give guys a lot more breaks than a woman. I'd argue that women make fewer mistakes and are held to a higher standard. I think the ultimate respect you can pay to a woman in my business is you're my equal.
+- I don't think that doing things a certain way because they've always been done that way is smart. I don't think you grow that way.
+- I hurt people with my words and I regret that.
+- Baseball is like any sport. It's mostly instincts.
+- You know, John Wall and Vick are very similar. I'm not disputing their talent. I mean, Michael Vick and John Wall are fun to watch. But building my franchise around him, leadership position?
+- Defense wins at every level.
+- I want to be funny and interesting and compelling.
+- New York is a highly educated city. People who are educated generally go to college. People who go to college who are men love college football.
+- Listen, when John Wall came out and did the Dougie, first home game, for 34 seconds, he was a moron. It's the dumbest thing I've ever seen. I will never back down.
+- Bob Rondeau - he'll never know this - but he was so instrumental. He is a legend to me and had a major impact in my life.
+- I wish everybody in the world liked me, but a lot of them don't. That's because my whatever - my weakness, my vulnerability, my ego, whatever it is.
+- Disney hovers over every decision at ESPN.
+- I've never been a big fan of Cam Newton's.
+- Most announcers over talk. I'm in the opinion space so I talk all day, but play-by-play guys generally over talk.
+- I have never really had any ugly confrontations, other than Bobby Knight, and that was before I was doing sports talk radio. He is just a very difficult guy.
+- I want to create this really smart, thoughtful podcast network where I do for young people what somebody did for me.
+- I try to be honest and work hard. That's the only two things I worry about.
+- From a small market, nobody had heard of me. ESPN had guts, they had courage, they rolled the dice. A guy flew into Portland, we got a rare snowstorm, he was stuck there four days, John McConnell listened to me, and he recommended me.
+- If I am ever forced to cover guys playing video games, I will retire and move to a rural fishing village and sell bait.
+- To me, radio is about making you uncomfortable. Television is about making you comfortable: Who do you like? Who do you want to be friends with? So I don't need to tower over people in television.
+- The NFL is one of the first places where many star players finally see discipline. Finally have an authoritative male figure: Buck stops here, I make all the calls, you will not get an opinion.
+- Sean Taylor, great player has a history of really really bad judgment, really really bad judgment.
+- Wild card teams usually have some flaws or they wouldn't be one.
+- Let me tell you something, I'm a big believer, when it comes to quarterbacks and point guards: Who's your dad? Who's your dad?
+- My dad was the town optometrist and my mom worked at the school.
+- From Cape Cod to Martha's Vineyard, Massachusetts is home to some of the country's most sought-after summer refuges.
+- Troy Aikman has always felt like a Dallas Cowboy to me.
+- Tom Brady is the two best quarterbacks of all time.
+- Home field advantage can be overrated in the NFL because veteran players aren't bothered by it. Home-field advantage is a bigger deal in college.
+- I'm not angry. I like to laugh.
+- Soccer has surpassed, in this country, hockey.
+- Deep down, I want to be liked, but in the end, I'm willing to argue. Is it because I'm seeking attention? I don't have the answers to that.
+- I'm in the opinion business.
+- I am not a friend of eSports. It's the same with professional wrestling - it's for booger eaters.
+- Bob Rondeau was a seminal voice in my young broadcasting career. The two people that I really monitored were Vin Scully and Bob Rondeau. And they both had an amazing talent. They were word efficient.
+- Got to be honest, I don't think much of anybody that tatoos themselves several times.
+- When I poked Baker Mayfield in the ribs - police video, height - poked him in the ribs, kind of a reach. Oh, it bothered him. He fired back every time. Every time. Because Baker was not ready to go from best college team to lousy NFL team. That's a certain level maturity and self-esteem that few have.
+- Political radio is often angry.
+- People ask me, 'What's it like to leave ESPN?' and I say, 'I'm not leaving ESPN. I'm leaving ESPNU.' That's what I was on. That network doesn't even have a sales staff.
+- Point guard is like the quarterback. It's an IQ-judgment position. The great ones are not about themselves. They're about the others.

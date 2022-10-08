@@ -1,0 +1,31 @@
++++
+author = "Roberto Clemente"
+title = "Roberto Clemente Quotes"
+quotes_len = "25"
+description = "the best 25 Roberto Clemente Quotes"
++++
+- Baseball has been very good to me.
+- The first day that I get to Fort Myers, there was a newspaper down there. The newspaper said, 'Puerto Rican hot dog arrives in town.'
+- The Dodgers told me a big bonus was no good, and they said other players would resent it. Better for me to take a small amount of money and work my way.
+- After I failed to win the Most Valuable Player Award in 1960, I made up my mind I'd win the batting title in 1961 for the first time.
+- But some people act like they think I live in the jungle someplace.
+- They said you'd really have to be something to be like Babe Ruth. But Babe Ruth was an American player. What we needed was a Puerto Rican player they could say that about, someone to look up to and try to equal.
+- I couldn't ask for better teammates, and the Pirate fans are the greatest in baseball.
+- I loved the game so much that even though our playing field was muddy and we had many trees on it, I used to play many hours every day.
+- My mother has the same kind of an arm, even today at 74. She could throw a ball from second base to home plate with something on it. I got my arm from my mother.
+- I used to watch Monte Irvin play when I was a kid. I idolized him. I used to wait in front of the ballpark just for him to pass by so I could see him.
+- I wasn't ready for the majors when I joined the Pirates in 1955. I was too young and didn't know my way around.
+- Look at my skin - I am not of the white people.
+- I want to be remembered as a ballplayer who gave all I had to give.
+- I am convinced that God wanted me to be a baseball player.
+- If you have a chance to accomplish something that will make things better for people coming behind you, and you don't do that, you are wasting your time on this earth.
+- To the people here, we are outsiders. Foreigners.
+- The farther away you writers stay, the better I like it. You know why? Because you're trying to create a bad image of me... you do it because I'm black and Puerto Rican, but I'm proud to be Puerto Rican.
+- My father used to say, 'I want you to be a good man; I want you to learn how to work. And I want you to be a serious person.' I grew up with that in my mind.
+- I was born to play baseball.
+- I would like to get 3,000 hits.
+- I am more valuable to my team hitting .330 then swinging for home runs.
+- Brooklyn was a famous team. I wanted to play for the Dodgers.
+- It's not a bad ball if I can hit it.
+- If I would be happy, I would be a very bad ball player. With me, when I get mad, it puts energy in my body.
+- Pitch me outside, I will hit .400. Pitch me inside, and you will not find the ball.

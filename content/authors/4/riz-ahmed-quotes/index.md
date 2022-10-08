@@ -1,0 +1,60 @@
++++
+author = "Riz Ahmed"
+title = "Riz Ahmed Quotes"
+quotes_len = "54"
+description = "the best 54 Riz Ahmed Quotes"
++++
+- What's interesting about the U.K. is that it celebrates an alternative voice. It's up for telling new stories.
+- I'm used to doing U.K. indie films, like, six weeks of filming, tops.
+- Sometimes when you're inside a story, it's almost better if you don't think too much about its wider cultural significance or if you don't think about how audiences might react to it. That takes you out of the reality of the situation you're committing to as you're telling the story.
+- It's interesting - what are you willing to give up in terms of your privacy for access to other people? For access to things you think you desperately need. Ultimately, it's that old saying, isn't it? If the service is free, then the product is you. The thing being sold is you. There's a product for sale in you and your data.
+- Rehearsing a scene beds a role into you. But sometimes, if you over-rehearse it without unearthing any new meaning in it, you can suddenly forget your lines. You realise that you are on a stage, not in the real world. The scene's emotional power, and your immersion in it, disappears.
+- I don't feel that any kind of narrow stereotypes are representative of the work I've done, nor the range of the audience that work has found. I've played lots of different roles, and they've connected with lots of different people.
+- I think that with piracy and tighter funds being around, people are realising that the game to play is to try and win people's respect with bold film making and then win a special place in people's collections, rather than just having the biggest opening weekends.
+- The only people who have doubts about the sincerity of my music are people who come to it relatively late, off the back of having seen me in a film. Acting is about being other people, and music is about being myself.
+- I'm always trying to slip out of those labels everyone tries to put round your neck. We all have multiple selves.
+- I'm not in a 'starry' position to be able to pick and choose, but I am interested in telling stories of substance with great directors - that's my only guiding principle.
+- I think that in an Internet age, content is content. As long as you can stand up on the merits of what you're doing right at that moment and aren't just relying on your success in doing something else, it's all good; people will respect you.
+- I remember, growing up, you didn't wear an England shirt. The English flag was very much - and still is, to some extent - associated with the far-right movements of the 1980s that I grew up around.
+- I have always been restless, had a lot of energy.
+- I'm an actor. Since I was a teenager, I have had to play different characters, negotiating the cultural expectations of a Pakistani family, Brit-Asian rudeboy culture, and a scholarship to private school. The fluidity of my own personal identity on any given day was further compounded by the changing labels assigned to Asians in general.
+- The reality of Britain is vibrant multiculturalism, but the myth we export is an all-white world of lords and ladies. Conversely, American society is pretty segregated, but the myth it exports is of a racial melting-pot, everyone solving crimes and fighting aliens side by side.
+- The fact is, I've been releasing records longer than I've been releasing films, or at least exactly as long.
+- Reshoots are par for the course on any film. For me, I kind of love it because, as an actor, you always feel that there was a way you could have done it differently. Being able to go back and do some stuff again is always a blessing in my eyes.
+- Bandwagons roll through our lives. It's up to you whether you jump on them unquestioningly or jump on them to overturn them and subvert them.
+- There's no black and white in this world; it's all grey. That's what people are like! No one think they're a baddie. Everyone thinks they're trying to do their bit to make the world a better place.
+- Multiculturalism isn't just a buzzword; it's not just something to debate - I am multiculturalism.
+- As a minority, no sooner do you learn to polish and cherish one chip on your shoulder than it's taken off you and swapped for another. The jewellery of your struggles is forever on loan, like the Koh-i-Noor diamond in the crown jewels.
+- The music I make and the process of acting, for me, are both about trying to understand people and get inside what makes us tick. That's the main thing that excites me. Our sense of who we really are and what drives us.
+- I'm not trying to project any persona. Often people don't know where to put me. I don't fit comfortably under banners, and that's fine. I'm not worried about not making sense to people. That's probably my best asset.
+- I like the idea of being caught between things, always being a bit of an outsider, having an outside eye on things - almost like a Shakespearean fool.
+- First, you have stereotypes, and that will be the black drug dealer, the east Asian kung fu master, the Middle Eastern terrorist in 'True Lies.' Then you have stuff that takes place on culturally specific terrain, that engages with it, but actually subverts assumptions. 'Smashes' stereotypes. That's where I've come into the game.
+- Since the Greek myths, the greatest stories are premised on the idea of, 'A stranger arrives.'
+- I don't think any of us like to be reduced to just one label.
+- My music is a very personal reflection of me, whereas, acting a role, that's a reflection of another character.
+- No-one gets a job at 16 and stays in it until 60 any more; we're connected to more people simultaneously than ever before, whether online or on our phones. We wear so many different hats within one day, one week, a lifetime.
+- Sadly, I have disappointed the surveillance capitalists myself by not yet downloading 'Pokemon Go.' But I'm addicted to my phone enough as it is, and I don't necessarily need that helping hand.
+- I grew up listening to a lot of early '90s hip-hop. I had the debut Wu-Tang album, Biggie, Snoop, that kind of stuff. Hieroglyphics, the Gravediggaz. I remember D.O.C.'s 'The Portrait of a Masterpiece' was something that had a big influence on me.
+- Growing up in the mid-to-late '90s in London, you start seeing the explosion of drum'n'bass and then the birth of U.K. garage and grime. I decided to focus a lot of my energies as an aspiring MC. It was a very natural way to express yourself as a kid from a certain kind of neighborhood.
+- Trajectories aren't linear. Life's just a roller coaster. If you're getting a chance to do cool stuff, and it's varied stuff, just enjoy it. I guess I'm a believer in the randomness of life rather than it being a linear trajectory or an arc, a consistent smooth arc, towards anything.
+- It's interesting that we assign the label 'political' to art that doesn't just fit a mould of status quo. Is 'Downton Abbey' not political? That's political! Every piece of art offers a perspective on the world. And what is politics if not a perspective on the world? 'Downton Abbey' is about class. It's also about race.
+- 'Post 9/11 Blues' is an observational satire about the surreal circus of fear at that time. It's a generational thing.
+- The 'Bourne' films totally reimagined and elevated the action genre.
+- Nothing will turn you into more of a 'Star Wars' fan than being on a 'Star Wars' set. When you see how lovingly that world is rendered by the set designers, costume designers, props department, art department, they genuinely build an actual world. That is not an exaggeration. They build a world.
+- I get good references from a wide range of music. Something who's been a good influence in the last few years is Qawwali music. If you listen to a Qawwali singer like Aziz Mian - he's like James Brown. Qawwali is like Pakistani gospel-jazz. It's emotional, but it's also improvised, and it's all about that sacred-and-profane tightrope.
+- I go to a lot of stand-up comedy. I find more inspiration from observational stuff than from rap.
+- I never thought acting would be a realistic job for me. Because, quite frankly, I didn't see people who looked like me doing it. I quickly realized, that's all the more reason to try.
+- I've been very lucky to have played a variety of characters, and they weren't defined by their race.
+- There's this assumption that as an actor, Hollywood is always the end point, but I never thought along those lines.
+- Hollywood is an image. We project these fantasies on to it, but people are just people.
+- Whether you look at 'Glee' and its normalization of gay identity or you look at the work of Martin Scorsese and the Italian-American community, American culture is able to take these stories, which are seen as marginalized, and just turn them into American stories. And you don't think twice about it.
+- The multiculturalism of Britain is one of our greatest strengths in music, literature, and visual art, but the TV and film industry doesn't tap into the multicultural talent pool in the U.K. as much as they do in the U.S.
+- When I was growing up, I felt like I had to qualify it and say I'm British-Pakistani. But now I kind of feel like, in this day in age, this is what British looks like. It looks like me; it looks like Idris Elba, and hopefully through Nasir Khan, people will see that that's what an American can look like as well.
+- Being South Asian in the U.K. is like being Latino in the U.S., I would guess. It's a bit more hood. You see things; things happen. I was bouncing between worlds. You're acting from a very early age, when you have to code-switch like that. I'm a hybrid, a mongrel. I think many people live that life.
+- No one's of Pakistani origin in any British show. That's why every actor of color is here working in the States. It's true.
+- You can read a character that feels amazing, but if the world around it and all the writing around it - even the way the stage descriptions are written - don't feel just right, then you know there's no point in doing the project. No character is ever bigger than the whole film.
+- Anyone driving great social change, willingly or not, is going to be a fascinating contradictory mix of idealism and ego.
+- My parents, man, they're just the most loving, encouraging... They're like those people who define themselves through their role as parents before people in their own rights.
+- In terms of negotiating a career - I've always grown up being an insider and an outsider to different worlds, across different classes and cultures, so I have always naturally liked making films or music that puts things in unexpected places.
+- The camera or the microphone in the booth is merciless. If you don't believe what you're saying, it hears it. If you don't believe it, it sees it in your eyes, it hears it in your voice that there isn't the conviction there.
+- Maybe I don't ever fully switch off, but I think the way I offset that is by splitting my time between film and music. I always want to challenge myself and grow, fail, self-flagellate, and then try again.

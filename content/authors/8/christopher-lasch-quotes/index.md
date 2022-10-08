@@ -1,0 +1,65 @@
++++
+author = "Christopher Lasch"
+title = "Christopher Lasch Quotes"
+quotes_len = "59"
+description = "the best 59 Christopher Lasch Quotes"
++++
+- Most of these alternative arrangements, so-called, arise out of the ruins of marriages, not as an improvement of old fashioned marriage.
+- Every age develops its own peculiar forms of pathology, which express in exaggerated form its underlying character structure.
+- The left sees nothing but bigotry and superstition in the popular defense of the family or in popular attitudes regarding abortion, crime, busing, and the school curriculum.
+- The conservative revival cannot be dismissed.
+- The left dismisses talk about the collapse of family life and talks instead about the emergence of the growing new diversity of family types.
+- It is no longer an unwritten law of American capitalism that industry will attempt to maintain wages at a level that allows a single wage to support a family.
+- Personal disintegration remains always an imminent danger.
+- The same historical development that turned the citizen into a client transformed the worker from a producer into a consumer.
+- Make it new is the message not just of modern art but of modern consumerism, of which modern art is largely a mirror image.
+- The model of ownership, in a society organized round mass consumption, is addiction.
+- Liberals subscribe to the new flexible, pluralistic definition of the family; their defense of families carries no conviction.
+- The left ask people to believe that there is no conflict between feminism and the family.
+- The reporting of news has to be understood as propaganda for commodities, and events by images.
+- The intellectual debility of contemporary conservatism is indicated by its silence on all important matters.
+- Propaganda in the ordinary sense of the term plays a less important part in a consumer society, where people greet all official pronouncements with suspicion.
+- It is advertising and the logic of consumerism that governs the depiction of reality in the mass media.
+- The left no longer stands for common sense, as it did in the days of Tom Paine.
+- Instead of taking environmentalism away from the left, conservatives condemn it as a counsel of doom.
+- The left has lost the common touch.
+- A child's appetite for new toys appeal to the desire for ownership and appropriation: the appeal of toys comes to lie not in their use but in their status as possessions.
+- Neoclassical economics insists that advertising cannot force consumers to buy anything they don't already want to buy.
+- Knowledge is what we get when an observer, preferably a scientifically trained observer, provides us with a copy of reality that we can all recognize.
+- When liberals finally grasped the strength of popular feeling about the family, they cried to appropriate the rhetoric and symbolism of family values for their own purposes.
+- The question of the family now divides our society so deeply that the opposing sides cannot even agree on a definition of the institution they are arguing about.
+- The news appeals to the same jaded appetite that makes a child tire of a toy as soon as it becomes familiar and demand a new one in its place.
+- The job of the press is to encourage debate, not to supply the public with information.
+- The last three decades have seen the collapse of the family wage system.
+- Because it equates tradition with prejudice, the left finds itself increasingly unable to converse with ordinary people in their common language.
+- Most women are pragmatists who have allowed extremists on the left and right to manipulate the family issue for their own purposes.
+- A growing awareness of the depth of popular attachment to the family has led some liberals to concede that family is not just a buzzword for reaction.
+- Ostensibly rigorous and realistic, contemporary conservatism is an ideology of denial. Its symbol is a smile button.
+- Progressive rhetoric has the effect of concealing social crisis and moral breakdown by presenting them as the birth pangs of a new order.
+- The hope of a new politics does not lie in formulating a left-wing reply to the right-it lies in rejecting conventional political categories.
+- Nothing succeeds like the appearance of success.
+- The left has lost touch with popular opinion, thereby making it possible for the right to present itself as the party of common sense.
+- Conservatives unwittingly side with the social forces that contribute to the destruction of traditional values.
+- News represents another form of advertising, not liberal propaganda.
+- A society that has made 'nostalgia' a marketable commodity on the cultural exchange quickly repudiates the suggestion that life in the past was in any important way better than life today.
+- Adherents of the new religious right reject the separation of politics and religion, but they bring no spiritual insights to politics.
+- Traditionalists will have to master techniques of sustained activism formerly monopolized by the left.
+- It is the logic of consumerism that undermines the values of loyalty and permanence and promotes a different set of values that is destructive of family life.
+- George Orwell's contention was that it is a sure sign of trouble when things can no longer be called by their right names and described in plain, forthright speech.
+- Relentless improvement of the product and upgrading of consumer tastes are the heart of mass merchandising.
+- Ideologies, however appealing, cannot shape the whole structure of perceptions and conduct unless they are embedded in daily experiences that confirm them.
+- Information, usually seen as the precondition of debate, is better understood as its by-product.
+- Environmentalism opposes reckless innovation and makes conservation the central order of business.
+- Most people no longer live in nuclear families at all.
+- The left has come to regard common sense - the traditional wisdom and folkways of the community - as an obstacle to progress and enlightenment.
+- Conservatives sense a link between television and drugs, but they do not grasp the nature of this connection.
+- We are all revolutionaries now, addicts of change.
+- Conservatives have no understanding of modern capitalism. They have a distorted understanding of the traditional values they claim to defend.
+- Because politics rests on an irreducible measure of coercion, it can never become a perfect realm of perfect love and justice.
+- In an individualistic culture, the narcissist is God's gift to the world. In a collectivist society, the narcissist is God's gift to the collective.
+- The proper reply to right wing religiosity is not to insist that politics and religion don't mix. This is the stock response of the left.
+- The attempt to redefine the family as a purely voluntary arrangement grows out of the modern delusion that people can keep all their options open all the time.
+- In our society, daily experience teaches the individual to want and need a never-ending supply of new toys and drugs.
+- The effect of the mass media is not to elicit belief but to maintain the apparatus of addiction.
+- The family wage has been eroded by the same developments that have promoted consumerism as a way of life.
+- Today Americans are overcome not by the sense of endless possibility but by the banality of the social order they have erected against it.

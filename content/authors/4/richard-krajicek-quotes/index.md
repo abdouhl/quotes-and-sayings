@@ -1,0 +1,27 @@
++++
+author = "Richard Krajicek"
+title = "Richard Krajicek Quotes"
+quotes_len = "21"
+description = "the best 21 Richard Krajicek Quotes"
++++
+- There are a lot of good memories, and because I was injured, during the rehab, I met my wife. The tennis was very good but the injuries were good for something too.
+- Roddick can challenge him as well if he serves big consistently for the entire match. If he does that, then he is tough to break even for a guy like Federer.
+- I was serving good but was returning especially well, which was a weakness in my game. So not only was I serving well, but I was also breaking these other guys, and they felt the pressure.
+- I may have exaggerated a bit when I said that 80 per cent of the top 100 women are fat pigs. What I meant to say was 75 per cent of the top 100 women are fat pigs.
+- Now that I have retired, and even though I wanted to play more, I can always look back and say that at least I won Wimbledon; also, winning the tournament in Rotterdam in 1995.
+- Safin, in his way, is very talented. It is a joy to watch them play; it is tennis of a very high quality.
+- For the first couple of years I played really bad tennis. It was so bad that they booed me off the court.
+- But the problem with coaching is that it is a full-time job. By that I mean for at least 40 weeks in a year you have to be with the player, either travelling or training. Right now I don't want to do that.
+- I always liked serve-and-volley players and big athletes.
+- But, then, Sampras won Wimbledon six times and that automatically puts him among the greatest.
+- Federer can be the best ever; he has the potential. The only question is whether he has the desire.
+- Hewitt is such a fighter on the court; he never gives up. They all have qualities to beat him.
+- But, then again, I had to stop because there was too much pain or too much trouble. After I retired I still had one more elbow surgery just to be able to do normal things.
+- Guys like John McEnroe, Bjorn Borg and Stefan Edberg were also very good grass court players.
+- But in 2000, the injuries really started to kick in and my elbow gave a lot of problems. At the end of the year I had to take 20 months off before I could come back into the game.
+- But Pete had the desire to play at the highest level for so many years. That is very difficult, mentally.
+- Maybe, one other match better; but if you look at the tournament as a whole, I played very high quality tennis for seven matches and raised my game when I needed to.
+- I don't think anybody was ever up 6-2 and would lose the tiebreaker.
+- Roddick has good presence on the court and has so much adrenalin.
+- Contrasting styles is always the most fun to watch.
+- My father's coaching Misha and I just might help from time to time.

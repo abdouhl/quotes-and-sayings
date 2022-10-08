@@ -1,0 +1,16 @@
++++
+author = "Frankie Faison"
+title = "Frankie Faison Quotes"
+quotes_len = "10"
+description = "the best 10 Frankie Faison Quotes"
++++
+- Don't be afraid to see the gift and talent you have, because that thing could lead to a substantial career for you. Because we all do something as good or better than most people.
+- I think it is so important to pass down knowledge and information to younger generations.
+- I love Montclair. I loved it; it was great for my kids. I raised them all there, brought them up through the Montclair school system, and two of my daughters went to Montclair State.
+- Far too often, I have been accepted or rejected for work because of the color of my skin.
+- Your time here on this earth, it belongs to you.
+- I've been asked far too often, 'Can you be blacker?' I've gotten done with auditions and heard, 'We're not going to go black with this character.'
+- When you look in the mirror at the end of the day, make sure you feel good about what you see.
+- Respect is such a simple and easy thing to have and to give, and it doesn't cost anything.
+- No one deserves any more respect than the other person until they prove themselves unworthy.
+- I don't do things by the book.

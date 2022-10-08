@@ -1,0 +1,22 @@
++++
+author = "Rosa Salazar"
+title = "Rosa Salazar Quotes"
+quotes_len = "16"
+description = "the best 16 Rosa Salazar Quotes"
++++
+- I don't like the five-person group dynamic. I just never have. It doesn't make sense to me that six people would just sit in a circle and say, 'Now I want approval,' 'Now I want approval,' 'Now I want approval.' 'I have something funny to say,' 'No, I have something funny to say, me!' It's hard to make plans.
+- I'm sort of a hermit.
+- I can fall asleep on a dime.
+- In my entire life, I have ten people that are the closest people to me. They're my family, and I really don't mesh worlds that often.
+- I'm not an intensely mystical person. I don't do numerology. I'm a Cancer, but that's as far as I go.
+- I am not a clique-y person.
+- I was that kid who was always practicing crying or falling asleep or being angry or being excited. I was that weirdo in my room making faces.
+- Everything was an escape for me when I was younger. I had a tumultuous home life thanks to the unsavoury characters my mom would marry. My brother just sort of evaded, and my dad lived far away, so I was left alone.
+- I was emancipated at 15. I went to school and had a full-time job and apartment, and ever since, I've been on my own, parenting myself.
+- I was just that kid in the family that you put on the table and watch it dance around, and you're like, 'Oh, look at that hyper kid!'
+- I'm actually doing more stunts for 'Maze Runner' than I did for 'Insurgent.'
+- I wear American Apparel jeans every day of my life.
+- I like very minimal stuff. I'm a tomboy at heart - and in body!
+- Obviously, I love acting.
+- I'm sort of narcoleptic.
+- I told myself when I was broke and homeless that my biggest goal was just to have a house. That goal was achieved. I'm just really, really lucky.

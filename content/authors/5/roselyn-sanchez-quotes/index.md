@@ -1,0 +1,21 @@
++++
+author = "Roselyn Sanchez"
+title = "Roselyn Sanchez Quotes"
+quotes_len = "15"
+description = "the best 15 Roselyn Sanchez Quotes"
++++
+- I don't understand it, but every horror film is huge. I would consider one, but I don't know if my heart would be in it.
+- I admire them for making their way up and opening new opportunities for other Latin newcomers. Latinos have come a long way and the roles and opportunities just seem to be improving.
+- I was ballet dancing at four, playing piano by six, and doing commercials by 12. When I was 21, I was on the number one live comedy show in Puerto Rico. I told my parents, 'I'm going to New York to become a performer.' And I left.
+- My mother always gives the best advice. When I left Puerto Rico to pursue my dreams, she always supported me and said to me, 'I'm never going to cut your wings, so don't let anyone else do that to you.' That has been my philosophy through life. I want to share that valuable lesson with my little girl someday.
+- I can wear a sexy dress to any red carpet event. My wedding is my chance to go all the way and wear a princess silhouette.
+- New York doesn't care who you are or where you came from.
+- I thought it would be easy. I thought it'd take me one year to be Salma Hayek.
+- Go learn the language. Go take some acting lessons. Start from zero like everybody else.
+- I love what I do. When a month goes by and I'm not working, I'm miserable.
+- I would love to do a musical. When I did 'Fame L.A.' for a year - all the singing, dancing and acting - I was in heaven. I cried so much when they cancelled the show. I mean, I loved going to work and I couldn't wait to get on the set.
+- Always be your husband's best friend, make him laugh and give him a little bit of freedom - you can't suffocate him.
+- I had such a great upbringing in Puerto Rico, and it was just a very normal life.
+- I love someone who can make me laugh. And someone who's secure - I think that's sexy.
+- I've been blessed because every single role I've done has been an educated person. I've never done the stereotypical Latina, even though I have an accent - I've always been able to play educated people. That's a good thing!
+- I came here when I was almost 22. I'm perfectly bilingual, but I'm never going to sound like Sandra Bullock.

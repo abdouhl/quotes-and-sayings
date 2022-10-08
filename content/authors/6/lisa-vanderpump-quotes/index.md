@@ -1,0 +1,20 @@
++++
+author = "Lisa Vanderpump"
+title = "Lisa Vanderpump Quotes"
+quotes_len = "14"
+description = "the best 14 Lisa Vanderpump Quotes"
++++
+- I don't watch any television, hardly ever because I'm so busy. I always obviously watch my shows because I blog about it and talk about it, but no, I can watch the news in the morning and that's it.
+- I have a hard time keeping a story straight when I tell the truth because when you start lying you have to remember what you said, and I'm not very good at that.
+- My kids would not get in to bed every night without me telling them that I loved them.
+- I often find that the best parents are the ones without children.
+- I've never been given a ticket by a police man.
+- I'm also interested in pets with alopecia. And design. I'm surprised I haven't gone through with a homeware brand. The bedding, the comforters, the candles, the this and that. I would like to design everything.
+- I'm a very passionate person. I do everything times 10.
+- In Beverly Hills, it's very spoiled in terms of the quality of life. I think the climate and the space and the quality of life in Beverly Hills is exceptional.
+- I don't really care what others think of me. You're not going to please everybody. I care what I think and what my children and my husband thinks.
+- You can film me 24 hours a day and you'll get a very accurate picture of who I am. You see the funny side, I work hard, and I try to be honest and just call it how it is.
+- I don't really lie about anything, I have to be honest. I like to live with the truth.
+- I don't think a man should try to suppress a woman just because he's married to her.
+- Music makes or breaks an atmosphere. It helps to create the mood and also is a very important aural cue; simply shut off the music when you want people to leave.
+- Find what you love to do and you'll never work a day in your life, that's true. But also always try to fill a niche. What can you try to do that is different?

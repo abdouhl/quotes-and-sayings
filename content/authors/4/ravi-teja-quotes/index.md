@@ -1,0 +1,28 @@
++++
+author = "Ravi Teja"
+title = "Ravi Teja Quotes"
+quotes_len = "22"
+description = "the best 22 Ravi Teja Quotes"
++++
+- I cannot handle dull, lazy, morose people. I have been like that since childhood.
+- 'Special 26' was a raw, real film.
+- It's not fair that people wrote that all of my films had not done well. There were a few films like 'Nippu,' 'Devudu Chesina Manushulu' and 'Sarostaru' which were really bad. But, 'Veera' and 'Dharuvu' had done well. Strangely, people have added them to my 'flop list.'
+- I seek speed, clarity, and a practical approach in people I mingle and work with. I can't see myself working in films that stretch beyond maximum four months.
+- I'm shy by nature and don't like talking about myself, and would let my films do the talking.
+- I experimented with different roles, but they didn't work, despite being fantastic films like 'Naa Autograph,' 'Sambo Siva Sambo,' 'Neninthe'... etc. I was very satisfied doing those roles. Had those films worked for me, I perhaps would not have tried anything different further. I like to experiment once in a while if it works.
+- Lot of work can be completed by 7 A.M.; people who wake up at 10 and 11 don't know what they are missing.
+- I was shooting for a Telugu film at the Taj Mahal in Agra, and there were all these women and children pointing and screaming, 'Rowdy Rathore.' But I am not really 'Rowdy Rathore.' I am the guy who did the original version of 'Rowdy Rathore' six years ago.
+- I've struggled a lot to get where I am. I initially got rejected by every producer. But no complaints. I enjoyed each and every moment of the struggle. My first break came in 1997 from Krishna Vamsi and then Puri Jagannadh, who is my closest friend. I owe everything I am to him. Our careers have evolved simultaneously.
+- Comparison is a disease. I never felt any competition, since I never compared myself to others. I only focus on my work. I never feel pressurised and do films in my style. Also, I'm very active since childhood, and that gives me the edge to always put my best.
+- I haven't got an opportunity to experiment with the dimensions of my moustache much. But yes, if the role demands, I'm ready to shave it off. I feel it's good to have moustaches for South films, but I'd love to remove my moustache; why not?
+- Audiences like me doing action and comedy. I am a jovial person and have been so from childhood. I like to laugh my way through my work, and that attitude reflects in my roles. Even women hate me doing rona-dhona roles. So I don't do emotional films.
+- I just trust the director and never overanalyse the script, screenplay, etc. You are just taking a bet at the end of the day, so confidence, be it on the filmmaker or the script, is all that counts.
+- We all do films believing in them completely, but sometimes, the audiences like what we like, and other times, they don't.
+- I don't take myself seriously. Others should take me seriously, I don't.
+- I always put in my 100 percent. Once the film is over, I look at my next, because then it's up to the audience to decide my fate.
+- When I came to the industry, many directors like Krishna Vamsi and Puri Jagannath had encouraged me a lot. Krishna Vamsi is my mentor, and I admire him. That's why I give chances to new directors.
+- I did a fantastic emotional film, 'Autograph.' But the audiences rejected me in it. They like to see me laughing and fighting.
+- I don't attend parties. After the day's shoot, I go home and spend time with my family. I never take my work home, and neither do I involve my family in work.
+- I can't work with people who aren't fun loving. I don't encourage such people.
+- Telugu-Tamil producer Thyagarajan has bought the South Indian language rights for two Hindi hit films, Vikas Behl's 'Queen' and Neeraj Pandey's 'Special 26.' He wants me to play Akshay Kumar's role in the Telugu version of 'Special 26.' Akshay and I even look similar, physique-wise.
+- I want to do Hindi films, but a proper one and a good production. I'm even open to multi-starrers because those work better in Bollywood. But it should be with only Bollywood technicians, not the South Indian team. There's no point to my going to Bollywood if I work with the same artistes and technicians.

@@ -1,0 +1,43 @@
++++
+author = "Rory Mcilroy"
+title = "Rory Mcilroy Quotes"
+quotes_len = "37"
+description = "the best 37 Rory Mcilroy Quotes"
++++
+- I want to try to become the best golfer in the world.
+- On the course, I sometimes eat a little sandwich or a slow-release energy bar - one on the front nine and one on the back nine. You're out there five hours, so you have to keep eating. You're going to burn at least 1,000 calories. I'll try to take in about 400-600 calories during a round and drink water.
+- Since turning professional at 18, I have travelled the world playing the game that I love and consider myself a global player. As the World No.1 right now, I wish to be a positive role model and a sportsperson that people respect, and enjoy watching.
+- I have always said I will try to answer questions honestly. I don't want to change that about myself. I think people appreciate that about me.
+- The great thing about my two lives is I love them both. I'm very ambitious and nothing gets in the way of me practising and concentrating on winning golf tournaments. But then I come home and get back to normality.
+- You know I need that cockiness, the self-belief, arrogance, swagger, whatever you want to call it, I need that on the golf course to bring the best out of myself. So you know once I leave the golf course, you know that all gets left there.
+- I used to not really like going to the gym when I was playing tournaments because I'd be sore and stiff. But the more you keep doing it, the less soreness you have. And you actually start to enjoy it.
+- My dad's a scratch golfer and I've got the knack of seeing something and then replicating it. I saw my dad swing a club and I worked out how to do the same thing. My backswing and follow-through have been basically the same since I was two.
+- It's incredible, ridiculous really, isn't it? You realise you can make more money on the golf tour in one week than some people make in a lifetime.
+- There's a certain - there's a different pressure with playing in a Ryder Cup. You know, you're not just playing for yourself. You're playing for your teammates. You're playing for your country.
+- I really enjoy playing 'Tiger Woods' on the Wii, and you can set the levels to easy, medium, or hard, so I think it's definitely a good way for kids to learn the motion of a golf swing if they want to get into the sport. It makes it more fun for them as well.
+- I mean I don't want to feel inferior to any other golfer in the world. You know if you do that, then you know you're giving them an advantage, you know, right off the - you know, right from the start.
+- How can I intimidate Tiger Woods? I mean, the guy's got 75 or whatever PGA Tour wins, 14 majors. He's been the biggest thing ever in our sport. How could some little 23-year-old from Northern Ireland with a few wins come up and intimidate him.
+- I wanted to make a point of basing myself at home, being close to my family. I'll never be able to repay Mum and Dad for what they did, but at least they know they'll never have to work another day. I'll do whatever it takes to look after them.
+- The next time I cry about golf it will only be with joy. It's not worth crying over golf for any other reason. After all, it's only a game.
+- I wish to clarify that I have absolutely not made a decision regarding my participation in the next Olympics. On a personal level, playing in the Olympics would be a huge honour. However, the Games in Rio are still four years away and I certainly won't be making any decisions with regards to participating any time soon.
+- I've had support from all sides, from people who call themselves Irish, from Northern Irish, to the whole of the UK, to people in America, and it would be terrible for me to segregate myself from one of those groups that support me so much.
+- Two years ago, of course, I was just a rookie and listened to everybody. In a way I am still a rookie. I'm only 23 and I'll be surrounded by great players who have played in a lot more Ryder Cups than myself. But the rankings say I am the best player at the moment and so that brings a responsibility.
+- Going to the gym is great for your body, but it's also great for your mind.
+- I realise that every time my face is on TV or I'm playing in a tournament, that I am a role model for a lot of people and a lot of kids do look up to me. I try to do my best in that regard and put myself across as honestly and as modestly as possible, as well.
+- On that Sunday of the Masters I remember turning on ESPN to find people talking about me. I switched over to the Golf Channel and people were talking about me. It was hard to escape.
+- The fact is, I've always felt more British than Irish. Maybe it was the way I was brought up, I don't know, but I have always felt more of a connection with the U.K. than with Ireland.
+- I am a proud product of Irish golf and the Golfing Union of Ireland and am hugely honoured to have come from very rich Irish sporting roots... I am also a proud Ulsterman who grew up in Northern Ireland. That is my background and always will be.
+- Of course, money matters to everyone even if some don't want to admit it. If I won the Race to Dubai, I look at that prize money and think it could pay off my new house or the range I'm building. I am privileged to play golf for a living - look around St Andrews, that's my office.
+- To be a top-class athlete, you have to train hard, you have to eat right, you have to get enough rest. I feel the way golf is going nowadays, you have to treat yourself as an athlete.
+- It is never easy to win but it is a lot easier to win when you play well. The key is winning golf tournaments when you are not playing so well. Managing your game is something that I feel that I am still learning to do.
+- I receive huge support from Irish and British sports fans alike and it is greatly appreciated. Likewise I feel I have a great affinity with the American sports fans. I play most of my golf in the U.S. nowadays and I am incredibly proud to have won the U.S. Open and U.S. PGA Championship in the last two years.
+- This is the great thing about Northern Ireland. I walk down the street and people stop me and say things like, 'I know you. You're that wee golfer, aren't you?' I say, 'Yeah, that's me.' They say, 'Keep it up, wee man.' It's very funny and that's why I want to stay here as long as possible.
+- If somebody asks me whether I'd rather sink the winning putt in the Ryder Cup or win a major, it's the major every day. World championship or Ryder Cup? Win a world championship. At the end of the day you're going to be remembered for what you achieve in an individual sport.
+- The Olympics will be great for the growth of golf on a global scale, but my focus right now is on being the best player I can be, trying to win Major Championships and contributing to what will hopefully be a victorious European side at the forthcoming Ryder Cup Matches against the USA.
+- I always got very excited about the Masters as a kid. I could hardly wait until the Wednesday when you'd get the BBC's preview. And I'd then be glued to the screen until Sunday night.
+- Home will always be Northern Ireland but my schedule means for the next few years I won't be there as much. I can't do the same things that I did a year ago. That is I'm something conscious of, but I'm not sad about it. It's fine.
+- If I'm playing in the morning, I'll get some carbs early: porridge with chopped banana. If I'm playing in the afternoon, I'll start with less carbs and have some eggs and fruit for breakfast, then a light lunch about 90 minutes before I play, so I don't feel sluggish or full.
+- As long as I keep enjoying my golf, then hopefully I'll be able to play well.
+- I've always said the players don't build up rivalries themselves, people from the outside build up the rivalries. I just want to play good golf. I want to try and keep winning golf tournaments.
+- As an international sportsman, I am very lucky to be supported by people all over the world, many of who treat me as one of their own, no matter what their nationality, or indeed mine. This is the way sport should be.
+- My mom and dad worked very hard to give me the best chance in - not just in golf but in life. You know, I was an only child, you know, my dad worked three jobs at one stage. My mom worked night shifts in a factory.

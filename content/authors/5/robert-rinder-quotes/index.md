@@ -1,0 +1,106 @@
++++
+author = "Robert Rinder"
+title = "Robert Rinder Quotes"
+quotes_len = "100"
+description = "the best 100 Robert Rinder Quotes"
++++
+- When I first heard Lady Gaga's 'Born This Way,' I looked out the window for the car alarm going off.
+- There's something fundamentally grubby about the rich paying people to seek out cracks in the system to hide their money.
+- Perhaps the people of Twitter are more amenable to your babbling than your immediate family, but that doesn't necessarily make digital communication a beneficial distraction when we have an immediate social environment.
+- My sexuality, in terms of 'Strictly' or whatever else I do in my life, ought to be as irrelevant as the length of my big toe.
+- On TV, the nitty-gritty of trials takes place between commercial breaks, whereas, of course, reality is infinitely more complex. True crime also makes us more empathetic.
+- I was an appalling person to teach. At 14, I was pretty advanced. I would read all the books in a few minutes, and I was bored. It must have been awful for a teacher to have a bright boy who's giving them his undivided indifference.
+- If every person charged with a crime was allowed to claim money from the authorities when their case was dropped, our police would end up spending all their time defending claims for compensation.
+- London and its people are famed for their incredible indifference to one another, but it's actually a charade that requires some effort to maintain.
+- In theory, I absolutely love to work from home, in all its warmth and comfort, but have reluctantly been forced to confess that it's a total failure.
+- Great broadcasting requires all of us, those who are in positions of power and especially those who are in positions to employ people, to remember you need to look towards the greatest conceivable palate to create greatness.
+- I'm not pretending when I'm in that court room.
+- I can smell a liar like a fart in a lift!
+- I propose that matchmaking should be approached like a corporate business venture. It can be risky, but I have discovered that the potential profits from acquisitions and mergers cannot be underestimated.
+- There's a lot of judges on TV in America. Apart from Judge Judy, the vast majority of them are terrible.
+- I give celebrity my undivided indifference. Now that it's here, there's absolutely nothing wrong with it. And people who complain about celebrity and any kind of privilege are, all of them, whinging morons, and they should keep their first-world problems to themselves. I feel very strongly about that.
+- I think I'm incredibly stoic. If I have a bad headache, it takes a while before I reach for a tablet.
+- I can conduct and play musical instruments, but dancers' counting is different - they only go to eight beats, which doesn't relate to a bar.
+- It is splendid to be supportive when you see those around you doing well, but blind praise is easier than harsh facts.
+- I find it amusing when you look at plastic surgeons because they don't seem to have had anything done.
+- Going to salsa clubs may be popular, but I feel we're really missing something as a society by overlooking ballroom dancing. If only we could persuade schools to teach it or there was somewhere young people could go on a Saturday night to learn it.
+- If a deal advertised on an unknown website looks too good to be true, it almost certainly is.
+- Is it exploitative to get the victim of an unimaginably horrific crime to talk on my show 'Crime Stories?' No, it's crucial.
+- Acting, when it is good, can be transformative.
+- We need journalists to be fearless and hold power to account.
+- It is difficult to ever think about your loved one having suffered.
+- I hope I'm always appropriate on 'JR' if it's a serious case. But if you have a case of a man who has a wardrobe malfunction with a lime green mankini, even I on the odd occasion find it mildly amusing.
+- I think with 'Strictly,' people don't want you to do badly. They're willing you to do well.
+- When somebody teaches you to love something, you never forget that! It's such a generous thing to do.
+- I really worry about the way in which you, as a celebrity, are disproportionately treated. Frankly, the industry is almost single-handedly designed to interfere with people's moral chemistry.
+- You can separate the church and state all you like, but Christmas is inescapable, and it's marvellous, and it's not going away.
+- I dread my trial at the pearly gates - knowing my luck, I'll be hot on the heels of a blameless nun who will be ushered straight to a luscious cloud with prime sea views.
+- Discounting the ineffably repetitive homophobic barbs that I receive most days, Twitter trolls' most common gripe against me appears to be that I am 'posh.' Contrary to their unshakeable view, I was not born into the upstairs world.
+- It's always nice to have new clothes made for you.
+- The state of some of our roads is a matter of national embarrassment.
+- The law is the law whether you're dealing with a multi-million-pound fraud or a car deal where someone feels diddled because their exhaust falls off on the way home.
+- My grandfather wanted to remind us that freedom of expression is the fundamental ingredient for democracy, and all the rest is detail. It is the scaffolding around which every other freedom is based.
+- Ultimately, whenever you have a new opportunity, do it with gusto and fun and be wholly indifferent to what other people think.
+- I realise I'm known for doing big, very serious cases, but fundamentally, any lawyer will tell you that even the most complex trials come down to the same questions. Are people telling porky pies? Are bank accounts dodgy? Is someone trying to get one over on you? It's my job to listen and then decide.
+- If a person is seriously injured as a result of someone else's negligence, then they are entitled to compensation.
+- I loathe people who are disingenuous or inauthentic.
+- It is always best to settle all outstanding financial matters as soon as divorce proceedings are concluded.
+- I used to deal with high-profile criminal cases that were covered extensively in the media, and one of the things I quickly appreciated was there was a gulf between what really took place in the middle of a case, the impact on victims, the effect on the police and how they solved crimes, and the way it was reported.
+- I don't want to be a total moron and be just known as the jazz-handed judge.
+- If something looks like a tax avoidance scheme, then that's probably what it is - and there's lots of clever people working day and night to close them down.
+- Even my trolls have started taking the trouble to spell their Tweets correctly, which is thoughtful.
+- No sane person enjoys paying tax... money, after all, is a very nice thing to have. But it's the price we all pay for so many vital things in this country - and those of us lucky enough to have a bit more should be proud to be paying a little bit more as well.
+- There are plenty of organisations making a real difference to the lives of gay people around the country that do need our help, so why undermine the wonder of 'Strictly' by politicising it?
+- I celebrate Christmas with wilful glee.
+- There is a balance between mindful that you don't upset anyone, yet maintaining an authenticity that is not wrapped up in the minutiae of people's judgments of you.
+- Most people assume that when you go to court and win your case that you are guaranteed to get your money. Sadly, this isn't always the case.
+- Youthful beauty is a poor indicator of long-term appeal in a man.
+- I really want to emphasise this - 'Strictly' is a positive show. It's interesting that it gets cast into this, understandably, the ordinary net of reality shows, but there's no part of it which feels nihilistic or unpleasant. It's all about learning something and doing well, and you feel this overwhelming sense of people wanting you to do well.
+- An actor with a genuine gift has the power to transport you from whatever your own pains may be into an entirely different world, freeing you from whatever you may be going through. At its best, it can be better than any medication.
+- The only thing I knew would make my grandmother more proud than watching my TV courtroom was to see me dressed up in white tie doing the foxtrot.
+- The difficulty with American television is it's pot luck.
+- Serious crime is very, very rare, and I think all of us are interested because they are rare and unusual. If they were banal and everyday, we wouldn't be interested in them at all.
+- My musical taste is somewhat dated - I mean, freeze frame, go back 60 years, and you're in my comfort zone.
+- I did a couple of plays at university, badly, where I made friends with Benedict Cumberbatch. When you see someone like him acting, it makes you think there's not much point in doing it yourself.
+- People form strong attachments to their properties.
+- I was in the National Youth Theatre, too, but there was no dancing there. I was doing plays like 'Julius Caesar' and playing the lute very badly.
+- My genuine passion for dance was born watching Ballet Rambert perform Christopher Bruce's harrowing 'Ghost Dances.'
+- I'm very much into Barry's Boot Camp... it's the real deal.
+- My father is a taxi driver, and my mother ran a small business. I hadn't even met a barrister before I got my first shot at the legal profession. But back then, I was lucky enough to be given a break - I can't help but wonder if I would be so lucky today.
+- One must be aesthetically long-termist in selecting a man - it's like purchasing a farmhouse in the south of France. Sure, it's beautiful to look at, but will the roof stay on?
+- The family court is extremely child focussed. Its overriding objective is to do what is in a child's best interests.
+- I'm not as conscious as I should be about my diet and eating a healthy balance of fruit and vegetables because I do so much exercise. However, I love good grilled fish and Mediterranean/Middle-Eastern salads.
+- In our 'Strictly' group, we really did bond. It's seemingly disappointing to some that we had no diva meltdowns. I made true friends during the experience, which is surprising because I'm not a new-pals sort of person.
+- I like people to be authentic, thoughtful, and honest.
+- I know a bit about taxation and the remarkable effort that goes in to avoiding it.
+- If you are concerned you are the victim of illegal corporate surveillance, you should seek specialist - and independent - legal advice at once.
+- Before starting a building project, it is wise to discuss your plans in full with the neighbours.
+- Above all else, look around to employ the best talent you possibly can.
+- Anyone who's been in my court knows my maxim: 'If you make them, you pay for them!'
+- We need to be able to turn to our immediate circle to ascertain whether our internal checks and balances are functional and to be able to rely on them to point out gross errors.
+- Would it be a big step forward for the LGBTQI community if there were same-sex couples on 'Strictly?' Do me a favour. Some things ain't politics, and 'Strictly' is one of them.
+- One of the happy consequences of my brain is that I rarely sleep.
+- I am unashamed to say that I have a super-crush on Kate Oates, the series producer of 'Coronation Street.'
+- I think if you put 100% into anything and you do it with authenticity and enthusiasm, then it really shines through.
+- Never trust people; always trust paper. I'd marry a piece of paper if I could.
+- Let's start spreading work experience and opportunities a little wider so that the photographers, writers, and TV producers of tomorrow are drawn from a broader section of society.
+- From time to time, I definitely look witheringly, which is why I'm well known.
+- Learning about crime in great detail forces us to ask ourselves how it happened, how the victims and perpetrators got to that point, how the law works, how the police force functions.
+- There's certainly more chance of me winning 'Strictly' than having an affair with my dance partner, but you know, who knows?
+- Fitness is really important for my mental and emotional equilibrium as well as my physical wellbeing.
+- If you are a politician who styles yourself as a model of family virtue but are having a secret affair, you have no right to expect it to remain secret.
+- If an employer decides to flout the law, it may be guilty of criminal offences and subject to serious financial liability.
+- I didn't get into fitness until my late twenties. I had put on a lot of weight; I was quite chubby and feeling really depressed. But exercise helped everything - the body and the mind.
+- If the press is to be free, the state has no role in regulating what is published.
+- As efficiently as our phones connect us to one another, and as much as we take advantage of that, we must remember that they have the power to alienate us, too.
+- I do get stopped in the street, and people are always, without exception, really polite. I think it's because they think I can send them to prison.
+- I respond well to terribly beautiful, terribly brilliant Russian women.
+- The reality is that when you're a barrister, you're trained, and you've got ethical structures. You've got to follow the evidence, and that's that.
+- The more powerful you become, the less likely it is that people will tell you the truth. It must be why the 'Harry Potter' books become so bloated as the series progresses; think of the beautiful, precise editing of books 1-3 drowned in a mire of sycophancy and yea-saying.
+- It is extremely hard to bring a claim for compensation against the police or the Crown Prosecution Service, even when a person has been charged with an offence and later cleared.
+- I wish I had a filter; then, I'd suspect, who knows? I'd perhaps have more friends.
+- As a lawyer, I've dealt with really serious offences, and the public rarely hear what the true impact is on the victims' families. When you hear it from the mouths of victims, your entire approach changes, because it could happen to anybody, and they articulate that in such a powerful way.
+- No matter how excluded you have become from Christmas, it is a genuinely inclusive matter; frankly, you are conscripted into it.
+- One of the things about being a law student is that the academic discipline of law is very often removed from the practical reality of law. How to complain, who to complain to, and whether or not you even need to invoke the law is very different in the real world from how it's examined in the lecture theatre.
+- By the time I finished doing regular practice, most of my work was in international regulatory law, so I was advising foreign governments about their responsibility and roles in things like public inquiries.
+- Verbal contracts are about as useful as a fart on a treadmill.

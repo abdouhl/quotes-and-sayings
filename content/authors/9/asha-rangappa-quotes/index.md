@@ -1,0 +1,73 @@
++++
+author = "Asha Rangappa"
+title = "Asha Rangappa Quotes"
+quotes_len = "67"
+description = "the best 67 Asha Rangappa Quotes"
++++
+- The uniqueness of executive clemency lies in the president's power to act without weighing guilt, innocence and legal principle.
+- As an FBI agent, you don't want to go in there gangbusters and confrontational. You are going to get a lot more information if you put the subject at ease and allow them to talk.
+- It's no surprise that whether by blocking visas or building walls, there are parts of the country desperate to hang on to a vision of the United States that is rapidly disappearing from their TV screens as well as their neighborhoods.
+- Reflexive control is a 'uniquely Russian' technique of psychological manipulation through disinformation. The idea is to feed your adversary a set of assumptions that will produce a predictable response: That response, in turn, furthers a goal that advances your interests.
+- Like any country with sophisticated intelligence services, Russia has long been a careful student of U.S. freedoms, laws and the constraints of its main nemesis in the U.S., the FBI.
+- In 1978, Congress passed the Foreign Intelligence Surveillance Act after hearings exposed the F.B.I.'s egregious practice of illegally spying on civil rights leaders, black nationalists, Communists and Vietnam War protesters.
+- I was a pretty unsavvy applicant, and I am grateful that the dean of admissions at Princeton chose to take a chance on a girl from an average public high school in southern Virginia.
+- Rather than trying to find evidence of a crime, the FBI's counterintelligence goal is to identify, monitor and neutralize foreign intelligence activity in the United States.
+- As a former FBI counterintelligence agent who investigated foreign propaganda cases, I've seen firsthand how foreign intelligence services leverage American freedoms - and the constitutional limitations on the FBI's investigative power - to their advantage.
+- I'm a process person. Process is a manifestation of values.
+- The Trump administration's assault against the FBI's efforts to assess a national security threat posed by suspected foreign agents only raises more questions about what went on in 2016.
+- Under the 1991 Intelligence Authorization Act, US intelligence agencies cannot engage in covert actions abroad without a presidential finding that these operations are important to US national security.
+- President Trump is a defense lawyer's worst nightmare - and a dream defendant for special counsel Robert Mueller.
+- Originally, in fact, the power to pardon was used precisely for economic and political ends. Legal historians have noted that in England, kings used pardons for their own ends. For instance, criminals could be pardoned if they agreed to labor for the American colonies or the Crown's navy.
+- The Russian cloud over the Trump administration never seems to disappear.
+- Under the dual sovereignty principle, the Fifth Amendment's prohibition on double jeopardy - which prevents the government from trying someone twice for the same crime - doesn't apply if the second trial is by a different 'sovereign' - in this case, the state.
+- If there's one thing that lawyers know about reading documents, it's to pay attention to the footnotes. In fact, oftentimes the most important information is buried there.
+- My parents came under a provision where the government was specially looking for doctors, because the Vietnam war was happening and many doctors were overseas.
+- Facebook's greatest strength - its ability to identify and connect like-minded people - is also a major vulnerability.
+- In practice, presidents have typically tended to think of themselves not just as stewards for their party, but also of the presidency itself - preserving the full scope of its constitutional power for their successors is part of their job.
+- When presidents decide to litigate an issue to protect their policy decisions, they are more likely to act judiciously, and with an eye toward compromise, because they can see the larger implications for the legacy of their office.
+- In the end, granting mercy comes down to just two people. For the recipient, the pardon is freedom. For the politician, the pardon can mean - not surprisingly - political gain.
+- Unfortunately, once a person who is willing to act against the interests of the United States assumes the awesome powers of the presidency, the laws and investigative techniques we use in ordinary national security situations are woefully inadequate.
+- The assumption that everyone in government is a bad actor imperils our democracy.
+- Foreign intelligence services rely on manipulating vulnerabilities over time - like greed, or fear of exposure of a secret - to puppeteer those under their influence into acting in their interests without saying a word.
+- In a typical whistleblower scenario where the inspector general determines a complaint to be credible and urgent, there would be no colorable legal basis for the complaint to not reach Congress.
+- But history shows that when courts intervene because a president is trying to shield his own conduct, the deck is stacked against him.
+- The F.B.I. pursues cases against individuals and organizations, not topics - this allows each case to have the flexibility to go in the direction the evidence leads, regardless of what happens with other, related cases.
+- I know firsthand from my experience working counterintelligence investigations for the FBI that kicking a diplomat out of the country is no small thing.
+- Trump has repeatedly insisted that he is innocent of colluding with Russia and had no idea about his campaign staff's Russia contacts. So he should be glad to know that the FBI appears to have been trying to thwart a hostile country's efforts to infiltrate his campaign.
+- Russia has taken advantage of its exalted status among right-wing extremists to expand its influence throughout Europe.
+- College acceptances, particularly of high-profile teens and celebrities, make the news cycle each year.
+- Counterintelligence is, in effect, chasing ghosts, which is why the tools used to investigate foreign intelligence activity are secret, like human sources or electronic surveillance.
+- Presidents have, of course, acted inappropriately in the past, and our constitutional system has a framework in place for addressing misconduct by the chief executive. But it's designed to deal with straightforward criminal activity, not national security threats.
+- Exposing the activities of a foreign intelligence service renders them ineffective, since it removes plausible deniability, which is the hallmark of covert intelligence operations.
+- Russian President Vladimir Putin's traditionalist-nationalist rhetoric, which blames secularism, diversity and internationalism for the weakening of Western democracies, gives voice to the grievances that American hate groups have felt for so long.
+- Field offices are evaluated in part based on their success in following through on leads and making cases that result in arrests and convictions. No case agent worth their salt would remain quiet if their cases were closed in the face of a continuing threat.
+- There's no law preventing a journalist from publishing whatever they want.
+- But I have to say, in my 12 years as the dean of admissions at Yale Law School, there was a lot of legal behaviour that I saw that worried me and that clearly was allowing wealthier and privileged students to tilt the balance in their favour.
+- When it comes to the Russia investigation, President Trump would be wise to review Scandal 101: Plausible deniability is your friend.
+- And, you know, in my opinion, when the FBI uses these sources, there are a lot of internal guidelines on how they can be used and particularly if they touch in any way on First Amendment activity. So you know, journalists, political activity, clergy people - all of those get extra special protection when it comes to FBI investigation.
+- Naturally, the president, as a US citizen, cannot be removed from the country. Nor can the president, who is the country's chief executive, be restricted from access to classified information or provided with falsified information.
+- The aim of a foreign intelligence service is to find and convince individuals to help them achieve intelligence objectives.
+- Having conducted counterintelligence investigations, I can attest that not everything a foreign intelligence service does is necessarily illegal.
+- After all, clemency is by nature outside the rule of law. When conferred upon those already convicted of crimes, it unravels the decision of citizen-jurors who found guilt beyond a reasonable doubt.
+- The idea of dual sovereignty rests on the premise that the power of the states to prosecute crimes existed before the creation of the federal government, and is reserved to them by the Tenth Amendment to the Constitution.
+- FYI, there are basically only three things besides a vest that will stop a bullet: a tree trunk, the engine block of a car, and a U.S. mailbox: if you are ever caught in gunfire, find one of those.
+- Though my parents were professionals and expected me to go to college, they were immigrants from India with no idea about how the admissions process worked in the United States or the importance of standardized tests.
+- My experience investigating foreign propaganda operations predated the proliferation of social media platforms.
+- We are a nation founded on distrust of government power, and questioning that power is essential to promoting transparency and accountability.
+- I mean, the FBI has to assure people who come and help them that they're going to be able to keep their identities confidential and protect them.
+- In response to Russia's election hacking, the U.S. expelled not just one, but 35 spies posing as diplomats - the strongest response ever to a cyberattack against the U.S.
+- I know firsthand that it's difficult to get a FISA warrant. From 2002 to 2005, when I was an F.B.I. agent conducting counterintelligence investigations in New York, my FISA applications went through many layers of approval and required very strong evidence.
+- When it comes to the separation of powers, the Constitution makes it look pretty simple: Congress makes the laws, the president enforces them and the judiciary adjudicates them. In reality, though, the lines between the branches are a little blurrier than they seem on paper.
+- When I did counterintelligence investigations, they rarely saw the inside of a courtroom. That wasn't the goal of them.
+- In the case of someone sharing classified information with foreign intelligence, for example, the FBI could surreptitiously ensure that they are no longer able to obtain sensitive information.
+- Consistent positive interactions increase levels of trust in the relationship, so that when conflict arises, there are enough 'reserves' in place to make a withdrawal, but still leave the relationship in a net-positive place.
+- The president, by virtue of his office, can easily 'go dark' when it comes to conversations with foreign leaders, even if he makes promises or assurances that run contrary to the interests of the United States or even place the country in danger.
+- The FBI is not in the habit of leaving loose ends. That's not what they do.
+- White Southerners created an entire cosmetics industry equating beauty with whiteness and trained a string of winning Miss Americas who embodied their racial ideal in a national representative.
+- The idea of interviewing someone is that you are getting their first off-the-cuff impression or response. You don't want them to have the chance to really prepare.
+- For wealthy or privileged students, applying to Ivy League schools or elite schools is sort of expected of them. If you go to a prep school, for example, that's just what your guidance counsellor tells you.
+- As a former F.B.I. special agent who conducted counterintelligence investigations, I can attest that foreign intelligence services do not operate on the basis of explicit agreements or even actions that, standing alone, constitute criminal activity.
+- The Espionage Act is very broadly written. It doesn't make distinguish - or it doesn't make distinctions between categories of people that can receive and publish information and under what circumstances.
+- Facebook is primarily a mechanism for bonding, not bridging. Studies show that in the vast majority of cases, people live in self-made echo chambers on Facebook that reinforce their existing views of the world.
+- Students come away with a clear message about how admissions works: If you have money, connections or 'insider' knowledge, you have a leg up. It's hardly surprising that many students of modest or lower means decide it's not even worth playing.
+- Without a way to make regular, positive deposits in social relationships that bridge political lines, every civic debate is a withdrawal without social reserves, leaving people perpetually overdrawn.

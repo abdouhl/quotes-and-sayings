@@ -1,0 +1,41 @@
++++
+author = "Robertson Davies"
+title = "Robertson Davies Quotes"
+quotes_len = "35"
+description = "the best 35 Robertson Davies Quotes"
++++
+- Nothing is so easy to fake as the inner vision.
+- We wanted to meet him, for though we were neither of us naive people we had not wholly lost our belief that it is delightful to meet artists who have given us pleasure.
+- A Librettist is a mere drudge in the world of opera.
+- You never see what you want to see, forever playing to the gallery.
+- Fanaticism is overcompensation for doubt.
+- I do not 'get' ideas; ideas get me.
+- Literary critics, however, frequently suffer from a curious belief that every author longs to extend the boundaries of literary art, wants to explore new dimensions of the human spirit, and if he doesn't, he should be ashamed of himself.
+- I never heard of anyone who was really literate or who ever really loved books who wanted to suppress any of them.
+- Few people can see genius in someone who has offended them.
+- The drama may be called that part of theatrical art which lends itself most readily to intellectual discussion: what is left is theater.
+- The greatest gift that Oxford gives her sons is, I truly believe, a genial irreverence toward learning, and from that irreverence love may spring.
+- The eye sees only what the mind is prepared to comprehend.
+- The love of truth lies at the root of much humor.
+- A truly great book should be read in youth, again in maturity and once more in old age, as a fine building should be seen by morning light, at noon and by moonlight.
+- Their very conservatism is secondhand, and they don't know what they are conserving.
+- The quality of what is said inevitably influences the way in which it is said, however inexperienced the writer.
+- Students today are a pretty solemn lot. One of the really notable achievements of the twentieth century has been to make the young old before their time.
+- The great book for you is the book that has the most to say to you at the moment when you are reading. I do not mean the book that is most instructive, but the book that feeds your spirit. And that depends on your age, your experience, your psychological and spiritual need.
+- There is no nonsense so gross that society will not, at some time, make a doctrine of it and defend it with every weapon of communal stupidity.
+- The world is full of people whose notion of a satisfactory future is, in fact, a return to the idealised past.
+- A happy childhood has spoiled many a promising life.
+- Canada is not really a place where you are encouraged to have large spiritual adventures.
+- Tristan and Isolde were lucky to die when they did. They'd have been sick of all that rubbish in a year.
+- Authors like cats because they are such quiet, lovable, wise creatures, and cats like authors for the same reasons.
+- I see Canada as a country torn between a very northern, rather extraordinary, mystical spirit which it fears and its desire to present itself to the world as a Scotch banker.
+- Do not suppose, however, that I intend to urge a diet of classics on anybody. I have seen such diets at work. I have known people who have actually read all, or almost all, the guaranteed Hundred Best Books. God save us from reading nothing but the best.
+- No people in the world can make you feel so small as the English.
+- What we call luck is the inner man externalized. We make things happen to us.
+- The most original thing a writer can do is write like himself. It is also his most difficult task.
+- Only a fool expects to be happy all the time.
+- May I make a suggestion, hoping it is not an impertinence? Write it down: write down what you feel. It is sometimes a wonderful help in misery.
+- If we seek the pleasures of love, passion should be occasional, and common sense continual.
+- To be a book-collector is to combine the worst characteristics of a dope fiend with those of a miser.
+- Extraordinary people survive under the most terrible circumstances and they become more extraordinary because of it.
+- Every man is wise when attacked by a mad dog; fewer when pursued by a mad woman; only the wisest survive when attacked by a mad notion.

@@ -1,0 +1,13 @@
++++
+author = "Chester A. Arthur"
+title = "Chester A. Arthur Quotes"
+quotes_len = "7"
+description = "the best 7 Chester A. Arthur Quotes"
++++
+- The health of the people is of supreme importance. All measures looking to their protection against the spread of contagious diseases and to the increase of our sanitary knowledge for such purposes deserve attention of Congress.
+- The countries of the American continent and the adjacent islands are for the United States the natural marts of supply and demand.
+- The extravagant expenditure of public money is an evil not to be measured by the value of that money to the people who are taxed for it.
+- I may be president of the United States, but my private life is nobody's damned business.
+- As is natural with contiguous states having like institutions and like aims of advancement and development, the friendship of the United States and Mexico has been constantly maintained.
+- Men may die, but the fabrics of free institutions remains unshaken.
+- It is provided by the Constitution that the President shall from time to time give to the Congress information of the state of the Union and recommend to their consideration such measures as he shall judge necessary and expedient.

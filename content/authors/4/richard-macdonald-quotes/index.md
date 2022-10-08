@@ -1,0 +1,30 @@
++++
+author = "Richard Macdonald"
+title = "Richard Macdonald Quotes"
+quotes_len = "24"
+description = "the best 24 Richard Macdonald Quotes"
++++
+- China is important to the world in that they are a force and on the move. Exposing them to figurative art opens up a potential for artistic expression far greater than anyone would ever have dreamed possible until today. It is this very spirit of the struggle and determination to triumph that inspires creative expression.
+- I was tired of illustration. You'd work so hard on a commission and it would go in to a magazine, and you'd turn the page and it was gone.
+- I don't do commissions and I like the freedom to create what my heart or mind tells me to.
+- I've had over a dozen models come in and pose fro me live for these new Cirque pieces. Cirque is a world-wide phenomenon and they are just incredible athletes. I've been to all the performances and am really fascinated by all of their productions.
+- I create for artistic intent only and do everything from life.
+- I never had a job. I bought my first house within a year of getting out of school, and I built a custom one four and a half years later. The Art Center didn't teach much about business, but I learned a lot from the Fortune 500 companies that were my clients.
+- I do everything. Of course, I have 50 people who work for me to do the drudgery of mold making and all the foundry. This is an enormous task. But every stroke in these sculptures is from my hands.
+- These guys are just flying through the air and I'm capturing them in the split second and putting it into a work of art, via clay to the bronze.
+- I'm a classically trained painter, and I was an illustrator in New York working with Fortune 500s companies as well as the NBA and the Olympics. I first got into sculpting when I created a sculpture based on a painting I had done for the 1984 Olympics.
+- I'm also interested in creating a lasting legacy for collectors because bronze will last for thousands of years so I'm not really selling the art to this particular collector but it is being passed on.
+- Charity work is very important to me and gives me an opportunity to give back to my community. I've always been a big supporter of many different charities, have donated millions of dollars to them, and it just feels great to do and be able to help others, especially children.
+- I was headed in the wrong direction. I didn't think I'd make it to 21. My Uncle Chuck saved my life. He was a graphic designer, and he gave me my first sketchbook. In the front, he wrote, 'Wear it like your underwear.'
+- I'm always looking for the next challenge.
+- My goal is to make fine art, and fine art comes from the soul. If you have virtuosity and facility, you can take and create something of significance.
+- At any one time, I'll have 30 to 40 pieces going on in the studio, so this is not economically driven at all.
+- Sculpture will last a lot longer than painting.
+- I cannot tell you how many people, powerful people, come to my studio and they are in tears they are so moved by what they see.
+- I can actually feel the interior body of a dancer. I have the ability to capture a split second... I want you to be hit with whatever the essence is of this sculpture.
+- There are very few people who do what I do.
+- I am only limited by the amount of life I have left to capture the ideas I am already working on. Another problem is that I am not sure if I would rather create or collect art. Collecting art is another passion of mine.
+- The greatest success is creating whatever you want without conditions. I don't do commissions unless I really want to, because it's like having a job.
+- There is a connection between me and the collectors, and as admirers of the work they tell me about the differences the pieces are able to make in their lives on a daily basis.
+- You have to make thousands and thousands of drawings before an illustration is perfected.
+- I use zero photography. I have a photographic memory and a complete knowledge of anatomy and physiology, and an interest in grasping the moment of what is happening, not just the outside, but the inside out.

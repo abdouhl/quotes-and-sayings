@@ -1,0 +1,17 @@
++++
+author = "Claire Coffee"
+title = "Claire Coffee Quotes"
+quotes_len = "11"
+description = "the best 11 Claire Coffee Quotes"
++++
+- I actually went to study journalism at Northwestern, thinking that would be my Plan B for a career. But then I realized, if I'm going to struggle and make no money, I might as well do what I really want to do.
+- When I was in fifth grade, a boy put a rose on my desk and I threw it away. The attention makes me nervous.
+- 'The West Wing' was really important for me for a lot of reasons. It was the first thing I did when I got out to Los Angeles. I'd just finished school, and I was so naive.
+- I was five when I did my first show with the Mountain Play Theatre company in Marin County. I started young, and since no one in my family was involved in the industry in any way shape or form, I think everyone thought I'd do a few plays and that would be it. But then I kept doing it.
+- Real-life things, like spiders and snakes, that doesn't scare me, but if it's a monster or a ghost or an alien, that will always scare me.
+- My husband is a musician, and 'Paste' is one of his favorite places to be interviewed by.
+- I hated being scared when I was little. Aliens really scared me.
+- I think, reading the Grimm's fairy tales, they all have some sort of moral component to them, teaching you a lesson.
+- In real life I do a lot of reconnaissance and then kind of choose the guy I'm going to go after. Not like stalking, but I just want a little background info. That might be why I haven't had many bad dates.
+- When I was in college, the first thing we did in acting class was to observe an animal at the zoo and become that animal. So I picked a wallaby.
+- Alien abduction movies are always the scariest; no matter how cheesy they are, they still scare me for a week. I live by myself in my apartment, and I don't worry about intruders or robbery; I mostly worry about alien abduction or evil, mean ghosts.

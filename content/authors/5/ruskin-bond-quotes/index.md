@@ -1,0 +1,106 @@
++++
+author = "Ruskin Bond"
+title = "Ruskin Bond Quotes"
+quotes_len = "100"
+description = "the best 100 Ruskin Bond Quotes"
++++
+- I write mostly for pleasure, and the reading should ideally be for pleasure, too.
+- When I was younger, I took life much more seriously.
+- Films and books have been intertwined as far as my growing up is concerned.
+- In India, not enough importance is given to writing for children. And what could be more important than the enrichment of young minds with great literature?
+- There will always be books as long as I am mentally capable of it.
+- I used to consider myself a loner.
+- I like flowers. In my next life, maybe I can be a gardener.
+- Respect the language in which you write. Be kind, develop good vocabulary, and be creative in writing beautiful sentences. Your prose should be your poetry when you write.
+- I can't live in a room without a window.
+- I love to sleep.
+- One of the very first ghost stories I read - and that was in a forest rest house, where it is a bit scarier - was by M.R. James. He is one of the pioneers of ghost stories. And the book was called 'Ghost Stories Of An Antiquary.'
+- All my works over the years have been autobiographical in the sense they reflect some part of my life, although I have fictionalised them to an extent.
+- I like talking to visitors, especially children.
+- I have always discouraged young writers from self-publishing, by which I mean going to a vanity publisher and spending your hard earned savings - say, some two-three lakhs - and getting your book printed. It's not published; it's printed!
+- In my twenties, I wrote a lot of romantic stories in which I always lost the girl.
+- If you enjoy your journey as a writer, you will never find it difficult to write.
+- When I was growing up, I remember having read all the books in the library. I often tried to emulate my favourite writers.
+- I am hopeless with machinery. I could never learn to drive a car except into a wall.
+- Unhappy and unsettled childhood helps in writing.
+- Children haven't changed - the world around them has. Their basic natures haven't changed. They like ice creams. They like to have fun, play games if they get space.
+- There was Uncle Ken of mine about whom I wrote a lot of stories. I can always write stories about uncles and aunts and distant relatives. They have to be distant, though; otherwise, you'll be in trouble.
+- My mother wanted me to join the Indian army, as the army was seen as a decent and respectable career to have. I shocked my mother by telling her that I wanted to be a writer.
+- I won't usually just sit down to write. I'd have done it in my head already. I visualise a story just like a film strip running in my head. I guess that is also a reason why my books have such a visual element to them. And it's what I tell young writers: plan your story ahead.
+- As you grow older, life seems funnier.
+- The transition from an English father to a Punjabi stepfather demanded an adjustment that was far from easy for a 10-year-old boy who had just lost his father.
+- I keep a journal, like many writers do. It helps in writing a story, as you can use an incident from the journal and put in your story.
+- I am not really a city person.
+- It is okay to experiment with language. Writers such as James Joyce, Virginia Woolf experimented with writing, but basically, one must have a familiarity with the language. And to have that, one must respect it.
+- As a schoolboy, I loved Charles Dickens. His 'David Copperfield' has had the strongest influence on me - I looked up to David Copperfield as a role model.
+- Many people told me such convincing ghost stories that I felt that there really were ghosts, though I hadn't seen any. And though I still haven't seen a ghost, I feel that they are all around us; we are just not aware of them being there.
+- I'm a pickle fiend. I like all kinds of pickles: garlic pickle, lemon pickle, mango pickle, jackfruit pickle, you name it.
+- The books that I wrote in my late teens and 20s, the little love stories, they were right from the heart.
+- A lot of school-going children are familiar with my writing. I am basically very much a children books author.
+- A few years after my father's death, my mother sent me to the United Kingdom for 'better prospects' in 1951. Those four years were not easy.
+- I may not have become a good writer, but I managed to make a living out of writing.
+- If I'm really immersed in a story, I try to finish it in a few days. If it's a longer work, then it would take a few months.
+- From the age of 17 through my 20s, I was living on my own, so sometimes I wouldn't even tell anybody it was my birthday. It was not a big thing for me.
+- I've lived in small rooms, flats, growing plants in pots on window sills. I'd have liked to have had a full-fledged garden with all kinds of flowers and plants. I've never had enough money to buy a big enough garden space.
+- I am a very personal writer. I write direct to the reader. I don't hold back.
+- I wrote 'Time Stops at Shamli' in 1956, shortly after 'The Room on the Roof' was published, and I couldn't find anyone to publish it.
+- I fortunately have a good memor, and that helps a lot in the way I write.
+- I don't overwork - a couple of hours a day is fine for me.
+- My desk is right next to my bed. So I sit on my bed. I write in a big notebook which is on the desk. And if I feel drowsy, I just have to slide into bed.
+- It's amazing to dwell in the world of fantasy and fear.
+- I have no real regrets.
+- Whenever I run out of people to write about, I cook up a few ghosts, or they appear before me.
+- Books of exploration have always fascinated me, like somebody going up the Amazon for the first time.
+- In the '50s, '60s, '70s, before television became easily accessible, even the most well-known writers were not recognised. The writers remained mostly an anonymous lot then.
+- When I ventured into writing at the age of 17, I wanted to be a good and successful writer. I just wanted to write good stuff - poems, prose, stories, essays, everything.
+- Jokes apart, I, like many other, am looking for strong and stable government. I don't want any chaotic political situation where the elected government is being toppled frequently.
+- I enjoy the process of writing.
+- Ghosts are all around us. Look for them, and you will find them.
+- If I set out to write 'War And Peace' or 'A Suitable Boy,' I'd be miserable.
+- It's nice to have awards from time to time. There was a time when I had to make a living from my writing, and it wasn't always easy. I value awards a lot - and more so if there is a little cash with them!
+- I suppose in the long run, it's the good work that outlasts the shoddy work, but there's enough room for all kinds of writing.
+- Occasionally, I have written about stories related to crime, but I have never attempted a traditional detective story. So I want to write a true detective story.
+- I've never written specifically for children as such. I write to please myself, and if it is suitable, it gets printed as a children's book.
+- Writing is the only thing I am good for.
+- I am a sleepy fellow. I will take a nice long nap the first chance I get.
+- I am a compulsive writer.
+- I keep a big, fat dictionary with me while writing.
+- Writing for children may have kept me young at heart.
+- I had a bad habit of falling in love with any girl who was nice to me.
+- I use a ball pen because fountain pens are clumsy, and I get ink all over my fingers by the time I finish with it.
+- For the film 'Saat Khoon Maaf,' which was adapted from my story 'Susanna's Seven Husbands,' I did collaborate on the screenplay. I even took a small role in the film, of a priest.
+- No, I don't want to be a brand. Brand means I cannot go out for a quiet walk without tourists and fans constantly following me.
+- I think every writer wants future generations to read what he has written.
+- I think I'm from the 18th century, not even the 19th. I don't even use a typewriter. I prefer longhand, and that's how I submit my manuscripts to my publishers.
+- One has to be ambitious to start writing.
+- I have an excellent memory - for books and authors, that is. I remember all the books I've read.
+- The older you get, the lesser you are bothered by what others think.
+- I was a bookworm in school, and in those days it was easy to get books. Bigger cities had book shops.
+- If you live in America, you need a gun, and I am not very fast with a gun, so I think I would walk out very quickly.
+- Holidays can become tedious without something to read.
+- The ghost story is a popular genre of mine and is particularly adaptable to the visual media.
+- I enjoy writing personal essays in the way of Charles Lamb because it goes back to the school days when I was good in writing essays.
+- Change has to come. It's not always what you'd like. It's what other people like.
+- I have been naturally inclined towards mountains, trees, flowers, and rivers.
+- My first, 'Room on the Roof,' was the longest book I've written.
+- You may not enjoy loneliness, because loneliness is sad. But solitude is something else; solitude is what you look forward to when you want to be alone, when you want to be with yourself. So, solitude is something we all need from time to time.
+- I liked the old comic books, especially the funny ones like 'Popeye' and 'Beetle Bailey.'
+- I get inspiration from a lot of things around me - nature, hills, people, and even insects.
+- Instead of becoming a great shikari, as my mother and stepfather might have wished, I had become an incurable bookworm and was to remain one for the rest of my life.
+- I did all kind of jobs to sustain myself. I worked at a grocery store, in the public health department, and what was then Thomas Cook and Sons. The last job was particularly interesting, but I got fired from it.
+- Yes, I do seek solitude, but I am never lonely.
+- I'm not very good at writing fantasy or even reading it.
+- I've noticed people in India have developed a habit of hugging around people. I don't understand it now. I wanted to be hugged when I was young. Now, if someone wants to hug me, I feel only claustrophobic.
+- I wanted to be a tap dancer when I was very young.
+- I'm rather fond of my awards.
+- I always look for a bookshop wherever I go.
+- If four or five days go by, and I haven't written anything, I feel incomplete.
+- I wouldn't want a film to be made on my life, because I suppose I would only want them to show all the good things about me and hide the awful things, and that wouldn't be a very honest biopic, no?
+- Small places intrigue me. Whenever I tried moving to a larger city, I ran back to the hills.
+- I find it very lucky to be an Indian and living in India.
+- I used to type, but now, typing or working with a computer, I get a stiff neck. So I prefer writing longhand.
+- Solitude helps you reflect.
+- I have been apolitical all my life.
+- The Nehru years were rather very peaceful years. A lot happened in those years: dams were built, five-year plans were made, Chandigarh was built in front of my eyes. Those were the years I grew up in.
+- Sometimes good stories are created while documenting dreams.
+- I do all my thinking lying down.

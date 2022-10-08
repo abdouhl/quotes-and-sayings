@@ -1,0 +1,15 @@
++++
+author = "Bill Mccartney"
+title = "Bill Mccartney Quotes"
+quotes_len = "9"
+description = "the best 9 Bill Mccartney Quotes"
++++
+- For many years, our Messianic Jewish brothers and sisters have paid a great price. Other Jews have rejected them, and the Christian church would require they walk away from their traditions to fit into the Gentile culture. We must face these past wrongs.
+- We'd like to build a highway for healing and unity.
+- Big dreams create the magic that stir men's souls to greatness.
+- When you're born again, your DNA changes. You have the ability to understand God's terms.
+- All coaching is, is taking a player where he can't take himself.
+- I've never wanted just part of the package, part of the prize. I want it all!
+- This type of gathering is unprecedented. The time has come for Christians to publicly affirm our Jewish roots, distinctions and oneness in Jesus Christ.
+- I know many Catholics love God with all their heart. I have genuine respect for anyone who truly has given their life to Christ. We read about Mother Teresa and what a wonderful example she was.
+- I had a born-again experience at the age of 33. As a result of that I found a church where I felt I was being fed properly. I don't say that as a reflection on Catholicism. But once I was born again, I got an evangelical spirit.

@@ -1,0 +1,22 @@
++++
+author = "Lauren Myracle"
+title = "Lauren Myracle Quotes"
+quotes_len = "16"
+description = "the best 16 Lauren Myracle Quotes"
++++
+- I understand why parents worry about books - they're worried about their kids. They want to keep their kids safe. But parents aren't always realistic.
+- I don't shy from controversy. I'm telling stories, and I'll tell whatever story seems like it wants to be told.
+- Being an author of banned books is cool, I've decided.
+- I'm always drawn to the underdogs, to the people whose stories don't get told.
+- Kids need to see their world reflected back to them.
+- I know I seem really friendly, but I'm a closet introvert.
+- Kids are smart. Knowledge is power. Let them figure things out. Don't turn into that grown-up who they won't come to.
+- When guys talk about sex, eyebrows don't get raised. It's different for girls.
+- Ideas matter. The world matters. Our lives matter, and the choices we make as we navigate our lives perhaps matter most of all.
+- Every time I write a new book, I want to push myself to try something different.
+- Whatever you hold onto that you want to do, and that other people tell you you are foolish to want to do - don't give up.
+- Sometimes I worry I'm writing 'Fifty Shades of Grey' for teenagers, but I'm not.
+- Give your kid some credit for being smart - just because they read about something doesn't mean they will do it.
+- What I find cool about being a banned author is this: I'm writing books that evoke a reaction, books that, if dropped in a lake, go down not with a whimper but a splash.
+- God, it sucks to disappoint your parents, even at forty-two years old.
+- It's neither my job nor within my capabilities to save people. But a book sure can try.

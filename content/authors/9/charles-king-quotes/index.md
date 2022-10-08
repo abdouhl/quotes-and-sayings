@@ -1,0 +1,15 @@
++++
+author = "Charles King"
+title = "Charles King Quotes"
+quotes_len = "9"
+description = "the best 9 Charles King Quotes"
++++
+- I think there are some songwriters who are just brilliant who can write and then I think there are some songwriters who can like me I have a problem writing chorus lyrics but I can write a song in a story like that.
+- The gift of song is just like... I think music is one of those true things in this world that is universal.
+- I always sang in church always was in a gospel choir and directed choirs and always performed, but I never thought of it as a powerful thing.
+- I think in church you're raised like God is God and you are here.
+- I have grown in my writing and I care about it now and I know how important it is to write stuff.
+- You know when I really realized like 'wow' what a gift this is was when I sang at camp and a girl wrote me a letter and said the song that I sung kept her from committing suicide.
+- We influence singing but never really songwriting.
+- You can fill this table up with people who are racist, homophobic, Satanist worshippers, sexist and we can be arguing but if you put on a song, I guarantee that people will stop and listen and that's what I love about music, it can bring people together.
+- I know at my church a lot of the times we sung from hymn books and as we got older we started to change with time. I can honestly say that I was never influenced to write for the church.

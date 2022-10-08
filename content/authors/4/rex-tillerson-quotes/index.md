@@ -1,0 +1,67 @@
++++
+author = "Rex Tillerson"
+title = "Rex Tillerson Quotes"
+quotes_len = "61"
+description = "the best 61 Rex Tillerson Quotes"
++++
+- We have spent our entire existence adapting.
+- Volunteering is a way to quickly become part of your new community, make connections, and start to feel at home. That doesn't just benefit the individual. It benefits the company, too.
+- Because we have a society that by and large is illiterate in these areas - science, math and engineering - what we do is a mystery to them, and they find it scary. And because of that, it creates easy opportunities for opponents of development, activist organizations, to manufacture fear.
+- Natural gas obviously brings with it a number of quality-of-life environmental benefits because it is a relatively clean-burning fuel. It has a CO2 footprint, but it has no particulates. It has none of the other emissions elements that are of concern to public health that other forms of power-generation fuels do have: coal, fuel oil, others.
+- You know, oil prices from 2007, on the strength of a very robust global economy and a very robust emerging China, many of you will recall, ramped up to near $150 a barrel. Then we had the financial - U.S. financial collapse. Oil prices collapsed all the way down to $40 a barrel.
+- Flue gas extraction is really, really hard to do. It's not that we can't do it - just not at a cost that anyone will bear.
+- Experience tells us that a good foundation is critical for success in the Arctic and elsewhere. ExxonMobil's Sakhalin-1 project with Rosneft is an example where we have put this experience to work.
+- None of us live in a zero-risk world.
+- We are grounded in the reality of the day and grounded in the technology of the day. Just saying 'turn the taps off' is not acceptable to humanity.
+- Throughout my life and career, I have continually been impressed with the importance of integrity - whether it was growing up as a Boy Scout, working in one of my first jobs as a university janitor, or being a leader in a Fortune 500 company.
+- We go out, we explore, we take risk. And our successes have to pay for all that.
+- The consequences of a misstep in a well, while large to the immediate people that live around that well, in the great scheme of things are pretty small, and even to the immediate people around the well, they could be mitigated.
+- For many years now, ExxonMobil has held the view that the risks of climate change are serious and do warrant action.
+- We have for many years included a price of carbon in our outlook. We put it in as a cost. Everything gets tested against it.
+- Integrity is essential and irreplaceable. It is the most valuable asset for a person, a company, or a society seeking to build and progress.
+- The disciplined approach to pursuing and selecting the most attractive investment opportunities continues to distinguish ExxonMobil. We are long-term driven, and we're patient. And we're not opportunity-constrained.
+- The Common Core State Standards are based on the best international research. They are built on the standards used by the most effective education systems around the world, including Singapore, Finland, Canada and the U.K.
+- In any country when you're going to make significant commitments, you have to look the head of state of that country eyeball to eyeball and say to them, 'I'm going to make this commitment, and I'm counting on you and your commitments.'
+- We don't discount that people's fears are their fears.
+- As a nation, we must unite in recognizing the mounting evidence that the U.S. is falling behind international competitors in producing students ready for 21st-century jobs.
+- Gasoline prices are a direct reflection of the cost of the raw materials to produce the gasoline, no different than any other product that you would buy, whether it's a good or some other consumable, or it's a luxury item. It's all a function of what do the raw materials cost.
+- The fact is the U.S. has enormous resource potential available to it.
+- People go out; they take risk; they find a way to develop resources that were previously not accessible, not available because of technological reasons.
+- Valdez was a devastating experience for our corporation. What emerged from that was a commitment to develop a systematic approach to managing risk in advance.
+- All things come down to your personal relationships.
+- I never saw a bureaucracy produce a single barrel of oil.
+- My philosophy is to make money.
+- By the year 2040, the world's population is likely to increase by about 2 billion people, with also projected economic output will be up about 130 percent versus the year 2010.
+- Your personal integrity, once established and earned, people don't have to think about it. They know. They know you. They know you'll do the right thing every time.
+- Through my career at ExxonMobil, I've been actively involved in United Way campaigns.
+- The Boy Scouts, of course, had an influence on me because I learned about service in the community.
+- Compromise on ethical conduct is not an option.
+- It is the public that is illiterate in science and math, a lazy press, and environmental advocacy groups that manufacture fear for misconceptions about energy.
+- There are a thousand ways you can be told 'no' in this country.
+- The STEM-related positions that U.S. industry needs to fill are not just for biochemists, biophysicists and engineers.
+- At some point, policymakers will get around to dealing with additional policies around climate in ways to incentivize certain behaviors.
+- The history of Iranian foreign investment in the past, their terms were always quite challenging, quite difficult.
+- There is still significant uncertainty around all of the factors that affect climate change.
+- We're all individuals. Lee Raymond is Lee Raymond. He has his style. I am Rex Tillerson, and I have my style.
+- You'd save millions upon millions of lives by making fossil fuels available to parts of the world that don't have it.
+- When coal came into the picture, it took about 50 or 60 years to displace timber. Then crude oil was found, and it took 60, 70 years, and then natural gas. So it takes 100 years or more for some new breakthrough in energy to become the dominant source.
+- Oil demand is going to continue to grow as population grows.
+- There are still hundreds of millions, billions of people living in abject poverty around the world. They need electricity. They need electricity they can count on, that they can afford. They need fuel to cook their food on that's not animal dung.
+- When coal came into the picture, it took about 50 or 60 years to displace timber. Then, crude oil was found, and it took 60, 70 years, and then natural gas. So it takes 100 years or more for some new breakthrough in energy to become the dominant source. Most people have difficulty coming to grips with the sheer enormity of energy consumption.
+- We have been blessed in many respects with the explosion of the development of shale gas resources here in North America. It's both U.S. and in Canada.
+- We're only going to invest our shareholders' money where we think they can get the kind of returns they expected when they invested their money with Exxon Mobil.
+- We believe addressing the risk of climate change is a global issue.
+- I'm not disputing that increasing CO2 emissions in the atmosphere is going to have an impact. It'll have a warming impact.
+- We've been hydraulically fracturing wells in large numbers since the 1960s, first developed in 1940.
+- Changes to weather patterns that move crop production areas around - we'll adapt to that. It's an engineering problem, and it has engineering solutions.
+- Energy independence and energy security are really two different things.
+- We've recognized that natural gas would be the fastest-growing of the conventional fuels: oil, natural gas, coal. And so, we see the important role that natural gas will play globally and, more importantly, the important role it will play in the U.S. in terms of meeting future energy demand.
+- You'd be surprised how many times I've had to have that conversation with heads of state who want to say to me, 'Well, look, I know you can have some influence on the president. I need you to go back and tell him this.'
+- In conventional oil and natural gas production, you always produce a lot of formation water, and it's crummy water. It's real salty. It's got heavy metals in it. It's got bad stuff in it.
+- The size of the resource prize has to be large to support the risked capital that has to be put in place. The Arctic is one of the few places left where we believe those opportunities exist.
+- We recognize that greenhouse gas emissions are one of the factors affecting climate change.
+- When I was growing up, I was regularly involved in local activities such as food collections, food kitchens, and other initiatives.
+- You can be afraid of a lot of things that you don't understand.
+- In the business world, we can point to instances when a lack of integrity has bankrupted entire companies - in sectors as different as finance, telecommunications, manufacturing, and energy.
+- If you ask the average person on the street about U.S. energy and U.S. oil in particular, our situation, most Americans would say, 'Oh, we're energy poor; we don't have enough oil; we don't have enough natural gas.'
+- More and more jobs are applying cutting-edge technologies and now demand deeper knowledge of math and science in positions that most people don't think of as STEM-related, including machinists, electricians, auto techs, medical technicians, plumbers and pipefitters.

@@ -1,0 +1,63 @@
++++
+author = "Betty Gilpin"
+title = "Betty Gilpin Quotes"
+quotes_len = "57"
+description = "the best 57 Betty Gilpin Quotes"
++++
+- I loved musicals because I felt like breaking out in song makes so much sense to me because it's the stakes of how you feel inside!
+- Everyone has a dormant wrestling character in them that is pretty easy to tap into.
+- If I'm brought the wrong order at a restaurant, I don't send it back, because I don't want the waiter to get mad at me.
+- I'm like Elaine Stritch everywhere.
+- I find myself on Yelp typing in 'the best 'blank' all the time: best cheese, best ice cream, best pizza.
+- Female friendship... I think you have friendships that come and go, and then there are ones that the girl becomes a part of your bones.
+- I started doing plays in New York while I was at Fordham, but I did graduate by the skin of my teeth.
+- I ate cucumbers and saltines - not because I wanted to look a certain way, but because I was so sad my appetite disappeared.
+- You would think that wrestling has so much to do with being aggressive and having a big ego, and it's exactly the opposite.
+- My original perception of wrestling was not a very positive one. I didn't understand it at all, and I thought it was kind of silly and ridiculous. But as I got to know it, it was sort of like how people used to talk about musicals, to me, when I was younger.
+- In previous roles, I have thought of my body as 'Betty's body,' and I try not to eat too many dinner rolls - please don't fire me! I'll make crazy choices from the neck up, but from the neck down, it's just me trying to suck it in. And in 'GLOW,' my whole body was required to do a function and not just to look as good as possible in a costume.
+- 'GLOW' is the first time I feel like I've been able to have a theatrical experience on the small screen: to really be able to marry the two. And I love it.
+- Getting to work with Edie Falco and watching her be a quiet presence - but a very powerful presence - and so brilliant and free? That was the first person I saw where I was like, 'I want to emulate that.'
+- Growing up, I was a self-loathing Igor who carried the queen's books. My job was to be the sarcastic sherpa, quietly providing the farce and adoration, then becoming part of the wall when cued.
+- When I first thought about wrestling, I thought about it as this foreign thing that I would have so much trouble accessing, and then, day one of researching it, I was like, 'Oh, I know what this is! This is theater. This is playing pretend.' It was really easy to connect to.
+- I went to theater school where there is a lot of holding each other's faces and crying, and a lot of kid gloves.
+- I do Bar Method - it's, like, you're there for an hour, and you get everything, and you're done.
+- I try to cheat up. If I'm going to have something that's 'off the plan,' then I want it to be the best piece of bread or the most amazing ice cream.
+- There's nothing fake about flipping over and landing on your back.
+- With theater, the time commitment and the demands on your body, your personal life, and your wallet are crazy. It's four months of feeling like you're running a marathon and getting paid in hugs.
+- Wrestling was the first time I thought, 'My leg is the thing that functions in this way to do this move, to get from A to B.' Instead of, like, 'My body's purpose is to suck it in so the male showrunner thinks it's attractive.'
+- My mom used to play a lot of super character-y parts... so I was sort of raised to be a clown.
+- When you're an actress - or just a woman - a lot of the exercise classes that are offered are so sort of male gaze-skewed. It's all working out for the beach and not for function at all.
+- I would do musicals in high school where there was dancing, and I would sing my verse, and then they would choreograph it so when I would take an eight-count to back up to the back of the stage while the other dancers covered me up because my body was totally... I was always in newborn-deer mode.
+- Every time I get catcalled, I fantasize about being able to do a wrestling move on someone.
+- I think that it's our job to sort of band together and say, 'OK, what are the ways the male gaze has seeped into your brain and is affecting the way you treat yourself? Let's work together to eliminate that.'
+- I went to the Women's March in D.C. on January 21, and I, looking around, was thinking, Wow, something that bonds all of us is that we've been silent-screaming in our bathrooms, alone, in between sarcastic lunches.
+- There's not a ton of roles out there for the insecure, loud Britney Spears type.
+- Sometimes, daily life doesn't match the high stakes that you feel! And I feel like that is wrestling. Wrestling actually makes sense to me.
+- Being an actor, I've thought about being in the male gaze.
+- I think I did four 'Law & Order' episodes. I did two 'Criminal Intent,' one mothership, and one 'SVU.'
+- With all the stuff that's going on in the world - after I watch the news, read the news, and listen to my podcasts, at the end of the day, am I really going to watch an episode of murder and time travel?
+- I spent a lot of time in college studying theater of the absurd and Beckett and Genet, and then I spent a lot of time after that at 'Gossip Girl' auditions, thinking, 'Wow, I really wasted my money.'
+- I think every actor fantasizes about a show where you get to play several characters in one piece and not just Detective Bluestone asking what time you were at the station.
+- I wasn't allowed to audition for anything professionally until I was - I guess I cheated a little bit and started when I was in college, but I graduated! Barely.
+- I have learned so much personally from wrestling, and it has really bled into my daily life.
+- I fill my business emails with smiley faces and question marks so that I don't sound too severe.
+- Both of my parents are actors, so I grew up backstage with them. I would see some of their shows 30, 40, 50 times. I would have it all memorized. I loved it.
+- I'm on a billboard in Times Square, but my bathroom is still dirty, and I have toothpaste on my face.
+- When we did 'Endgame,' we were all hunched over and making the craziest sounds. Then I graduated and went right into auditioning for 'Gossip Girl' and things like that, where, as an actress, you're required to act from the neck up and, from the neck down. It's a presentation of your birthday-suit self.
+- I was scared to film 'GLOW' for many reasons. As an actor, as a wrestler. It was just a very scary and intimidating experience.
+- I'm usually told to do a take where I do less with my face.
+- To get health insurance, you give up your dignity - that's what I thought being an actor was. So when 'GLOW' came along, I was shaking reading it because I hadn't really allowed myself to dream of a show like this.
+- I often feel like a character actress trapped inside the mean, aging Barbie's body.
+- I kept feeling like there were no parts for girl who want to play to the mezzanine.
+- I've done plays where you get into the run and can go to auditions during the day, or can have lunch with someone, and then you go to half-hour and show up.
+- Wrestling introduced me to the idea that my body has a purpose besides trying to look five years younger for the first time.
+- Nothing is more theater-based than wrestling. It's Greek-tragedy-level theater.
+- When I read what 'GLOW' was about, it just felt like something where I could make as many faces as I wanted, and it would totally make sense!
+- I won't name names, but sometimes a TV set can be a shame-and-fear obstacle course for an actress.
+- My attention span, when it comes to exercise, is pretty minimal.
+- The more power you can find in yourself and your own surety and identity is actually the best output that you could give to your friends in relationships.
+- The rule was I had to go to college, and I couldn't even go to theater camp.
+- Wrestling really is kind of the highest form of theater.
+- I grew up in a lot of stage managers' booths, memorizing the lines. I'm sure I was the most annoying child in existence.
+- The smell of a perm is this special kind of Chernobyl-grave soup smell.
+- 'GLOW' was the first time that, from head to toe, I was asked to use my body in a functional, powerful way as an actor - and that felt amazing.

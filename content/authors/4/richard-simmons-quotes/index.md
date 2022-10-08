@@ -1,0 +1,86 @@
++++
+author = "Richard Simmons"
+title = "Richard Simmons Quotes"
+quotes_len = "80"
+description = "the best 80 Richard Simmons Quotes"
++++
+- I have loved deeply. I have lost intensely. I will never love again. I get that love by people who care for me.
+- I've never lived in the visual world. I live very much in an emotional-contact world.
+- I have 40 pounds to lose. It is not the fault of the fast food people, and anyone who's trying to sue the fast food places needs a therapist, not an attorney.
+- Sometimes it's just 'Oh my God, I love the taste of fried oysters on French bread with mayonnaise and an order of French fries.' I'm not going to lie to you - I deal with that temptation every single day, many times.
+- I used to think that if someone gained their weight back, it was my fault, but all I can do is be God's motivator and try to instill the motivation in others so they do it themselves.
+- I think it is very important that you like yourself for who you are and not want to look like anyone else. You also have to understand, many people have had cosmetic surgeries in order to look the way they look. So why look like them when you can just look like you? And there is nothing wrong with looking like you.
+- I don't talk about my personal life, and I don't talk about death.
+- I suffered from eating disorders when I was just a kid. I did not like me or the way I looked. But back then, you could not tell anyone.
+- Everyone in this world is somehow connected. So why not just be nice to everybody.
+- I'm a real paradox. Because I'm a very serious person, and I take my work very seriously. But I wrap it up in a court jester and a clown and make people laugh and make them feel good about themselves.
+- Well mine is not gimmicky - it is the 6 food groups that God made, and exercising every day. Trying to think positively.
+- People have been frying foods since Jesus was on this planet, and there is always going to be greasy, fried, salty, sugary food. It is up to the individual to walk in and say, 'I don't want those fries today.'
+- I start phone calls at 4 A.M. to cheer people up. The housebound, people in the hospital. People who, after decades, still can't get over what happened 10 or 15 years ago.
+- Our children are obese, either have or being threatened by diabetes, high blood pressure, high cholesterol, and not socially adjusting properly to others because of a lack of fitness.
+- No tricks, gimmicks, special pills, special potions, special equipment. All it takes is desire and will.
+- Even though my work is whimsical. I have a very serious job. I cry more than I laugh.
+- You have to make your own decisions. That's what the freedom in America is all about.
+- I started my own class for people like me who can't find any place else to go.
+- We're all in trouble, and we all need to sort of pick up the pieces and start to exercise more and really be careful with the food.
+- My father offered me a dollar for every pound I would lose as a kid. It didn't work. And it doesn't really work in the long run. Who are you competing against? It's you. You need to be doing this for you and only you.
+- Everyone has a story that makes me stronger. I know that the work I do is important and I enjoy it, but it is nice to hear the feedback of what we do to inspire others.
+- My parents always told me to be myself. I was always funny and silly as a kid. And I would always make them laugh. And they always told me to dream big and follow those dreams.
+- But if you pick up every other magazine, it is the peanut butter diet, or the cabbage soup diet, and then you go to the radio and you hear that you can drink some solution and you will lose weight overnight. It just does not work that way!
+- If your oxygen mask drops down, it's time to take a breather!
+- I have rules about eating, exercising and rules about staying positive. And these rules are sacred to me.
+- How do you get motivated? By knowing your worth. Americans do not know how worthy they are. You deserve to be healthy, but a lot of times, people have, as childs been told - as a children been told that they're no good, that they're never going to be anything else.
+- One day I may be meeting you and hearing how you've changed your life by saying, 'Farewell to Fat'.
+- I could be hit by a Sara Lee truck tomorrow. Which is not a bad way of going: 'Richard Simmons Found in a Freeway in Pound Cake and Fudge, With a Smile on His Face.' Let's face it. We don't know anything.
+- When you gather up all the balls of life that you try to juggle, it is a very difficult thing to try to focus in on taking good care of yourself. But that's why God invented me - so I can come and teach and preach and make people laugh and give them some education so they can start liking themselves better.
+- We overweight people, we say terrible things to ourselves. Oh, you wouldn't believe it. 'You fat pig. How can you do this? You're a disgusting jerk.' And that gets you nowhere. That gets you right back into a bowl of pasta fregula.
+- It's not nice to make fun of people with issues.
+- When I go to bed at night, I ask God to give me another day; I ask him to keep me strong and make me a good teacher and to keep spreading this right word.
+- Most workouts are way too aggressive. Thousands of lunges wear out the body.
+- This is my theater. This is where I can sing and act out a play and do sit-ups at the same time.
+- I spent my childhood eating. The only exercise I got was trying to twist off the cap of a jar of mayonnaise.
+- Comedy, not screaming at someone, can make someone lift their legs higher. There is a way to do a push-up and a sit-up, and it doesn't have to be so complicated. Everyone is putting a difficult twist to it and making you do way too much.
+- People are still grasping for the miracle, and unfortunately, there are no miracles, if you do not exercise for a year, and let your body remain dormant, then you will gain weight.
+- Puberty for me was graduating from Thousand Island salad dressing to Caesar salads. It was like going from hot dogs and hamburgers to beef stroganoff, or from ice cream in a cone to creme brulee.
+- I have been up to my head just with calling people, I call about 50 to 100 people a day.
+- I do not want any child in America to have my childhood because it was taken away from me because I just wasn't good enough; well I am good enough now.
+- You are one of a kind and unique. Never forget that.
+- In high school, I could get beaten up all the time, or I could be something better. I became the court jester.
+- No one is perfect... absolutely no one. Like precious stones, we have a few flaws, but why focus on that? Focus on what you like about yourself, and that will bring you happiness and peace.
+- Stop trying to find something in food that will make you feel better. I used to have eating disorders; I'd binge and purge all the time: fried oysters, po' boys, muffulettas, beignets, coffee and doughnuts. I tried to medicate myself with food when people made fun of me or hit me with a bat in school. I'd always turn to food.
+- People treat me like family, 'cause I've always treated them like family.
+- You shouldn't make fun of people who have issues.
+- Right now many schools have no recess. Most schools have no PE.
+- Count your blessings. You are one of a kind. There's no one in the world like you. You are amazing.
+- I get tired of negativity in our country. I get tired of people who only want to know dirt. I get tired of people who don't believe in themselves.
+- I consider myself a court jester - motivator.
+- I hope in my lifetime we can all continue to laugh at ourselves and not put down anyone for what they weigh.
+- When I lost my weight, I went and bought about 15 different types of underwear to see what would look good on my new body. It's exciting!
+- My way is the sensitive, emotional way, because that's who I am. I try to be the clown and court jester and make people laugh. At the same time, you have people in the hospital who have had gastric bypass or lap-band surgery, and they still have to work out. If you don't work out and eat healthy, you'll look like a melted candle.
+- For my workout, I'm up at 4 A.M. I say my prayers, count my blessings, and I work out right away. I just get it done.
+- The real pride, the real present, is your health and your longevity. My whole career, I have never done anything where competition was involved with weight loss.
+- My persona has always been what a man was never supposed to be. Outrageous, gregarious, crazy, silly, funny.
+- My nickname is Dickie Jukebox. I own thousands and thousands and thousands of songs.
+- When I was growing up, I did not exercise at all. I was raised in the French Quarter in New Orleans. If I saw someone running, I would call the police because I thought they stole something on Royal Street.
+- I've always practiced this: Love yourself. Move your body. Watch your portions.
+- I get an abundance of e-mail every day, some say 'dear Richard, can you call my husband, he weighs 400 pounds...' or 'my 14-year-old is 200 pounds...' or 'I just got divorced, no one wants me, I am 500 pounds.' So I pick up the phone and I call people.
+- A kid who moves is a kid who learns.
+- Every morning when I get up, I ask God what he wants me to do, ask him to lead me to the right people to help them.
+- I'm such a huge fan, and I've done classes of all Lady Gaga music. And she's just someone who evokes freedom and love for her fans and passion in what she does. Lady Gaga, I'll take you out for a salad anytime.
+- I don't have to teach anymore, I don't have to work anymore, God has been really good to me.
+- I don't know about you, but every time some joker points me out as I walk through an airport wearing extra-small Dolfin shorts, a tank top and leg warmers, I get a little upset.
+- Truthfully, everyone knows how to eat right. They know the difference between oatmeal and a jelly cream doughnut. They know how to walk. Everyone has this in their brain. When I started, we didn't have all this knowledge.
+- Number one, like yourself. Number two, you have to eat healthy. And number three, you've got to squeeze your buns. That's my formula.
+- Work hard, take care of yourself, and you'll be just fine.
+- I put a spell on people so they don't know they're working out... An enchanting spell, where they just don't think about it, or over think it, and then at the end they go, 'Wow, I feel good.'
+- When you're feeling down, sad, lonely, negative, you don't want to take care of yourself - and the weight problem and the diabetic problem and the heart attack and stroke problems and high cholesterol set in.
+- There are sacrifices you have to make. I don't have a lot to offer one person. I have a lot to offer to a lot of people.
+- I'll tell you who makes me laugh, in a good way, and I'd love to have a date with her: if I could just have a salad with Lady Gaga? This would be my - I would almost probably faint.
+- I show them the funny part, the silly part, the laughing part, the crazy part and then the really deep, deep part where I'm talking from my heart to these people. Because I've been through everything they've been through.
+- I'm not into any show that makes people compete when they lose weight.
+- Ninety percent of people who lose weight gain it back. It's very sad.
+- Take a moment every day to find peace. Pull over to the side of the road, turn off the radio, and find peace.
+- Yeah, but I do call them back and follow up. Most people talk at overweight people, I talk with them.
+- I've been going to shopping malls since I was on General Hospital.
+- When I go to teach, that's not my workout. It's my show. I'm 134 pounds - I'm a teeny thing. I work out 11/2 hours a day and eat 1,600 calories. I can't stray because I have to fit into these Dolfin shorts!
+- Miley Cyrus, like all of us, needs to be loved. We all come from complicated parents... I understand her, and I love her, and I think things will be different with her. But you know, in the music business, sometimes you have to shock a little.

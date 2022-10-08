@@ -1,0 +1,67 @@
++++
+author = "Ruben Loftus-Cheek"
+title = "Ruben Loftus-Cheek Quotes"
+quotes_len = "61"
+description = "the best 61 Ruben Loftus-Cheek Quotes"
++++
+- I feel like a first-team Premier League player at Palace.
+- It was tough mentally at Chelsea, obviously not getting the game time. I had to be really patient and have the mentality to still train right and do all the right things.
+- I don't really let the pressure get to me.
+- My goal simply was to have an impact, to try to make a contribution and help the team win. I wasn't thinking, 'I want to play well, so I start the next game.' But every kid's dream is to play in the World Cup. Watching at home with your parents when you're 10 years old, you never think you'll be there in the future.
+- I want to work really hard.
+- I'd had success with the junior England teams.
+- Everyone's journey is different in football; no one's the same.
+- As a youth player, I played for England and got used to it, and I have just to carry it on to the bigger stage.
+- All I do is try to do my best, and I try to enjoy my football as well.
+- Chelsea is always hard to break into, but I believe in myself, and if I work hard, then hopefully things will go well.
+- I know how to deal with pressure.
+- Ever since I was in the Chelsea academy, I've had that awareness that people were saying I would be the first one to break through since John Terry. I believed I could, but the opportunities didn't quite come for me.
+- I'm getting more confident the more I play.
+- It's been so difficult to go from playing every game then get to the seniors and not be given a chance. It's really difficult mentally. There's only so long you just enjoy training with top players.
+- Since I was a young kid, I have always been calm on the ball. That comes down to awareness as well. When you have good awareness and you know what's going on around you, you don't need to panic. There is no point. It just makes things worse. You have to stay calm, cool, and collected.
+- A big side of football is reacting to what happens.
+- I definitely don't want to be compared with Dele anymore.
+- To compare players at different stages in their career shouldn't happen.
+- I want to play. I want to play as much as I can.
+- I'd say Eden Hazard is the best player I've trained with. But the best trainer has to be Frank Lampard. And John Terry, too. Their attitude to training. They train properly every day. They really stood out for me.
+- I'd been at Chelsea for a while and progressed quite quickly until I got to the first team, and then it was different. I was used to playing every minute of every game, but when you get to that level, the step up is massive. There are world-class players in front of you, and no matter how talented you are, breaking in is difficult.
+- Playing at the World Cup stage excites me.
+- I'm confident in my ability, and I just try to enjoy myself when I play.
+- Playing with some of the best players in the world, you're going to get better every day.
+- My dad produces good footballers.
+- Training has always been top level. No matter if it's at a World Cup or not, training's been really good and at a high level.
+- Managers are under pressure and maybe don't want to take a chance on a young player.
+- I was 14, but it was on a thing called day release, so we took the day off school on a Wednesday to train and do school at Cobham, and at the end of the day, we got asked to train with the first team just because of numbers. There was a drill where it was like a 1v1 drill, and I got partnered with Drogba. I was going 1v1 with Drogba when I was 14.
+- It's important for me to work hard and give 100 per cent in training to try to improve.
+- As long as I get an opportunity, with my ability, I can do well. My England debut was an opportunity for me to show that, and I was really happy with how I did.
+- I do some yoga, but it's just about managing my back because that step up physically to men's football is big. I know I look big and strong, but it's still hard on my body. But I'm feeling stronger and stronger the more I play.
+- I believe that if you do all the right things, in time, you will get your opportunities.
+- Any game in the World Cup is a tough game. The atmosphere brings a lot out of both teams.
+- Every game means something, the supporters are fantastic, and since I've come to Palace, I've learnt to fight as a team and for the three points.
+- Zidane was just so majestic on the ball, relaxed. He oozed class, and I loved watching him. I remember France against Brazil in 2006. One of those game, I just couldn't believe the class of him.
+- At Palace, I feel like a first-team player, and I have got the opportunity to play every week.
+- It's hard to compare the faith of Gareth Southgate and Roy Hodgson and my lack of chances at Chelsea because it's such a big club.
+- The experience of being a Premier League player playing every week is just massive.
+- Arsenal-Chelsea games can go either way. They are always competitive and physical and really good games technically.
+- It's tough being at Chelsea. I work hard every day in training. It's a massive club with really good players, so you don't get the opportunity every weekend.
+- It's hard to keep training at your best, but I made sure I did for when the time came, or when I did get opportunities like at Palace.
+- I've trained with some top players at Chelsea, but sometimes training is not enough.
+- The more you play, the more you feel part of the squad, and then, in turn, you end up playing better. I think it's a psychological gap as well - if you don't think you're a first-team player, then you won't be.
+- I realised to keep improving, I needed to play more. It wasn't easy not getting many chances, but I knew I just had to keep working hard in training and take the opportunities when they came.
+- I'm glad I came to Palace because I am getting the game time I wanted. I am also learning to fight with some good players.
+- I'm confident in my ability that I can do well wherever it is.
+- I'm not one to bow under immense pressure. I know how to deal with it. As a youth player growing up and playing for England, you deal with it then and get used to it. You just carry on into the bigger stages, and it has become natural to me.
+- Coming to Crystal Palace, I'm really excited to be playing. There's still massive competition here.
+- I'm not afraid of any competition. I'm not going to be intimidated by any player or team. That is fundamental in football if you want to do well.
+- I've really enjoyed myself and the time I've had on the pitch, the opportunity to play for England.
+- Games and training are completely different.
+- It was amazing to be playing at Stamford Bridge with the stadium full.
+- I really liked watching Thierry Henry and Zidane, especially Henry in his Arsenal days.
+- I won't be intimidated by any player or team, I think that is fundamental in football if you want to do well.
+- I had problems growing up. I had a sudden growth spurt at 15 or 16, and I got a lot of injuries as a result. I gained all this muscle, and my bones couldn't cope. I used to get so tired.
+- I don't understand what's going on behind the scenes fully, but Chelsea's a massive club, and I understand why chances don't come so often.
+- When you don't play, you really feel the difference of what matches give you. The match-sharpness, the fitness. It's what you need to progress.
+- I do understand Chelsea are a big club, and there is always pressure on managers to win games and trophies. So I understand they might not be willing to take a chance on someone at a bigger club.
+- It was tough, mentally, at Chelsea not getting the game time, but I had to be really patient and have the mentality to still train right and do all the right things.
+- You can only improve so much in training.
+- Always be confident on the ball and have no fear when going out on the pitch. That is one thing young players need to have in their game to develop and play their best football, so that is what I do.

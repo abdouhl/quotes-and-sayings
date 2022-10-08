@@ -1,0 +1,27 @@
++++
+author = "Lee Cattermole"
+title = "Lee Cattermole Quotes"
+quotes_len = "21"
+description = "the best 21 Lee Cattermole Quotes"
++++
+- I'll always hold Middlesbrough close to my heart. I'll always remember my time there.
+- Sometimes you forget that you are people's hero as well. People do look up to you and I'd forgotten that because, to me, I am just a normal lad.
+- That is what I love about golf, you can go play somewhere where all the greats have played.
+- If you ask any footballer, if you haven't won a game all season you're not going to be confident.
+- You've got to play with passion and spirit and I will always roll up my sleeves and give it a good go.
+- I've always enjoyed playing there. As you drive into Newcastle you see the stadium and you get a buzz. It's a good feeling.
+- As I got older I started doing what I wanted. I enjoy my life now. Age helped; people change a lot between 17 and 30.
+- Gutless is a strong word, do you know what I mean? It doesn't take a lot of guts to sit behind a laptop at a match and write it.
+- I've got goals I want to achieve in my career and I'm working towards them every day.
+- Every footballer enjoys having the ball at their feet. There are times in training you find yourself without the ball. I enjoy that side of it as well. If we can spend more time working with the ball then everyone will enjoy it.
+- I always give my all and I don't like losing. In fact, I hate losing.
+- If things don't go well, the manager is on his way because it's such a blow if you drop into the lower divisions.
+- The hardest thing for young footballers is that you start earning money and you can start copying other players.
+- There was a rule for the under-13s at Middlesbrough that you were never allowed to swear. If you did, the manager had to take you off as punishment. But I couldn't stop myself. I'd just get frustrated, I guess.
+- There's two sides to the game, and you have to do the ugly side as well. If you're getting beat, and you're conceding the goals that we're getting beaten by, then it's because you're not defending and shutting people down well enough.
+- There was a little spell when we had no real leadership at the top but we've always had quality people here, lovely characters to whom Sunderland means an awful lot.
+- I've played against a lot of the guys who have got into the England squad - Scott Parker, Jimmy Bullard, people like that - and I feel like I'm holding my own.
+- The main reason I went on Twitter was to look at golfers like Lee Westwood, Ian Poulter and Rory McIlroy and see what they are up to.
+- I always felt capable of playing at the highest level. The biggest disappointment is that I've had a lot of injuries.
+- When I was a kid at Middlesbrough, we had the best captain ever in Gareth Southgate who was absolutely brilliant.
+- Playing in front of 40,000-plus crowds will be brilliant.

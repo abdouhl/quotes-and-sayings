@@ -1,0 +1,28 @@
++++
+author = "Chaka Khan"
+title = "Chaka Khan Quotes"
+quotes_len = "22"
+description = "the best 22 Chaka Khan Quotes"
++++
+- I've always struggled so much just to appreciate myself.
+- In my thirties, I felt I had hold of one of the reins some of the time.
+- Walking through this life really is walking through fire.
+- I love to sing. It's the easiest thing for me to do.
+- One of the album's songs features Mary J. Blige, but I don't want to talk too much about it yet. I think you will hear the music that's been playing in my head when it comes out.
+- Well. I'm probably not loving myself like I should, but I'm really trying.
+- I remember seeing the movie 'To Sir With Love' when I was a little girl.
+- To me, this degree was an acknowledgment of my work in music.
+- If I love a song, I make it mine.
+- There are a lot of people I would have liked to have collaborated with, and would still like to.
+- When I was in my twenties, it felt like I was riding wild horses, and I was hoping I didn't go over a cliff.
+- I'd been in a vicious cycle and circle of people and couldn't see my way out. So I picked myself up one day about 15 years ago and moved where I didn't know anyone.
+- Being a singer is a way for me to get to a platform to do more.
+- I mean, I'm not unhappy, but there's still so much I want to do.
+- I think the whole reason for my life is in there somewhere.
+- My philosophy is familiarity breeds contempt.
+- I like to work spontaneously.
+- Getting a degree, being on Sesame Street... those were like real accomplishments to me.
+- You know, it's just tough to get together and do work with somebody.
+- I'd like to work on putting art programs back in schools.
+- But really, we also need to learn how to love one another as women. How to appreciate and respect each other.
+- Everyone in my family sang, and we would always sing these songs.

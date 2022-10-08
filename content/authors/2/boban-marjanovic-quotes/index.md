@@ -1,0 +1,61 @@
++++
+author = "Boban Marjanovic"
+title = "Boban Marjanovic Quotes"
+quotes_len = "55"
+description = "the best 55 Boban Marjanovic Quotes"
++++
+- It was tough to play a villain. But if you need me acting, I can do that for sure.
+- After I finish my basketball career, I join the movie stars.
+- I like to have fun. I don't look for it. If it happens, it happens.
+- If I play one day, one day not play, I'm good.
+- When you grow up, if you eat soup and you fill your body, you don't need to eat anything else. Basically, it can be your diet. A soup diet.
+- I had a big step here in San Antonio, good help, great work. I learned a lot. Everybody helped me, great and smart people. They helped me a lot and made me better player.
+- I think pasta is really good for me. Maybe not so good if you're trying to go on a diet, but it's good for me.
+- Everybody has a weakness. I don't want to say mine. Everybody must work on something, but I know my stuff and what I must work on.
+- I am professional and not just in basketball.
+- I have long arms.
+- I think the mindset is supposed to be not who will play on the court, but can you be prepared yourself, and set your mind that you will be working all the time? You know when you come into a game, you want to help a team and do your thing.
+- I try to be useful.
+- It is not about just one player, it is about the whole team.
+- I'm just a person. I want to help people.
+- I love being big.
+- Every moment I spend in Philly, it's amazing. The city respects us, respects sports, respects hard work.
+- Every meal I want to start with soup.
+- People notice me and I'm thankful for that all the time.
+- Every once in a while you must put in hard work in both ways. If you're born with skills, you must keep it going to build to be perfect. If you don't have it, you try to work to improve your shot. I think I do both. Some things I improve, some things I'm born with.
+- I like to play tough and strong every time the team needs me.
+- I try to help my teammates, and they help me with the offense. It's good. We play together, and they use my height, and I feel comfortable when I go out on the court.
+- Life is great.
+- I am lucky to do what I do and enjoy life.
+- I think I have shaken more hands in my life than anyone else.
+- I've improved myself. I feel much comfortable in my body.
+- If I'm happy, it's because I have a group of people that's fun to surround myself with and everything.
+- That's why big guys exist. It's our job to protect the paint. It's our job to rebound. And it's our job to get the easy points.
+- Everyday I eat some soup. This is part of our culture - our mommies and grammies make it, and at any restaurant in Serbia, you can go in and find some soup. There might be minestrone, butternut squash, chicken noodle soup, tomato soup, mushroom soup, lamb soup. Whatever you can find, you can make a soup with that.
+- I really don't like too much of the commercial acting in a lot of commercials.
+- I'm really living my dream.
+- I cannot finish a meal if I do not have a good dessert. But when I say good, I mean it has to be really good. And it's usually small stuff - a piece of candy, crepes, some apple cobbler. No cake.
+- Some people are born with talents, some people have to work on that.
+- You never know what is a good decision, but you have to believe you are making a good decision.
+- I come in the game to help my teammates and protect the basket.
+- I'm scared to go to library. I'm scared John Wick will show up and break my leg again.
+- Sometimes just to be there, my size helps me to protect the basket.
+- You can't relax on the court with Luka Doncic. Even if you're not open, he can make Luka magic at any moment - throwing a perfect pass that somehow lands in your hands. Every game, he debuts a new move. It's crazy.
+- I want to help my teammates. I try to bring good defense and not bother guys who can score.
+- I'm different than anybody a little bit. My size is different.
+- Sometimes you win and sometimes you lose, but the mind has to be ready for the next game and get focused for the next game and helps you for next win.
+- When you hear the fans, hearing everyone cheer your name, say something good to you, you feel awesome.
+- I'm a big soup guy.
+- If the team is winning and we're playing really good - everybody is part of the team. Everybody is a small part.
+- I'm pretty tall, you know.
+- Basically, I come from other planet. Like Superman, from Krypton. I don't show my power because I want to play basketball.
+- I'm honest. I've always been a fan favorite. Everyone wants to shake my hand. People give me high-five. I start to meet my friends like that.
+- Every time an opportunity comes, I'm ready to play.
+- I work, everyday.
+- Everybody has good and bad days.
+- I can eat any soup, but it just has to have a nice taste. It's like chocolate - if you eat a dessert at the end of the meal, you want the dessert to be perfect.
+- We try to enjoy every moment.
+- When I'm in the game, in the paint, I try to use my height and help the team.
+- Life teaches you to go positive every moment in your life.
+- I really enjoyed being one of the fan's favorites.They give me extra boost, they give me extra power. There was no need to warm up my body. When you heard that, you're ready to go in the game, ready to roll.
+- I don't like cakes.

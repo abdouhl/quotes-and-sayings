@@ -1,0 +1,105 @@
++++
+author = "Adam Cohen"
+title = "Adam Cohen Quotes"
+quotes_len = "99"
+description = "the best 99 Adam Cohen Quotes"
++++
+- Mississippi's loose campaign finance laws allow lawyers and companies to contribute heavily to the judges they appear before. That is terrible for justice, since the courts are teeming with perfectly legal conflicts of interest.
+- Amazon is holding its own because the service it provides - offering millions of books and other items quickly and easily from home at any hour of the day or night - is a real one, and one that was impossible before there was an Internet.
+- In zombie horror, the juxtaposition of the calm world of the living and the menace of the undead inspires terror. In zombie comedy, like 'Pride and Prejudice and Zombies,' it is played for laughs.
+- There is a lot of talk in conservative circles about judicial modesty and deferring to the political branches. That view of judging often overlooks the important role that courts have in protecting people's rights. But if there was ever a time to defer, it is when Congress is protecting voting rights in the exact way the Constitution directs it to.
+- There was a rule, back when I was an education lawyer in Alabama, about visiting public schools: always go on a rainy day so you can see how badly the roofs leak.
+- DMs are a lot like email - and should have the same privacy protections as a mailed letter.
+- Twitter, Facebook, and other social media outlets have a great deal of information about all of us - and the government wants to be able to see it.
+- 'Hard Times' does not romanticize the Depression, but at least a few of Mr. Terkel's subjects managed to find silver linings.
+- Lawsuits prod companies to make their products safer.
+- The gap between being a bad person and being a criminal is often wide.
+- A little-appreciated downside of the technology revolution is that, mainly without thinking about it, we have given up 'locational privacy.'
+- The whole New Deal was in a sense just a series of public options, some more optional than others, that offered government as an alternative to the often-flawed private market.
+- State assaults on the separation of church and state are nothing new.
+- As long as there have been elections, there have been attempts to keep eligible people from voting.
+- It makes sense to have cameras in places where terrorism and crime are of particular concern - such as in Times Square or near major bridges and tunnels. It would be more troubling to learn, however, that the government has focused cameras on the front doors of our homes just to keep track of our comings and goings.
+- Republicans and blacks had an unlikely alliance around 'max black' after the 1990 census. By concentrating black voters in some districts, the strategy elected a record number of black congressmen in 1992. But the remaining 'bleached' districts were more likely to elect white Republicans.
+- It is not hard to see why the FBI wants wiretapping backdoors. It would certainly make its job easier. But rejiggering the Internet so government can conveniently monitor everything we say and do online is too high a price to pay for making law enforcement more efficient.
+- The first thing to understand about surveillance video in public places is that there is already a lot of it going on - though it is impossible to know how much.
+- The Senate should refuse to confirm nominees who do not take Congressional power seriously.
+- Law graduates have always ended up in business, government, journalism and other fields. Law schools could do more to build these subjects into their coursework.
+- Supporters of tough voter ID laws are not afraid of vote fraud - they are afraid of democracy.
+- As self-driving cars become more common, there will be a flood of new legal questions.
+- In a perfect world, we would have put users in control of their information when the Internet was first created.
+- Liberal judges tend to be expansive about things like equal protection, while conservatives read more into ones like 'the right to bear arms.'
+- When locational information is collected, people should be given advance notice and a chance to opt out. Data should be erased as soon as its main purpose is met.
+- A Reagan appointee, Justice Kennedy is no liberal, as he has shown on issues from affirmative action to corporate campaign spending. But he has repeatedly sided with gay litigants before the court.
+- Conservatives like to insist that their judges are strict constructionists, giving the Constitution and statutes their precise meaning and no more, while judges like Ms. Sotomayor are activists. But there is no magic right way to interpret terms like 'free speech' or 'due process' - or potato chip.
+- The minimum wage can play a vital role in lifting hard-working families above the poverty line.
+- There is no actual need to tighten voter ID rules: there have been extraordinarily few instances of people committing fraud at the polls.
+- We should craft our laws to allow images of criminal suspects to be captured in public - but also to make sure that the government does not unduly infringe on the privacy rights of innocent citizens.
+- If apes are given the right to humane treatment, it just might become harder to deny that same right to their human cousins.
+- It is hard to imagine an area in which Congress has more express constitutional authority to act than in protecting the right of minorities to vote.
+- It was not until the civil rights movement of the 1950s and '60s that Congress got serious about the assignment laid out in the post-Civil War amendments.
+- Congress needs to toughen the laws protecting elections and make clear that anyone interfering with democracy will pay a stiff price.
+- The worst excesses of the dot-com era are gone.
+- A publicly run health care program could compete with private insurance companies, which have a record of overcharging and underperforming.
+- The remarkable thing about 'Avatar' is the degree to which the technology is integral to the story. It is important to show Pandora and its Na'Vi natives in 3-D because 'Avatar' is fundamentally about the moral necessity of seeing other beings fully.
+- Social Security, all public and no option, rescued older Americans from living their final years in poverty.
+- The Enron scandal is worthy of the highest level of scrutiny, both because of the enormity of the crimes that may have been committed and because of what the largest bankruptcy in American history has already begun to reveal about the weaknesses in our nation's corporate structures and regulatory oversight.
+- A smart phone essentially creates a dossier of your travels, and consumers have no control over who will eventually see that information.
+- Age discrimination is illegal. But when compared with discrimination against racial minorities and women, it is a second-class civil rights issue.
+- Voting in presidential and congressional elections is a national right - and the national government should protect it.
+- Gun violence in the U.S. is an epidemic.
+- If the Supreme Court rules that rent control is an unconstitutional taking of property, it would put all sorts of zoning rules in danger.
+- Anti-New Deal rhetoric has never disappeared from American political life.
+- If a company knows it may have to pay a large amount of money if it poses an unreasonable threat to others, it will have a strong incentive to act better.
+- People's genes can say a great deal about their health. There are genes that reveal an increased likelihood of getting cancer, heart disease or Alzheimer's.
+- An election in which people have to wait 10 hours to vote, or in which black voters wait in the rain for hours, while white voters zip through polling places, is unworthy of the world's leading democracy.
+- The blogosphere makes it possible to have a sprawling national conversation about the hard times - often among people who would never find each other offline.
+- If we are going to have self-driving cars, the technical specifications should be quite precise.
+- Conservative Justices have a history of not standing by their professed commitment to judicial restraint.
+- The United States may be a religious nation. But it is also a nation with a strong commitment to separation of church and state.
+- To be rejected on account of old age may or may not feel the same as being rejected on the basis of race or sex. But it is clearly unjust and dehumanizing, and the law should take it more seriously than it does.
+- There is no need for neighborhood informants and paper dossiers if the government can see citizens' every Web site visit, e-mail and text message.
+- Set in the advertising world of the 1960s, 'Mad Men' is stunning to look at - a Camelot-era parade of smartly dressed professionals lounging around on midcentury modern furniture.
+- In the James Cameron blockbuster 'Avatar,' 3-D cinematography is the real star. The bugs and crawling creatures seem to slither into the theater seats. The floating mountains of the planet Pandora hover gloriously overhead. And the Na'Vi, Pandora's 10-foot-tall, blue-skinned natives, come convincingly to life.
+- For people worried about the Great Recession and the uncertainty of what is coming next, the characters of 'Mad Men' are good company.
+- To a generation beaten down by skyrocketing unemployment, plunging retirement savings, and mounting home foreclosures, 'Mad Men' offers the schadenfreude-filled message that their predecessors were equally unhappy - and that the bleakness meter in American life has always been set on high.
+- Regency romances end in marriage; zombie stories end in the zombies being vanquished. 'Pride and Prejudice and Zombies' delivers both.
+- Our movements reveal a great deal about who we are. A record of our locations over time can reveal whether we go to tent revivals or radical political meetings, abortion clinics or AIDS doctors.
+- Ballot formats should be standardized nationally rather than left to the often bad judgment of local officials.
+- Mass layoffs produce big winners and losers. Most workers who remain are financially unscathed, even though their employer is struggling.
+- With increased awareness should come greater caution about how confessions are used at trial - and a greater willingness to overturn convictions when it becomes clear that a confession was untrue.
+- A federal Voters' Bill of Rights could press the states to put non-partisan managers in charge of elections.
+- Even a single Justice can have a profound impact on the country.
+- The Patient Protection and Affordable Care Act is the major achievement of President Obama's first term.
+- Corporations have enormous treasuries, and there are a lot of things they want from government, many of which clash with the public interest.
+- There is no way to undo what happened in the Zimmerman-Martin encounter, but some good can still come of it: it could lead states to repeal their misguided 'Stand your ground' laws.
+- The press should not get special privileges - if they drive recklessly or put people in danger, they should be subject to every reckless driving and endangerment law on the books - but they should also not be singled out for special punishment.
+- When the government takes video of people in public places, the images should only be kept as long as they may reasonably be needed to investigate a crime. After a few days, if there has not been a report of a crime, they should be destroyed.
+- One way to reduce the need for layoffs would be to cut back on hours, spreading the available work among more employees.
+- Escapism makes a lot of intuitive sense - whisk people away from their cares with stories of a better life.
+- The civil rights and antiwar movements taught Americans to question authority.
+- Civil lawsuits do two important things: they compensate people who are injured by the bad acts of others, and they penalize people and companies for bad behavior.
+- Patents have a place in medical science - for new inventions that advance the state of knowledge.
+- One of the great debates about the Internet is whether it is making people more or less free.
+- If the FBI gets the 'back doors' it wants, Internet services would be required to create a massive online infrastructure for law enforcement to spy on members of the public.
+- It is one thing to say that there is a constitutional right to keep a gun at home for protection. It is quite another to say there is a constitutional right to bring a hidden gun into a daycare center.
+- There is no room on the federal bench for a judge who does not treat all people as equal before the law.
+- Federal law should hold organizations like the League of Women Voters harmless if they make good-faith mistakes while registering people.
+- Being unemployed - or working at minimum wage - is rough in the best of circumstances.
+- The anti-New Deal line is wrong as a matter of economics. F.D.R.'s spending programs did help the economy and created millions of new jobs.
+- As much as possible, location-specific information should not be collected in the first place, or not in personally identifiable form.
+- After you pay your E-ZPass bill, there is no reason for the government to keep records of your travel.
+- The public has a right to know what kind of monitoring the government is doing, and there should be a public discussion of the appropriate trade-offs between law enforcement and privacy rights.
+- It's tempting to engage in anti-gun polemics and hope that popular opinion will dramatically shift, but it is also likely a mistake. The smarter course for those who want stronger federal gun-control laws anytime soon is legislative stewardship and compromise.
+- When tulip mania dies down, all that remains are pretty flowers. When bubbles burst, nothing is left but soapy residue. But the Internet revolution, for all its speculative excesses, really is changing the world.
+- When the gun lobby fights gun-control legislation, its logic is clear: it does not like laws that prevent people from owning or using guns.
+- Defending Congressional authority should not be a partisan issue.
+- The Supreme Court's most conservative Justices have presented themselves as great respecters of precedent and opponents of 'judicial activism' - of judges using the Constitution to strike down laws passed by the elected branches of government. If they are true to those principles, they should uphold rent control.
+- Vampires are sleek demons for good times. They suavely leech off society - like investment bankers who plunder outsize shares of deals for themselves or rapacious fund managers.
+- Too often, animal-rights supporters seem to care about animals to the exclusion of people.
+- Voter ID laws have a disproportionate impact on groups that lean democratic - including blacks, hispanics and students.
+- Serving up ads based on behavioral targeting can itself be an invasion of privacy, especially when the information used is personal.
+- A key reason that elections are run so badly is that in most states, political partisans are in charge.
+- There is something not entirely satisfying about an online memorial.
+- If you're going to call a book 'The Politically Incorrect Guide to American History,' readers will expect some serious carrying on about race, and Thomas Woods Jr. does not disappoint.
+- If the courts regarded tweets and other social media information as private, it would not prevent the law enforcement from getting information it really needs. But the government would have to get a search warrant, which requires it to show that it has probable cause connecting what is being searched to a crime.
+- For technology companies, information about what people do online is extremely valuable - it can be used to sell targeted advertising or sold to data clearinghouses.

@@ -1,0 +1,114 @@
++++
+author = "Christina Ricci"
+title = "Christina Ricci Quotes"
+quotes_len = "108"
+description = "the best 108 Christina Ricci Quotes"
++++
+- I think my anorexia was to do with being a teenager, not being in films.
+- I think the main reason a lot of child stars don't make it is that it's hard to see someone as cute and then all of a sudden see them as having more depth.
+- The whole growing-up process seems to have eluded me.
+- For years, I hated myself. I covered the mirrors in my house. I literally couldn't have a mirror in my room.
+- I mean, I sing. But I don't think I'm a good enough singer to do any kind of musical.
+- I think the thing that I always try to do - because it piques my interest - is to play really different parts all the time.
+- Well, I think most people understand that there's a big difference between who you are and who, you know, you play.
+- I think that I need to work on being comfortable at being normal, everyday-ish on camera.
+- I'm merely trying to be something akin to a nice, kind, good actress.
+- When you're doing something where you really like the material, it doesn't matter what medium it's in.
+- I don't have life rage anymore.
+- I've been to therapists my whole life. I find the less attention I pay to food, the healthier I am. Any obsession is dangerous. And a whole country that's obsessed with one thing, unless it's, like, jeans, it's very dangerous. Everyone's obsessed right now with carbohydrates in this country. It's ridiculous.
+- I am a Christian. I haven't really talked about that before. It is something very private. But I do pray and my beliefs are very important to me.
+- I've been to therapists my whole life.
+- I was a big sci-fi fantasy geek when I was younger... secretly, in my room.
+- I'm getting older now, so I should think about a family, but certainly not tomorrow.
+- We have so much pride in welcoming these passengers onto the plane, and they have so much pride in travel. It's something that I definitely always remember, when I'm playing a scene on the plane, just to imbue everything with that sense of excitement.
+- I'm so glad I'm not 20 years old anymore. I was in a hurricane. I'm a lot calmer now. I don't cause destruction for myself and others everywhere I go.
+- Everything, I think, about acting is based on imagination.
+- I think I've always been interested in playing people who are judged very harshly.
+- I don't really need a lot of help from a director.
+- My mom knows when something is real and something is not.
+- This is my costume. I'm a homicidal maniac. They look just like everyone else.
+- I've never been to a race car race before.
+- My roommate and my boyfriend, they both know I am compulsive and controlling.
+- It's fun to be sarcastic, but now I'm able to express myself in a way that's much more sincere.
+- I once ate McDonald's three times in one day.
+- As a kid, I was told to talk as much as possible.
+- I'm one of those people who loves to fly.
+- We all have insecurities, and the thing that makes them crippling is that we all have the ability to blow them up into such huge issues in our minds, that we might as well have a facial deformity. It keeps us from really going out there and living our lives, and forgetting about hating yourself and just experiencing the world around you.
+- I've always been a really ambitious person.
+- I could easily exist on less money, but I like the way I live now.
+- As a teenager, my favourite rejection was, 'She looks too healthy,' which of course translates as, 'She needs to lose weight.'
+- My brother always teases me about my forehead: 'I could eat off it!'
+- My dream role would probably be a psycho killer, because the whole thing I love about movies is that you get to do things you could never do in real life, and that would be my way of vicariously experiencing being a psycho killer. Also, it's incredibly romantic.
+- People are giving me more respect.
+- Doing films as an actor, you spend maybe 40 percent of the year doing your chosen profession. If you are on a successful TV show, you spend 80 percent of your year doing the thing you love.
+- I'm very insecure.
+- All the roles are for boys. The girls' roles are either small or all the same. There's just nothing interesting.
+- I don't think I like characters who are afraid and ashamed of who they are.
+- I think that I need to work on being comfortable at being normal, everyday-ish on camera. Unlike a lot of actors, I think that's the thing that I'm not so comfortable with.
+- I'm always in bed by 11 or 12 and people laugh all the time - they want me to hang out until two in the morning, but n-n-no, I need my nine hours.
+- I knew I would never be cast as the pretty girl.
+- This life that I've led has been really well suited for me.
+- A director should cast a person who fits into their script.
+- I'm incredibly naive.
+- I come from one of these hideous backgrounds where being sincere is like - ugh, you might as well kill yourself.
+- Recently, I've really responded to books that bring the magic of childhood back to us as adults.
+- I don't think I'm an outsider at all.
+- When I'm acting in a film that I'm not producing, I stay to myself.
+- I work out.
+- The more that I can work in different mediums, the more I can grow, and learn from different actors and different types of actors and directors and different styles of acting and build a tool box.
+- Any obsession is dangerous.
+- I didn't use to think anything was worth keeping private. Now I do.
+- Most people don't walk around knowing what other people think about them, and I don't think it's healthy to know what faceless strangers who you'll never meet say about you.
+- You always fear when you're making a movie that has a moral to the story that people are going to reject the idea of being taught a lesson.
+- Every night I fell asleep to a different Beatles album. So I'm very familiar with the Beatles; Ringo was my favorite Beatle until I grew up and then changed. I made the switch over to George Harrison just in time to regain my cool.
+- When I was a little girl - well, like, a teenager - I wanted to be Sam Jackson. I always wanted to be men.
+- There are a lot of theories about Shakespeare.
+- My sister and I shared a bedroom our entire lives and I believe she discovered the Beatles when she was about 11 and I'm four years younger. So from the age of 7 until 17 we had nothing but Beatles paraphernalia in our room, even those little stuffed Beatles that went on stands that are dressed as the Sgt. Pepper band.
+- Unless it's a specific accent, or something about physicality you have to change, I am generally not such a conscious actor.
+- I've been looking to do TV for a while. I've always done guest starring stuff. I've done a couple of multi-episode arcs, and I've always loved the experience.
+- I always knew that I was kind of bored; the regular life of a child didn't fit me.
+- I mean, I don't like anyone who likes themselves too much.
+- I can't think of anything that I turned down that became big and successful.
+- I eat crap.
+- I just want to be married, or just engaged. Basically, I just want a ring. And the tax break.
+- I tend to fight for something that I believe in.
+- As long as we can tell stories about our ability to survive, the more we will hope, not self-destruct.
+- I think I'm better at playing difficult than I am at being normal.
+- Naturally, my body language changes given whatever environment I'm in.
+- Well, it's difficult to fall in love with a character when you just read the pilot. You don't really know who the character is.
+- I think I am naturally attracted to things that are a little bit out of this world.
+- I'm trying to just go with the flow and learn from the people around me.
+- I've always done guest-starring stuff.
+- I was really bored and unhappy in school, and I used to act out and do horrible things.
+- I went through an awkward adolescence and had braces.
+- I certainly hope I'm not still answering child-star questions by the time I reach menopause.
+- I want a Mini-Cooper because it's fuel efficient, emissions efficient and all that stuff. It's small and better for the environment. I think that will be my next car.
+- I find the less attention I pay to food, the healthier I am.
+- To play someone who is who they are because of the happiness and contentedness that they've known in their life is interesting because of sort of how banal it is.
+- My sister discovered the Beatles when she was about 11 and I'm four years younger. So we had nothing but Beatles paraphernalia. Every night I fell asleep to a different Beatles album.
+- I think I'm better at playing difficult than I am at being normal. And to me that's something I'm working on now. I'm not really that difficult or complex a person, so it's interesting to me that it's just so much harder for me to play an everygirl.
+- I always think that I've embarrassed myself.
+- Well, I think I've had a fairly meandering career.
+- I like the way my own feet smell. I love to smell my sneakers when I take them off.
+- I get so nervous. I happen to be socially awkward and shy. I spent a lot of my time as an adult not going places.
+- I don't come from money.
+- The movies I made early on may not have been great, but they were all commercially successful.
+- I love the solitude of being on a plane and finally getting to read an entire book and being left alone.
+- I think it's really great to be able to stick with a character for a long period of time. It's not like you have one shot, and that's it.
+- I like to do things sort of intuitively, I think.
+- I feel like some of the best talent is on TV right now, with the writing, acting and great directors. I've also been looking for the consistency of work that TV provides for you. And, I always thought it would be really interesting to live with a character for months, if not years.
+- What you feel is important may not be what the director feels is important.
+- I'm immature.
+- I think people are learning to actually aspire to be objectified.
+- We might all be so afraid to be who we are, but in the end, it's really you're individual, unique qualities that make you attractive to people.
+- I think people who suffer from depression, unless it's post-traumatic, are probably going to struggle with it for their whole life.
+- You won't see me in a better mood than 4:00 in the morning on my way to work.
+- I think that the best career that someone can have is one that's reflective of their personal tastes.
+- I take Wellbutrin because I'm afraid to go into stores. I'm afraid people are going to yell at me.
+- I'm really open to everything.
+- I'm an actor who hates dialogue and the present day and reality.
+- I guess I'm a workaholic!
+- I'm a TV addict, and I personally really enjoy reality TV.
+- I stand up for other people, I'm very protective of people around me. If I feel like somebody is getting a bad rap or being unfairly picked on, I will stand up for them, absolutely.
+- I'm a lazy, lazy girl.
+- I would love to fly privately, but unfortunately, I don't. I don't summer anywhere either.

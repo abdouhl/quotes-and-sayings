@@ -1,0 +1,99 @@
++++
+author = "Christie Brinkley"
+title = "Christie Brinkley Quotes"
+quotes_len = "93"
+description = "the best 93 Christie Brinkley Quotes"
++++
+- I think many people can relate to that excruciating pain of love gone wrong. I'd rather have a broken arm than a broken heart.
+- Look for rash guards that come treated, for further sun protection, and never forget your hat!
+- My biggest deterrent to getting the workout I need is just that my days are so full and so busy.
+- I wish my butt did not go sideways, but I guess I have to face that.
+- When doing sports... on the water, it's crucial to stop aging by protecting your skin.
+- I just found out that I'm one inch taller than I thought.
+- Four months is a lot of living with that little life in you-thinking about it, eating right for it, nurturing it and all of a sudden, it dies.
+- I can't live without knowing I have my extensions and ponytail. So I can run out the door at the drop of a hat.
+- My smile has been my ticket to the world. Smiling releases the same feel-good hormones you get jogging. Caring for your lips and gums is important. I brush my teeth morning and night, alternating toothpaste brands. In addition to flossing, I use a Water Pik to massage my gums and remove food particles.
+- I think variety is the spice of sticking with an exercise routine, whether it's getting a dance tape one day, or getting a tape with those stretchy things to work with resistance on a different day.
+- Whenever I wore a bathing suit, I kept a sarong around my hips that went halfway down my thighs. The tops of my thighs are like baby skin. Where the sarong ended, I can see sun damage: I've got dark spots and places where there is no melanin. The spots are not pretty, so I encourage everyone to protect their skin from the sun.
+- When you turn 60, the key is to not stop moving. Once you start to stop moving, you rust. You got to just keep going.
+- I remember really loving the CoverGirl ads when I was younger - there was something very cool about how they always put the girls in white. It looked so clean.
+- I remember my first 'Sports Illustrated' shoot was with the photographer Walter Iooss, and Julie Campbell was the editor, and we were at the president of Mexico's private house in Cancun - this was before anything else that's now in Cancun even existed. And they told me to get a tan, so I spent all morning in the sun, and I was burnt.
+- When you feel good, you look good. And vice versa: When you look good, you feel good.
+- I crank up the music, and I dance around the house.
+- People say, 'You look so great for your age,' and I say, 'OK, you can leave off the 'for your age' part. Can we all stop qualifying it?'
+- Lunch is a big huge salad with every color in it. From leafy greens to purple to herbs, fresh cut herbs mixed into it for flavors. I vary what I toss into it. Sometimes it might be lentils and chopped tomatoes, other days it could be garbanzo beans, some days I might have just a salad and have some lentil soup on the side.
+- Most of the time, I've got my kids with me, so I'm not as prone to meeting people. And then, you never really know if someone is talking to you because you're a celebrity.
+- The more you give, the more you get - it's a cliche, but it's really true.
+- In the beginning of my career, I read an article about the reason that men always look five years younger than women is because they shave.
+- Your job as a parent is to listen. And to dole out as much love as you can. That includes tough love.
+- I was basically a surfer girl from California. I never looked like a model.
+- I had a gorgeous mom. She was beautiful, so I lucked out there.
+- When you feel great, you emanate a certain energy that translates as beautiful. I don't care if you have the standard beauty or not; it's that X-factor that comes through, and the basis of that is good health.
+- I really believe that being flexible and grateful contributes a lot to your happiness, which contributes to your health and contributes to your look.
+- I believe in true love, and I believe in happy endings. And I believe.
+- I really have a deep sense of caring about the air that we breathe and the water that we drink. I want to be able to say that I was trying to protect that. And I also care deeply about children. My children, all children. And I care deeply about giving back.
+- I get bored if I do the same thing. The only constant that I have in my life is that I start whatever I do with my Total Gym, because I believe it helps keep me from getting injured.
+- I urge people to make your workout fun.
+- The only constant that I have in my life is that I start whatever I do with my Total Gym, because I believe it helps keep me from getting injured.
+- You don't always have to get an expensive gym membership. The important thing is to keep moving and to make it fun and have variety - it's the spice of life.
+- All I ever wanted was a big, happy family.
+- Believe me, I love a good chocolate chip ice cream. I'm not going to go for some lousy version of it. If I'm going to have it, I'm going to have a really good one. I believe in treating yourself occasionally to something.
+- I really believe in the power of the individual to make change, and our family is a real collection of individuals.
+- At Thanksgiving, I always start at the top of my list and say I'm grateful for friends, family, and good health. Then I get more superficial... like being thankful for my Louboutins.
+- A smile is like an instant facelift and an instant mood lift.
+- In private, I may wear a bikini, but at the public beach with my kids, I would change bathing suits because they do not want to be hanging out with some old broad in a bikini.
+- I've had injuries in my life from things beyond my control: runaway horses, helicopters that decide to crash on mountaintops, boating accidents - things that were out of my hands.
+- I really believe in the old expression that what doesn't kill you makes you stronger. It's through adversity that you find the strength you never knew you had.
+- No matter what your age is, you only have now. So it's always about living in the moment and being in the moment... I refuse to let those numbers define me, and I just try to face each day positively.
+- I just love America. I love living here.
+- My favorite dish is brown rice with lentils, roasted red and yellow peppers, and fennel, with a sweet potato and a salad on the side.
+- I haven't touched a piece of meat since I read a graphic description of Chicago's slaughterhouses when I was 12.
+- I start by moisturizing my face neck and chest with my own anti-aging SPF And IR Defense Sunblock called Recapture 360... Allow to sink in... Then I like Neutrogena's range of spray on sunblocks for body... then I use a foundation with SPF 30 or higher on my face to add yet another layer of protection to my face.
+- I'm actually excited about turning 60. I feel on top of my game.
+- Go ahead and have the Kit Kat at the movies. If you don't satisfy an urge sometimes, you often substitute less-satisfying things and end up eating more.
+- I like coffee in the morning and decaf green tea throughout the day... When I was younger and modeling, to kick-start a diet I would do a juice cleanse.
+- My mom was always my biggest teacher, my inspiration, my role model. My mom was just the most amazing person. She was like a bon vivant in that she just lived each day to the fullest. As soon as I became a vegetarian, she became a vegetarian.
+- I'd rather have a broken arm than a broken heart.
+- Photoaging is the worst. It wreaks havoc.
+- We're the generation that says 60 is the new 30. We don't let the numbers shape us; we're reshaping the numbers.
+- Some days I don't have time for a full workout, but I do have to dry my hair, right? So rather than just stand there blow-drying, I do several kinds of leg squats at the same time. I believe in multitasking.
+- Smile. It instantly lifts the face, and it just lights up the room.
+- I photographed all kinds of sports - Formula 1, Formula Atlantic. And anybody who knows me knows that, from the day they invented video cameras, I used to lug them around when you had to carry the pack here and the big camera here, plus the diaper bag and a baby and the purse or whatever.
+- My age has so little to do with my image of myself because at a certain point, the number just didn't fit how I felt. It has become irrelevant to me. I just don't feel like that number is representative of my spirit, of my energy or my anything!
+- I don't count that relationship with Ricky. It's just like a blip at this point. I had to fall in love with the devil himself to get this sweet angel, Jack.
+- When I started modeling, I was told to tan, but I always protected my face.
+- Life is short. Ricky and I realize how lucky we were. We want to be together all the time.
+- I don't really seek out vegetarian spots... but mainly, I know how to work a menu no matter where I am.
+- I think that ultimately your age is determined by your attitude. It's not the number; it's not how many wrinkles you have on your face. It's the energy that you project.
+- I've always believed in a rainbow diet. As many colors and foods as you can eat, the better, because if you focus on one food, there's bound to be a report that comes out that says, 'Broccoli actually... ' So I mix it up a lot. And I take vitamins, like Biosil, which I take for my hair, skin, and nails.
+- I came across an older picture of me that someone had posted on Facebook, and I totally remember squirming and feeling very fat while I was shooting it.
+- Every morning, I make myself a cappuccino with a drawing in the foam. I post them to Instagram with the hashtag #christiecappuccino.
+- I never planned to be a model at all. I moved to Paris to study art, and I was there working as an artist, taking classes, and I had a little sick dog that I was using up all of my money to try and heal. It was right at that point that this photographer, Errol Sawyer, saw me at the phoning office and convinced me to let him take my photo.
+- I liberally apply sunscreen and wear hats.
+- My work makes me a better mom. It gives me a little door to step out of my parenting and bring the excitement from my day back home.
+- Some people think happiness is a luxury, but it's a necessity. You need to make space for it in your life.
+- I love musicians. I think artists are the most amazing people because they're constantly creating beauty for the world. With all the crazy stuff going on in the world, then there's artists reminding us of our humanity and reminding us of our heart and soul and what really matters.
+- Because I'm an older mom, I have a responsibility to my kids as well as myself. I want to be there for them.
+- I must've got whacked on the head. He presented a totally false person for me to fall in love with.
+- I have an organic garden and love being able to say, 'I'm going to see what I can pick to throw in my salad.'
+- After the first miscarriage, I tried to take the attitude that it was my body's way of telling me that this pregnancy wasn't meant to be.
+- I would be remiss when talking about beauty secrets to not say that one of the best is to care about the world around you. That's what really matters.
+- Modelling was never in my plan. Never.
+- I really believe that the more informed you are about the benefits of a healthy bite versus the chain reaction that you're going to put into effect in your body when you take that bite - you just suddenly don't want to make that choice for yourself anymore. It's beyond willpower at that point; it's become a desire to do something good for yourself.
+- I have this helicopter crash, and I fall in love with this man who was in the crash with me. I must have been suffering from post-traumatic stress syndrome.
+- When I am brushing my teeth, I'm bending my leg behind me, or I'm lifting my leg up and holding it in that position so I'm squeezing my butt in. I can do that while I'm washing or slicing vegetables, too. Or I go up and down on my toes, working my calves a little bit.
+- I have sun damage that I want to repair, but I also want to keep myself from further damage.
+- Basically he never went to work and didn't have a job. Of course I thought he did. I thought he was on the phone doing business deals instead of borrowing money from people.
+- We need to protect our wilderness areas and national parks. Everywhere you travel, you see blight, denuded mountains, logging. If people know what's going on, they'll become activists to safeguard those places.
+- We decided to try in vitro, because both Peter and I felt we couldn't handle another failure. When I miscarried after that, we had to come to terms with the possibility that this wasn't meant to be.
+- I think there's little things you can do with a dermatologist that can stave off major, giant surgery, which is really scary. But I'm all for, if something's bothering you, fix it. At least talk to somebody to see what it would take to fix it, and see if that's for you or not.
+- If a person lies to you about what's in their bank account, they'll lie to you about other things as well.
+- Share your smile with the world. It's a symbol of friendship and peace.
+- Life is too short to not have oysters and champagne sometimes.
+- Adopting a really positive attitude can work wonders to adding years to your life, a spring to your step, a sparkle to your eye, and all of that.
+- Just because people can express themselves through their art doesn't mean they are great communicators in person.
+- I respect artists so much, and I absolutely love music as the ultimate art.
+- Modelling opened up the world to me. All my friends were bohemian artists and were a little bit appalled when I sold out and did something so bourgeois. I'd say, 'Come on, guys, with what I earn from this job, we can all go to Morocco.'
+- I've been a vegetarian since I was about 12 years old. When I became a vegetarian, I got my mom and dad to become vegetarian, and my brother became a vegetarian.
+- It's so funny because all those years I was working, I basically always felt that whatever job I was doing would probably be the last one I would get. I really never thought that I stacked up with the other girls.
+- I've gotten into the habit of cranking out a set of push-ups before each show to get my blood pumping and find my focus. I worked my way up from eight to 30. That was a real accomplishment.

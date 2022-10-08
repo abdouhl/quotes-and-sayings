@@ -1,0 +1,27 @@
++++
+author = "Ray Davies"
+title = "Ray Davies Quotes"
+quotes_len = "21"
+description = "the best 21 Ray Davies Quotes"
++++
+- I got that idea from being in India. I always like the chanting.
+- I think that songwriting changed when groups started spending more time in the studio.
+- Our repertoire consisted of rhythm and blues, sort of country rhythm and blues, Sonny Terry things.
+- When you are making a record and if you spend too much time over it, you have to record it a tone lower or cut the tones lower because you can't reach some of the notes, I find this. But when you go on stage, you have to put the key up and it really changes the whole thing.
+- People take pictures of the Summer, just in case someone thought they had missed it, and to proved that it really existed.
+- I don't think England is that gray but India is like a long drone.
+- I still like to keep tapes of the few minutes before the final take, things that happen before the session. Maybe it's superstitious, but I believe if I had done things differently - if I had walked around the studio or gone out - it wouldn't have turned out that way.
+- I've written so many songs about Englishmen, I have to go elsewhere.
+- Those three chords were part of my life - G, F, Bb - yeh, it is, it is, and I can't help noticing it. But there have been other things nearly as close to it which people haven't noticed, other things we have done.
+- I'm easy driving, But I'm not a person who loves living pleasantly above all else. I'm not that way at all. I might think I'm that, but I'm not really that.
+- I like surfers. Their imagery, it's great.
+- Money and corruption are ruining the land, crooked politicians betray the working man, pocketing the profits and treating us like sheep, and we're tired of hearing promises that we know they'll never keep.
+- What I try to do probably doesn't come out. What I've worked out what I do - I might not be right - is to do something very personal, and then suddenly I look at it, up in the air. I blow it up and look at it and then I come down again - a better man.
+- Then I got together with my brother and a friend and we decided to play dates. The more we played, the more we wanted to do it. And it got to a stage where we wanted to do it all the time.
+- At one time they've been the most important thing to me. So I can't hear our records on the radio, I can't stand it, because they sound so out of what everyone else is doing.
+- If I had to do my life over, I would change every single thing I have done.
+- I was an art student at the time, like thousands of others.
+- When I wrote the song, I had the sea near Bombay in mind. We stayed at a hotel by the sea, and the fishermen come up at five in the morning and they were all chanting. And we went on the beach and we got chased by a mad dog - big as a donkey.
+- No one can penetrate me. They only see what's in their own fancy, always.
+- If New Orleans is allowed to die, a crucial part of the world's music heritage will disappear.
+- I'm susceptible to that sort of thing - to walls and flowers. You can probably get something more from a wall than a person sometimes. It's just put somewhere.

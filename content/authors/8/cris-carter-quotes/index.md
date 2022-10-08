@@ -1,0 +1,101 @@
++++
+author = "Cris Carter"
+title = "Cris Carter Quotes"
+quotes_len = "95"
+description = "the best 95 Cris Carter Quotes"
++++
+- Andre Johnson, one of the hardest workers.
+- I didn't make the Pro Bowl until my seventh year I think in the NFL. We continually got better.
+- Sometimes you have to self-scout yourself.
+- If you give Brett Favre time to throw the ball and single coverage, you're making the offense that much better.
+- I tried to be one of the best-conditioned athletes.
+- Michael Strahan should get the amount of money that anybody else in the league is getting. I don't care if it is a quarterback, wide receiver, defensive lineman, linebacker. He should make the kind of money Brett Favre, Marshall Faulk make, because he's that type of player.
+- I think there's been a myth that QBs makes the WRs but it works hand and hand. QBs need good WRs to throw to in order to be great and WRs need good QBs to throw to them in order to be great.
+- Great players, they don't get hurt as much as the other players.
+- Joe Montana had bad games in the playoffs against the Giants and Chicago Bears; that doesn't stop us from considering him as possibly the best.
+- I come from some humble beginnings, and I just believed that when people pay their money, hard-earned money, that they deserve a certain level of performance.
+- When you play quarterback in the NFL, you're going to get scrutinized.
+- I've always wanted to have a career that my kids would be able to see me play and understand what I did.
+- You get drafted, you perform like a Pro Bowler, then they pay you. But there's certain teams in this league, that's not what they're trying to do.
+- Would you rather have a good fullback or a good third receiver? I'll take the receiver.
+- Larry Fitzgerald, I've spent so much time with him, he's one of my favorites and one of the best.
+- My job as a former player is to help young players understand about the business.
+- Your image in sports will always matter.
+- When you play in the NFL now the teams are very, very equal.
+- I thought math, especially when I was younger, is something you either love or hate. I had been blessed to be able to do math and it made me like it.
+- This is what I know for a fact. I know that every guy playing in the league, they have someone out there that loves them swearing up and down that they shouldn't be out there.
+- People tend to look at mental health differently than physical health. If someone tears their ACL, we don't expect them to run 30 yards for a touchdown. They need to be treated and have the time to rest and heal, It's the same thing for mental health.
+- If you're going to be a professional you continue to grow.
+- I used to have a log on every corner in the league, what their strengths and weaknesses are.
+- I would never tell young people to break the law or avoid prosecution.
+- We had a reward system and a protection system. We would reward players for big plays, things that can help your team win. And then also, we paid guys money for protection, especially guys who couldn't protect themselves and especially offensive players.
+- Lynn Swann - I loved the way he was like a ballerina playing in the NFL.
+- Receivers have always dropped a lot of balls.
+- As a wide receiver, you don't want to feel that the quarterback is only going to throw you the ball if you're wide open.
+- I know wide receivers.
+- I'm supposed to make plays.
+- We have learned from history that change is never easy, that it usually doesn't look pretty, especially in today's politically-charged environment where intent and actions can readily be misconstrued and judged.
+- If he could hurt you, Bill Romanowski would hurt you.
+- There's not a whole bunch of options in America for a black man. But sports gives you that opportunity... So where would my life be without football? I don't know.
+- You have to be smart as a football player.
+- I believe there is a certain way to do things.
+- I think there would be situations that will occur on the field that would be tough for a person who is homosexual, because I know there will be people definitely taking shots at him.
+- Hey, a hard background is not an excuse.
+- The history with wide receivers, I follow it pretty close. I look at Art Monk, I look at Lynn Swann, I look at Michael Irvin, and it's becoming very, very difficult to judge the skill of a wide receiver in today's game. But what else can you judge it on but the numbers? The numbers, they do tell a story.
+- I always loved math in high school and I thought that I would be an accountant. But I also thought I would be better at counting money in the NFL.
+- It's an unbelievably tough process. And there ain't no bums in the Hall. I mean, they're putting in great players every year. The selection committee they have, I believe, is the right selection of people.
+- I think the modern-day wide receiver, I would say that his skill level is not appreciated. It's not just about the numbers. It's the ability to catch the football and put your talent on display.
+- If the building is on fire and the person decides to stay in there, I don't run in there and get him out. If you see them breaking the glass, if you see them struggling and trying to get out - that's my analogy of how I help out the guys in the league and the kids that really, really need help.
+- Buckeye born and bred. Now an H-O-F-er - even after I'm dead.
+- If you don't reach outside what yout resources are, you're not gonna get better as a broadcaster.
+- I was a big receiver when I played in the NFL.
+- Advocating for quality addiction treatment has become a passion, and it's the most rewarding thing that someone like me can do. People were there to help me when I needed it, so I've made it my goal to pay it forward.
+- If you want someone to pay you - the highest paid receiver in the history of the game - damn act like it.
+- I'm a competitor at the highest level. I like to compete.
+- It's hard to believe that in the year 2001 I'd still be running touchdowns.
+- In life, we always make the right decisions the second time around, you know?
+- You know how you hear people say that they had people in their lives who told them they couldn't make it or they couldn't do something? That's not me. That's not my story. My brothers have been there with me since day one. We've been through everything together - good and bad.
+- I owe everything to the Vikings. What they invested in me was more than money.
+- As far as revolutionizing the game and things like that, God doesn't make a lot of people like RGIII, bruh.
+- It's not as if I dislike Michigan. I have a lot of respect for the university - not only the athletic department but how they educate young people. The only reason I dislike them is because they are the No. 1 rival for OSU.
+- If you want to be a national brand, damn act like it.
+- I know so many people who have tremendous regret in their life.
+- I think it would be tough for a lot of the athletes that I play with to think that while that I'm showering, that I'm performing on the field, I'm bleeding, I'm fighting with a person that is a homosexual.
+- Don't get me wrong, I would love to be voted into the Hall of Fame. But if I don't get in, that's not the end of the world. I am surrounded by my loved ones, and being with them, going through this journey with them, makes me extremely happy.
+- I'm a football player. I believe I'm just as tough as anybody else. I try not to play like a wide receiver.
+- There are positive steps being taken to tackle issues that people from all walks of life, races, ethnicities, and political persuasions agree have been devastating to communities of color.
+- The one thing you have to address with Randy Moss is not a conditioning thing. It's not an age thing. It needs to be addressed. I believe it's the elephant in the room. It's that thing called quit. And Randy, not like any other superstar I've met, he has more quit in him than any of those other players.
+- I don't care what you do in life. To say that that year I was the absolute best, especially when you're in a team sport - and I have more of a personality that I wished I would've played an individual sport - to win a championship, to get 60 people and focused in one direction and do it over a seven-month period is phenomenal.
+- From a mental standpoint, you can't play this game unless you mentally are clocked in and that's, 'I'm willing to do everything to my body, my mind to put myself so that I can win.'
+- Odell is going to grow up. That why's he is bringing other people in his life so he can grow up. If he wasn't trying to grow up, he wouldn't be calling Cris Carter.
+- Football gave me a sense of purpose. It gave me a sense of me.
+- This goes across all racial lines, ethnicities, religious backgrounds. People believe in disciplining their children... It's the 21st century. My mom was wrong. She did the best she could, but she was wrong about some of that stuff she taught me. And I promised my kids, I won't teach that mess to them.
+- Bill Romanowski was one of the most feared players to play, not only because of his intensity, but because he played through the whistle and after the whistle.
+- When you look back on things, your version is always perfect.
+- The Vikings saw something in me, and I will forever be grateful for that. They saw me as someone who, with the right help, could really succeed.
+- If we win the Super Bowl, they can't stop my family from getting on the field. We'll be all right. I've got about $80,000 in fine money that I'll be able to afford.
+- Through educational programs, community engagement and legislative efforts, players, owners and the NFL are working with law enforcement, advocacy groups and legislators to transform our communities.
+- To me, I look at situations and try to look back and see if there was anything I could have done.
+- I put bounties on guys. And the guys tried to take me out, a guy tried to take a cheap shot on me, I put a bounty on him, right now.
+- The difference between the good players and the great is how long they stay in their prime.
+- I catch the ball. You throw the ball, I catch it. You throw it close to me, I catch it. If you make me do something crazy to catch, I still catch it.
+- Everyone knows someone who is struggling with a mental health issue, whether it's depression, trauma or substance abuse. It affects everyone, so we all have a stake in making sure good treatment is available.
+- Calvin Johnson, we've never seen a receiver like him - size, speed and how he's developed his overall route running and toughness.
+- The difference between an 8-8 team and a team that goes 12-4 is not that much, and I think we realize that.
+- I grew up in small-town America, black, disadvantaged.
+- We have the greatest Hall of all the Halls. And to be able to join these men, on this stage, in football heaven is the greatest day of my life.
+- I loved Philadelphia. I loved my teammates.
+- You're always going to have a Dez Bryant somewhere in the league, somebody who has to go through some off-the-field problems in order to reach his potential.
+- Any time you roll up a corner and you have a safety standing behind him helping out the corner, it's frustrating for any player.
+- There's not a bunch of pressure at the Pro Bowl.
+- Normally the teams that are in the NFC and AFC championship games are the teams that are going to be right there in the forefront as the season begins.
+- My head coach in Minnesota, Dennis Green, loved wideouts with plenty of size.
+- As a running back, when you get the ball year after year - and I would say three years on the short end and seven on the long side - you reach a point where it seems like overnight, your body changes and you can't do what you used to do anymore. We see those drastic declines more at running back than any other position.
+- Before, when going to youth camps, the line for QBs would be around the corner. Now, kids want to be either QBs or WRs. Being a WR is popular, it's cool.
+- I don't think Joey Harrington is good enough to be a starting quarterback in the NFL.
+- Braxton Miller is a special football player and has been special since he stepped on campus.
+- Ronnie Lott - he got a really good shot on me once and I learned that unless I wanted to shorten my career, I needed to steer clear of his path.
+- When we see active and former NFL players uniting with owners and the League to address injustice, we can see the way football brings people together beyond the game itself.
+- You have to understand, it takes a lot of qualities to play linebacker - quickness, tackling ability and sheer force - so you just can't take someone from another position and think they could all of a sudden handle that role.
+- The number one thing is to catch the football and maintain possession.
+- When Buddy Ryan cut me, my wife was pregnant.

@@ -1,0 +1,13 @@
++++
+author = "Lene Hau"
+title = "Lene Hau Quotes"
+quotes_len = "7"
+description = "the best 7 Lene Hau Quotes"
++++
+- To get high data transfer rates in communicating information, you would love to use optical fibers. The problem is that light is extremely hard to manipulate. So we make a perfect copy of the information carried by the light. We transfer it to matter - the condensate.
+- There's a tremendous amount of work building the apparatus, getting the experiment to work. But sitting there late at night in the lab, and knowing light is going at bicycle speed, and that nobody in the history of mankind has ever been here before - that is mind-boggling. It's worth everything.
+- Incidentally, think about the ramifications of storing data on light waves that can be stopped and started at the speed of light.
+- Why is it that I notice so many brilliant scientists using Macs for their personal computers; why does the Lawrence Livermore & Berkeley Labs buy millions of dollars worth of Macs?
+- To me, what makes physics physics is that experiment is intimately connected to theory. It's one whole.
+- Of course, in all magic tricks there's a secret.
+- Physics is about questioning, studying, probing nature. You probe, and, if you're lucky, you get strange clues.

@@ -1,0 +1,14 @@
++++
+author = "Larry J. Sabato"
+title = "Larry J. Sabato Quotes"
+quotes_len = "8"
+description = "the best 8 Larry J. Sabato Quotes"
++++
+- The presidential candidates are offering prescriptions for everything from Iraq to healthcare, but listen closely. Their fixes are situational and incremental. Meanwhile, the underlying structural problems in American politics and government are systemic and prevent us from solving our most intractable challenges.
+- I doubt God would want to touch America's tax code, since it is already located in the third rung of Hell.
+- Because of the structure of the contemporary American party system, every president is polarizing.
+- We all live in the moment, and we often mistakenly believe that what is true today was true always. Not so in politics, and especially in Congressional elections.
+- Shockingly, the Bidens donated under $1,000 to all charities combined every year for the ten years prior to 2008.
+- Politics is a good thing!
+- If we really want to make progress and achieve greater fairness as a society, it is time for elemental change. And we should start by looking at the Constitution, with the goal of holding a new Constitutional Convention.
+- The Constitution remains brilliant in its overall design and sound with respect to the Bill of Rights and the separation of powers. But there are numerous archaic provisions that inhibit constructive change and adaptation. These constitutional bits affect the daily life of the republic and every citizen in it.

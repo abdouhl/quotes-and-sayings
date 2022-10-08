@@ -1,0 +1,12 @@
++++
+author = "Cecily Brown"
+title = "Cecily Brown Quotes"
+quotes_len = "6"
+description = "the best 6 Cecily Brown Quotes"
++++
+- When I moved to New York, I was waiting tables, painting in the daytime and working at night, and I felt it was possible to find a balance and just about get by.
+- Often, I find it really hard to see what I'm doing when I'm in the thick of things. I can get too precious and have to force myself to put my paintings aside. There's a wall in my studio where I hang paintings that I think are done or nearly done. Over time, I'll realise which ones are working and which aren't.
+- I have always wanted to make paintings that are impossible to walk past, paintings that grab and hold your attention. The more you look at them, the more satisfying they become for the viewer. The more time you give to the painting, the more you get back.
+- I often avoid using the terms 'figuration' and 'abstraction' because I've always tried to have it both ways. I want the experience of looking at one of my paintings to be similar to the process of making the painting - you go from the big picture to something very intense and detailed, and then back again.
+- I'm not the kind of artist who has an idea and then carries it out; it's more like I find what the idea was through doing the paintings.
+- My process is really quite organic, and starting a painting is one of the best parts for me. I always start in quite a loose and free way. I often put down one ground colour to begin with and then play off that.

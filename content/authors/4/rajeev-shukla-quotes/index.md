@@ -1,0 +1,16 @@
++++
+author = "Rajeev Shukla"
+title = "Rajeev Shukla Quotes"
+quotes_len = "10"
+description = "the best 10 Rajeev Shukla Quotes"
++++
+- Misdeeds of a few players and certain people cannot and should not bring bad name to hundreds of players who participated in the I.P.L. with full honesty. The reputation of the I.P.L. cannot be tarnished by a few greedy individuals.
+- People change their opinion according to your position. And both politicians and bureaucrats begin to take you more seriously, as they suddenly feel you have become more important.
+- I don't try to hurt people in any way, and I try to help out wherever I can.
+- I realise that, strutting around in power corridors for political coverage, a journalist becomes half a politician.
+- I was given the task of I.P.L. Chairmanship which I tried to perform to the best of my abilities. The tournament was organised well despite all the controversies. The stadiums were jam-packed, which proved that I.P.L. was still popular.
+- I have always believed that what goes around comes around.
+- I do not take up a responsibility unless I am sure of putting my heart and soul into it.
+- I don't do negative things.
+- Having been a journalist for almost 20 years and then becoming a politician has definitely been an interesting and enriching experience for me.
+- I have decided to quit as I.P.L. Chairman. It is a decision which I was pondering over for some time.

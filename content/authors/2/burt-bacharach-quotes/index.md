@@ -1,0 +1,19 @@
++++
+author = "Burt Bacharach"
+title = "Burt Bacharach Quotes"
+quotes_len = "13"
+description = "the best 13 Burt Bacharach Quotes"
++++
+- The music is the last thing I'm thinking about right now, in order of what's important.
+- A small town is a place where there's no place to go where you shouldn't.
+- Knowing when to leave may be the smartest thing anyone can learn.
+- It's not getting any better, is it? I don't want my 19-year-old boy going into the army. I love these little kids. They understand how passionate I am.
+- Because I was small, I was getting the hell kicked out of me playing football.
+- I felt alienated at school, and I never did well with girls.
+- I was blown away by the standing ovation. I've had tributes before, sure, but I don't retain that feeling, and I wasn't prepared for it on Tuesday. But maybe you shouldn't retain these things or you'd be on a permanent high.
+- I started playing piano with a little band in high school. I was terrible. I thought I had absolutely no talent. I couldn't keep time. I only got into McGill, which was a lousy music school, because they were taking American music students.
+- A synonym is a word you use when you can't spell the word you first thought of.
+- I'd met Dr Dre, he was thinking about his next album, we talked a little and he said, 'Let me give you some of these loops and see what you come up with'.
+- I recorded the song live in front of an orchestra, and yes, I was very moved, I was in tears.
+- I've always had a problem with people who couldn't tell the truth or admit a mistake and say they're wrong.
+- Never be ashamed to write a melody that people remember.

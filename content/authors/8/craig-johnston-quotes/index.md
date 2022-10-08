@@ -1,0 +1,16 @@
++++
+author = "Craig Johnston"
+title = "Craig Johnston Quotes"
+quotes_len = "10"
+description = "the best 10 Craig Johnston Quotes"
++++
+- Our football program is bigger than any one person.
+- Now Jack Charlton wasn't wrong, I was a bad footballer.
+- So I did in fact spend two and a half years in the Middlesbrough car park practising skills. But if you spend four or five or six hours a day practising, you get better.
+- I've always had an inquisitive mind about everything from flowers to television sets to motor cars. Always pulled them apart - couldn't put 'em back, but always extremely interested in how things work.
+- So for a year I spent all my time hiding from Jack Charlton in the car park practising my skills.
+- OK, the wonderful thing about soccer is, a football is a perfectly round object, and it doesn't make mistakes. The player using it makes mistakes. And the more you use it, the less mistakes you make.
+- You know, I was crap. But I had the commitment, and I had the understanding, that the basis of football is skill on the ball, and if you spend the time with it, you're gonna reap the rewards.
+- The main thing I do now is I coach kids, and all of these stories along the way are based in reality.
+- We were having a trial game against Leeds, and Jack Charlton was the boss of Middlesbrough at the time.
+- And I think they loved me because I loved being part of their team, you know, and I quite often say to kids, that I was the worst player in the world's best football team - and that was good enough for me.

@@ -1,0 +1,24 @@
++++
+author = "Rod Rosenstein"
+title = "Rod Rosenstein Quotes"
+quotes_len = "18"
+description = "the best 18 Rod Rosenstein Quotes"
++++
+- There's a lot of talk about FISA applications. Many people I've seen talk about it seem not to recognize that a FISA application is actually a warrant, just like a search warrant.
+- The Internet allows foreign adversaries to attack America in new and unexpected ways. Free and fair elections are hard-fought and contentious. There will always be adversaries who work to exacerbate domestic differences and try to confuse, divide, and conquer us.
+- Laws are there for a reason, and we have an obligation to follow them.
+- In any political job, you recognize that your time is going to be limited.
+- Although the president has the power to remove an FBI director, the decision should not be taken lightly.
+- Americans struggling with addiction need treatment and reduced access to deadly drugs.
+- The Federal Bureau of Investigation has long been regarded as our nation's premier federal investigative agency.
+- The blame for election interference belongs to the criminals who committed election interference. We need to work together to hold the perpetrators accountable, and keep moving forward to preserve our values, protect against future interference, and defend America.
+- Notwithstanding my personal affection for Director Comey, I thought it was appropriate to seek a new leader.
+- To end the drug crisis, we should educate everyone about the dangers of opioid drugs, help drug users get treatment, and aggressively prosecute criminals who supply the deadly poison.
+- Derogatory information sometimes is disclosed in the course of criminal investigations and prosecutions, but we never release it gratuitously.
+- You approach the cases, not thinking that you have some obligation to win but that you actually have to evaluate the facts and make sure that you're doing the right thing.
+- In order to get a FISA warrant, you need an affidavit signed by a career law enforcement officer who swears the information is true... And if it is wrong, that person is going to face consequences.
+- The partisan warfare fueled by modern technology does not fairly reflect the grace and dignity of the American people.
+- Under the leadership of President Trump and Attorney General Jeff Sessions, the Department of Justice is delivering results. Many federal, state, and local agencies are working with us to combat opioid addiction.
+- When federal agents and prosecutors quietly open a criminal investigation, we are not concealing anything; we are simply following the longstanding policy that we refrain from publicizing non-public information. In that context, silence is not concealment.
+- Our nation is grounded on the rule of law, and the public must be assured that government officials administer the law fairly.
+- In our justice system, everyone who is charged with a crime is presumed innocent unless proven guilty. It should go without saying that people who are not charged with a crime also are presumed innocent.

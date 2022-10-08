@@ -1,0 +1,106 @@
++++
+author = "Linda Colley"
+title = "Linda Colley Quotes"
+quotes_len = "100"
+description = "the best 100 Linda Colley Quotes"
++++
+- Before they became Americans, most white inhabitants of the 13 colonies considered themselves British. It was predictable, therefore, that they would lust after empire, because this was exactly what their counterparts on the other side of the Atlantic also did.
+- London is not just an international financial centre: it is also one of the most ethnically diverse places on earth. Three hundred languages are represented within its boundaries, and - as is true of some other English cities - more than half of London's inhabitants describe themselves as non-white.
+- In Britain, British history is naturally a mainstream subject. Step outside your own narrow specialism, and you can find yourself treading on someone else's toes. But in America, British history is an eccentric, minority pursuit, and while this can be intellectually isolating, it also permits extraordinary freedom.
+- Responding to Britain's future challenges will require unceasing agility in seeking out new alliances and refurbishing old ones inside Europe, not just outside it.
+- Never fly to the U.S. the day before Thanksgiving or the weekend after because every airport is guaranteed to be crammed to bursting with people in transit to, or from, their home town.
+- Once conscription was introduced during the First World War, and once Britain's wars ceased being confined to the empire or to continental Europe and began seriously threatening our own shores and safety, it became much easier to denounce any anti-war agitation and argument as inherently irresponsible and unpatriotic.
+- Much of how Americans have always understood their history, culture, and identity depends on positioning Europe as the 'other,' as that 'old world' against which they define themselves.
+- The immediate impact of British imperial free-trading was often the collapse of local indigenous industries which were in no position to compete, and a consequent destruction of livelihoods and communities.
+- In the past, the imperialism of the West, like that of the rest, was often difficult - for the doers as well as for their victims - but western states were, nonetheless, usually able to dispatch forces overseas against non-western peoples without any fear of being attacked themselves. That kind of immunity is probably now a thing of the past.
+- America's entire homeland security enterprise positively invites questions even as it strives to reassure.
+- Modernity is a shifting entity, not easily defined. Exactly the same is true of empire.
+- Hillary Clinton is tough, clever, and formidably well briefed, and has been politically ambitious all her adult life.
+- In 21st-century America, as in Georgian Britain, elections are raucous, flamboyant, flag-waving, expensive, and sometimes ramshackle things.
+- Most national holidays in most countries rest on selective memories of the past.
+- I'm struck by how impressively John Elliott assimilated new work on early modern England and colonial America, as well as keeping abreast with his own Hispanic studies, so as to write his recent 'Empires of the Atlantic World.'
+- It was hardly their own shining abilities alone that allowed a son, two grandsons, and a son-in-law of Winston Churchill to make their way into parliament.
+- Far from being aberrant and un-British, criticising a war in which our troops are actively engaged is a long-established parliamentary and political tradition.
+- The U.S. is the most benign great power we will see in our lifetimes, and it is important for global peace that its leaders continue to value being viewed as benign.
+- Thanksgiving is America's favourite holiday, and a brilliant piece of personal as well as patriotic calendrical invention.
+- The British especially have no excuse for forgetting that empire is a most complex and persistent beast. And it has claws.
+- The American revolution not only cost Britain the 13 colonies but also forced it to rethink the slave trade and slavery, and influenced its power relations in Asia and the Pacific.
+- Once you know how completely and suddenly the earth can open up at your feet and the worst can happen, it also, paradoxically, leaves you more afraid of everything else.
+- Anyone who has spoken to experienced combat troops knows that they rarely brag about their exploits. Strong and silent is the preferred style.
+- If you believe you are the city on the hill, the world's best hope, it is tempting also to believe that outside your boundaries are barbarians.
+- Historically, individuals possessed of the confidence that privilege and good fortune bestow have often proved conspicuous reformers: think only of Franklin D. Roosevelt.
+- In the 16th and 17th centuries, most people in Britain lived in small village communities. They knew all their neighbours. They dressed alike, and almost all were white. The vast majority belonged to the same religion and spoke much the same language.
+- A society that feels itself to be flourishing is likely to interpret everything that happens to its own advantage and in its own image. By contrast, a society that feels confused or in decline often converts any event - however innocuous - into a weapon of self-laceration.
+- Although Britain has, since 1653, had nothing approaching a single, codified constitution, it did for a very long time possess a broad cult of constitutional writing. The Petition of Right of 1628, like the Bill of Rights of 1689, was a cherished text. So, most of all, was Magna Carta.
+- America's soldiery, like its war dead, comes disproportionately from its southern states and from its aspiring poor - both white and black.
+- One knows something is important when the powers that be choose not to acknowledge it in public.
+- British prime ministers and prime ministers' spouses and children are together becoming ever more like first families. They need to be given sufficient resources and personnel to enable them to carry out their shifting roles efficiently, decently, and safely.
+- The 1857 uprising in India did not free the subcontinent, but it changed the way the British viewed and sought to govern it.
+- In the twentieth and twenty-first centuries, products and tastes developed in America have increasingly influenced lifestyles in Europe, whereas in previous centuries, it was generally the other way around.
+- Conservative and Labour governments have arguably championed British rights in Brussels so ostentatiously in order to deflect public attention away from their deference to Washington.
+- There can never be a single, satisfactory comprehensive account of the 'history of the British empire.'
+- The so-called Boer War advertised British vulnerabilities, and these were confirmed by the Irish rising of 1916 and the subsequent creation of the Irish Free State, blows that attracted the notice and attention of colonial dissidents in Asia and Africa.
+- Monarchs, aristocrats, and other powerful and wealthy individuals have usually been happy to have themselves and their possessions and families immortalised in oil paintings and sculpture. But before the 20th century, such dynasts rarely commissioned artworks that set out to represent society as a whole.
+- Look at how the British covered India with railroads, and it is easy to view them as modernisers. Look, however, at the abysmal levels of mass illiteracy in the subcontinent they left behind in 1947, and they appear rather differently.
+- I write to relieve an intellectual itch. I stumble across a hitherto neglected set of events, transformations, characters, or source materials from the past, and they nag at me until I make sense of them in words. But I also write to seduce and to make my readers think.
+- Had Barack Obama been obliged to take his degree at the University of Akron, say, it is doubtful that his progress would have been remotely as stellar.
+- In the past, rulers led their troops into battle and, even in peacetime, called themselves fathers of their people. And modern politics retains abundant masculine rituals. Prime minister's question time in Britain, for instance, is a stylised duel and tournament redolent of testosterone.
+- One of the benefits of working outside the U.K. is that I don't have to keep fielding media/politicians' enquiries about 'Britishness' and its ills.
+- Even at its most powerful, Britain always needed alliances with other European states. There would almost certainly have been no British victory at Waterloo, for instance, without the assistance of Prussia.
+- Like the proverbial elephant in the room, American anti-Europeanism has loomed large for so long that few trouble to notice it.
+- It is hard to convince people that you mean them well if you are looking at them down the barrel of a gun.
+- I don't even know if I'm British any more. I'm transatlantic, I'm European.
+- The United States was founded on a revolution that abolished the monarchy, aristocracy, titles and primogeniture. Britain may be able in the future to become a more equal and open society while retaining all of these things. But this has yet to be proved.
+- In the past, Britons were scathing about the cruelties of the old Roman empire and the excesses of Catholic empire builders such as the Spanish and the French. They convinced themselves that their empire was different and benign because it rested on sea power and trade rather than on armies.
+- The argument that any income redistribution is tantamount to socialism, and that socialism has always been unAmerican, has helped legitimise keeping taxes on America's very wealthy very low.
+- In the U.S., highly selective renditions of its history have served in practice to impose blinkers on some of its citizens and catered to vested interests.
+- I was in Boston, Massachusetts, when Princess Diana died.
+- Any kind of new U.K. federal system would almost certainly demand the creation of a written constitution. Properly drafted, such a document could, among many things, pin down more effectively the proper dimensions of prime ministerial power.
+- In both British and American history, fervent imperialism has always coexisted with bouts of fierce isolationism.
+- Since the Second World War, as female expectations and opportunities have risen, becoming a royal woman - and remaining a royal woman - has seemed less and less an attractive proposition.
+- Partly because women in the U.S. are better represented in the hierarchies, the culture wars over gender there have been particularly fierce.
+- Irrespective of their party affiliation or wishes on the matter, those governing from 10 Downing Street now have to take on much of the aura and role of head of state. And this is bound to have heavy consequences for their family.
+- From the very beginning, Americans have exhibited a taste for expansion, an appetite for empire. One of the fundamental reasons for this is very clear. Like every other western empire that has ever existed, Americans may claim to have inherited the mantle of ancient Rome.
+- Embarking upon war is always dangerous for national leaders because it makes them more than ever at the mercy of events. When domestic opinion is acutely divided, however, war can be politically lethal for its makers.
+- The Canadian risings of the 1830s obliged the men in London to think much harder about settler self-government.
+- States that have experienced revolutions or have acquired their independence from empires - such as the U.S. or Australia - tend to celebrate their constitutional documents and put them on show in special galleries so that every citizen can become familiar with them. In the U.K., this is not properly done.
+- Traditionally, royal females who have not had the luck to become queens regnant have been granted very limited roles. They have been expected to look pretty, be discreet, do charitable good deeds, and - if married to princes or kings - be quietly supportive and, above all, fertile.
+- For many on the Right, America is to be routinely celebrated because it stands for free enterprise and global power; for many on the Left, America merits perpetual suspicion and censure for the self-same reasons.
+- As Ronald Reagan demonstrated, it is still possible to progress if not from a log cabin at least from obscurity to the White House. It is also rare.
+- For good or for ill, Britain is in some respects moving away from a prime-ministerial system towards a presidential one. This is emphatically not, as is sometimes argued, simply a function of Tony Blair's personal ambition. The shift towards a more presidential style was already visible under Margaret Thatcher.
+- Too close and unthinking an allegiance to Washington has sometimes got British governments into trouble.
+- Men and women do not live by bread alone. They also need sustaining ideas.
+- Globalisation is not remotely new; it has been occurring, at differing rates and with differing degrees of scale, for centuries.
+- Many of the Victorian and Edwardian activists who campaigned for Irish home rule, for instance, also wanted what they called 'home rule all round': separate parliaments not simply for Ireland but also for the Scots and the Welsh - and for the English.
+- Instead of exporting what they perceived to be rational, modern, humane government to their colonies, the British often found themselves propping up deeply unattractive and corrupt princelings and client rulers because this was the cheapest way of maintaining control.
+- If the U.S. and its allies can invade a weaker country on the excuse it is abetting terrorism, then why should not India, say, launch a pre-emptive strike against Pakistan on the self-same grounds?
+- One of the reasons why the personnel of U.S. politics are more diverse is that - unlike the U.K. - one can compete for the top job without spending long years, or any years, in the nation's legislature.
+- Governments should encourage and facilitate the teaching of history, but one does not want them to be able to dictate, for political or partisan reasons, what kind of history and interpretations are on offer to children.
+- Empire in the past was always a far harsher and much more accident-prone business than conventional history books imply. And the costs of these overseas invasions were borne not just by those on the receiving end but - frequently - by ordinary, vulnerable people among or associated with the invaders.
+- Of course the U.K., and its component parts, should seek out as many connections with as many parts of the world as is profitable and feasible. But to play any kind of global role effectively, the U.K. is likely always to require allies within its own continent, and far more enterprise needs devoting to this.
+- To be sure, political unions between European countries have often failed in the past, but usually only after relatively brief periods. Denmark and Iceland separated after 130 years; the unions between Spain and Portugal and between Sweden and Norway each lasted less than a century.
+- The gulf between imperial ideals and empire on the ground has customarily proved disillusioning not only for colonial peoples but also for some in the occupying power.
+- The children of politicians learn the allure and tricks of politics along with their alphabet. They inherit a network of useful contacts, and - if they're lucky - a name that confers instant voter recognition.
+- Now, as in the past, rank is closely associated with modes of representation and display: with making an ordered arrangement of people or things visible and evident to onlookers in some fashion.
+- A vital part of Trump's appeal was his promise to make America emphatically great again, staunching the haemorrhage of jobs and investment to China and Mexico, and cutting back on handouts to NATO and illegal migrants.
+- For a very long time, loyalists were often left out of patriotic American histories of the revolution. Or they were caricatured as upper-class Tory reactionaries, or - rather like the Jacobites - made the subject only of nostalgic antiquarianism.
+- High-level political wives are by no means new. In the 18th and 19th centuries, when patricians dominated British political life, it was common for politicians' spouses to play an active political role.
+- Historically, religion has often proved a more lethal and more divisive force than any secular ideology. It has also often been a more divisive force than race.
+- Britain, like other European states, is not and never will again be in the top-world-power league, so its male leaders can afford to play subtler, more variegated roles. Leaders of the U.S. don't have that option.
+- Although England, and the rest of the United Kingdom, possesses momentous constitutional texts and significant statutes, since the 1600s there has been no systematic attempt to codify the powers and limits of the British executive and the rights of those it governs.
+- 'Captives' was a deliberate bridging exercise, an attempt to use detailed knowledge of what Britain was like on the inside, to reach a deeper, more variegated understanding of how its peoples experienced external adventures and aggression over a quarter of a millennium in four continents.
+- Even leaving aside its military bases, America's influence on the domestic ordering of British life has been enormous, though sometimes unrecognised.
+- A break-up of the U.K. would affect the deployment and strength of its armed forces and play havoc with the ownership of its overseas consulships and embassies.
+- Brussels and its multifarious networks provide member states not just with trading access but also a guarantee of regular encounters, negotiations, contacts, informants, and alliances.
+- Margaret Thatcher's decision to use Scotland as a testing ground for the poll tax was arguably the most disastrous attempt at fiscal engineering since London slapped the stamp tax on the American colonies in the 1760s.
+- America is the proud possessor of the oldest extant written constitution in the world, which was for its time - 1787 - a highly innovative and important document.
+- Acts of violence against one's own countrymen that are legitimated by religion are not new. Nor have such acts been unique to Islam.
+- Postcolonial critics are, I suspect, wrong when they argue that the mass of British people still mourn the loss of empire. But Britain's politicians - and its Foreign Office - have found it hard to adjust to the loss, not so much of onetime colonies as of the global clout the colonies once afforded.
+- From the American Revolution right up to the Second World War, the U.S. was more likely to provoke suspicion among members of the British establishment than deferential approval. It was seen - with good cause - not just as a potential rival for empire, but also as dangerously egalitarian, worryingly innovatory, and excessively democratic.
+- I was born and spent my first five years in Chester, an ancient city that retains some of its Roman walls and fortifications and contains a great medieval cathedral, as well as Tudor, Stuart and early 19th century architecture. Visiting these things was free, and my parents - who had little money - made the most of this.
+- Transatlantic flights are unflattering. Hairstyles flop. Makeup melts away. Faces shrivel or swell from dehydration, and contact lenses give way to spectacles.
+- In the U.S. - and elsewhere - successful parties need a storyline that voters can relate to, an intelligible plot of some sort, especially now that so many older, formal ideologies have lost force. For proof of this, one has only to look at Margaret Thatcher's career and ideas.
+- Many Britons who backed Brexit believed - and believe still - that a U.K. 'freed' from 'Europe' would be able to recover and re-establish its historic destiny as an independent global trading nation.
+- Many Americans remain very interested in royal goings-on in general, and not just because of their soap-opera appeal. To a greater degree than any other polity, Britain functions as Americans' defining 'other.'
+- Both Conservative and Labour politicians in Britain are rather too fond of praising the relative 'classlessness' of American society and of urging their own people to emulate it. There is a certain falseness about such arguments, and also a certain hypocrisy.
+- American prejudices about Europe rarely surface in headlines, but they are real, pervasive, and ingrained.

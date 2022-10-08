@@ -1,0 +1,93 @@
++++
+author = "Lynsey Addario"
+title = "Lynsey Addario Quotes"
+quotes_len = "87"
+description = "the best 87 Lynsey Addario Quotes"
++++
+- I'm constantly struggling. You know, the stories that I feel like I could cover, do the work that I want to do and being a mother. That's really where my struggle is - and being a wife and having a life - and for me it's really hard to find that balance. I'm always struggling to find that balance.
+- I knew that my interest lied in international stories. I was interested in how women were living under the Taliban, for example.
+- I never went to school for photography and started when I was pretty young. I was somewhere around 12 or 13. I started photographing as a hobby and carried that hobby through high school and university.
+- A lot of women act like it's the easiest decision, and I'm just going to have a baby and put my life on hold and not be worried about it. Well, I was worried.
+- One day I am at home, watching dramatic images of Iraqi Yazidis fleeing for their lives being aired nonstop on 24-hour news channels. Days later, I am there, staring at tens of thousands of displaced Iraqis and feeling a 35-millimeter frame cannot capture the scope of devastation and heartbreak before me.
+- I had first visited Kurdistan in 2003 before the invasion of Iraq, camping out in Erbil and Sulaimaniya while waiting for Saddam Hussein's fall.
+- I've worked for over 11 years in the Muslim world, and the one thing that I feel like I've learned - who's to say if it's true or not true, it's just my experience - is that men don't like to see really strong, aggressive women in that area of the world.
+- For me, taking photographs is such a tortured process. I'm always feeling like I'm not getting enough: I'm in the wrong place, the light isn't good, the subject's not comfortable.
+- The truth is, the difference between a studio photographer and a photojournalist is the same as the difference between a political cartoonist and an abstract painter; the only thing the two have in common is the blank page. The jobs entail different talents and different desires.
+- I started freelancing for the Associated Press. I had a great mentor there who sort of taught me everything.
+- In a place like Afghanistan where the society is completely segregated, women have access to women. Men cannot always photograph women and cannot get the access that I get.
+- For me personally, I'm constantly trying to really re-negotiate how I'm going to make a living because I can't make a living solely off editorial. And I'm also still trying to tell long feature stories that are harder and harder to get assigned, you know.
+- I just immediately connect everything to the wars I have been covering overseas, and that's not the case back home. I wrongly assumed all Americans at home were as consumed with our troops in Afghanistan as I was abroad.
+- I'm not the kind of person to sit and dwell for ages on something that happened. I go through something, I experience it, I try to learn from it, and I move forward.
+- It's very hard to turn your back once you're aware of what's going on, and you're aware of the injustices, and you're aware of the civilian casualties. It's much easier if you have no idea and you've never seen it.
+- Photography of any living being, according to Taliban rule, was illegal. So when I went to Afghanistan, immediately I was worried about photographing people. But it was what I wanted: to show what life was like under the Taliban, specifically for women.
+- I've always wanted to do a photo book, but I've never done one because I've never felt ready; I just didn't feel my work was good enough.
+- I interviewed dozens and dozens of African women who had endured more hardship and trauma than most Westerners even read about, and they ploughed on. I often openly cried during interviews, unable to process this violence and hatred towards women I was witnessing.
+- I wanted the ideal personal life, but I also wanted to keep rushing off, and that doesn't work, not unless you've got an incredibly understanding partner.
+- The fact is that trauma and risk taking hadn't become scarier over the years; it had become more normal.
+- I didn't want my gender to determine whether or not I could cover breaking news.
+- Most people, when they meet me, one of the first things they say is, 'Why would you voluntarily subject yourself to war? Why would you go into these places where you know there's a risk of getting killed?'
+- In so many countries, Western journalists are viewed simply as dollar signs. We're ransom objects.
+- If publications want to publish images and stories from a certain person, they should put that person on assignment, cover his or her expenses, make sure they have access to security briefings and experts, someone to administer first aid, etc.
+- The more I photographed Muslim women, the more I was able to metaphorically strip away the burqas and hijabs, and start chipping away at the profound misconceptions that existed in other parts of the world about these women and their culture.
+- With each assignment, I weigh the looming possibility of being killed, and I chastise myself for allowing fear to hinder me. War photographers aren't supposed to get scared.
+- The Taliban rose to power in 1996, vowing stability and an end to the violence raging across the country between warring mujahedeen factions, and to implement rule by Sharia law, or strict Islamic rule.
+- With photography, I always think that it's not good enough.
+- I try not to get caught up in how our society is so inundated with images, and stay very focused on the work that I'm doing.
+- When I'm documenting, for example, a story on women in Afghanistan, I will do a huge amount of research and a lot of time on the ground just getting to know the women before I even start shooting.
+- If people really saw what was happening in Iraq and Afghanistan, then they might be marching in the streets to end wars. But you know, I think that no one ever sees because we're not allowed to see, and we're not allowed to publish what we do see. So it's quite difficult.
+- I was undeterred by the danger of traveling as a single American woman through Taliban-governed land. I believed in the stories I wanted to tell, the stories I felt were underreported, and I was convinced that that belief would keep me alive.
+- To me, it's so much about doing your homework, going into a situation, getting to know the subject, making them feel comfortable, getting intimate access, getting access to all different aspects of people's lives so that I am essentially telling an entire story and not just a single image.
+- I think it's important to have perspective and to look at what you don't necessarily want to see.
+- I think, for me, personally, I try to be sensitive to issues as I learn about them. And I also try to constantly become not only a certain type of person but also become more in tune to the issues I'm covering. As I get older, I think that things just affect me more.
+- Becoming a mother hasn't necessarily changed how I shoot, but it certainly has made me more sensitive, and it certainly makes it much harder for me to photograph dying children.
+- My job is to take the pictures, communicate a message, to bring those images to the greater public through whatever publication I'm working for. My job is really to be a messenger, and that's what I've been doing.
+- Family is such a fundamental part of Islam, and women run the family. I had to force myself not to impose my own definition of political and social freedom on women in Islam, and approach each story objectively.
+- I had imposed unspeakable worry on my husband, Paul de Bendern, on more occasions than I could count.
+- As a photographer who is constantly in violent, bloody situations where the instinct is to turn away, I am always trying to figure out how to make people not turn away.
+- You have to believe 100 percent in what you're doing, that some picture or some thing we do is going to change the world in some tiny, minute way.
+- I was kidnapped by Sunni insurgents near Fallujah, in Iraq, ambushed by the Taliban in the Korengal Valley in Afghanistan, and injured in a car accident that killed my driver while covering the Taliban occupation of the Swat Valley in Pakistan.
+- Obviously I am a photographer and I believe in my medium: I do think that powerful photographs can force change. It doesn't take long to look and be engaged in a strong image whereas, with a story, you have to actually sit down and pause and be involved in it.
+- As a war correspondent and a mother, I've learned to live in two different realities... but it's my choice. I choose to live in peace and witness war - to experience the worst in people but to remember the beauty.
+- I think when I started going to war zones and started covering humanitarian issues, it became a calling because I realized I had a voice, and I can give people without a voice a voice... and now it is something that sits inside of me every day.
+- As a Western woman in the Middle East, I am often put in a different category. I am sort of like the third sex. I am not treated like a man. I am not treated like a woman. I am just treated like a journalist. That is usually really helpful.
+- I wanted to continue doing my work, but I had to figure out how. And so what I have basically come up with is that I still go to Afghanistan and Iraq and South Sudan and many of these places that are rife with war, but I don't go directly to the front line.
+- I've seen so many photographers rush to do books the minute they start shooting, but one great thing about photography is that the images don't go away, so the more I sit with these images, the more I learn which ones have had the most impact.
+- As a woman, I have tried to take advantage of the extra access I have in the Muslim world: with Muslim women, for example. Many people underestimate women in that part of the world because, typically, they don't work.
+- I come from a big family of hairdressers; they didn't read newspapers. I would say, 'I'm off to Afghanistan...' and they would say, 'Have fun!'
+- Journalists dedicate their lives to covering war - they make many personal sacrifices, and it's not something that's gender-based. In a place like Libya where there's heavy fighting, it doesn't matter if you're a man or a woman.
+- I do think my childhood is one of the fundamental reasons that I'm able to do my job. We were raised in this totally nonjudgmental family. We never knew who was going to walk in the front door. And as a journalist and a photographer, you walk into so many different scenes that you have to be open to everything.
+- The first time I visited Afghanistan in May 2000, I was 26 years old, and the country was under Taliban rule. I went there to document Afghan women and landmine victims.
+- My life isn't always at risk, even if I'm in a war zone. A lot of these places have areas of calm, so covering war doesn't necessarily mean being shot at all the time.
+- For me, it's more about being there, bearing witness to history, bearing witness to what's happening, what our country, the position our country is taking overseas. I want policy-makers to see the fruits of their decisions, basically, and to try and influence foreign policy.
+- I remember the moment in which we were taken hostage in Libya, and we were asked to lie face down on the ground, and they started putting our arms behind our backs and started tying us up. And we were each begging for our lives because they were deciding whether to execute us, and they had guns to our heads.
+- By the time the United States went to war with Afghanistan in the fall of 2001, I had made three trips to the country. I covered the fall of the Taliban in Kandahar and have been returning routinely for the past 14 years.
+- I grew up in Connecticut, going in and out of New York City, and I worked in the city in the '90s. I was freelancing for the Associated Press, and I fell in love with New York.
+- Sometimes when I am photographing a major news event, I am suddenly overwhelmed by helplessness.
+- My strength is looking for composition and light, and I think those things come in the quieter times of war or photographing people affected on the margins of war - civilians, refugees; that is where I really excel.
+- Let's get one thing straight: I am not an adrenaline junkie. Just because you cover conflict doesn't mean you thrive on adrenaline. It means you have a purpose, and you feel it is very important for people back home to see what is happening on the front line, especially if we are sending American soldiers there.
+- When I first started out, I really felt like, 'I'm a journalist; I will be respected as a neutral observer.' And I don't feel like that holds true anymore. I don't think people respect journalists the same way they once did.
+- I was lucky because I had parents who have enabled me to do whatever I was passionate about and never held my siblings and me back from anything. But I think a lot of people don't have that experience.
+- If I'm doing a story on how a single mother copes in a refugee camp, I'll go to her tent; I'll follow her when she's working, see what her daily life is like, and try to pack that into one composition, with nice light, in one frame.
+- Every story takes its toll on me and leaves an impression on me.
+- To me, it's so much about doing your homework, going into a situation, getting to know the subject, making them feel comfortable, getting intimate access, getting access to all different aspects of people's lives, so that I am essentially telling an entire story and not just a single one.
+- The possibility to mobilize the international community to act on human suffering is what drives me every day as a photojournalist.
+- It seems like, yeah, of course - I always think my work is important, or I wouldn't risk my life for it.
+- I didn't know a single female photographer who covered conflict who even had a boyfriend, much less a husband or a baby.
+- Since Sept. 11, many of the wars of our generation are in the Muslim world. So as a woman, I have access to 50 percent of the population that my male colleagues don't.
+- Don't expect things to happen fast. Be empathetic with the people you are photographing. Don't be concerned about money.
+- It was nice to be in my own country, where I didn't need a translator or a driver. Where I didn't need to figure out cultural references or what hijab I needed to wear to cover my hair.
+- I think there were times when I first started out, when I was covering Iraq - I was basically living there in 2003 and 2004 - that car bombs and attacks became so the norm that it was weird for me to leave and realize that no one else actually cared about what was going on there.
+- Nothing seemed more important to me than to make the world aware of the senseless death and starvation in South Sudan. I wanted people to see through the eyes of the suffering so my photos might motivate the international community to act.
+- For a journalist who covers the Muslim world, we have responsibilities to be familiar with that culture and to know how to respond to that.
+- I got rejected from journalism school!
+- You have two options when you approach a hostile checkpoint in a war zone, and each is a gamble. The first is to stop and identify yourself as a journalist and hope that you are respected as a neutral observer. The second is to blow past the checkpoint and hope the soldiers guarding it don't open fire on you.
+- I'm not very religious at all - I was raised Catholic, but probably haven't gone to church since my Holy Communion when I was about 6 or 7.
+- I would never think of myself as a role model.
+- Where in the world would I rather be than on the front line of history?
+- I've rarely seen portrayals of photojournalists that seem accurate.
+- I think that more often than not, people underestimate me.
+- I'm a very open person, very self-deprecating. I accept my flaws.
+- Americans are really lovely people - friendly, kind and willing to help you out.
+- Look, I would say that anyone who does this work and doesn't have a strain of idealism is an adrenaline junkie or completely narcissistic. There is no other justification. You're risking your life, and if anything happens, it's our families who suffer tremendously.
+- I generally don't follow domestic news that much aside from how it relates to the stories I'm covering abroad, like what Americans think of the War in Afghanistan.
+- I always knew my death would be a possible consequence of the work I do. But for me it was a price I was willing to pay because this is what I believed in.

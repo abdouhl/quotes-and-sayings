@@ -1,0 +1,41 @@
++++
+author = "Ben Hopkins"
+title = "Ben Hopkins Quotes"
+quotes_len = "35"
+description = "the best 35 Ben Hopkins Quotes"
++++
+- We're not writing songs to solve a cultural problem. The goal for us is to express what we're going through, and it's great if people find commonality in that.
+- I'd say, at the end of the day, you know, from a songwriting practice standpoint, you write songs to make yourself feel something true and validating, and cathartic, maybe, and then whoever responds to it is, like, out of your control.
+- When you're a queer person put in the spotlight, you're supposed to have all the answers.
+- What we do is provide a suggestion. We say, 'We're queer. We're going to do this; we're going to open up the space to queer thought.' People don't have to show up, but they do.
+- If you listen to PWR BTTM, or to Gloss, If you look at me on stage, it can make you feel less alone. It makes you feel like you're a queer person and you have this singular power, but it's not like we're a brand. We're just real.
+- PWR BTTM isn't the only queer rock band. We've been lucky to receive a platform. If you go on Bandcamp and search for 'queer rock,' you can find 150,000 bands that you could love more than PWR BTTM.
+- It's not about the individual notes. It's about the energy.
+- I'm in a car so much on tour that I often just ask my friends to DJ and ask them what they like. That's the best way I discover music.
+- The most radical thing about our lives is getting to be in a visibly filled-out queer crowd every night.
+- Rather than writing about my experiences with other people, 'Ugly Cherries' is the first song I've ever written about myself. It's a confrontation: an attempt to unpack my own queerness with humor and self care.
+- I'm a freewheeling flower-child falling down the stairs constantly.
+- Queer is invincible because people have tried everything - haven't they? What haven't they tried to do to queer people? And horrible things happened. But you never stop, because it's the truth of who you are.
+- For me, choosing to perform in drag, because of all the things I enjoy about it, is a political act.
+- I know what we're going to do as PWR BTTM. We're going to put a new record out; we're going to go on tour a lot, and we're going to do cool stuff. We're going to try to be kind to our friends and family and loved ones. And we're going to look cute.
+- A lot of my queer development as a kid came from trawling the Internet.
+- PWR BTTM fans dress up better than we do.
+- When I started playing music, I was more of a character. Now I'm just me with a cool outfit on. I'm more comfortable being myself.
+- I feel like with PWR BTTM, Liv and I tried to create something that was kind and cared about the people who come.
+- I think the earnestness of what we're saying and what other bands like us are totally saying - or other queer bands - is 'We exist.'
+- I think that when you're queer, you grow up with these kinds of men who might have made you feel small because of who you are. They could be part of your family, or somebody on the street, or a teacher.
+- I want to say that our shows are safer-spaces shows. Don't push anyone or affect anyone's space.
+- Drag has always made me feel less scared.
+- I think that our work and our music stands on its own without this knowledge about our identity around it. But I also think that we very consciously decided not to hold back that part of ourselves, but to be very vocal about who we are, kind of what experiences we've had in life, and how we identify.
+- Is punk dressing up in leather jackets? No. It's having a counter-cultural perspective.
+- When fringe groups gather, there is power in that.
+- People who pigeonhole us for our queerness are not people I'm interested in knowing. They're so boring. How dare you be so boring? Grow up. Get some Ray-Bans.
+- There is power in organization. There is power in a community. People have always wanted to destroy communities.
+- All shows need more twinks.
+- As a white queer person of a certain degree of economic privilege, I think that my ability to pass as straight is a privilege that other folk I know don't have. It's important to keep in mind who really is in the most trouble and to direct our attention to assisting those people.
+- You can't deny who you are, so you might as well be yourself in the most authentic way.
+- It's our responsibility to cater to the needs of people who come and enjoy our work who have the same values we do. We're not trying to change the world. We're just sort of trying to deal with our specific lens of performance.
+- For queer people, the personal is very political, just to talk about it in a public space. It's very political just to come out and take up that space and be like, 'This is my narrative. It's not an outsider narrative, and it's not a fetish narrative; it's just my story, and it's worth being told and listened to.'
+- Creating a safe space at our shows isn't encouraging anything. It's just saying thank you.
+- Ben Hopkins is a very nervous, neurotic kind of person who is afraid of not being liked by people all the time. But, Monster-Me doesn't know who those people even are.
+- Like my gender, sometimes things don't come out right the first time.

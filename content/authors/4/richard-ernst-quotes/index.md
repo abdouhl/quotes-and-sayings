@@ -1,0 +1,19 @@
++++
+author = "Richard Ernst"
+title = "Richard Ernst Quotes"
+quotes_len = "13"
+description = "the best 13 Richard Ernst Quotes"
++++
+- I thus decided to leave the university forever and tried to find an industrial job in the United States.
+- A brief visit to Nepal started my insatiable love for Asian art.
+- Thus, after finishing high school, I started with high expectations and enthusiasm to study chemistry at the famous Swiss Federal Institute of Technology in Zurich.
+- However, I survived and started to read all chemistry books that I could get a hand on, first some 19th century books from our home library that did not provide much reliable information, and then I emptied the rather extensive city library.
+- Soon, I knew that I would become a chemist, rather than a composer.
+- I am not surprised that they show no intention to follow in my footsteps, although if I had a second chance myself, I would certainly try to repeat my present career.
+- I wanted to understand the secrets behind my chemical experiments and behind the processes in nature.
+- My father, Robert Ernst, was teaching as an architect at the technical high school of our city.
+- On the theoretical side, I was concerned with stochastic resonance.
+- In recent years, more and more of my time has become absorbed by administrative work for the research council of ETH-Z of which I am presently the president.
+- I recognized that teaching and research institutions vitally depend on the involvement of active scientists also in management functions.
+- Experiments were not attempted at that time, we did not believe in the usefulness of the concept anyway, and I finished my thesis in 1962 with a feeling like an artist balancing on a high rope without any interested spectators.
+- I became almost immediately fascinated by the possibilities of trying out all conceivable reactions with them, some leading to explosions, others to unbearable poisoning of the air in our house, frightening my parents.

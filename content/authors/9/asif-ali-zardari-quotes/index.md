@@ -1,0 +1,27 @@
++++
+author = "Asif Ali Zardari"
+title = "Asif Ali Zardari Quotes"
+quotes_len = "21"
+description = "the best 21 Asif Ali Zardari Quotes"
++++
+- Hamid Gul is an actor who is definitely not in our good books. Hamid Gul is somebody who was never appreciated by our government.
+- When my party won the elections convincingly on February 18th, 2008, we immediately reached out to other parties to form broad-based coalitions of national unity in the National Assembly and in the four provincial assemblies.
+- On the international political landscape, there is better understanding of Pakistan's political economic and strategic issues. We aspire to promote peace and harmony with the region.
+- As an independent person, I find it difficult being dependent for everything, for even my food and medicine, to the prison authorities. I have had to fight through the courts for everything, including even physiotherapy, which is my right under the jail manual.
+- If you will remember history correctly, even the Second World War was perpetrated by a stateless actor, by murdering the Prince Rudolf, if you remember. And so is the case with 9/11. It was a stateless actor which has made the world go to war.
+- One comes, and one goes. Basically, what you leave behind is the record.
+- You must keep in mind that Pakistan has suffered the aftermaths of the Cold War, and that Cold War had left deep imprints on our society. We were the worst sufferers from the ills of the Afghan war.
+- Not all political actors share our vision of fighting terrorism, lessening tensions in the region and focusing on building the economy. It is natural that they would challenge the government, but we have fought every challenge effectively. The daily ups and down of democracy should not be interpreted as lack of stability.
+- Pakistan has assured that it would not allow its territory to be used against India for any acts of terror. India must also reciprocate and address our concerns which are very genuine. Dialogue is the only way forward. Absence of dialogue leads to tension.
+- As a child, I was spoilt by my parents as an only son. They indulged my every whim, and I grew up in luxury.
+- I have done prison time for 13 years without any conviction.
+- Nobody will be allowed to use Pakistan soil for any form of aggression toward any friend or foe.
+- I have spent seven of the 12 years I have been married a victim of political persecution. I must be the first male spouse being held hostage by a regime. I accept this, as Pakistan has traditional elements who find it hard to reconcile with a man whose wife works and who other men salute perforce of her office.
+- Political disagreements have the colour and fragrance that normally is seen and felt in a political bouquet, while remaining united on one issue that democracy is the future of Pakistan.
+- I studied in Britain and spent great moments of my life there as a student living in Belsize Park. I admire the British trait of the stiff upper lip in the face of adversity. My wife studied in Britain, too, and both of us have many friends there.
+- Anybody from my soil is my responsibility.
+- After the assassination of my wife, our nation was perilously close to civil strife. If I, as the co-chairman of the Party, had asked my people to take to the streets, the very existence of the federation would have been threatened.
+- Democracies do not go to war. War is not our expression of thought.
+- What can I do if everyone from the president to a junior bureaucrat is dying to convict me. If I am such a criminal, what was I doing outside jail before my marriage to Benazir?
+- I am looking forward and I am hoping that I will be the catalyst that makes India and Pakistan live for peace forever.
+- The emphasis of my government is to take advantage from the Chinese experience in the fields of agriculture, fisheries, energy, infrastructure, development, health and high efficiency irrigation.

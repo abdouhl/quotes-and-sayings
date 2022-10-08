@@ -1,0 +1,27 @@
++++
+author = "Rodman Philbrick"
+title = "Rodman Philbrick Quotes"
+quotes_len = "21"
+description = "the best 21 Rodman Philbrick Quotes"
++++
+- As a writer, I'm convinced that encouraging children to write fiction, to hook into that marvelous machine called the imagination, has to be good for everyone.
+- Unfortunately, the author of a book pretty much gives up control of the story when the producers take over a book to make it into a movie.
+- What surprised me most about the Donner tragedy was that, given the terrible circumstances, how anyone survived at all.
+- I've always known that writing plays is very difficult, because I've written three or four that have never been produced.
+- I started writing stories in sixth grade. But writing wasn't cool, like being good at sports, or being part of the in crowd, or winning fights on the playground.
+- I'm not a playwright; I'm a writer who loves theater.
+- I wanted to make the world of 'The Last Book in the Universe' as real as possible, so I spent a lot of time thinking about it. I decided the world would be a very different place, but people would be pretty much the same.
+- I have vivid memories of junior high school. I didn't quite know how to deal with kids and make friends and all of that. If you talked to people who knew me at the time, they'd think I was a popular kid in school. But boy, I didn't feel that.
+- So long as you tell a story that falls within the fairly generous boundaries of the suspense novel, you're free to make the novel as good as you can. You're allowed to challenge the reader. You can experiment with voice and style.
+- I was never forced to write. At least, I was never forced or even encouraged to write fiction. Creative writing wasn't in the curriculum at my school when I was in sixth grade.
+- I am an avid fisherman, and my daily schedule is to write in the morning and then go fishing in the afternoon. In Maine, I fish mostly for stripers, and in the Florida Keys, I go after all kinds of game fish.
+- After I had written more than a dozen adult genre novels, an editor I knew in New York asked me to write a mystery for young adults.
+- As a young, ambitious novelist, writing for kids never crossed my mind.
+- I assumed 'Freak the Mighty' was probably too weird and melodramatic to find a publisher. I certainly never expected the book to have a profound influence on my career as a writer, but indeed it has.
+- You can't mess around with young readers - you have to cut straight to the heart of the story. The character can be complex, the plot can have some surprises, but the emotions have to be clear.
+- As a kid, books were my great escape and my salvation.
+- My parents were avid readers. Both had ambitions to write that had been abandoned early in life in order to get on with life.
+- I vividly remember my sixth-grade classroom. I remember what it smelled like, where I sat, what I could see out the window, and how I felt about things. Peel away my decrepit middle-aged exterior, and an important part of me is still twelve years old. It helps me when I sit down to write stories for kids.
+- There is no greater compliment for a writer than to have pleased a troubled child.
+- I believe that we have the ability to change our lives using our imaginations. Imagination is a muscle - the more you use it, the stronger it gets.
+- Soon after publishing a book for kids, my mailbox began to fill with letters from children all across America. Not because my novels for young readers are bestsellers - they're not by a long shot - but because today's kids love to write to authors.

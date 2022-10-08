@@ -1,0 +1,32 @@
++++
+author = "Faf De Klerk"
+title = "Faf De Klerk Quotes"
+quotes_len = "26"
+description = "the best 26 Faf De Klerk Quotes"
++++
+- I miss hunting and when I go home I always find an opportunity to go for a hunt again, out in the bush veldt.
+- Growing up at school I played a lot of fly-half and a lot of scrum-half, I thought I had a good boot but never really used it as much as I do now.
+- When I joined Sale I thought that if I did well there I would have a chance of making the World Cup squad. What I did not expect was how quickly I got back into the frame.
+- A charity approached me to help raise awareness for testicular cancer and there are now some great photos of famous South Africans in their pants helping to spread the word.
+- I play to inspire people and give confidence to young kids who might shy away because of their size.
+- I've always had lots of energy; it's just been about channelling it in the right way. I know I can be annoying, but that's just my way and hopefully more people than not like my personality.
+- It is not just willy-nilly running around. I need to fill certain spaces and make sure we are covered on both sides of the ruck and the numbers are right.
+- You need to be aware of what you're putting on social media and what you're talking about.
+- The South Africa public are very passionate and they just care a lot for their team. So if something goes wrong, because they are so emotionally invested in it, they feel as though we are letting them down.
+- We all say we enjoy playing rugby, but most guys don't really show it - and some guys I don't think actually enjoy it. So every time I arrive in the morning, I've always got a smile on my face. Once I lose that enjoyment, I will stop playing.
+- The massive thing that has changed for me was the game management aspect. I still get it wrong sometimes, we all do, when to attack and when to kick, how to control the game, speeding it up and slowing it down. Whereas I used to just go flat out, as hard as I can, get the ball out and get to the ruck as quick as possible.
+- You can have size but to be physical is a different story.
+- I just always play in a South African speedo when I play for the Springboks.
+- If you have heart and you are ready to work hard you will reach your dreams.
+- You need to adapt your game for what the team needs.
+- At Sale we're an up and coming club, wanting to draw bigger crowds. You can't just run everything, though, you need a balance.
+- It's good if people see me as a running nine but I wanted to be viewed as an all-round scrum-half, who can do anything at any time.
+- I'm pretty excited when I get a good kick up in the air and our wings start chasing, because I know it's a 50-50. When you kick well and compete well, the odds fall on our side.
+- One of my goals is to become the perfect player but you'll never reach that goal if your mindset is not right, I think.
+- I enjoy putting teams under pressure, forcing turn-overs and just being a pain really!
+- As nines in our system, we need to make sure that we come off the line and that we have numbers correct on both sides.
+- A multi-racial team with a black captain means a lot to the country. There will always be negative political parties in South Africa, but hopefully it's something to take forwards.
+- The popularity of rugby definitely grew in South Africa over the World Cup, and sport has great power, so hopefully it will make some difference. Even if it's just 1%, it's a bit of a change.
+- A World Cup is always a bit of a watershed for teams, so there will be new faces and players given the chance to perform at a higher level.
+- When we were younger, my brother and I would go out bow hunting. That got me into it. We hunted all kinds of wildlife - things with big horns normally. Deer, kudu, stuff like that.
+- You can always improve as a player; there's never a time when you can say anything is perfect.

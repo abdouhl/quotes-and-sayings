@@ -1,0 +1,58 @@
++++
+author = "Andy Mineo"
+title = "Andy Mineo Quotes"
+quotes_len = "52"
+description = "the best 52 Andy Mineo Quotes"
++++
+- For some reason, we have completely separated Christians who are rappers, and we have separated, I guess, regular rappers. I feel that we should be able to mingle, enjoy each other's company, and trade ideas.
+- The Bible is referred to in scripture as the sword of the spirit.
+- Technology has opened up the music business 100-fold and provided space for all kinds of new faces.
+- If someone announces me as a 'Christian rapper,' there's still an 'Eh, no thanks.' But perceptions are starting to change.
+- I really think there are two genres of music: good music and bad music. And I'm just trying to be on the side of making good music.
+- I don't like calling it Christian rap. Titles are so limiting. It's hip-hop. I'm a rapper.
+- I think when I show my vulnerability, people relate with that because they know deep down inside that they have vulnerable moments, and they can really connect and identify with me on those things.
+- It's far harder to love God and do his will than it is to be self absorbed and love my own will.
+- I started to have almost a realization that a lot of the evangelical leaders I looked up to and found hope in - I started realizing a lot of them just weren't the people I thought they were.
+- I found Beam when he was 16 years old. He dropped his SoundCloud page onto my Facebook. 'I listened to it and was like, these tracks are actually dope.'
+- Music is such a powerful tool, and there are so many people who need love and encouragement and hope.
+- Fellas, if you find a good woman, don't be scared of commitment. It is good for you. It causes you to grow up and deal with your selfishness like nothing else.
+- 'Hear My Heart' was constructed with the deaf in mind. I wanted a bass line that felt like a heartbeat. I wanted to be able to touch the speakers and feel a clear sense of rhythm.
+- I created 'You Can't Stop Me' without trying. There was nothing premeditated about that record.
+- Nobody - regardless of how they feel or behave - deserves to be on the other end of receiving hatred and discrimination.
+- No matter how successful you become... there's always that sense that you could be better.
+- I was wondering if any of my faith was real at all, and I started to let go of a lot of things that I had learned and say, 'Maybe I just need to start over entirely with what I have learned about my faith.' And that's what I did.
+- I feel like God's given me a gift that I want to steward and share with the world.
+- 'Hook' was one of my favorite movies when I was growing up, so we played with that theme on the title 'Never Land.'
+- People think hip-hop is evil, but it's sometimes the people making hip-hop that are evil. The genre isn't wicked, but the people in it are.
+- A lot of people don't know how to navigate: they think, once you become a Christian, you essentially have to become Ned Flanders.
+- I think I beat myself up more than anyone else.
+- I think the thing that makes Indiana basketball special is that they have incredible teams, both college teams and pro teams, and they're all about grit.
+- I think a lot of people are making music that shares their life experiences, and that's what I choose to do, too, but in my life experience, I also choose to try to find the hope in the music, and I think a lot of it has to do with my Christian faith.
+- I make it my business to be around people that don't look like me or think like me or act like me. I want to learn from them.
+- I'd love to get in a room with Kanye at some point, have a conversation, and see if something cooks up.
+- Hip-hop has always been about keeping it authentic and being authentically you. That is what I try to do in my music and when I speak about the Bible.
+- I hope people listen to the music. Don't write it off because there is a Christian doing it and it's been labeled that way, because if I'm honest with you, Christian rap for the most part has been corny.
+- I searched YouTube for 'deaf music videos' and watched them with the sound muted. I noticed that though you could understand the words being signed, the sense of rhythm was lost. That's when I had the idea to create a video where you could see the sounds you couldn't hear.
+- Going to church and stuff was just something I did with my mom.
+- We live in a society of triviality, and my music and what I'm about kind of starts to break that mold and adds more meaning and dialogue to hip hop.
+- I think, for a while, my music was exclusively for those who shared my beliefs. But I realized I was perpetuating the bubble that I was living in instead of inviting people into my world.
+- New York City is the greatest city on the planet. It's the capital of the world.
+- I'm my biggest problem; I'm the thing that stops me most from doing what I need to do to be successful or to achieve success in whatever area of life.
+- You always hear people say, 'I just want to live comfortably.' And I'm like, 'What does that mean?'
+- I'm not going to degrade women, and that's very anti-hip-hop.
+- I want to bring meaningful conversations to the table, and I want to shake some things up.
+- A lot of my friends - I am the only white person in their circle. Being able to hear other perspectives besides the white conservative approach has really given me a perspective that I want to share and challenge people to think about.
+- I had a lot of friends be kind of standoffish after I became a Christian.
+- It's really tough to be an active member of your church when you travel so much, but that's the stuff that keeps you going.
+- My biggest enemy is typically me.
+- The older I get, the more I desire simplicity.
+- There is very little room for humor and personality in hip-hop.
+- I told my mom I went gold, and she didn't know what that meant, and I was immediately humbled.
+- I don't really speak for anybody else's music, and I don't think I should, but I think the reason why people enjoy my music is because there's a level of honesty and transparency that people can connect and relate to.
+- Hopefully, at the end of all this, my music is going to be used as a tool to help people have meaningful conversations and meaningful relationships with themselves and with other people and with God.
+- I think there are more religious overtones in music because these artists want to be connected to greatness. What is greater or higher than God himself?
+- I think people see faith as a section of their life, like, 'I go to church on Sunday...' but for me, my faith runs through the entirety of my life.
+- I think 'Never Land' is, like, my first really strong attempt to create music... that can encourage people who share my faith but also challenge and intrigue people who don't.
+- I think in today's society we are dealing with an epidemic of fatherless homes. We're turning everywhere else for people to be fathered.
+- Being a Christian and seeing that white evangelical Christians were primarily the people who put guys like Donald Trump into office made my entire world explode.
+- I've never been about just trying to do what works. I've been about trying to authentically express how I feel.

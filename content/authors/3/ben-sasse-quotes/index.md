@@ -1,0 +1,106 @@
++++
+author = "Ben Sasse"
+title = "Ben Sasse Quotes"
+quotes_len = "100"
+description = "the best 100 Ben Sasse Quotes"
++++
+- Modern technology gives us surprising glimpses into human development. It helps us plan for and celebrate new life.
+- As a former college president, I am well aware that every university is a complicated ecosystem, not a linear widget factory.
+- The health of our republic depends on shared principles like the First Amendment, but it is also built on the Teddy Roosevelt-like vigor of its citizens and local self-reliance.
+- The NBA has prided itself on free expression. Its players and owners have a well-earned reputation for speaking out on social justice in the United States. Sadly, it seems woke capitalism stops at the water's edge.
+- We have judges in the American system and they take on a black robe where they are supposed to shield their partisan preferences. They are not red or blue state judges. They are judges.
+- With a population of 1.4 billion, China is a lucrative market. But getting into that market isn't cheap. At best, the price of doing business in China is silence; at worst, it's reading talking points straight from the Chinese Communist Party. Beijing is not subtle about it.
+- Obamacare is a big deal to me. It's terrible legislation.
+- We must not extend nor expand Obamacare. We need a completely different solution to help those caught in the Obamacare snare.
+- The signers of the Declaration of Independence did not pledge their fortunes and sacred honor so the federal government could play 'helicopter parent' to a free people. They saw government as our shared project to secure liberty, doing a few big things and doing them well.
+- Planned Parenthood can't hide their sickening abortion business behind a 'safe, legal and rare' slogan.
+- I'm from a farm town that when I was a kid was about an hour outside of Omaha.
+- Obamacare is not popular.
+- Before becoming a college president, I helped over a dozen organizations find strategies to get through some very ugly crises.
+- There were giant scale barriers to becoming a nuclear power, whereas launching a cyberattack requires only some coding capability, a laptop and an Internet connection.
+- Government never adapts quickly to new challenges, but our slow-footedness on cyber is unparalleled.
+- Obamacare arrived also because Republicans failed to persuade the public that we could address the avalanche of problems government had already created by decades of interfering with the health-care market.
+- Since arriving in Washington in January 2015, I have pushed for a strategic framework that clearly articulates how we'll tackle threats in cyberspace.
+- Good history is good story-telling. And good story-telling demands empathy; it requires understanding different actors, differing motivations, competing goals.
+- We should be reforming our entitlement programs to empower people.
+- I think most Americans believe in a basic social safety net.
+- Politics matter, but politics can't come first. If politics come first in your life, something is wrong with you. It's a sad thing.
+- It is good for kids to learn how to work.
+- Democrats have long held an advantage over Republicans on health care, mostly due to a perceived empathy problem in my party.
+- I think Medicaid harms people.
+- Some of the United States' enemies now assume, perhaps rightly, that we hate each other so much that we'd sooner collaborate with them than do the difficult work of listening to each other. It doesn't need to be this way - but national recovery won't come from Washington. It has to start with you.
+- I'm often asked by search committees for public and private universities to help them think about how to find their next president.
+- Among the responsibilities of each citizen in a participatory democracy is keeping ourselves sufficiently informed so that we can participate effectively, argue our positions honorably, and hopefully, forge sufficient consensus to understand each other and then to govern.
+- My average duration in a job is more like six months, because I've done crisis and turnaround stuff for two decades. I've been in a lot of companies and not-for-profits and institutions that were really on fire; in a lot of ways, the Senate is the least urgent, least serious institution I've ever worked in.
+- Keeping our agricultural sector strong and secure should be a bipartisan concern.
+- The first time I began to really think about politics was in fifth grade, during President Reagan's first term.
+- Republicans must sell a big-cause, problem-solving vision - low-ego and happy-warrior in tone.
+- We must energetically tackle the significant problems the voters rightly want Washington to be addressing.
+- The nature and scope of security threats in the cyber era are four-dimensional compared to the early nuclear age.
+- Obamacare has eliminated choices for millions of families, suffocated patient-centered medical innovation, and moved the United States closer to European-style centralized planning.
+- Persevering and getting through hardship makes you tough, and at our house we celebrate stitches. As long as we didn't do permanent damage to their spine that's going to have lasting effect, we applaud and celebrate stitches at our house.
+- An institution of higher education is a partnership among students and alumni, faculty and administrators, donors and trustees, neighborhoods and more, to build a community - and a culture.
+- Obviously, we shouldn't be having any American officeholder or any American candidate looking for foreign nations to come in and be involved in U.S. elections.
+- We must repeal Obamacare, but even more, we must replace the worldview that underlies and enabled it.
+- Courts do not make the law.
+- The #MeToo movement is a very important movement. It's messy. And it's complicated. And there are places where it's going to overreach.
+- My life is too mundane for anyone to write up.
+- In policy arena after policy arena, Democrats respond to every failure of clunky government by proposing the addition of still more layers to 1960s-era bureaucracies as they break down.
+- Abortion is emotional and difficult to discuss.
+- Look at trade and automation: two competing but slightly overlapping forces in the shrinking of the duration of jobs right now. We have to be able to talk honestly about how disrupted this world is going to be, and it is crazy to mislead people and say we're going to bring back all of the big factory jobs by creating a protectionist regime.
+- My wife, Melissa, and I, together with our neighbors, try to create experiences for our kids that build character. We want our kids to exercise their muscles and their minds.
+- Reducing everything immediately to good and evil is bad history - not only because it isn't true, but because reductionism is unpersuasive; it is boring. Good history, on the other hand, demands that one talk socratically - that one can present alternate viewpoints, not strawman arguments.
+- I don't trust that the big-business part of our coalition is ever going to defend federalism and argue against regulatory capture. I don't trust that populists are going to defend religious liberty and the rights of creedal minorities.
+- Farmers and ranchers need long-term certainty about who they will be able to sell to and under what terms.
+- Members of the Supreme Court have lifetime tenures because they're not supposed to do politics.
+- The longest-term thought many people have in D.C. is how can I be sure I don't do anything that so annoys either my base or my general electorate that I might not be able to get my job back? I don't think that's the right way to think about it.
+- Well, I think it's clear that the climate is changing. I think reasonable people can differ about how much and how rapidly. But I think it's clear that it's changing and it's clear that humans are a contributing factor.
+- I think we are doing a bad job of helping our kids understand that they have huge resiliency.
+- Our pandering politicians compete to add names to the dependency of entitlement rolls instead of evaluating the success of these programs by how many people leave the dole and are restored to an independence. And these bulging entitlements are saddling our offspring with unsustainable generational debt.
+- Democrats have bad ideas and Republicans have no ideas.
+- The USMCA is a good deal for American agriculture.
+- I'm a right-wing conservative.
+- I don't think that our Founders would believe that America could long prosper if the people were not readers.
+- Subsidies and bailouts cannot compensate for uncertain or permanently diminished market access.
+- There's no Democratic and Republican seats or gyms or coffee shops at the Supreme Court. Every American should be able to celebrate the fact that we aspire to nine justices who are looking to defend our rights and to defend the Constitution, not to advance policy preferences.
+- Deepfakes - seemingly authentic video or audio recordings that can spread like wildfire online - are likely to send American politics into a tailspin, and Washington isn't paying nearly enough attention to the very real danger that's right around the corner.
+- Becoming a reader grows our horizons, our appetite for the good, the true and the beautiful, and our empathy.
+- From the first-year students' fall orientation to the board's annual budget-approval meeting, everything a healthy college does requires a shared sense of mission.
+- If you're not ten minutes early where I'm from, my dad chews you out.
+- A family's desire to be able to keep its health insurance when changing jobs or geography (a problem that Obamacare doesn't make any better, by the way) is perfectly reasonable.
+- The American work ethic is, thankfully, still deeply engraved in rural Nebraska souls. This is who we are, and we here in Nebraska have far more to teach Washington, D.C. than Washington, D.C. has to teach us.
+- It doesn't matter whether the challenge we face is large or small, whether it's a statewide disaster or a crisis just on our own block - Nebraskans face it with courage, goodwill, and the unwavering conviction that we are part of one community of neighbors and friends.
+- Living in a republic demands a great deal of us.
+- I'm a politician who has to for a time serve in public life, and I get death threats. And it is what it is because you've put yourself out there in the public square.
+- Obamacare cannot be fixed and Republicans must not extend this disastrous legislation.
+- Every day, across our state, we see grit and resilience.
+- The Chinese Communist Party and the American people are locked in conflict.
+- We ought to have the courage of our convictions and confidence in our own ingenuity. After all, that's what America is all about. Either that, or learn Mandarin.
+- Congress is where Americans are supposed to have our big, messy political fights. That's because the people who make the laws need to be hired and fired by the people. Don't like the laws? Fire the lawmakers.
+- The word deepfake has become a generic noun for the use of machine-learning algorithms and facial-mapping technology to digitally manipulate people's voices, bodies and faces. And the technology is increasingly so realistic that the deepfakes are almost impossible to detect.
+- Being stuck in adolescence - that's a hell. 'Peter Pan' is a dystopia, and we forget that. Neverland is a bad place to be.
+- My grandma was a child of the Depression, and knew the tragedy of having her home outside Diller was destroyed by a tornado.
+- The #MeToo movement doesn't belong to Republicans or the Democrats. The #MeToo movement belongs to women who are having the courage to come forward and say this is wrong. People should be protected. We want that for all of our daughters and all of our sisters. We also want there to be rights for the accused.
+- We lack an educated, resilient citizenry capable of navigating the increasing complexities of daily life.
+- I do worry that we're failing in a whole bunch of fundamental ways to distinguish for our kids between needs and wants. And we're failing to distinguish between production and consumption.
+- One important lesson I learned over and over is that, when you walk into any troubled organization, there is a delicate balance between expressing human empathy and yet not passively sweeping hard truths under the rug.
+- If the Republican party becomes the party of David Duke, Donald Trump, I'm out.
+- When I was a kid, we had airconditioning in the house... but we never used it.
+- I think we should have a universal, a shared cultural or societal goal, of universal health insurance coverage. That's completely different from saying the government can solve all of those problems, or that it can micromanage every aspect of the health delivery system. I think we know that it can't do that.
+- I didn't go to Harvard because I thought they had good academics. I went because they had crappy enough sports so they'd let me play.
+- Politics is about maintaining a framework for ordered liberty so that people can live in the neighborhoods and the communities that they live in.
+- You know, my Uber driver rating is 10,000. People tell me it's the best rating. It's fantastic, believe me.
+- For a Nebraska kid in the late 1970s and early 1980s, Nebraska football was a quasi-religion, so I ran out to get The Omaha World-Herald every morning, salivating for the sports page. My dad, however, required that I read one front page story and one editorial before I was allowed to turn to the sports.
+- I read articles in the gym in the morning on a tablet or phone. Then I print out a stack of them that I carry around with me throughout the workday.
+- At our house we have come to conclude that building and strengthening character will require extreme measures and the intentional pursuit of gritty work experiences.
+- American elections should be for Americans. And the idea that we would have foreign nation-states coming into the American electoral process, or the information surrounding an election, is really, really bad.
+- The people I like most are the people who are principled enough on both the right and the left to believe it is their duty to advocate, even though they may lose, and are not committed to their incumbency over the future of America.
+- In America, we divide federal power between the legislative, executive and judicial branches so that no one holds too much power. This is sixth-grade civics: Congress writes the laws; the president executes the laws; and the courts apply those laws fairly and dispassionately to cases.
+- Most healthy people want to coach Little League, they want to go to church and they want to have great coworkers at the office and they want to put on faceplate when Nebraska's point football on Saturdays. That's the most natural way to live.
+- Martin Luther would be the headliner of any 'dead-or-alive dinner party' I would ever throw. He is, quite simply, one of the most fascinating brains and compelling personalities in history.
+- Rising political tribalism, shamelessly exaggerating our opponents' claims or behavior, is leaving us vulnerable: No one loves America's internal fighting - and our increasingly siloed news consumption - more than Vladimir Putin.
+- Work gives you meaning. Work turns you into a servant to your family and to your neighbors and to your local community.
+- Nebraska Republicans believe that Nebraska Democrats love their kids, and I believe we can have a constructive conversation with everybody.
+- We cannot let Obamacare expand geographically by setting up state exchanges, nor can we extend Obamacare's unlawful subsidies.
+- Few experiences help our kids discover the distinction between needs and wants like the great outdoors.
+- I believe zealously in conservative ideals, but Nebraskans want people who get things done, not just those who scream at each other.

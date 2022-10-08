@@ -1,0 +1,15 @@
++++
+author = "Chris Parnell"
+title = "Chris Parnell Quotes"
+quotes_len = "9"
+description = "the best 9 Chris Parnell Quotes"
++++
+- After college, I went to Alley Theatre in Houston to work in their apprentice actor program. I thought I was gonna get discovered. It didn't happen. I moved back to Germantown, Tennessee, outside of Memphis, and taught at my old high school.
+- One of the first exercises we did in acting class my freshman year was to stand in two rows, two lines facing each other as a class, and just make sounds and move in some completely nonsensical way out into the center of the room. Sort of make an idiot out of yourself, essentially, but to be okay with that.
+- I grew up Southern Baptist, so my experience was fairly conservative. Not archly so, but I think Memphis - when you get to certain parts of Memphis - are more liberal for sure. But I grew up, until I was about 13 or 14, in a section called Whitehaven, and then we moved to a suburb called Germantown - which is a pretty conservative area.
+- I appreciate and enjoy mathematics and science and all that side of things. I definitely have that side of me even though I'm not by any means an expert, but I love reading about physics and math and that kind of stuff. I wish I knew more than I did. I mean, I read books written for laymen, not textbooks or anything.
+- It wasn't until I got into seventh grade, I think, that I realized that doing plays might be a fun thing, and so I auditioned for the school play - and got in, as it turned out.
+- 'Saturday Night Live' is a very particular beast. What it celebrates are individuals who can stand out. I did good work there, but going onstage and saying, 'Hey! Hey! Look at me! Aren't I funny?' - that just wasn't my instinct.
+- I think I always was a bit of a class clown, but I don't know how successful I was at that. I always think, when I read about people being class clowns, I imagine them being actually very funny, and I don't know that I was. But I tried to be, I think.
+- Prior to going to college, I had a pretty strong accent, and that was one of the things I had to work on a lot. I went to North Carolina School of the Arts; my speech teacher... that was one of the things we really had to work on over the years, and thankfully I think it finally worked.
+- To be a teacher you have to have a very giving, selfless personality. I don't think I'm that selfless and giving.

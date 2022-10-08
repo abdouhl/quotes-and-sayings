@@ -1,0 +1,59 @@
++++
+author = "Robert Rodriguez"
+title = "Robert Rodriguez Quotes"
+quotes_len = "53"
+description = "the best 53 Robert Rodriguez Quotes"
++++
+- Don't give me any money, don't give me any people, but give freedom, and I'll give you a movie that looks gigantic.
+- The challenge is what was making it exciting. You don't want to do anything that's too easy or that you know that you can pull off, otherwise it's really not worth doing.
+- Creative people are notoriously the slowest to adopt new technology.
+- I wish I could freeze time or go back in time and watch my kids grow up all over again because it is just going by too fast.
+- I was a cartoonist when I was at university, but I decided to go into movie making knowing that I could still draw by doing movies, design work, story boards, and such.
+- When you go off in the world and make your life, and you come back to your home town, and you find your old high-school friends driving in the same circles, doing the same things, that's what Hollywood's like. It's a little block, little town. It doesn't really grow or change.
+- I usually have a couple of projects going on that are different. A 'Sin City' while I'm doing a 'Spy Kids' at the same time. I need different things going on.
+- When you put on the glasses in a 3-D movie they just kind of sit there and you forget about them.
+- Don't be told something is impossible. There's always a way.
+- I have 5 children of my own. They are bilingual, like most second and third generations. But they speak primarily in English and they couldn't find anything on television that represented who they are in this country.
+- Everything I've done has always been my own made up world with its own rules and its own made up stories.
+- People talk about immigration, but they won't talk about the corruption that actually exists between Mexico and the U.S.
+- Yeah, I was always a big fan of noir.
+- Your mind just goes to the craziest idea to lure people into the theater, and then you write your script around those elements.
+- A lot of people who watch DVDs are people who are interested in, if not moviemaking, then creativity in general.
+- What I love about new technology is that it really pushes the art. It really pushes it in a way that you can't imagine until you come up with the idea. It's idea-based. You can do anything.
+- What could make my life better? Oh, if I could only find that magic bottle that lets you never have to sleep. I have so much stuff I wanna do, but... That six or seven hours you have to be in bed with your eyes closed. What a waste!
+- Changing the game is a mindset.
+- You ask any moviemaker what their favorite movie experience was, and they'll say it was one of the first ones, where everyone had to pitch in and do everything together, and you had to struggle.
+- Everyone applauds each other's success in Hollywood because they know how tough it is, but it really comes down fundamentally to the process.
+- Frank is such a great visual storyteller, that if you study his artwork you see that his Sin City books are already the best movies never seen on the big screen.
+- Hollywood wants to own everything. I don't want to own anything. I don't want people just to make content, I want to empower and teach them to create content they own that they can exploit in any medium.
+- Really, children will support anything that is empowering to them.
+- I realized that everything I do is fantasy, whether it is an adult movie or a kids movie.
+- It's such a drag to make a movie.
+- People don't live in Austin to work, they work to live there.
+- It's rare for the studios to find a filmmaker who wants to make a family film. To find someone that has an idea, embraces it, has kids and wants to make something exciting - well, they don't see that too often.
+- If you create a good story that has a lot of story value... I think audiences like that. It's why they stick with the same TV show over and over.
+- I was from such a large family that when I first met my wife, I told her: 'You can go work outside of the house and I'll stay home and continue making my cartoon strips. Maybe I'll make some commercials nearby, you know I'll do anything locally, but I would love to just stay at home and raise the kids like I did when I was growing up.'
+- You create superheroes to take care of problems that can't really be solved another way.
+- The only thing I ever wanted to do is never have to work a day in my life.
+- I have so many friends who don't know how to cook.
+- If you do a film with a studio, agents step in, they start saying, 'My actor has to get this amount of money', and it becomes about deals.
+- The studios don't finance anymore, they get outside funds.
+- I was the one in charge of the kids growing up.
+- Don't look at all at what other people are doing. Think of what you're doing as completely fresh because if you imitate you're dead.
+- I like to keep my budgets at a certain price when I work for someone else, and even more so now that I'm working for myself, and use new technologies to deliver films that look like they have high production levels.
+- I kind of like working fast.
+- I do like strong women in my movies. I have five sisters, so I've just grown up with that model.
+- I get a lot done considering I spend half my day sleeping.
+- Sometimes I feel like I'm in a dream world, because it doesn't always seem too logical how things work out.
+- I always wanted to be a stay-at-home dad making art, making movies.
+- Usually, I'm just pleasing myself and I have very similar tastes I think to an audience, what that core audience really likes.
+- When you make an exploitation film, you always want to have a real issue. That's how they were always done.
+- If I'm excited about it, I'm pretty sure an audience is going to enjoy it. If I'm bored with an idea, you can bet they're going to be asleep. So I try to only do things that I'm fairly excited about.
+- I don't think anyone can be more of a predator than a human being.
+- I collect a lot of art.
+- I want to push technology boundaries to be more efficient.
+- Exploitation films were famous for taking an issue an exploiting it because they could move much faster than a studio could. If there was any hot topic, they would run out and make a quick movie and make a buck on it, by changing it around and using it, in some way, to give some relevance.
+- Low budgets force you to be more creative. Sometimes, with too much money, time and equipment, you can over-think. My way, you can use your gut instinct.
+- A movie goes from several stages, from idea to script. As you continue shooting, you will make some adjustments. You're constantly adjusting. It's like a piece of music. You're constantly trying to make it better.
+- I love working with great actors.
+- For me, Mexploitation seemed like something that should have existed, but didn't.

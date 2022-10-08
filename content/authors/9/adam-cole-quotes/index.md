@@ -1,0 +1,106 @@
++++
+author = "Adam Cole"
+title = "Adam Cole Quotes"
+quotes_len = "100"
+description = "the best 100 Adam Cole Quotes"
++++
+- There's no better way to start a year than to become the first-ever three-time ROH World Champion.
+- I think that battle that you have almost never goes away. You're always questioning and hoping that stuff goes a certain way, that you get a certain reaction.
+- I'm really, really close with Kevin Owens. We talk practically every day. He was a guy who really, really helped me, both in Ring Of Honor and Pro Wrestling Guerrilla.
+- I think it's cool that people care so much where I'm going to end up or what I'm going to do.
+- When you're young, you feel like you're Superman and that you can't be hurt.
+- There are good wrestling journalists and bad wrestling journalists. That's for sure.
+- But when it comes down to it, I'm a guy who feels like I should be a champion in NXT.
+- When I was nine years old and dreamed of being a pro wrestler, the thing I was most fascinated by was how much love the wrestlers got.
+- I had been wrestling with a fracture in my elbow and a slight tear in my triceps for quite some time, but it was continuing to get worse. As I worked through it, I ended up dislocating my shoulder and tearing my labrum. All of these injuries were on the same arm, so things like working out or even sleeping became increasingly difficult.
+- I do work incredibly hard. I eat, sleep, and breathe pro wrestling with all of my heart, and I'm always committed to giving this my all.
+- Fortunately for me, I discovered Ring of Honor. And I saw guys who were much smaller in stature but were putting on these amazing matches that I had never seen in WWE before. So I thought, at the very least, I'd love the chance to be able to wrestle in a company like that someday.
+- There is nothing I love more than pro wrestling, so getting to do that all over the globe with some of the best out there is my personal heaven.
+- As everyone knows, things change in pro wrestling all the time. To try and expect what's going to happen in the future is just foolish to me.
+- I'm a very shy, introverted person.
+- I grew up watching guys - like, I loved Mick Foley's ECW promos; I loved CM Punk's promos. There's this guy, Eddie Kingston. He was just a fantastic talker, so I used to study and watch him. I mean, gosh, there's just such a big list of guys who I used to study. I used to watch promos as much as I did matches.
+- I got signed to Ring Of Honor because Jim Cornette happened to be paying attention to something I was doing.
+- Of course the people in the Bullet Club will have similarities and always will, but finding what I can do as Adam Cole to be different is important.
+- Seth Rollins was just leaving Ring Of Honor when I was coming in, so I've heard him say very nice things about me in interviews and stuff. I always say nice things about him because of that respect I have for him. I watched him when I was working the independents while he was wrestling at Ring Of Honor, and I used to be blown away by his work then.
+- You don't make a statement unless you make noise.
+- I'm going to be with Ring of Honor for a while. So I'm focused on making ROH the best company it can be.
+- Ring of Honor always has a great general idea of what they think I need, and generally, we agree pretty quickly on what I want to do.
+- Ring of Honor is my home.
+- There's so many cool things that happen, where you want to kind of sit back and smell the roses and say, 'Wow, this is awesome!' But then you're already thinking a mile ahead about what the next landmark is, what the next goal is.
+- I think Ring of Honor is becoming a legitimate threat in the world of pro wrestling. To say that Ring of Honor would be WWE is getting a little bit ahead of yourself. At the same time, I think Ring of Honor can definitely be a place where guys can make a living.
+- My grandmother was one of the most loving, caring, and supportive people I've ever met.
+- Generally speaking, ROH championship matches are hard fought and grueling, and the fans are really into it. The ROH Championship means a lot to me for those reasons.
+- Being the first-ever three-time ROH world champion is pretty surreal.
+- There are people who are unsure, and maybe their minds can be changed based on someone's work and accomplishments. Those people are the ones I'm interested in having stay tuned and watching for the rest of my career.
+- If I was to tell you that I don't want to have a Wrestlemania moment someday, I would 100% be lying to you.
+- My grandmother played a huge influence in my life and helped raise me, and she and my mother saw how much I loved pro wrestling and how much I wanted to go after it.
+- I wouldn't be the performer I am if everyone thought I was the best. Having people against you, or who don't quite believe in you, gives a lot of extra fuel to never settle.
+- I started training when I was a senior in high school. I trained at the Combat Zone Wrestling Academy in South Philadelphia.
+- I am stoked to go over to Japan and experience that culture.
+- With me, Bobby Fish, and Kyle O'Reilly, I know on-screen we are these brothers whose bond can't be broken, and we are this faction. I promise you, it's very real behind the scenes, too. I've known those guys for years. We travel together all the time; we talk every single day.
+- Without Ring of Honor, I wouldn't be the wrestler I am or have the confidence needed to continue to grow in this ever-challenging sport.
+- I remember, the first CZW show I went to was 'Best of the Best 7,' and I loved the entire tournament. So, for me, to three years later go and win the tournament was very, very cool and sort of a full-circle moment for me, and certainly something I'll never forget.
+- There are some times I'm really busy and other times I'm not, but I prefer to be really busy because I generally don't know what to do with myself when I'm not wrestling or on the road.
+- For me, I've been very lucky because of my relationship with Ring of Honor. I'm very close with everyone there, and that includes the guys that negotiate the contracts.
+- The Internet, as a platform, I think is really fantastic.
+- For me, it's always been a financial kind of scenario. I was actually the first one who signed the 'exclusive to Ring of Honor' contract. I was the first guy who ever signed one of those contracts. That was tough for me because I had no one to talk to. I had no examples to go on. I was the guinea pig.
+- I've been in a lot of different factions my whole career, and all the guys who made up those factions are different performers. For example, if you look at the Undisputed Era as a whole, I'm very different than Roderick Strong, who's very different from Kyle O'Reilly, who's very different from Bobby Fish.
+- When you're an independent wrestler, committing a lot of time and effort into honing your craft as much as possible in as many different places as possible will catch the WWE's interest as far as the independent level goes.
+- I'm not just the best in NXT; I'm not just the best in the WWE: I'm the best on the freaking planet.
+- For me, travel is one of the biggest perks of pro wrestling. You get to see the world on somebody else's dime.
+- Like me personally, I'm not a huge football guy, but I do watch the Super Bowl every year, and I get into it because it's exciting.
+- For me, my number one guy would be Tanahashi from New Japan Pro-Wrestling. Like, watching him, like, this guy is a bonafide rockstar over in Japan. He can't even walk down the street without getting stopped, the way that he carries himself.
+- So when you're following guys like Kyle O'Reilly and Bobby Fish or The Young Bucks or Jay Lethal or The Briscoe Brothers, and you're going out and trying to really stick out and have a very memorable, talked-about main event, or the match of the night, like the main event should be, it's really challenging.
+- I think the guys who have been on NXT and got to go to 'RAW' or 'SmackDown' got the full experience. That's what I want.
+- When you say the word 'undisputed,' what do you think of? You think of something that is untouchable, undeniable. Myself, Bobby Fish, and Kyle O'Reilly are all of those things.
+- It's a really cool time to be a wrestling fan.
+- Regardless of who leaves and who stays, Ring of Honor is going to continue to be a healthy, growing, successful pro wrestling promotion.
+- I was a 19 year old kid; I was 170 lbs soaking wet. I didn't have an identity. I didn't have a look. I didn't have the proper gear. I was just a young guy trying to be a wrestler. So, to be honest, WWE didn't even give me a second look.
+- For me, generally speaking, I don't like to make a big deal out of stuff.
+- My parents split up when I was nine years old, and I started taking karate lessons at that point. I was very dedicated to my karate, and I looked up to my karate instructor kind of like a second father.
+- The Bullet Club from the beginning was just a group of talented guys who were having fun together and tried to make pro wrestling as exciting as it can be.
+- I think it's fun to fantasize about the idea of NXT and ROH butting heads and seeing which one will do better, especially with WWE looking at ROH guys to hire.
+- I look around and see guys that I've been on the road and traveled the world with in a WWE locker room, and we still think it's surreal. At least once a week, one of us will look at the other and just say, 'Can you believe we're really all here?'
+- There are good wrestlers, great wrestlers, and special wrestlers.
+- The first time I won the Ring of Honor World Championship, I was a kid - I was 23 years old.
+- Promos have always been something that I've taken very, very seriously.
+- You realize, as time goes on, there is a certain expectation now in 2018 where fans want to see cool, exciting, hard-hitting sports entertainment or hard-hitting pro wrestling, and there are ways to give them that without necessarily putting yourself in the hospital that night or not being able to move the next morning.
+- My two main trainers were John Dahmer and DJ Hyde. DJ Hyde mainly taught me how to be tough: I mean, the beatings that he used to give the students as far as wrestling initiations go were as tough as they come, and I'm thankful for it.
+- There is nothing that makes me more falsely arrogant, like, wanting to defend myself, than a TSA agent.
+- Nothing turned the NXT Universe upside down like The Undisputed Era's debut.
+- The list of guys who have held the ROH championship, that's an elite group of guys.
+- If you sit around and wait for things to happen, they're not going to happen the way you want.
+- Aside from ROH, just getting a taste of Wrestle Kingdom at the Tokyo Dome with NJPW has me really excited at the prospect of furthering and developing my career in Japan.
+- When you look back at the former Ring of Honor world champions, whether it be Daniel Bryan, CM Punk, Samoa Joe, Nigel McGuiness, the list goes on and on. These are the guys that built the lineage and importance of the Ring of Honor world championship.
+- I've been over to Japan a handful of times, and the fans there are some of the best. So supportive, so appreciative, genuinely excited to meet the wrestlers they watch.
+- Wrestling is not only my job, it's my life, so when I wasn't able to wrestle, I didn't know what to do with myself.
+- I would love, love, love, love a one-on-one match with Tanahashi, and I've never had one before. He's my all-time favorite New Japan guy. I think the guy's a rockstar. He's so cool, just in the ring and in person.
+- The only thing cooler than having a dream and accomplishing that dream is getting to do it with your buddies.
+- Any time guys move to 'Raw' and 'SmackDown,' I think that is what has kept NXT so relevant and has kept the fans so invested because they are now conditioned that whoever leaves or comes in, NXT, as a product, is going to give really exciting sports entertainment every time.
+- New York, specifically, has been very good to me throughout my wrestling career.
+- I always said to myself when I first started wrestling that I was gonna put absolutely everything into it - into becoming the absolute best pro wrestling that I could be.
+- I'm really close with Sami Zayn.
+- Ring of Honor has always been a company that focuses on youths and being a true alternative.
+- I always think back to that first night in Brooklyn, where I debuted, and it was this total surprise. I just remember thinking, 'I hope they care. I hope they remember me.' The way they embraced me that night, I knew it was the start of something special.
+- The fans in the U.K. are so passionate and cool. It doesn't matter what company you work for or which part of the country you're in: everyone is super educated and respectful.
+- Wrestling has gotten crazy lately in that guys can really make comfortable, good livings outside of WWE.
+- Ring Of Honor was so great to me and so great to many young talents where they really give you the ball.
+- I wanted to be a part of WWE and part of NXT first, as, if I went to 'Raw' or 'SmackDown' right away, I would always wonder what NXT would have been like.
+- Matt Hardy came into ROH with open arms. Matt came into ROH ready to learn.
+- Bobby Fish and Kyle O'Reilly are seriously like brothers to me.
+- I do feel in 2018 that pro wrestling has gone in such a different direction. Before, things were so black and white; now, it's shades of grey. It's not so much good guys and bad guys: there are people who are put in situations who do the right or wrong things, but people react to them like they are stars.
+- I think that is when guys are at their best: when you put pressure and have something to work towards and have something to compare yourself to or try to best them, it really does make you better.
+- I think the rating system is a way to open more discussion with wrestling fans about matches. To me, it's just another outlet to voice their opinions, so that's why I think they are so passionate about it.
+- When I was in school, if I was talking as myself and I was presenting something as myself or having to answer a question, I was so nervous. I would get red in the face; I would feel sweaty. I hated it. But anytime I was performing, like, if it was a talent show, or if it's through wrestling, I'm portraying or being someone else, I'm so comfortable.
+- I've been really lucky over the years with my health. To me, one major surgery at 27 years old isn't so bad considering my line of work.
+- Wrestling in the Midwest is always such a blast, and a favorite place of mine.
+- I've said this before, and I'll say this again: NXT is like a rock concert, roller coaster ride.
+- For anyone watching Ring of Honor out of the gate, they knew when they were watching an ROH event that they were watching a different level of wrestler from what they had seen.
+- I can't say enough good things about Matt Hardy.
+- I'd been told countless times, even before I got into pro wrestling, that I would never amount to anything and that I'd never achieve this dream.
+- I look at a guy like Velveteen Dream who has only been wrestling for a couple of years, and he's just filled with charisma, filled with talent.
+- I loved working with Jim Cornette.
+- I had a tryout when I was, like, 19 and totally not prepared. I was 170 pounds with homemade gear. At that point, I realized how far I had to go to even get looked at. Then, when I was 22 or 23, I was much more prepared, and that second tryout went way better.
+- When I was first started, when I was eighteen, I wrestled for a company that had a very hardcore fanbase and demanded a lot from its wrestlers. So, every single match, I would do every move possible. I would land on the concrete floor; I would land really high on my head just to try to impress the fans.
+- Shawn Michaels, to me and to so many people, is just the greatest in-ring performer of all time.
+- Steve Corino was a guy I met before I got into Ring of Honor. I got to work with Steve, and he kind of took me under his wing and really helped me.

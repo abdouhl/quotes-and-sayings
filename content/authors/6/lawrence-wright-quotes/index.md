@@ -1,0 +1,79 @@
++++
+author = "Lawrence Wright"
+title = "Lawrence Wright Quotes"
+quotes_len = "73"
+description = "the best 73 Lawrence Wright Quotes"
++++
+- Islam and the West have clashed in the past and have not clashed. There is nothing inevitable about it.
+- Contempt for men pervades the most obscure strata of our society.
+- I don't hold America responsible for the largely oppressive governments in the 22 Arab countries. There are repressive Arab governments that are our allies and there are those that are our nominal enemies. It doesn't make a whole lot of difference to what extent we're involved in propping up those governments.
+- I was a very religious teenager, and I moved away from that.
+- When I went to Egypt right after 9/11 I was very upset. I used to live in Egypt. I had a lot of friends there. I spent two years teaching there. I had very fond feelings for that part of the world, and the fact that a culture I liked so much had attacked my own culture was really very upsetting to me.
+- I feel like a 1960s graduate student. I still work on note cards. I've never found a better system.
+- The U.S. is such an unusual place in the world because you can believe anything you want.
+- People love to talk about the things that are important to them, but oftentimes as a journalist, if you're entering a world that's pretty esoteric and difficult to penetrate and has many barriers to outsiders, then the people inside that world just don't have the same language as you do.
+- Hubbard set up the Church of Scientology in Hollywood in 1954 for a reason. He understood that celebrity was increasingly a feature of American public life, and celebrities themselves were going to be worshiped as minor deities were in the ancient world. The idea was: if you could get them, think how many people would follow.
+- Dallas was not a caring city, but it was efficient.
+- Scientology is not a terrorist organization. Scientology has used intimidating tactics and vindictive litigation.
+- The Middle East has been a part of my life since I was a young man, when I went to teach in Cairo.
+- I was a conscientious objector during the Vietnam War.
+- Oftentimes, when I was reporting on conflict somewhere in the world or prison or wherever I might be, I'd be struck by the fact that religious beliefs were sometimes transformative, sometimes a motivation for violence.
+- There are a lot of reporters who I feel are a lot more courageous and fool-hardy than I am. Maybe at the top I'd put Dexter Filkins. He's an extraordinary man in terms of his nerve and ability to get into dangerous situations and tell the story cogently. He's bringing back real human stories. I admire that.
+- I love apples. I actually do eat an apple a day.
+- Certainly, the two things Scientology has on its side are money and lawyers, but those qualities won't save it if it can't find a way to bring new members into the fold.
+- For my parents, leaving the close social quarters of Abilene was like getting out of jail. They were not true West Texans; they had not come to love the unending monotony of mesquite barrens or the high, hot blue sky that made sunsets a matter of prayerful thankfulness.
+- If you call it al-Qaida or bin Ladenism or jihadism, whatever you call it, it's proliferated.
+- I don't want to constantly be writing about terrorism and strife.
+- When I was trained as a journalist, as a race-relations reporter in Nashville covering the end of the civil-rights movement, we were strictly forbidden to use the first-person pronoun. There was kind of an electric charge around it. To come out from hiding and use the word 'I' carried a lot of fright for me.
+- I spent two years in Cairo, and I felt a certain urgency about trying to understand the region and the conflict here, in the modest way that a journalist might be able to try and shed some understanding and enlightenment on a region that is profoundly conflicted, and a conflict that has real consequences for Americans.
+- Craziness doesn't have anything to do with how successful a religion might be.
+- The ideal 'New Yorker' profile is a person, an interesting person, at a critical point in his life.
+- A documentary film is a great way of helping people understand because, somehow, when one is able to see the people involved, it lends a certain immediacy and understanding that is hard to get on the page.
+- Societies that depend on natural resources tend to have certain inherent problems. The limited concentration of wealth - whether from oil, coal, diamonds, or bauxite - often leads to corruption and authoritarianism.
+- The lovely thing about the writing life is that you can point it in any direction.
+- What I've learned is that everybody really wants to sell their story. No matter who they are, everybody feels that what they're doing is the right thing, and if they could only explain themselves to a reasonable person that understands them, then maybe they'll listen.
+- When you're first starting on a project, you feel shy because you don't know very much, and you know that you're going to be ignorant and seem ignorant.
+- Every medium has its advantages and weaknesses and there are many things I can put down on paper that I might not be able to put into film or into a stage performance. In each form, one can communicate powerfully in different ways.
+- This age of terror will end one day, but whether our society can restore the feeling of freedom that once was our birthright is hard to predict.
+- If you get into Scientology, you will go to auditing. It's like therapy except that there is an E-meter between you and your auditor. That's a device that actually measures your galvanic skin responses. It's two metal cans that you hold. They used to be Campbell's Soup cans with the label scraped off.
+- I was in Austin on 9/11, and there were no flights, so I couldn't get to New York to cover the story, so I had to find more creative ways.
+- I got my initiation into the Middle East in 1969 when I went there to teach at the American University in Cairo for two years.
+- I like the serendipitous surprises of reality.
+- Scientology is probably the most stigmatized religion in America already.
+- IRS is very poorly equipped to make a distinction between what is a religion and what is not.
+- To me the notion that Palestinians are actually Jews is, I think, quite revelatory and very radical and a possible bridge that has been ignored, I think, in this entire controversy and there's ample evidence to support it.
+- Journalism is a flawed profession, but it has a self-correcting mechanism. The rule of journalism is: talk to everybody.
+- If you have great characters, then your reader becomes emotionally invested in those people.
+- The Israelis and the Palestinians don't know each other. They live right there, but they've become strangers. And it makes it much more difficult to make peace with a person you really don't know, and that's an obstacle in itself.
+- Scientology plays an outsize role in the cast of new religions that have arisen in the 20th century and survived into the 21st.
+- Every form has its merits. And I like to work in a lot of different forms.
+- There are many countries where you can only believe more or you can believe less. But in the United States we have this incredible smorgasbord, and it really interests me why people are drawn to one faith rather than another, especially to a system of belief that to an outsider seems absurd or dangerous.
+- I've always worried that one day women would figure out how to get along without us and they would be able to reproduce unilaterally, like sponges.
+- The 2003 invasion of Iraq by U.S. and coalition partners stands as one of the greatest blunders in American history. The Islamic State, also known as ISIL or ISIS, rose out of the the chaos, throwing the region into turmoil that hasn't been equaled since the fall of the Ottoman Empire.
+- I don't dispute Scientology can help people; I think that is a very important fact to keep in mind.
+- When I was in the ninth grade, I had a teacher in Dallas, Texas, named Elizabeth Enlow in English class. Every Friday, we had to write a little essay, and you had to incorporate three particular words into the story. That was the sole direction. And to me, this was so much fun.
+- In places where money comes out of the ground, luck and a willingness to take risks are the main denominators that determine one's future, not talent or education or hard work. Money that is so easily acquired somehow comes to seem well deserved, because those who have it must be either uniquely perspicacious or divinely favored.
+- I guess I made a resolution years ago that I would only do things that were only really important or really fun.
+- Life gives you so many alternatives to choose from, and... you judge these as best as you can until something comes along like 9/11. And it's the central event of my lifetime, so I knew I had to write about that.
+- Dallas was a place where dreamers like my father were given a chance.
+- When I was working on the al-Zawahiri piece, a large part of it published in 'The New Yorker' in 2002, I had spoken to a lot of Zawahiri's friends, people who had been in prison with him, people that had been in al-Jihad with him. And quite to my surprise, they liked that article a lot.
+- It's their belief, their own will, that holds people in Scientology, even oftentimes when they have been abused.
+- There are many different rivers that lead into despair: there's poverty; there's political repression; there's gender apartheid - there's a sense of culture loss; there's religious fanaticism.
+- A donkey is a very useful beast of burden.
+- From the very beginning, when you go into Scientology your world narrows down very quickly.
+- If you're on a contract at 'The New Yorker,' the contract specifies the number of words you will publish in the magazine per year. I get paid by the word, like most writers. That's one reason why the Scientology article was 25,000 words long!
+- People often pulled into Scientology want to address personal problems in their life, and Scientology says we have technology that addresses these kinds of problems. Just focusing on the problems and trying to remedy them can be helpful.
+- Our intelligence community was extremely poorly prepared before 9/11.
+- To an outsider, Abilene was like a small landfall in the Sargasso Sea - remote, laconic, and forever closed to strangers.
+- From the very beginning of this movement, Scientology has always been a very closeted organization. That aura of secrecy is something that the present-day management continues.
+- I get very antsy when I'm not occupied.
+- If you look at Mormonism, it's a very appealing community. It takes care of itself; there are active charities. It's got a successful work ethic. Whatever you might think about the authenticity of their theology or their history, it's immaterial in terms of how the religion itself actually functions.
+- I deplore sexual harassment.
+- I'm grateful for the ascendancy of women in business and politics, which may yet advance the humanity of those callings.
+- If you look at all those terrorist groups - I'm talking, going back, Hezbollah, Hamas, al-Nusra, al-Qaeda, ISIS - they're all proxy armies in an Islamic civil war.
+- You can't tell a story linearly if you want people to understand.
+- I think the commentarian has taken over, so now what you get is a lot less reporting and more opinion.
+- Religions prosper in large part because of the communities that they create.
+- What is interesting to me about film, and documentary film in particular, is that I can write about these people, and you trust my judgment, more or less, but when you're confronted yourself with humans who are right there on the screen telling you their story, you make a judgment yourself that is conclusive.
+- When the price of oil goes up, the entire Texas economy takes a deep breath. Millionaires blossom like rain lilies. News races through the countryside that the money train is pulling into the station. Hop on board!
+- I've always been intrigued by why people believe one thing over another.

@@ -1,0 +1,72 @@
++++
+author = "Bryce Dessner"
+title = "Bryce Dessner Quotes"
+quotes_len = "66"
+description = "the best 66 Bryce Dessner Quotes"
++++
+- Typically, people think, 'Oh the hippies and the punks hated each other,' or that those things don't go together musically. Sometimes that is true, but we had equal parts of both in our musical DNA.
+- Bands like Arcade Fire finding a larger audience has opened a lot of doors. They've empowered a whole community in Montreal.
+- For a composer of concert music, 40 is actually very young. But for a rock musician, 40 is almost past due, where you think of rock music as really part of more youth-oriented culture.
+- David Harrington asked me to write a piece for Kronos Quartet for a performance in Prospect Park, Brooklyn. I live just two blocks from the park and spend many mornings running around it. The park for me symbolizes much of what I love about New York, especially the stunning diversity of Brooklyn with its myriad cultures and communities.
+- Inviting artists to do something, you want it to be a place where they're going to feel challenged and excited and that will maybe open up some new doorway in their own lives or their own creative practice.
+- To me, a song like 'Demons' or the title 'Trouble Will Find Me' are acknowledgments that you can't really plan for life, and you can't plan for trouble.
+- I like to write on tour busses and airplanes. Something about moving.
+- With 'Boxer,' we made the kind of music we wanted to make and didn't really worry about what the expectation was.
+- When I'm scoring something like a string quartet, it's all notated music, so it's meticulously written in the score, which is very different than doing things by ear.
+- I've got this diverse education, growing up in classical music and existing between that and music that is more visceral, so for sure, I've always been interested in music from other cultures.
+- The thing I realised about composition is, we remember most composers for four bars of music. Four singable bars of music. Pretty much any major composer from Debussy to Ravel to Mozart to whoever else - you can kind of hum it.
+- Nobody plans on playing their own songs in front of thousands of people.
+- My grandmother was born in Russia, and she came through Poland on her way to America in the early 20s. She moved to Brooklyn.
+- We've gotten better as a live band. The songs have been allowed to grow with our audience. I don't think I would have done it any other way.
+- The danger of a rock band is repeating oneself. It's our greatest fear - that it evolves into the myopia of a semi-successful band that's in love with its own shadow.
+- I've always been in rock bands. I was in a rock band with my brother in high school. Then I was playing classical guitar recitals, and people said, 'You know, you can't really do both things.' My intuition told me they were wrong. Somehow, what was interesting about me was that I had those two things in my life.
+- If you learn classical guitar, you play Bach, and then John Dowland. He's the greatest. He's interesting for many, many reasons.
+- I think that place is a huge part of pretty much any musician's work, in how one responds to an environment, whether it be your actual surroundings or the more figurative place we're all living in.
+- Obviously, any living musician born after 1960 has been touched by rock and roll. It's the music of our time, and it's 'in the air,' as Steve Reich would say. My experience of it is just really direct because I'm actually playing in a collaborative band.
+- I call The National my family, and I'll be doing that as long as I want to.
+- In terms of identity, I'm the same person no matter what I'm doing.
+- We all contribute to The National, and it's like a familiar family. Matt is dad, Brian's like the dark horse uncle, Scott's the long-suffering mum, and Aaron and I are the bratty twins.
+- A lot of people ask how I ended up doing classical music given that I'm in a rock band. The truth is that it's the other way around. I was trained as a classical musician and then started playing in a rock band later.
+- There is much more immediate access to creative music through online communities and blogs which have touched all corners of the music world including contemporary classical.
+- My background in music is classical - I did graduate school in music. At that time, I was studying composition, but I was studying classical guitar very seriously.
+- As a pop musician, as someone who makes songs, the best ideas are the simplest. They come, and that's the lightning bolt moment.
+- I love the physicality of instruments, and instruments as objects, like dancers are bodies.
+- I came from a classical background, and I was teaching and earning a living out of music at a certain level, so it's funny to make it as a rock star when we're 40 or whatever.
+- When we learned to play in bands, what we were covering was equal part the Velvet Underground and the Grateful Dead. That would defy the logic that somehow these things don't fit in the same musical well.
+- When I'm writing instrumental music, I try to find musical and non-musical inspirations.
+- I can imagine myself as an old man writing music for choir or orchestra. I don't know that I'll be touring six months out of the year in a rock band when I'm 60.
+- Art is a way of life.
+- David Harrington, who's the violinist and founder of Kronos, is a super open-minded and adventurous guy.
+- Musicians are hungry for new music.
+- Early on, I was a performer playing classical music. It's in my DNA in a way that I can't begin to extract it.
+- As much as you try to organize your life, life will surprise you.
+- Playing pentatonic scales over orchestral music is not something I want to do or listen to.
+- Me, who's educated classically, I went toward rock music 'cause it was sort of a natural evolution from where I was playing with my brother. But I was always drawn back into classical music.
+- Being a classical musician, you can go to school for it; you can go get a degree. Even as a composer, there is a certain career path you can follow, but becoming a rock musician is a much more elusive career. How do you learn that or do that?
+- I don't labour over my lead guitar solos; they're better just caught in the moment.
+- When working with classical musicians, it is important to be clear as possible in the score about what my intentions are. Because there isn't a lot of rehearsal time, especially at the ballet, it's best if everything is written in the score.
+- I grew up going to see my sister dance, both at the ballet and later as a modern dancer, and have always been a big fan of the ballet. So I have had a long relationship with dance.
+- There are all kind of corners of the musical world that are deeply influenced by the Dead that one wouldn't expect. Lee Ranaldo is a crazy Deadhead.
+- We always say that National songs have to have a heart, that we don't make cold songs.
+- You don't come to our shows if you want to look cool.
+- I studied classical guitar in school, and that type of stuff has led to writing for Kronos.
+- In terms of the music, it feels almost like trouble's a good thing - you never know when a song is going to surprise you. We look for these subversive moments in songs.
+- For many people in the music conservatory world, the message was always, Focus! 'You can't do everything; you really need to specialize.' And especially at an early age, I ignored this advice.
+- For me, the exhausting thing about touring is the sitting around, which is why working on my concert music is really great - and also seeing concerts and seeing friends and, whenever possible, getting out to see a museum.
+- Working with Bob Weir directly, we learned how high the bar is for Dead music.
+- When I'm writing for certain instruments, you want to write within what you know about that instrument but also challenge the player. Something like 'Aheym' is very virtuosic - but because I have a history of performing music, I don't like unplayable music.
+- As a band gets more successful, there's a danger of falling in love with your own shadow.
+- I'm not trying to take over the world, but I find it really rewarding to write, and I thrive on learning.
+- As little boys, my brother and I used to spend hours with my grandmother, asking her about the details of how she came to America. She could only give us a smattering of details, but they all found their way into our collective imagination, eventually becoming a part of our own cultural identity and connection to the past.
+- Part of what I enjoy about writing classical music is communicating through the score and collaborating with such amazing musicians.
+- We've played in places where there were more of us onstage than in the audience.
+- There is a kind of adventure- and risk-seeking audience in classical contemporary music that is really empowering and part of what draws me to it. The people that come to these concerts are open-minded and curious.
+- As long as I'm still growing as a musician, it keeps me inspired.
+- There is a reactionary conservative side of classical music, which is not the most exciting side of it. The side that draws me in, there's a real encouragement of risk-taking, going back to masters of that tradition like Beethoven and Bartok and Stravinsky.
+- I think that becoming a successful rock band is a little like becoming a professional athlete. Nobody plans on it.
+- If you make rock music with guitars in it, the Radiohead comparison is inevitable.
+- It doesn't necessarily take four years to write a good piece of music. It might take four hours. It just depends on when your inspiration comes.
+- It's not a hard sell to be asked to do something in Ireland.
+- I can't just play in a rock band. The National is a great, exciting band to play in. We improvise a lot onstage, and it's very intense, but after a while, I crave other kinds of experiences.
+- I like to think of myself as a musical scavenger.
+- My main professional experience is touring in a rock band.

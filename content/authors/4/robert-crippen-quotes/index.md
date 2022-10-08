@@ -1,0 +1,21 @@
++++
+author = "Robert Crippen"
+title = "Robert Crippen Quotes"
+quotes_len = "15"
+description = "the best 15 Robert Crippen Quotes"
++++
+- I thought it was going to take a lot more countdowns on the pad. We actually did scrub once, but I figured we'd scrub several times since it's a pretty complicated vehicle.
+- Living inside the shuttle was a little like camping out. We ended up sleeping in our seats. You had to pay attention to housekeeping, not get things too dirty.
+- When you work really hard for something for a long time it's almost impossible to believe that it's coming true.
+- The real pleasure was having the chance to enjoy being weightless, and the other was to spend some time looking out at this beautiful Earth that we're all lucky to inhabit.
+- If you want to go into space first time on a new vehicle that's never been flown, you want to go with a pro.
+- I was selected to be an astronaut on a military program called the Manned Orbiting Laboratory back in '67. That program got cancelled in '69 and NASA ended up taking half of us.
+- The space shuttle has been a fantastic vehicle. It is unlike any other thing that we've ever built. Its capabilities have carried several hundred people into space.
+- We were flying on a winged vehicle that would do reentry different than we had ever done before. So all of those were firsts. Test pilots truly love firsts.
+- The nature of the shuttle was, we couldn't put a crew escape system in it.
+- Selection of crews is always been somewhat of a mystery.
+- You're going very fast when you're on orbit, going around the world once every hour and a half.
+- Looking down at the Earth, you started to pick up a sense of speed much more than I had noticed on orbit.
+- We were on the dark side of the Earth when we started to see outside the window this soft pink glow, which is a lot of little angry ions out there going very fast. We were hitting them very fast.
+- We were only on orbit a little over two days, so we had no adverse effects from being weightless.
+- Having the opportunity to fly the first flight of something like a space shuttle was the ultimate test flight.

@@ -1,0 +1,22 @@
++++
+author = "Choi Woo-Shik"
+title = "Choi Woo-Shik Quotes"
+quotes_len = "16"
+description = "the best 16 Choi Woo-Shik Quotes"
++++
+- I have always dreamed of working in the U.S.
+- I want to continue working with actors who truly enjoy the process of acting.
+- I'd like to create a character that is completely appalling, that it would make the audience tremble.
+- Kang-ho Song, in Korea, is like top of the food chain.
+- I feel the wall that divides films screened online and in the cinema is becoming less and less significant.
+- I really care about people around me, and I can't live without my family and friends.
+- When I was shooting 'Okja,' that was my first time actually seeing a trailer for actors.
+- I get the most joy out of acting and studying new characters.
+- In the States actors get their own trailers, but in Korea all the actors group up in one room, and stay there together the whole day.
+- When I was studying in Canada, we were so free.
+- I didn't know that I could act, but my friend told me, 'Before you do directing, maybe you should try acting. It would be better for you. When you know how to act, it would help you be a better director.' So I was like, Oh, maybe, okay, maybe I'll try.
+- There will be more chances for films to be released through streaming services, such as Netflix.
+- High school was really fun. I had lots of friends, I had activities, like basketball teams.
+- I'm always a little passive and can come across as being pathetic.
+- The production scale of 'Okja,' which I had never experienced before, was jaw-dropping. Not only the actors but also all the staff were experts in their fields.
+- I'm grateful for the fact that I can choose from multiple genres and characters.

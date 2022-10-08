@@ -1,0 +1,22 @@
++++
+author = "Frank Wolf"
+title = "Frank Wolf Quotes"
+quotes_len = "16"
+description = "the best 16 Frank Wolf Quotes"
++++
+- I don't think people want to see someone buy a congressional race.
+- Some people criticize the faithful for getting involved in politics, but it's important to remember that down through the centuries, people motivated by their faith have done many important things. Martin Luther King Jr. - motivated by his faith - brought about an end to segregation in our country.
+- There are two kinds of people in America today: those who have experienced a foreign cyber attack and know it, and those who have experienced a foreign cyber attack and don't know it.
+- As a follower of Jesus, I am called to work for justice and reconciliation, and to be an advocate for those who cannot speak for themselves. I plan to focus my future work on human rights and religious freedom - both domestic and international - as well as matters of the culture and the American family.
+- We need to change the focus from celebrating sales at the mall to celebrating the significance of President Washington's birth to the birth of our nation.
+- If there's amnesty leading to citizenship, I'm going to vote against it again.
+- We can't just rail against crime. We must speak of the root problems - devastating family breakup, an insidious culture of violence that cheapens human life, skyrocketing prisoner recidivism rates that rob our communities of husbands and fathers - and recognize that there is a societal role in rehabilitation and restoration.
+- You can't just pillory the teachers unions and sound the free market trumpet. We must visit the failing schools. We must talk to the mother who desperately wants more for her child and offer a constructive way out. We can't simply lambaste... food stamps or decry dependency.
+- I have been a lifelong stutterer, and when I was young, I experienced some very difficult times.
+- Having served in the Nixon Administration, I am well aware of how the political leadership of an administration can try to politicize the civil service, including law enforcement.
+- We're not losing the peace.
+- Religious freedom, often referred to as the first freedom, is of central import to the American experiment. As such it should feature prominently in U.S. foreign policy.
+- When you see people suffering and dying and hungry, this job gives you the ability to do something about it.
+- My hope and prayer is that the body of Christ in America will awake with holy boldness, a boldness content neither with silence nor mere words but that backs up those words with action and results.
+- Scripture makes it clear to me that there is an obligation to speak out on behalf of those being persecuted.
+- I am compelled, because of my faith, to have compassion for the weak and vulnerable in our midst.

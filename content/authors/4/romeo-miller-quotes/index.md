@@ -1,0 +1,45 @@
++++
+author = "Romeo Miller"
+title = "Romeo Miller Quotes"
+quotes_len = "39"
+description = "the best 39 Romeo Miller Quotes"
++++
+- If Romeo can do 'Dancing with the Stars,' anything is possible.
+- We would make songs, and the producers said we should play it for my dad. I was kind of scared, I didn't know what to think cuz we were just joking around.
+- My dad always taught me if I have my education, anything is possible.
+- I used to see my dad and his brothers rhyming, and I knew I wanted to do that one day. I'm like any other boy, always wanting to follow in his father's footsteps.
+- I have a lot of gadgets, remote controls for everything - the curtains, pool cover - it's like The Jetsons!
+- I went to a regular school... education kept me sane.
+- I don't bring anything expensive to the dorms.
+- I love college life.
+- Girls that I use to try to talk to, now they want to talk to me.
+- When you're raising a little kid, you tell that kid to go after their goals and their dreams. And you tell them to work as hard as anybody.
+- Anytime you're playing basketball, and you have a coach who you have to respect, you've got to be very disciplined.
+- I didn't even dance at my high school prom, and I have turned down so many movie roles because I didn't know how to dance.
+- I love somebody that can hold a great conversation.
+- I watch 'The Notebook.' I love romantic movies. I love romantic comedies.
+- I feel that a lot of sexy people never say that they are sexy.
+- I'm a workaholic, and a lot of girls don't know how to deal with a workaholic.
+- Money never made me.
+- I love a smart, educated woman.
+- I love a smart girl and a girl who loves her family!
+- Dreams can come true.
+- You can't worry about looks. It's about the inside at the end of the day because we're all going to get old and gray one day.
+- I'm one of those people - I really feel that you can't go lookin' for love, love will come to you.
+- Being the son of a father who works so hard, I always wanted to be able take a lot of load off of my dad so he can just relax.
+- I run in the morning, lift weights in the afternoon, basketball training at night, and then lift weights again at night.
+- I feel like my biggest competition is myself. A lot of kids get caught up in the comparing game - comparing themselves with Michael Jackson, comparing themselves with Michael Jordan. You gotta be your best. You gotta overcome your own fears.
+- Don't change for nobody.
+- My dad and my uncles used to always be in the studio at my house.
+- People don't understand being a child star is very hard because first off, to be a child star, you have to be very unique. These kids are talented to be able to do it at such a young age. At the same time, you go through the pressures of bullying and a lot of people not understanding.
+- My biggest turn-off is if a woman doesn't have a real passion for something... and bad breath!
+- I love romantic comedies.
+- With technology you can now be your own record company, director, producer, etc. If you have talent, you can display it on the Internet and the world will tell you their thoughts in the matter of seconds!
+- When I was playing college basketball, I had to work out every day; it benefited me physically.
+- I always have to bring back an all-A report card.
+- Family always gonna be there. The material things, they come and go.
+- 'Dancing with The Stars' is like learning a new sport with lots of bumps and bruises.
+- People see my body and ask me what I do to work out. I play a lot of basketball, so I'm constantly dribbling and running up the court. I take a basketball with me everywhere I go!
+- My dad started his business, No Limit, for himself.
+- Family always gonna be there.
+- I feel nobody has limits. It's all in your head. If you have a big dream, go after it and go get it.

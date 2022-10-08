@@ -1,0 +1,64 @@
++++
+author = "Robert Jeffress"
+title = "Robert Jeffress Quotes"
+quotes_len = "58"
+description = "the best 58 Robert Jeffress Quotes"
++++
+- A lot of the evangelicals supporting Donald Trump aren't expecting that he's going to start holding Bible studies in the Oval Office. They just want somebody who's going to solve problems.
+- I think Barack Obama thinks that Muslims are the ones being persecuted, and he has to change that. The fact is he is contributing to Christians being persecuted, not only around the world, but in America as well.
+- If our faith is the most important part of our lives, then our religious views influence every other part of our lives, including our political views.
+- I want you to hear me tonight, I am not saying that President Obama is the Antichrist. I am not saying that at all. One reason I know he's not the Antichrist is the Antichrist is going to have much higher poll numbers when he comes.
+- Homosexual marriage is counterfeit marriage.
+- There are no perfect politicians - just as there are no perfect pastors or voters. We are all sinners in need of a Savior.
+- Any candidate who claims his religion has no influence on his decisions is either a dishonest politician or a shallow follower of his faith.
+- Every time we go into the voting booth, we are choosing the moral and spiritual direction of our nation. That is a privilege and responsibility that should not be abdicated.
+- I see apostasy in many ways occurring in Evangelical churches that really aren't teaching the truth of God's word. I do believe that some churches have become entertainment centers and a teaching a type of prosperity Gospel rather than teaching God's word.
+- I don't get bothered by the media. There is nothing in the media that makes me lose any sleep at night.
+- My wife and I have many friends that are gay, and we welcome LGBT people to attend our church.
+- The most loving action you can take for your family is to share the Good News and continue to share it. Most importantly, live and respond in such a way that they see something different in you and want to know and understand the difference.
+- By supporting Reagan, evangelicals were not supporting womanizing or divorce, but they were endorsing Reagan's policies.
+- Jesus was not this wimpy little guy who walked around munching sunflower seeds and saying nice things to people. The real Jesus of the Bible said, 'Render unto Caesar the things that are Caesar's.' That is: Obey the government.
+- God instructed Nehemiah to build a wall around Jerusalem to protect its citizens from enemy attack. You see, God is not against building walls!
+- If there is a great white throne judgment in which all unbelievers are going to be judged and sentenced to an eternity in hell, shouldn't that motivate us right now to share Christ with as many people as possible?
+- I do believe, sooner rather than later, churches will face the loss of their tax-exempt status if they do not engage in same-sex ceremonies.
+- To Barack Obama, if you believe in traditional marriage, you are a homophobe. If you believe men shouldn't go into women's bathrooms and showers, you are a bigot. If you believe the unborn have a right to life, you must hate women.
+- I will be the first to admit that the sanctity of life and the preservation of religious freedom are not even among the top ten concerns of most voters. But those issues should be of primary importance to those who call themselves Christians.
+- The second thing I know about Donald trump is that he is truly pro-life. I have talked to him in Trump Tower. He believes in protecting the unborn.
+- The Bible never divorces the truth of Christ's future return with our present-day responsibilities.
+- There is nothing unbiblical about building a wall and protecting citizens.
+- Mormonism is not historic Christianity. When people say, 'Well, Mormons and Christians all believe the same things,' my response is, 'If that's true, why are they always on my front doorstep trying to convert me?'
+- I believe there are going to be millions of Catholics in Heaven because they trusted in Christ as their savior.
+- Evangelicals overwhelmingly voted for Ronald Reagan - not because he was the most religious candidate, but he possessed the quality evangelicals felt like was most important, and that is leadership.
+- I don't believe a Christian has to sell his soul to the devil to vote for Donald Trump.
+- These protesters, opposing me or our church, they're protesting the eternal Word of God, and guess what - they're not going to be successful in toppling the Word of God.
+- A candidate's faith is not the only consideration, but should be a major consideration in electing the president of the United States.
+- The question is not whether personal spiritual beliefs shape a politician's values and policies, but what spiritual beliefs mold those values and policies.
+- It may be politically incorrect to say, but it is nevertheless true that a terrorist today is exponentially more likely to be a Muslim than a Christian.
+- President Obama is not the Antichrist. But what I am saying is this: the course he is choosing to lead our nation is paving the way for the future reign of the Antichrist.
+- Frankly, Christians have not always made good presidents.
+- God decided when we would be born and when we would be born again. We have the Spirit and the Gospel. To think that we deserve to live in different times is to tell God that we deserve a better mission field than the one He has given us.
+- I would like people to live in the present with eternity in mind. If there is, in fact, going to be rapture one day, in which we leave everything behind, shouldn't that loosen our grip on our material possessions right now?
+- The true measure of a leader is what it takes to stop him.
+- Christians will not be here to experience the great tribulation under the Antichrist.
+- Any false religion ultimately is a deception of Satan, to try and keep people from the only way to Heaven, which is through faith in Jesus Christ.
+- The fact is you cannot talk about the love of God. The love of God has no meaning whatsoever unless you understand the judgment of God that all of us deserve.
+- No Christians I know who are supporting Trump are under the illusion that The Donald is a seasoned student of Scripture.
+- If I started preaching politics from the pulpit, our church would empty overnight. That's not why people come to church. They want to hear the word of God being proclaimed, not the word of Robert Jeffress.
+- More people died on 9/11, in one day, at the hand of Muslim terrorists than during the Inquisition.
+- The word 'endorse' has a very specific meaning with the Internal Revenue Service. It has a very specific meaning with the political world, too. So although I cannot officially endorse Donald Trump, I'm very supportive of him. I think he would make a great president of the United States.
+- Homosexuality is a violation of God's standard.
+- I'm not here trying to convince anybody to vote for Donald Trump. I think every Christian needs to make up his own mind about this issue.
+- It's true, the Church will be raptured before the final seven years of Earth's history, but during that final seven years, many people will come to faith in Christ, but they will pay a terrible price to do so.
+- I want to remind people that the Nazis weren't able to take the Jews to the crematoriums immediately. The German people wouldn't have allowed for it. Instead, the Nazis had to change public opinion. They marginalized the Jewish people, disparaged them, and made them objects of contempt.
+- You cannot find one single verse in the New Testament that calls for violence against non-believers. Jesus said to love your enemies. Muhammad said to butcher your enemies.
+- Quite frankly, I would prefer to have a non-Christian like Mitt Romney who at least pretends to embrace biblical principles over a professing Christian like Barack Obama who embraces very unbiblical positions on abortion.
+- I think Mormons are good, moral people, but they're not part of Christianity.
+- Mitt Romney is a Mormon, and don't let anybody tell you otherwise. Even though he talks about Jesus as his Lord and savior, he is not a Christian. Mormonism is not Christianity. Mormonism is a cult.
+- We are not the Westboro Baptist Church. We are a church that embraces the tenants of historic Christianity - there's nothing hateful about our members at all.
+- The fact that what we believe about marriage - that it should be between a man and a woman - and that we're pro-life, somehow that becomes radical? Why is that? It's because our culture has changed. But the truth is, culture may change, people change, but the Word of God never changes, and that's what we rest our belief system on.
+- Most Americans know we are in a mess, and as they look at Donald Trump, they believe he is the one leader who can reverse the downward death spiral of this nation we love so dearly.
+- I think the great irony of history will be that it was a secular billionaire from New York who turned out the be the most faith-friendly president in history.
+- Make no mistake about it - Islam is just not another way to approach God.
+- A lot of these liberal churches that harbor illegal immigrants who are criminals say they are following the example of Jesus. They are following the Jesus of their imagination rather than the Jesus of the Bible.
+- In the long run, the government can't bring revival; only the Church can do that. But government can keep us safe and protect our freedoms. I believe that the Trump administration will do that.
+- When I'm looking for a leader who's gonna sit across the negotiating table from a nuclear Iran, or who's gonna be intent on destroying ISIS, I couldn't care less about that leader's temperament or his tone or his vocabulary. Frankly, I want the meanest, toughest son of a gun I can find.

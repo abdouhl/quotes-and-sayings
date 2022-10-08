@@ -1,0 +1,14 @@
++++
+author = "Lee Brice"
+title = "Lee Brice Quotes"
+quotes_len = "8"
+description = "the best 8 Lee Brice Quotes"
++++
+- Willie Nelson is not just a star or a headliner, he's a legend.
+- Every day you can write a song but some days there is just some magic in the air and something special about the catch; other days you write all day on a song line or idea.
+- Well you know, I've been into music my whole life, so to be able to put an album together with some of that music was awesome.
+- Well, you know I grew up wanting to be a Clemson Tiger and I ended up being able to play there and I went to school there.
+- It's a big plethora of music floating around in my head all the time, and I'll sit there and write a song.
+- When you go to Nashville and start co-writing, you start doing it as a job and the more you do it the better you get. You know if you build houses for 30 years you're better than you were the day you started. You know the ins and outs, you know all the nuances.
+- The truth is, I think country music... there's a lot of great people, and just being raised the way a lot of country boys and girls are, hopefully there's just a lot of respect.
+- When I get to go play in my hometown, it's almost one of the toughest times because I got so many people to cater to and then a lot of people that think they're supposed to be catered to.

@@ -1,0 +1,91 @@
++++
+author = "Liam Hemsworth"
+title = "Liam Hemsworth Quotes"
+quotes_len = "85"
+description = "the best 85 Liam Hemsworth Quotes"
++++
+- I read a lot of Zen books. And I grew up surfing, so that has always been my escape.
+- I love fried food.
+- When I'm boxing, if my career isn't going well, at least I feel mentally and physically strong.
+- I learn more with every job, and I'm very thankful for where I am.
+- Mel's Diner in L.A. - they are my favorite hamburgers. I could eat there every day. They are ridiculous.
+- I surfed competitively from age 13 to 18. Every day, before and after school. I wanted to surf for the rest of my life. It's what all my friends did - I even had it as a subject in school for a number of years.
+- We shot in a place called Asheville, which is like beautiful, beautiful forests. And then part of it we shot all the reaping stuff, which was just crazy - because the reaping in the book and in the script is such an emotional thing for everyone. It really did feel like that when we were shooting it.
+- Growing up, I lived a moderate lifestyle with my family.
+- I don't sing. I played guitar for a while. I'm not great, I'm not Lenny Kravitz by any means, but I do like to strum.
+- I grew up close to Melbourne, about two hours outside, on Phillip Island. It's really small; it's kind of a little summer beach town.
+- I was a naughty kid.
+- Honestly, I'm not an extravagant person; I don't spend a lot of money.
+- I read as many scripts as I can and just find stuff that I think is interesting, find stories that I think are worth telling.
+- We're showing a situation that these kids are caught in and being forced to do but the violence is not glorified. Most of the kids in there are not wanting to be doing it.
+- I feel like it's the most boring thing, sitting on the treadmill or on a bike. It just explodes my mind!
+- I had four films one year that were supposed to happen and didn't.
+- I love going to the gym, sweating, running around, feeling like I'm having a heart attack.
+- I'm pretty outdoorsy!
+- If I have one addiction in life, it's probably food.
+- Most of my friends surfed, so we would go before school, after school - literally, whenever we could.
+- I like suits that are fitted. And I usually stick to grays, whites, and blacks.
+- My favorite actors are Matt Damon and Leonardo DiCaprio and Will Smith - guys like that.
+- Gary Ross is amazing.
+- I don't lift weights.
+- I'd love to do action-y types of films; you know, as long as they're good stories.
+- Volleyball was the hardest thing I've ever had to do.
+- I love junk food.
+- If you put the work in, and you show that you're willing to work hard, you'll succeed.
+- As the younger brother, I think you always have crushes on your older brother's girlfriends.
+- There is a time and place for publicity, but to stay a sane person, you must have a personal life.
+- 'The Hunger Games' takes place in Panem, a country which is part of America. It's post-apocalyptic. There's been a global war. The Panem country is what remains of this hugely destructive war.
+- I studied cooking all through high school.
+- All women think men look good in suits. To be honest, I like the way they look, too.
+- I've worked with little kid actors before, and when they start crying or anything like that, it makes my job so easy, because you react. A little kid crying, there's not much else to do.
+- I love New York. It just reminds me of so many movies... I look up at buildings, and feel like Godzilla should be climbing up them or something.
+- At this point, I'm happy to be part of something special. As an actor I liked to choose scripts that I'm passionate about.
+- I get a little scared sometimes. A lot of things scare me.
+- I played a paraplegic on a show called 'Neighbours.' Just turned up on set, sat in a wheelchair. The producer came up to me one day and said, 'We have to cut around that entire scene because your leg was moving.'
+- We all make mistakes, and it's not until we make mistakes that we learn.
+- I feel like anything I'm doing in life, I try to stay myself and be as honest and true as I can be, you know, and be a nice person. I've always been taught to be kind to people and have an open mind about life.
+- I love my brothers' kids. It's funny - as an uncle, you become so protective of them.
+- I think a lot of stuff like people's emails getting hacked or that an email you sent is stored on a hard drive somewhere, that kind of stuff worries me a little bit. It's a weird thought that someone else could get into my information that easily. That stuff's pretty scary.
+- I just live my life.
+- I love getting into physical shape for a film; it makes me feel more like what the character needs to be.
+- I don't generally hang out with crazy people.
+- Sushi is my favorite thing to do in L.A.
+- It's 'The Hunger Games.' My character needs to look hungry. A little bit.
+- Southern people remind me a lot of Australia.
+- How comedic are squirrels? We don't have squirrels in Australia. The first time I saw a squirrel was at a meeting at Disney.
+- One of my favorite movies is 'A Guide to Recognizing Your Saints.'
+- I hate that there'll be moments in my day and I'll be patting down my legs trying to find my phone. I hate how anxious it makes me feel when I don't have it. When I go on holiday, or I go back to Australia, I put my phone in my bag and I don't worry about it; I think differently and I feel less stressed.
+- For a few years, I went down a path where I forgot to be in the moment and enjoy the moment.
+- My character's kind of grown up with Katniss. The beginning of the story, they're more or less brother and sister than anything. They're best friends. They've been keeping each other alive. It's a little frustrating, for the character. As the character, not as me.
+- I used to have an afro - like Will Ferrell in 'Semi-Pro.' It was bleached blond from the sun. I was tall and awkward. I was not cool.
+- John Malkovich is such an interesting person and such a fun actor to work with.
+- My uncles used to call me 'Devil Child,' or 'Triple' for triple six. They used to tell my brother Chris that they were going to get the demons out of him because he was also a little crazy. But to me, they'd just be like, 'You're too far gone. There's no exorcising you anymore.'
+- I think when people see photos of you out and about in your personal life, they assume that you've asked for it or that you want that attention, but I don't think anyone in their right mind asks for that kind of thing.
+- I feel like the books were just written like a movie. You read it and you can just kind of see everything. Before I went in to read with the director, I read the first book and I loved it. I didn't realize how good the writing was. And then I went in and read with Gary Ross, and that was it.
+- I love watching my brothers raise their kids and not have to do it for myself and have the responsibility.
+- I grew up in a good family with good parents, and I was able to dream big and have the support to live it out.
+- I work with accent coaches a lot and try to do my best to get the Australian out of there.
+- I think when I started acting, the whole time I was working towards one day coming to America. Hollywood, in particular, is seen to be the center of this industry, and I was just waiting for the right time to come.
+- The fans that I have met so far have been nothing but supportive and extremely passionate about the books. I feel so honored to meet all these people. Something like this, which I think is bigger than anyone in the film, it's pretty crazy.
+- Gary Ross is amazing. He's just - he always has a billion ideas of what he wants, but has a very clear perspective also; he just makes it work. He really does. He's trying different things and making everything look amazing.
+- I know I'm a good person.
+- Tomorrow doesn't exist, yesterday is gone. The more I remind myself of that, the stronger I feel.
+- The first few years in L.A. were really tough and scary, but I had to figure things out for myself.
+- I'm a really fast runner. No one can catch me - I'm quick.
+- If we get to shoot the third one, which I'm really hoping we do, the third one's great. There's a big uprising and rebellion, and my character Gale's a big part of that. If we get to shoot that, I'll be very, very pleased.
+- We had a black bear on the 'Hunger Games' set, and that was a little scary.
+- Harrison Ford comes on set, and he's very polite and says, 'Hello' to everyone. He cares about everything that's going on, on set. He cares about what's going on with your character and what's in the scene and what's on the desk.
+- Ninety percent of my best friends back home are plumbers, electricians, builders, or landscapers. Most of our dads worked in trades.
+- I don't spend a lot of money on myself, really.
+- The people that live in these districts, they don't want to watch it. They don't want to see their children die or killing other people. The only people that it is entertainment to are the people in the capital that have been brainwashed and are misguided and living in a completely unrealistic kind of world.
+- I go down to Newport and Huntington a lot. It's more crowded than where I grew up on Phillip Island, but I think it's helped me adjust to life in America - getting into the water as much as I can.
+- My dad worked for child protection.
+- I used to wear my brothers' hand-me-downs, which were all too big on me.
+- Personally, when I'm not working, I like to do as many things outside of the industry as I can - other things that make me happy. You kind of need to be grounded in something else besides just being an actor.
+- Most of the time, if I'm in a pickle, I'll call one of my brothers. They've usually got somewhat uplifting advice. One is six and a half years older and one is eight years older, so they've probably lived through whatever my problem is.
+- If I was to get turned down by a girl, I'd just give up and say, 'Oh well.'
+- Acting is a tough business to break into.
+- I like getting my feet massaged; I'll get whoever's closest to do it.
+- The hamburgers in America are the best in the world.
+- We love making movies. We got into the business to make movies. At the end of the day, whether you're doing a low budget film or a big budget film, you want it to do well and you want people to see it. That's the whole point. You want to put some kind of message in it.
+- Honestly, I really, really love making movies. It's so much fun, and I love losing myself in the moment and just being there with other actors. When you're truly in the moment and you're feeding each other, it's such an exciting thing to be a part of.

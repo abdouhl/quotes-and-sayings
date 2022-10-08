@@ -1,0 +1,129 @@
++++
+author = "Frank Abagnale"
+title = "Frank Abagnale Quotes"
+quotes_len = "123"
+description = "the best 123 Frank Abagnale Quotes"
++++
+- I kept a notebook, a surreptitious journal in which I jotted down phrases, technical data, miscellaneous information, names, dates, places, telephone numbers, thoughts, and a collection of other data I thought was necessary or might prove helpful.
+- When 'Catch Me If You Can' was published back in 1980, I never dreamed that it would become a bestseller, much less a major motion picture and now a big Broadway musical. What's amazing about the book is that it has never gone out of print.
+- Every form of payment has some risk associated with it.
+- As the lawyer, I found most of it was a matter of research, which I was great at - that's what I did to death - and then basically persuading people that you're right, and they're wrong... I found that the easiest of all the professions to impersonate.
+- I went to the library and learned how checks work. I found out that routing numbers are like zip codes: the checks are sent to the bank that correlates to the routing number. If I manipulate those numbers to a bank far away, it would take longer to get back to the bank, which gave me more time to write more bad checks.
+- I don't use a debit card. The safest thing is a credit card because you're using the bank's money. If someone accesses your information, they are stealing the bank's money, not yours.
+- Every case involving cybercrime that I've been involved in, I've never found a master criminal sitting somewhere in Russia or Hong Kong or Beijing. It always ends up that somebody at the company did something they weren't supposed to do. They read an email, went to a website they weren't supposed to.
+- Most people are fascinated by what I did as a teenager, but when I look back at my life, I don't think very much about those years. I was an opportunist and got away with things because I was very young, but I went to prison and came out and remade my life.
+- I use a shredder for bank statements and phone bills. Most people use ribbon shredders that cut things straight: we can put those back together in an hour. Look for a security microcut shredder, which cuts papers into confetti.
+- We really need to get control over Social Security numbers. My children's generation, they're past it. But their children should be able to have a number that is secure.
+- If you tell me your name and date of birth, that's all I need to steal your identity.
+- You have to think a little smarter, be proactive, not reactive.
+- I was a millionaire twice over and half again before I was twenty-one. I stole every nickel of it and blew the bulk of the bundle on fine threads, gourmet foods, luxurious lodgings, fantastic foxes, fine wheels, and other sensual goodies.
+- We should be very concerned: if identity theft is so simple to do, what's to stop me from entering this country and assuming the identity of someone else for the sole purpose of living here illegally for terrorist reasons? That alone would be a concern.
+- Everything I have today was because of the love of a woman.
+- I would have thought technology would have made it harder to do what I did.
+- I speak at a lot of universities, and people are always worried about Facebook, and when I explain how to use it properly, they immediately go back and make those changes.
+- In all the years I've taught at the FBI Academy, I've only seen crime get easier, faster, and harder to detect.
+- At the FBI, very rarely do they investigate crime under $100,000.
+- I have never witnessed, nor will I live long enough to witness, a more simplistic crime than me stealing your identity.
+- I never use debit cards. I only use credit cards. This way, if someone does get my account number... and charges $1 million, by federal law, my liability is zero.
+- I think my wife understood from the day I met her how important she was to me and how important it was for me becoming a husband and a father.
+- I contend that there really are no more con men. There's no need for con men anymore. There's no need for the very sophisticated, suave guy, the well-dressed guy. Today, you steal with the computer from thousands of miles away - from China, from Libya, from Hong Kong. Your victim's never going to see you, so there's no need to be any of that.
+- Had I been older, I would've never been able to pull it off because I would've analyzed it to death. When I was 16, there was no such thing as 'what if.'
+- You get to a point in your life where you go, 'I don't remember what I did.'
+- I wasn't a Pan Am pilot or any other kind of pilot.
+- When I was 28 years old, I thought it would be great to have a movie about my life. I was egotistical and self-centered.
+- We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.
+- It's amazing how much information we share in social media, then we wonder why people steal our identity.
+- Too many of us are vulnerable, and I look forward to working with AARP to advise people about the safest ways to conduct their financial transactions and manage social media.
+- People say that life is short, but it isn't short. It's very long.
+- Whether you're earning $7 an hour or $700,000 a year, it's very important to protect your credit rating.
+- While I was on an undercover assignment in Texas, I met my wife, Kelly.
+- When I look back at my life now, I'm not amazed by what I did at 16 to 21.
+- The biggest thing that concerns me is when we start getting countries using cybercrime to shut down infrastructure, electricity, communications systems, the Internet, et cetera.
+- I make my home in Tulsa.
+- Almost any fault, sin or crime is considered more leniently if there's a touch of class involved.
+- We buy into the computer, and everything that comes from the computer, we believe to be the truth.
+- Criminals look at identity theft and say only 1 in 700 criminals gets convicted of it. And they look at check forgery and they know that for every 1,400 forgers arrested, only about 123 get convicted and about 26 go to jail. So the rewards are great, but the risks are very slim. So that's one of the reasons that make it very popular.
+- Nothing has brought me more love, joy and peace than being a good husband and good daddy.
+- Banks are so protected from liability they would have to really do something that was their mistake in order for them to be liable for it. Banks don't look at signatures. They're processing millions of checks and they have very little liability.
+- If you look at any successful professional - a salesperson, a marketer, a real estate agent, a trader - they all have the same qualities as the con man. The only difference is that one side uses their talents in the right direction and the con man is taking the easy way out.
+- I learned early that class is universally admired.
+- There's no such thing as a foolproof system. That idea fails to take into account the creativity of fools.
+- Christopher Walken and Nathalie Baye played my parents so well that I really thought I was in my living room at Christmas. My mother couldn't have been played more correctly.
+- In the old days, a con man would be good looking, suave, well dressed, well spoken and presented themselves real well. Those days are gone because it's not necessary. The people committing these crimes are doing them from hundreds of miles away.
+- There are many ways to manipulate chip cards. For example, a number of years ago when American Express issued the first chip card, criminals would take a small hammer with a little device and bang the chip to destroy it without hurting the physical appearance of the card.
+- My father was never really the con-man type that the film shows him to be: he was straight as an arrow, though he did have problems with the IRS.
+- I know that people are fascinated by what I did as a teenager, but what I did was immoral, illegal, unethical, and something that I am not proud of - nor will I ever be proud of.
+- What I did in my youth is hundreds of times easier today. Technology breeds crime.
+- I always knew I'd get caught sooner or later. And I knew I would end up going to prison.
+- If my forgeries looked as bad as the CBS documents, it would have been 'Catch Me In Two Days'.
+- I didn't like taking money from individuals.
+- I'm glad I'm a draw. People know that, not only am I the guy that did it, I spent 40 years on the other side.
+- I spent five years of my youth in prison - some very bad prisons.
+- You have to be smarter and a wiser businessperson and consumer. You have to learn to protect yourself through education.
+- If I had the uniform on, you didn't doubt for a moment I was a pilot. No one ever blinked an eye if I tried to cash a cheque wearing that uniform.
+- I teach ethics at the FBI academy, which is ironic.
+- If I check into a hotel, a lot of times, they know who I am.
+- I didn't sit outside the bank and plan. I just went in and ad libbed because I was so young. But I was smart enough to know I would absolutely get caught.
+- One thing I've found is that if you educate and show people the risk, they will do something about it.
+- Criminals know that if they stay under certain thresholds, nobody is going to come after them.
+- I have to be honest with you: When the FBI let me out of prison early to advise the agency on preventing fraud, I wasn't a changed person. I wasn't rehabilitated. But when I started working with the FBI, one of the most ethical groups of men and women in the world, I couldn't help but have some of that character rub off on me.
+- By the time I had reached the age of 16, in the 10th grade, my parents, after 22 years of marriage, one day decided to get a divorce.
+- The police can't protect consumers. People need to be more aware and educated about identity theft. You need to be a little bit wiser, a little bit smarter and there's nothing wrong with being skeptical. We live in a time when if you make it easy for someone to steal from you, someone will.
+- My proudest moment was probably when my oldest boy finished law school and went on to become an FBI agent. It was just beyond my imagination that - with my background - my own son would become an FBI agent.
+- I partied in every capital in Europe, basked on all the famous beaches, and good-timed it in South America, the South Seas, the Orient, and the more palatable portions of Africa.
+- Unlike most divorces, where the children were usually the first to know, my parents were very good about keeping that a secret.
+- I went from 198 pounds to 109 while I was in prison in France, and I had to tie my clothes on with rope.
+- We're coming down to an extremely unethical society. Very few colleges offer courses in ethics, and very few companies have a code of conduct or code of ethics.
+- A real man loves and respects his wife and is not only a good father but a man that his kids want to call 'Daddy.'
+- It's quite flattering to have Leonardo DiCaprio play you in the movie. He's a great-looking young man.
+- The Internet is a wonderful thing, but it opens the door to many crimes, so you have to stay ahead of it.
+- The law sometimes sleeps; it never dies.
+- I don't do online banking.
+- You should know, whether you live in the U.S. or in the U.K., that your identity has already been stolen.
+- It's really frustrating when you're an identity-theft victim, and you go to the police and you say, 'This guy in Florida, he stole my name and got a credit card - this is his address,' and they say, 'We don't have jurisdiction in Florida. You need to go to the FBI.'
+- It's amazing to me that we live in such a wonderful country where anyone can have a problem in life and get up, dust themselves off and start all over again.
+- A real man loves his wife, and places his family as the most important thing in life. Nothing has brought me more peace and content in life than simply being a good husband and father.
+- I think I was so successful, not because I was brilliant, but because I was so young. I had no fear of consequences.
+- Technology breeds crime and we are constantly trying to develop technology to stay one step ahead of the person trying to use it negatively.
+- One of the most popular scams is what they call account takeover. You write me a check, and I simply go online to a check-printing service and order 200 checks with your account information.
+- You cannot rely on the police, you cannot rely on the government, you cannot rely on the bank to protect you.
+- Had I been older - maybe 25 or 30 - I would have never tried half the things I did because I would have rationalized everything and never did it.
+- If you took a child in London and took their iPhone and took them somewhere else in the country, they'd probably not be able to find their way back. That's a shame.
+- I served my time and came out of prison when I was just 26 and have worked with the government for 37 years. But people only remember me for what I did before that.
+- The truth is, your identity already has been stolen.
+- I use a credit card for everything - and I choose one of the ones which gives you money back.
+- I taught at the FBI for four decades - how to think outside of the box and deal with social engineering.
+- Why do the Yankees always win? The other team can't stop looking at the pinstripes.
+- I was just a guy who ran away from home at 16 because my parents were getting a divorce and the judge was making me choose which parent to live with. I didn't want to make that choice. I ended up in New York City.
+- Most people don't reconcile their bank accounts.
+- If I had been brilliant or a genius, I wouldn't have needed to break the law just to survive.
+- You have to believe in what you do. Take something you truly believe in and go about it in an honest way.
+- Every breach you look at occurred because somebody inside did something they weren't supposed to do. Sometimes there's an accomplice, but most of the time, it's innocent.
+- The Internet can be used to hurt many people.
+- People care about others in their immediate network.
+- You can sit in a room and create anything you want on a laptop. That's why the real con men are gone.
+- If I wanted to lay down a baby con, I could say I was the product of a broken home. But I'd only be bum-rapping my parents.
+- You fight technology with technology, so you have to stay one step ahead of the criminal. It's very much a chess game - they make a move, you have to make a move.
+- Most people don't recognize me, but they know my name. TSA people rarely recognize my name, ironically, and they are the security people.
+- When people ask me about being portrayed onscreen by Leonardo DiCaprio, I always say, 'I love it - no matter how old I get, people are going to think that's what I look like.'
+- There is no technology today that cannot be defeated by social engineering.
+- I'm so different from the egotistical, self-centred person I was when I did those things. And to watch someone acting out your memories on the screen is like reliving it. Like someone taking you back and showing you what you did.
+- I owe a debt to my country 800 times greater than I could ever repay.
+- If I had walked into a dry cleaning store, and I had looked over, and the register drawer was open with money inside, I wouldn't have taken it.
+- Only one thing makes a man a man. He loves his wife, is faithful to her, and puts his wife and kids as the most important things in life.
+- I was always accepted at par value. I wore the uniform of a Pan Am pilot; therefore, I must be a Pan Am pilot.
+- When people write about me, they usually start off with the headline 'World's Greatest Con Man.'
+- Mostly, cybercriminals are motivated to commit crime for financial gain.
+- I was very blessed it was Steven Spielberg who made the movie. He was very much into the redemption side of the story. They asked him in an interview why he had owned the rights to this story for 20 years before he made the movie, and he said, 'I wanted to see what the real Frank Abagnale did with his life before I immortalised him on film.'
+- A lot of times, when I met somebody and took them out on a date, I obviously didn't tell them my background, because I didn't think I'd see them but once or twice.
+- The front of a cheque alone gives someone enough information to steal your identity.
+- It is amazing the information we give away. We make it easier and easier for criminals.
+- I don't believe that a piece of paper will excuse my actions. In the end, only my actions will.
+- Airline pilots are men to be admired and respected. Men to be trusted. Men of means. And you don't expect an airline pilot to be a local resident. Or a check swindler.
+- You have to be very limited in who you give your social security number to.
+- People have found very significant and simple ways to cheat their employer and get money out of their employers, and many companies lack good internal controls.
+- I'm a true believer that you have a moral obligation to keep your employees honest, and that is why you have controls, so I'm never tempted or put in a position where I could do something to defraud my employer.
+- It's about taking the time to research and think things out. Honest people and criminals do the same thing; just the direction, good or bad, is different.
+- A lot of people say I was brilliant. I wasn't. I was an opportunist: a young entrepreneur who saw things and took advantage.
+- I was an opportunist and got away with things because I was very young, but I went to prison and came out and remade my life.
+- If you happen to tell me where you were born, your date of birth and that kind of information, then I'm 98 percent of the way to stealing your identity.

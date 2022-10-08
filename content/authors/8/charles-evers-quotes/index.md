@@ -1,0 +1,40 @@
++++
+author = "Charles Evers"
+title = "Charles Evers Quotes"
+quotes_len = "34"
+description = "the best 34 Charles Evers Quotes"
++++
+- The Republican Party is not inclusive.
+- It's wrong to kill.
+- I don't believe in welfare.
+- I don't like a lot of social programs either because it makes you non-productive.
+- I took Bobby Kennedy through the delta and he cried like a baby.
+- I'm against an all-white anything or an all-black anything.
+- Any time the country is split 50/50, the leader is wrong.
+- We need to take responsibility and educate people. That's why black folks don't like me. I always say it's our responsibility to make safe neighborhoods. It's our job to get them cleaned up.
+- Welfare makes you dependent upon someone to take care of you.
+- I believe in most of the things Republicans stand for.
+- I'm for economic independence.
+- We've begun to get justice.
+- I'm a Republican and I'm gonna stay a Republican because they need somebody like me to stay in the Party and keep hammering away.
+- I'm a Republican, by the way.
+- The Republican Party does not reach out.
+- I'm for prayer in schools.
+- This is a racist country.
+- I'm against abortion.
+- Speaking as a black person, welfare is the worst thing that's ever happened to us.
+- I believe welfare makes you lazy and unproductive.
+- I love the life I live. The Lord blessed me to be independent. I am independent.
+- Two people will never be President in my lifetime. A woman and a black.
+- Go down to the Republican headquarters. They ain't got a single black working there. Not one.
+- The least I can do is show Medgar I still care. And Martin.
+- I'd rather be dead and in heaven than afraid to do what I think is right.
+- So I'm in the Republican Party for the same reason I was in the Democratic Party: to make sure blacks are included, along with everyone else.
+- And we never got the mule, let alone the forty acres.
+- The main thing I believe in is freedom.
+- The problem is, the Republican Party hasn't done anything to make this country better and I speak as a Republican.
+- Iraq did nothing to us. Iraq was not responsible for 9/11.
+- Anybody who runs for president in this country and comes out as strong as the Democrats were about helping the poor folks and black folks is not going to win.
+- I feel there should be blacks in every Party.
+- I loved Clinton; not as a Democrat, but as a person.
+- We've begun to put fear into those whites who think they can do anything they want to a black person and get away with it.

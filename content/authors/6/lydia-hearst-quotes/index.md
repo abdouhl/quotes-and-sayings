@@ -1,0 +1,76 @@
++++
+author = "Lydia Hearst"
+title = "Lydia Hearst Quotes"
+quotes_len = "70"
+description = "the best 70 Lydia Hearst Quotes"
++++
+- I always envision myself being a Hemingway type.
+- My face has a versatility that lends itself to different looks.
+- If anything goes wrong, it's important to have your education to fall back on.
+- I am all business, I am all work.
+- I would never blame an actor for taking on a role. The only time that I think I have to question why someone's doing something is when they're either mocking or trivializing the events that occurred or making it more sensational than it was.
+- America may be the home of feminism, but I don't think the electorate will allow a woman to be president.
+- I actually work with David Kirsch; I have the luxury of having a personal trainer.
+- I love Domino's. I hold a regular Domino night in my apartment. I'll admit that I get a little too serious and I'm quite competitive. I don't like to lose.
+- I became interested in fashion when my mother did a runway show for Thierry Mugler.
+- I wanted to be Barbie.
+- I don't really believe there is such a thing as bad fashion - it is all self-expression, which used to get me into trouble when I was a little girl because I think I started wearing heels when I was about ten, and I always refused to wear matching socks.
+- Stealing Chanel' was very different for me as an artist. I had to embrace and expose my vulnerabilities, instead of manifesting a character.
+- A lot of my family going back were cowboys and barrel racers, and I'd say I'm 50 percent high fashion and 50 percent cowgirl.
+- When I was a little girl, I grew up in Connecticut. Ed and Lorraine Warren's home was not too far from mine. 'The Conjuring' films are based on them; Ed and Lorraine were real people who made a museum in their home.
+- Whether you're walking the catwalk or whether you're in front of the camera, there's no such thing as a signature pose or signature look or even a signature walk.
+- Just based on my own family and background, I would not be in a film that would exploit or sensationalize anyone.
+- I'm so fortunate to be marrying the man of my dreams. I knew that I was completely in love with him and he's the love of my life, but who knew what the future held? Then he swept me off my feet and asked me to marry him.
+- For 'Downside of Bliss,' I drew upon my own personal experiences in order to play Bliss: a penniless, single mother who is estranged from her father and diagnosed with cancer.
+- If somebody were to feel the necessity to reduce themselves to a desperate state to achieve what they perceive to be their goals in life, people who work in fashion, who are models or photographers, shouldn't be judged because of untoward acts of others. As the saying goes, it takes two to tango.
+- I'm sort of loving the feminine skirts and the cozy tops, especially when it's starting to get a little chilly out.
+- If you're going to go out, I'd recommend the Boom Boom Room. That seems to be the hot spot that everyone's hitting up during Fashion Week.
+- You have to keep in mind that fashion is constantly changing and every runway show, every designer and every photographer - they are going to have a different vision in mind.
+- Most people buy shoes and clothing, but I buy a lot of DVDs.
+- Standing out for being short is not actually a good thing as a model and it hasn't been a help.
+- I'm thrilled to be working with Miss Me again as I stand firmly behind the brand's messaging to help empower women and help them feel confident without compromising comfort.
+- Every girl needs a pair of Miss Me jeans for that extra boost of boldness and fearlessness for whatever situation stands in their way.
+- I'm either in one of two things: high heels or cowboy boots.
+- For me, I would say that horror is my absolute favorite form of entertainment.
+- Oh, gosh, I have always been a huge fan of horror since I was a child. I know this is going to sound really weird, but I think it started with fairy tales.
+- When I was little, my parents took me to the San Diego Zoo. I was about 5 years old, and I got a tour of the zoo that hardly anybody else has ever had.
+- I actually will not be returning to 'Gossip Girl.'
+- I love every single genre from documentaries, horror, comedy, drama, '80s, classic, I have it all.
+- And I think when you're playing someone who is a real person, it's extremely important to take the time and put in the effort to learn about who they are to be able to respectfully portray that.
+- Whatever I'm wearing has a bit to do with however I'm feeling that day.
+- I really geek out with horror and like to delve into the subgenres, whether it's comedy or slasher or sci-fi.
+- I am a rebel.
+- I'm honored to serve as ambassador for Screamfest.
+- Chris Hardwick is a good man.
+- I started at the top. My first job was the cover of 'Italian Vogue,' which is the equivalent essentially of winning an Academy Award. So, there was nowhere else to go from there.
+- I sit down and I write what I'm thinking and what I feel - it happens all at once, I never stop writing.
+- Generally I prefer to stay indoors and workout at the gym, but I love to be active and go hiking, do anything and everything.
+- Horror is one of the few genres that allows you to explore areas in film that normally you wouldn't otherwise.
+- I think everybody is allowed, especially when they're telling a story, as long as it's not based on somebody's real life, you're allowed a certain liberty.
+- Being a model is a large part of who I am, and acting is my life's passion.
+- I don't smoke, but people say that you get secondhand smoke. But this is a country that was founded mainly on the tobacco industry - tobacco and coffee. It's so surprising that they are now essentially making cigarettes illegal, when that is where the whole country came from.
+- There was a solid six-month period where I was going out on castings and I was laughed out of the room because I'm much more petite than other models.
+- Because of the way I am built I photograph taller than I actually am; it's an optical illusion. The way you're naturally built is not something you can fake - you either photograph taller or you don't.
+- Honestly, I think more people need to hydrate and drink more water during Fashion Week. It's the only way to survive.
+- Like, if you're not confident in yourself, then you can't really look good on the outside.
+- My idea about being in a relationship is like it's a whole other form of creation.
+- I started out like any other model - I didn't use my name as leverage. I went out with a portfolio and pounded the pavement and it was surprising how many people wouldn't see me because I was too short.
+- Modeling is where my career started, and it's not something that I think I'm ever going to fully say goodbye to.
+- Acting is definitely my main focus.
+- I truly just want to be happy and continue to work hard; I love life and every opportunity presented.
+- I'm a very loving, kind person, but I can also be very honest, and I don't do well with drama.
+- I love Katy Perry.
+- In our home we have many movie props from old film productions.
+- Horror itself is such a magical genre.
+- For those of us working in fashion, it is very easy to add your name to a committee list, walk a red carpet and claim to care. But taking tangible, hands-on steps to create change speaks volumes.
+- I am definitely not a socialite.
+- I do actually like to visit haunted locations.
+- It's much easier to create a high-end bag than a mass market bag that everyone can afford.
+- Egyptian Magic All-Purpose Skin Cream - I heard about it from Michelle Trachtenberg, who got it from someone who used to do Madonna's makeup. I swear by this product. If I get any kind of scar or burn, this stuff heals it. It really does work like magic.
+- For me to play any true person in a film based on a true story, I always want to make sure that it doesn't mock and it certainly doesn't trivialize the events that took place.
+- I much prefer people who are very in tune with themselves, very musically inclined - no pretty boys.
+- I had to learn how to dress and create an optical illusion where you're more slender.
+- I have a chameleon quality and I'm able to transform completely to different looks from different decades, depending on the hair colour or make-up change.
+- Working with Operation Smile is a completely life-altering experience. It is truly inspiring to be a part of something with so many unique individuals who come together for the greater good of helping others.
+- I'm actually a huge fan, I guess you could say, obsessed, with True Crime and the supernatural.
+- I am very proud of my mother - she is one of the greatest influences in my life.

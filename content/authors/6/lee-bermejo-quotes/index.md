@@ -1,0 +1,19 @@
++++
+author = "Lee Bermejo"
+title = "Lee Bermejo Quotes"
+quotes_len = "13"
+description = "the best 13 Lee Bermejo Quotes"
++++
+- 'Joker' was a violent, dark, and brutal book, so I wanted to do something a little less heavy. I played around with the idea of a children's book, and that eventually became 'Noel.' And I just kept finding these parallels between things I could do with Batman and Charles Dickens' 'A Christmas Carol.'
+- Generally, when it comes to covers, I try and add elements that may not take your immediate attention but really become important the more you look at them.
+- I think that comics can do things movies can't and vice versa. In my opinion, you only expose their weaknesses if you try too hard at making one exactly like the other.
+- Since I'm so slow, I have to be fairly choosy about the projects I take on, and it can't be something that I'm only 'sort of' into. I knew that 'The Stand' would be an amazing challenge every month that would be a blast to illustrate.
+- Color is definitely an important factor for me during all phases of producing a cover. I always start out with a loose idea of what I want to see when I'm doing my initial sketches. This choice can be informed by anything, but I usually tend to lean toward more simple color schemes... something with a very obvious push between warms and cools.
+- As much as I enjoy seeing other guys do the superhero approach to the Batman universe, personally my own vision falls a bit left of center.
+- I just like a dirty, crumbling city. The Gotham I imagine is enticing and horrifying at the same time.
+- I'm definitely not a monthly guy. Probably never will be. I'm simply in awe of the guys who do monthly books well... hell, in awe of people who do monthlies period.
+- I've wanted to write ever since I've gotten into comics. I wrote little things for myself when I was doing mini-comics and things, before becoming a professional. But I just figure at some point or another, I've got to make the leap. I just have to do it.
+- I do feel like 'The Dark Knight' is a great film, but that Batman in there? He's almost like Robocop to me. He's almost robotic looking; he's got this surgical approach to everything... He's almost not human. That's supposed to be his whole point: he's supposed to be the most human of superheroes.
+- When I was a kid, like four or five years old, I was obsessed with the 'Batman' TV show in the '60s. And I took it totally seriously. At that age, I took it completely seriously. I didn't get the fact that it was kind of played for laughs. I didn't understand why my mom was rolling her eyes or chuckling.
+- I think you have to be crazy not to want to work on the Joker! I can't think of many characters, heroes or villains, that are as malleable as him. He really can be interpreted in so many different ways, and generally, people don't really want to scratch the surface because you can get into some really dark territory real fast.
+- Who doesn't want to draw Batman or Superman? Everyone would like to be able to draw them. I've been really lucky when it comes to the characters that I get to illustrate.

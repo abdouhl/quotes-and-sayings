@@ -1,0 +1,106 @@
++++
+author = "Lucy Mcbath"
+title = "Lucy Mcbath Quotes"
+quotes_len = "100"
+description = "the best 100 Lucy Mcbath Quotes"
++++
+- Our service men and women sacrifice so much to protect our country, our citizens, and our freedoms. My father, brother, and nephew all served this nation in uniform, and I am committed to the unwavering support of those who defend this nation and our values.
+- Countless families rely on child care providers to keep their families safe as they help grow their small businesses and work hard. Parents must have a safe place to send their children.
+- We recognize and truly believe that women's stories have the power to transform the world.
+- The health and wellbeing of our children, our families, and our communities must be safeguarded.
+- Stand Your Ground laws make all of us more vulnerable to the threat of gun violence, but they also have a disproportionate impact on communities of color.
+- Jewish Americans have a long and proud history in Georgia and in the United States. Their story is inherently American - it is one of resilience in the face of persecution and a commitment to creating a better world.
+- I truly enjoy hearing from our community about the issues that matter most. It's conversations like these that shape our community and drive my work to pursue common-sense solutions that protect our families, lower health care costs, uplift our veterans, and support our local businesses.
+- I believe in America. I believe in Americans.
+- I will fight every day to protect the health of our communities, to provide comprehensive care for our women and our mothers, to defend coverage for those who have pre-existing conditions, and to ensure that all Americans have access to affordable, quality health care.
+- Stand-your-ground laws are a favorite of the NRA gun lobby and their push to weaken our nation's gun laws.
+- Regardless of President Trump's involvement, the unredacted portions of Mueller's report make it clear - Russia carried out a coordinated campaign to influence the 2016 presidential election and undermine our democracy.
+- Our veterans, and especially our women veterans, need our support and the support of one another.
+- Our disabled veterans earned their benefits by serving our great nation, and we must protect them and their families, especially during financial hardship.
+- America will never forget the service and sacrifice of our 9/11 heroes and their families.
+- There is not a day that goes by when I do not think of my son, and the man he would have grown up to be.
+- One of my first priorities as a new member of Congress in 2019 was to visit the CDC and learn firsthand about what they needed to help protect Americans. After my visit, I learned their budget had previously been cut, and that they needed funding to modernize their data systems to help prevent pandemics and other public health crises.
+- Severe weather can come at any time, and millions of people are impacted by storms each year. Truly, the best defense against severe weather is for families to create an emergency plan, practice that plan, and always stay alert and ready.
+- Expanding Stand Your Ground sends a clear message to communities of color: We are not welcome or safe in Florida.
+- My priorities in Congress are shaped by the needs and concerns of our community, and I value the opportunity to hear directly from my constituents about the issues that matter most to them.
+- We must do everything we can to ensure the safety of our children.
+- The vast majority of Americans are asking for common-sense legislation to protect our families, our friends, and our communities from gun violence.
+- Students deserve a safe place to learn and grow.
+- Concealed carry reciprocity is a dream for the gun lobby lobbyists and a nightmare for public safety.
+- It's truly important that we uplift those who use their skills to develop technology and ideas that benefit our world.
+- The last thing we need in Missouri is more violence and strife in our communities.
+- We know that gun violence disproportionately affects Black people in this country, and that was no exception with my son Jordan.
+- While law enforcement officers are working hard in Illinois to keep guns out of the hands of dangerous people, they face a nearly impossible task because of weak gun laws in surrounding states.
+- Background checks will never stop every criminal from getting their hands on a gun and every single act of gun violence - but the evidence is clear that it's the single most effective policy to help keep guns out of dangerous hands and save lives.
+- When people are in crisis and pose a threat to themselves or others, those closest to them are often the first to see the warning signs.
+- Nothing can bring my Jordan back but I have learned to channel my grief into action to honor my son.
+- Atlanta is my home.
+- I'm a two-time breast cancer survivor who lives with pre-existing conditions every day, and I know the uncertainty people face if they can't get their medicine.
+- My son is not a tactic to be used in political arenas for relevancy and points.
+- Like the majority of Atlanta's residents, I am Black. Our city helped birth the modern civil rights movement, and I am the daughter of a civil rights leader.
+- I worked as a flight attendant while I was pregnant with my son, Jordan. After suffering serious complications, my doctor insisted I stay home to protect the health of my pregnancy.
+- Just like it would be wrong to have a player referee a game, it's wrong for election officials to participate in federal campaigns.
+- I work tirelessly advocating for gun violence prevention and promoting common-sense gun laws that could spare other parents the pain of having their child taken by senseless gun violence - laws the NRA's leadership has fought against relentlessly.
+- Our kids should be leaving school ready for success, not paying for the misconduct of predatory institutions.
+- Those in the metro-Atlanta area know how crucial the investments in our infrastructure and transportation systems are to improving our communities.
+- The United States Postal Service is one of America's oldest and most well-loved institutions. Thanks to the Postal Service, families can send letters and packages to loved ones they have not seen in months, small businesses are able to ship products to their customers, and many veterans and seniors can safely receive lifesaving medications.
+- I came to Washington to stand up for the people who put their trust in me and to ensure the safety of the families and communities in Georgia's Sixth, and across our nation, by keeping guns out of the hands of dangerous people.
+- While our country has made great strides, the Jewish community is still the target of anti-Semitism, and we must continue to stand against all forms of hate, violence, and bigotry.
+- On September 11, 2001, America suffered an unimaginable tragedy and witnessed the incredible heroism of hundreds of first responders who rushed into the World Trade Center to save lives.
+- The Passover story is a reminder that our unity is our strength, and that there is nothing we cannot overcome, together.
+- I have deep abiding faith in God.
+- I will still do my part to create a country that would have been safe for my son.
+- As a child, my father taught me to never take my freedoms for granted. He challenged me to fight for what is right.
+- My priority has always been listening and understanding the voices of those I represent, and I work every day to address the concerns people have for their families.
+- The repeal of the medical device tax will lower the costs of care, improve access to these medical devices, and protect medtech manufacturing jobs throughout Georgia and our country.
+- Our elections are too important to risk even the appearance of impropriety.
+- As Americans we are no strangers to hate-fueled rhetoric.
+- We all want to support our working mothers. Allowing them simple accommodations can ensure they are able to continue working and provide a living for themselves and their families.
+- It's our duty in Congress to bring the voices of our communities to Washington.
+- Mental illness, hate and anger exist everywhere, but in America too often it comes armed.
+- Protecting the USPS means protecting the essential services it provides our nation.
+- Donald Trump is correct when he suggests that African-Americans are outraged by gun violence.
+- No woman should ever have to choose between maintaining a healthy pregnancy and a paycheck.
+- I believe that by taking action together, we can create a safer future for our loved ones.
+- Together, we will continue to build a stronger, more inclusive community, and send a strong message to those who spread hate: there is no room for prejudice in our neighborhoods.
+- It is high time our government take action and do everything in its power to help reduce gun violence in America and save lives.
+- We have the power, as lawmakers, to find ways to support our young men and identify solutions to the hardships they regularly experience.
+- I know parents across America remain sick with worry about the safety of their children. I feel that anguish.
+- The CDC has always been an example of unbiased and thorough medical research, both in America and around the world, and we must continue to provide the doctors and experts at the CDC the resources they need to help solve and prevent public health crises.
+- We must protect those with pre-existing conditions and ensure that every American family has access to quality, affordable health care.
+- It is my solemn duty to be an ally to the trans community.
+- Whether it's racism, homophobia, misogyny, transphobia, xenophobia, religious intolerance or other bias - we demand to live in a country where we can be safe to be who we are, believe what we want and love whomever we want.
+- As the daughter of a civil rights leader, I believe in the power that compels people to stand up for their freedoms, for justice and opportunity. I know that marching inspires people to take an active role in creating positive change for a better America.
+- There are no issues more personal than prescription drugs and the high prices Americans must pay to get the medicine they need.
+- I hurt for every mother who's lost a son, every son who's lost a father, and every child whose life was taken far too soon. We honor their memories with an unwavering determination to create a better future for ourselves and for our children.
+- I am a strong supporter and proponent of the Second Amendment. Always have been.
+- As a daughter of a former NAACP chapter president, I know all too well how everyday people can change lives and create progress so many others consider 'impossible.'
+- I'm very concerned about the needs of our veterans.
+- It's the sad truth that gun violence can often be prevented.
+- American patients deserve more access to quality, affordable health care.
+- Individual NRA members, black and white, are publicly questioning why the organization has virtually nothing to say about Philando Castile. Just like with background checks - which most NRA members support - the NRA is out of step with its own members.
+- Our government works best when it represents the needs of the American people, not special interests.
+- It is our duty as legislators to protect the success of our students as they pursue higher education.
+- Even in national crisis, it is important that we continue to stand up for our community and follow where our faith leads us.
+- As a young woman, I was always interested in lobbying. I thought to find a cause you're passionate about, to really work on behalf of that cause, work on lobbying your state legislatures or your federal legislatures, that was of interest to me.
+- As we invest in an infrastructure plan for the future, we must also support our families, our workers, and our communities.
+- The Pregnant Workers Fairness Act will ensure that no pregnant woman is unfairly fired, or forced to risk the health of themselves or their pregnancy, to earn a paycheck. Our mothers deserve these federal protections.
+- As the metropolitan Atlanta area continues to grow, it's critical that we support small businesses and the prosperity of our local community.
+- The courage and leadership March for Our Lives has shown is a testament to the power our young people have in this country, to make our country stronger while protecting our friends, families, and loved ones. The work survivors and advocates across the country have done to keep families safe matters.
+- Activism is in my DNA.
+- Small businesses are the heart of a thriving community and vital to the American economy, and there isn't one in Georgia or across our country that hasn't been impacted by the coronavirus pandemic.
+- My father acted as the Illinois Branch president of the NAACP and so we spent a lot of time in the marches and the rallies working on behalf of people of color.
+- Children are truly the future of this country - our next teachers, they're our next doctors, they're our next police officers, and they're our next Members of Congress. It's our responsibility to do everything that we can to protect them and make sure that children are able to live, learn, and grow up in safe environments.
+- Our veterans should never be penalized for injuries they sustained in service to our country.
+- We must continue our work to improve and strengthen health care for Georgians, and we must defend the vital protections and programs that protect the health and wellbeing of families across our nation.
+- The Women's March in Washington was about giving power to the collective voices of women everywhere to demand that our leaders put the interests, safety, and welfare of all Americans first.
+- A lot of people really enjoy guns. A lot of people really like having guns.
+- I am proud that generations of Jewish Americans have chosen to make this state their home; Georgia has been better for it.
+- I have a unique lens on how the extreme priorities of the NRA's leaders are dangerous for America, Atlanta and communities of color.
+- Taking care of our veterans is one of my top priorities, and I am especially concerned on behalf of our women veterans.
+- The CDC is an integral part of our community and on the frontlines of our pandemic response, and we must continue to give them more tools to help keep our families safe and healthy.
+- It's not about infringing upon the rights of people to own guns as gun enthusiasts or hunters, but what it is, is it is getting people to understand that we have to put in place common-sense measures. Just basic measures to keep guns out of the hands of individuals that should not have them.
+- It's the reckless ideas put forward by the NRA's leadership, and pushed through by fearful legislators, that have allowed systemic gun violence to expand, wreaking havoc on communities of color for decades.
+- I have been able to pass a number of pieces of legislation that have actually been signed into law by President Trump, which is a difficult thing in itself to get a bill passed.
+- I grew up in Illinois in an environment where my parents were very politically active in the civil rights movement.
+- Marginalized Americans should not be defined by the verbal and physical violence that looms over our heads. We have a right to exist, to live as we choose and to be free to pursue our happiness without the fear of others demonizing us or harming us just because of who we are.

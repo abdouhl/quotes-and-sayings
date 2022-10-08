@@ -1,0 +1,28 @@
++++
+author = "Li Shufu"
+title = "Li Shufu Quotes"
+quotes_len = "22"
+description = "the best 22 Li Shufu Quotes"
++++
+- Design is very, very critical for the success of the car. We want to find the distinctive features for Chinese cars on the world stage.
+- Particularly in China, I think a lot of people start to realise, OK, what are the things that they truly should value? That's something that fits perfectly well with what Volvo is offering.
+- We lived in a farm village, and no one could afford to buy a car or to fly. We were envious. We couldn't afford any toys. I couldn't imagine making a real car.
+- In general, what we want to do is to elevate Volvo's brand positioning, and we feel the main lever to achieve that is to develop more higher-tier products.
+- We will do whatever the government tells us to do, which is a critically important principle of the Chinese market economy, and there is nothing more for discussion about it.
+- Chinese... companies do not have to think about whether they do something to enhance their competitive edge in international markets.
+- Volvo is like a mysterious, beautiful woman. We just look at her from far away, amazed. We don't dare get close to her. We're just a bunch of farm boys.
+- I hope to buy brands and businesses globally.
+- We carry out our work under the leadership of the government.
+- Getting silver and gold out of junk machinery was quick to be learnt by others.
+- No matter how hard we work, there is always a gap with Western brands.
+- Volvo has one weakness, and that is in the interior design. They have not adapted to the Chinese people's perception of luxury when it comes to the interior design, and this has to be addressed.
+- I believe the auto industry is a competition of human resources, competition of funding, competition of technology - and the competition is international.
+- I think it is definitely right to listen to the Party and follow up government's instructions.
+- Chinese entrepreneurs have to implement their work under the leadership of the Party and the government - it is very clear.
+- Life is a question without a standard answer.
+- We are not selling the black cab in large enough volumes. We want to expand globally.
+- In this fast-developing world, particularly in the fast-transforming China market, we really need to take this opportunity and offer a modern interpretation of Scandinavian design which fits people's demands perfectly.
+- We realized you cannot create a car by simply gathering needed components.
+- I believe the auto business is a highly comprehensive and complicated business. It's not that easy for people simply to enter and ruin the whole thing.
+- Product investment, quality management, and all the things that are key for a car company - great, there has been no compromise in those aspects. But I feel there's a lot we could do on communication, particularly from a Chinese perspective.
+- Our dream is to see Geely vehicles driven all over the world.

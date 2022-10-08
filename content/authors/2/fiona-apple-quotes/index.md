@@ -1,0 +1,87 @@
++++
+author = "Fiona Apple"
+title = "Fiona Apple Quotes"
+quotes_len = "81"
+description = "the best 81 Fiona Apple Quotes"
++++
+- Hearing my songs in public freaks me out a bit. There was one restaurant I really liked in L.A., but I had to stop going there when they started playing my music. It felt kinda awkward.
+- I don't want to give any advice to a 19-year-old, because I want a 19-year-old to make mistakes and learn from them. Make mistakes, make mistakes, make mistakes. Just make sure they're your mistakes.
+- Everybody sees me as this sullen and insecure little thing. Those are just the sides of me that I feel it's necessary to show because no one else seems to be showing them.
+- You know, I've always thought that it would be really funny if somebody made a romantic comedy where absolutely everything went well from beginning to end.
+- My whole life, people have been saying, Why are you so angry?
+- And if I'm being honest, I don't think I have an ex-boyfriend who would have something mean to say about me.
+- I don't know if anybody wants to mix their politics with their entertainment.
+- You think you're looking at things all the time, but you're not looking at things, you're looking at what your brain is interpreting through light and color. And who knows what everybody else sees?
+- I got all my work done to graduate in two months and then they were like, I'm sorry, you have to take driver's ed. I just kind of went, Oh, forget it.
+- I'm incredibly impressed by people who organize to achieve a goal, and believe that they can make a difference and then go ahead and do just that. I think it's incredible.
+- I never went to concerts when I was a kid, so I never knew if what I was doing onstage was right.
+- I think I'm better at live shows than I used to be because I'm way more comfortable with the uncomfortable pauses between songs. Now, rather than trying to talk or do a costume change, I'll use those moments for myself. I listen to what other people are playing, or just rest, or dance, even though I don't know how to.
+- I resent limitations. I'm going to be this way for a while.
+- I know what my job is: I write the songs, I sing them, I play them on the piano.
+- I wasn't very ambitious as a child. I'm still not.
+- I'm here because of what I write. Obviously, I must know something.
+- I still don't know what Episcopalian means.
+- The way I feel about music is that there is no right and wrong. Only true and false.
+- I want to be like the patron saint of reality.
+- The worst pain in the world is shame. I spend a lot of time trying to not do anything bad to anyone, but you can't live your life and not hurt people.
+- If I respect myself and believe in what I'm doing, no one can touch me.
+- I had really bad obsessive-compulsive disorder. At its worst, I was compelled to leave my house at three o'clock in the morning and go out in the alley because I just knew that the paper-towel roll I threw in the recycling bin was uncomfortable, like it was lying the wrong way, and I would be down in the garbage.
+- I would really like to go back to school. I would love it now.
+- Five years from now I'm probably going to look back on the things I'm doing and cringe.
+- I got drunk when I was five. Everybody gets drunk before they're 21.
+- I was never somebody who grew up going, 'I really want to be a singer in a band,' and I never had any ambition toward anything, really.
+- I just tend to do things to myself that I don't realize I'm doing. Sometimes I bite my lip so that it splits and hurts, and yet I can't stop. And sometimes I'd play shows on the last run, I'd scratch my neck while I was singing, and I'd horrified to see these red streaks of blood after.
+- When you're surrounded by all these people, it can be even lonelier than when you're by yourself. You can be in a huge crowd, but if you don't feel like you can trust anybody or talk to anybody, you feel like you're really alone.
+- The only reason that it takes me seven years to do stuff is because I just don't really have a plan.
+- There aren't many poster children for cool angst. Everybody thinks it's cool if you're the bad girl.
+- I got into therapy in the fifth grade because I said in a sarcastic way that I was going to kill myself, and they didn't get it then. Nothing's changed.
+- I have a very steadfast tendency to parent myself, to monitor my development into the person I want to be. I've tried to keep the corruption minimal.
+- No, I've never wanted kids. But I do read about parenting a lot.
+- I'm not the Queen. I'm not a huge superstar; I don't get paparazzi around me.
+- I used to get a shiver if I thought about holding balloons, because I was scared of floating away.
+- I can't remember writing any of the songs that I've written.
+- I don't have a big thing about leaving my mark or being historic.
+- In a sense it's a lot crazier when you're on the road and it's a lot less stable, but it's actually really healthy for me because it keeps me from isolating, which I tend to do a lot.
+- If I have one success in my relationship history, it's with the people who listen to my music. I think that they'll be there with me forever, and I'll be there with them forever. And I'm totally satisfied with that.
+- I also just accept that I might never want to write a song again.
+- What's really good is African drum music.
+- I got a lot of problems, but I'm really good at intuiting what I need to do to be happy with whatever I create. I know when to stop myself, I know when to start, I know when to leave something alone. I guess I just kind of indulge that completely, and so I just take my time.
+- I wanted to write a happy song. I didn't know how.
+- Life is all about the friendship and the love and the music. It sounds silly, but it is. I want to have that experience as much as I can as an adult, not as a kid doing something that people are telling her she has to do. If anyone gets in my way, I'm going to get them out of my way.
+- I'm not a control freak.
+- If you want to see me cry, just come to a photo shoot.
+- I feel like I'm 100 years old. I can't tell you what I did today. I can't tell you what I did for seven years. I can't tell you. It happens so seamlessly - I'm just floating along and seven years go by.
+- I'm a really good parent to myself sometimes, and I do things that make me learn and grow.
+- I read on the Internet that I was dead.
+- When I was a kid - 10, 11, 12, 13 - the thing I wanted most in the world was a best friend. I wanted to be important to people; to have people that understood me. I wanted to just be close to somebody.
+- I can bake. I made myself some nice French fries once. But otherwise I just eat out. Lots of salad bars.
+- I caved in to what people wanted me to do. I thought that they weren't going to like me if I didn't.
+- I wrote 'Criminal' in 45 minutes when everyone else went to lunch because I had to have a hit. I can force myself to do the work, but only if someone is right up behind me.
+- I was so self-critical. I still am, but it's not as bad anymore.
+- Rape is the most humiliating thing that can be done to you; it's the most vulnerable that you can be. But once I realized that, I became a stronger person and faced all my fears.
+- How can you go wrong with two people in love? If a good boy loves a good girl, good. If a good boy loves another good boy, good. And if a good girl loves the goodness in good boys and good girls, then all you have is more goodness, and goodness has nothing to do with sexual orientation.
+- The quick success was a bit strange to get used to.
+- But I honestly don't read critics. My dad reads absolutely everything ever written about me. He calls me up to read ecstatic reviews, but I always insist that I can't hear them. If you give value to the good reviews, you have to give value to the criticism.
+- For me, the best times are always going to be the most intense, the ones with the highest highs and the lowest lows.
+- I've never been to the websites. It's a lot healthier for me to keep out of the conversations about me.
+- I don't go on lunch dates with friends. I hear about people having dinner parties, but I never do that. I'm not really human.
+- I never thought I'd be in a position where people would be talking about my sexuality and saying how good I look in underwear.
+- I'm not used to not having enough time to live with the songs. Usually, if I write something, I live with it for a little while.
+- As a person who performs on stage, it's good to be emotionally open. If you mess with someone when they are in that state, it's like you're messing with an animal when it's eating.
+- I don't think what I look like is relevant.
+- In a strange way, I'm way more comfortable onstage than anywhere else.
+- There were songs I would write about breaking up with somebody before I broke up with them, months and months before I broke up with them.
+- Now I feel like whatever I do, no one can hurt me. I cannot be violated, I cannot be humiliated, I cannot be disregarded, I cannot be disrespected.
+- I don't care what people do. I don't care how people remember my albums. I do them for my own reasons.
+- I've gone through stages where I hate my body so much that I won't even wear shorts and a bra in my house because if I pass a mirror, that's the end of my day.
+- You can live your whole life in your brain and not experience what's around you. You go crazy that way.
+- Our ancestors always thought of the worst thing that could happen, and that's why we're alive.
+- Because for whatever reason, even though I want to stay home all the time and be left alone, I want to tell the world who I am now.
+- Men are my bread and butter. It's what I live for! I have no shame about that.
+- The age thing really bugs me. Do people have more of a right to not like what I say because I'm 19?
+- Nothing that you do will ever feel good if you let people convince you that you have no choice.
+- I really don't think anything I do is a mistake. It could be if I didn't learn from it.
+- I walk my dog at dawn because I don't like people to be around.
+- I was told so many times when I was a kid, 'I can't be friends with you, you're too intense, you're too sad all the time.' I really thought that when I made the first album that everyone would understand me, all the people who weren't my friends would become my friends.
+- Sometimes interviews are fun and good conversations, but stuff like photo shoots and appearances at places where you have to meet a lot of people - I was never really made for this kind of stuff.
+- I dare anybody to look at me and say I'm anorexic. I'm so totally not.

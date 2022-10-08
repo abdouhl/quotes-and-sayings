@@ -1,0 +1,50 @@
++++
+author = "Carly Rae Jepsen"
+title = "Carly Rae Jepsen Quotes"
+quotes_len = "44"
+description = "the best 44 Carly Rae Jepsen Quotes"
++++
+- I waited for my first kiss.
+- I like to mix and match vintage with designer. It's how I create my own style.
+- I like to travel by myself.
+- I know my music is going well when I don't have insomnia.
+- I like Los Angeles. So many artistic people, and I just love the weather.
+- I think in general, lines are a bad idea. Especially if they sound like lines. Everyone's immediate reaction is to just kind of cringe a little bit.
+- I really like to cook.
+- Candy apple red is my favorite color. It's a powerful color to wear. It's always been that way - I've always been really attracted to that color.
+- I feel very giddy with the idea of making my imagination take form and being able to put on a show where people leave feeling like they've experienced something.
+- I definitely have a little attraction to bad guys, but they have to be sweethearts underneath. After all, I like to be treated well.
+- My tactic is to make eyes at someone.
+- I can't tell you how lucky I feel to be able to collaborate with some of my dream producers.
+- No, I haven't asked for a guy's number, but I've always wanted to.
+- Canada was my whole world and my whole reality, and now I meet people who've never been there, and it's like, 'You've never been to my whole world?'
+- A lot of people don't know how to talk on the phone anymore.
+- I always wanted to be known as a songwriter and not just a songbird.
+- One of my favorite things to make is homemade sushi. I know how to make the rolls and it's really fun to do.
+- There's been a progression in my sound.
+- I have so many gay friends that I love.
+- I'm not going to freeze under the pressure. I'm hoping I can stand up to it.
+- The airport paparazzi kind of wigs me out a little bit.
+- For nighttime or for an event, I'm all about the nice heel. Something that's still walkable but definitely very elegant.
+- The way I write is generally about love. I have a great fascination about the subject.
+- My music is bejewelled, it's colourful, it's romantic, it shines.
+- I just want to be the best Carly Rae I can be.
+- Pretty much everyday, there's a moment where I'm having to pinch myself and think, 'When did this happen to my life?'
+- I've never been an all-black girl. I like pinks and blues and greens. If you come over to my closet, you'll be able to find a rainbow of things to wear.
+- I like when the song starts to take over and you feel like you have to dance more than write.
+- I always write what feels really true and honest and me.
+- There's always a special feeling I have while writing any song.
+- I feel very, very blessed.
+- I like to swim. It's good for the body and it helps clear my head.
+- Reading serves as a good escape when you're in the middle of doing crazy things.
+- I'm a little bit of a hippie at heart, so I always wear things that are comfortable and flowing.
+- I really like guys who have confidence, but not the cocky over-the-top confidence.
+- I'm still enjoying discovering more designers and getting to play dress-up in a bigger way than I ever have before.
+- I'm a very lucky girl.
+- My main concern is getting out an album that I feel really proud of.
+- You can't always understand if someone's into you or not, so you should never really pursue something too far without gauging that first.
+- I have a secret love of jazz.
+- I think when it comes to pop I'm past the point of curiosity. I admit to a full-on obsession with it, and I think it's getting worse, actually.
+- I do think grand gestures are a hit and miss, especially for girls.
+- I went to a Canadian college for performing arts and then I auditioned for Canadian Idol. That honestly was my golden ticket.
+- I have a couple of girlfriends who've told me some horror stories but I've never had a really terrible kiss before.

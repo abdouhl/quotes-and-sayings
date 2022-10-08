@@ -1,0 +1,17 @@
++++
+author = "Rachele Brooke Smith"
+title = "Rachele Brooke Smith Quotes"
+quotes_len = "11"
+description = "the best 11 Rachele Brooke Smith Quotes"
++++
+- I do interval training, high intensity dance, and yoga. I do run a lot, but more for speed.
+- I really do believe that inner beauty is so much more than any kind of outer beauty.
+- I'm definitely somewhat of a tomboy. I grew up a pretty big tomboy, actually, and was really obsessed with basketball.
+- You can bend, but never break. Stay Unbreakable!
+- My mom's whole life had been my gymnastics. We struggled to connect when I stopped.
+- We all have so much more power to make our dreams a reality - and love life along the way - than we think we do!
+- Dancing has always been a passion of mine.
+- I once said some mean things about someone, and they were standing right behind me. That experience taught me to never talk bad about anyone.
+- I believe that we live in a 'return to sender universe' - what you send out is exactly what you will get back.
+- Fun opens the doors to creativity, which then leads to inspiration, which then births passion, which all together equals both happiness and success!
+- I never wear matching socks. It's kind of a thing that I have!

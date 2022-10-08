@@ -1,0 +1,27 @@
++++
+author = "Romany Malco"
+title = "Romany Malco Quotes"
+quotes_len = "21"
+description = "the best 21 Romany Malco Quotes"
++++
+- When I was doing 'The Prime Gig' with Vince, we played around so much that the director separated us like children!
+- I started out mainstream and then literally made a conscious decision, like, 'I don't have that core black audience on my side.' And then I literally started looking for projects to get involved in.
+- You know how many times I have to witness the transition from, 'Oh, get away from that thug,' to, 'Oh, wait a minute, that's the guy from 'Weeds'! Hey, can I shake your hand?'
+- The biggest cardinal sin is not being in the moment, whether in life or on-screen. You owe it to your fellow actor that if they feed you something, you give them an earnest response to what they've said to you as opposed to what you wanted to do before they ever showed up.
+- When I did 'Think Like A Man', I would run into people who were acting like it was the first thing I'd ever done. I was at the premiere of 'Think Like A Man,' and people were coming up to me, like, 'Man, you're going to get work after this, bruh.'
+- For me, comedy and drama are all the same thing.
+- I'm not really volunteering for no family films. I really like the sweet spot of being able to be edgy and controversial.
+- The actors have to be able to feed each other and inspire each other.
+- I learned early in life that laughter is a great way to diffuse and uncomfortable situation, so I began to use that as a tool, throughout my life.
+- Racism exists everywhere. So when people act surprised about racism, I'm the one that's surprised.
+- My mother is getting up there in age, and sometimes I go visit her in Florida. I cook for all of her friends. Sometimes I have to avoid the table because I do not want to hear what they're talking about.
+- For me, I never want anyone outside of my immediate family and outside of me to have the power to alter the way that I walk, talk, shop, or date. When you start feeding off of that outside acceptance and accolades, you lose sight of what's actually real. Once you get there, it's kind of hard to double back.
+- I had a grandmother who would always encourage me to learn about theater and film.
+- No one can pronounce my name. My name is 'The Black Guy From 40-Year-Old Virgin'.
+- My experience in the music industry made me very thick-skinned. Your art is something very personal and there's never a shortage of critics when it comes to art.
+- I love my job. And I get to work with cool people.
+- I called my managers, and they were like, 'What is Tijuana Jackson?'
+- I worked for this company that repossessed cars. Sure enough, the day after I quit, they repossessed my car, but that would probably be my strangest job to date. You have to work your way up to become a hardcore repo man.
+- One of the reasons I moved back to Brooklyn is to get to hang out with the guys I've known since we were 12, 13 years old. Having that sense of community is incredibly important to me.
+- Nobody knows my name. Nobody knows me at all, but they call me by the character of the last movie that I was in.
+- I've lived in Paris. I've lived in the Slovak Republic. I've spent extensive time in England, and I've traveled all over Europe.

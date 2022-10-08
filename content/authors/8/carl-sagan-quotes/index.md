@@ -1,0 +1,50 @@
++++
+author = "Carl Sagan"
+title = "Carl Sagan Quotes"
+quotes_len = "44"
+description = "the best 44 Carl Sagan Quotes"
++++
+- We hunger to understand, so we invent myths about how we imagine the world is constructed - and they're, of course, based upon what we know, which is ourselves and other animals. So we make up stories about how the world was hatched from a cosmic egg or created after the mating of cosmic deities or by some fiat of a powerful being.
+- The professed function of the nuclear weapons on each side is to prevent the other side from using their nuclear weapons. If that's all it is, then we've gotta as: how many nuclear weapons do you need to do that?
+- Who are we? We find that we live on an insignificant planet of a humdrum star lost in a galaxy tucked away in some forgotten corner of a universe in which there are far more galaxies than people.
+- Extinction is the rule. Survival is the exception.
+- Skeptical scrutiny is the means, in both science and religion, by which deep thoughts can be winnowed from deep nonsense.
+- In our obscurity - in all this vastness - there is no hint that help will come from elsewhere to save us from ourselves. It is up to us.
+- We are not without empathetic terror when we open Pascal's 'Pensees' and read, 'I am the great silent spaces between worlds.'
+- But the fact that some geniuses were laughed at does not imply that all who are laughed at are geniuses. They laughed at Columbus, they laughed at Fulton, they laughed at the Wright Brothers. But they also laughed at Bozo the Clown.
+- I've written a number of books that have to do with the evolution of humans, human intelligence, human emotions.
+- If you wish to make an apple pie from scratch, you must first invent the universe.
+- We have also arranged things so that almost no one understands science and technology. This is a prescription for disaster. We might get away with it for a while, but sooner or later this combustible mixture of ignorance and power is going to blow up in our faces.
+- The brain is like a muscle. When it is in use we feel very good. Understanding is joyous.
+- If we long to believe that the stars rise and set for us, that we are the reason there is a Universe, does science do us a disservice in deflating our conceits?
+- The universe seems neither benign nor hostile, merely indifferent.
+- The dangers of not thinking clearly are much greater now than ever before. It's not that there's something new in our way of thinking - it's that credulous and confused thinking can be much more lethal in ways it was never before.
+- We are the representatives of the cosmos; we are an example of what hydrogen atoms can do, given 15 billion years of cosmic evolution.
+- Personally, I would be delighted if there were a life after death, especially if it permitted me to continue to learn about this world and others, if it gave me a chance to discover how history turns out.
+- We're in very bad trouble if we don't understand the planet we're trying to save.
+- It's been said that astronomy is a humbling and, I might add, a character-building experience.
+- For small creatures such as we the vastness is bearable only through love.
+- We start out a million years ago in a small community on some grassy plain; we hunt animals, have children, and develop a rich social, sexual, and intellectual life, but we know almost nothing about our surroundings.
+- We've arranged a civilization in which most crucial elements profoundly depend on science and technology.
+- Our species needs, and deserves, a citizenry with minds wide awake and a basic understanding of how the world works.
+- The boundary between space and the earth is purely arbitrary. And I'll probably always be interested in this planet - it's my favorite.
+- All of the books in the world contain no more information than is broadcast as video in a single large American city in a single year. Not all bits have equal value.
+- For me, it is far better to grasp the Universe as it really is than to persist in delusion, however satisfying and reassuring.
+- It is far better to grasp the universe as it really is than to persist in delusion, however satisfying and reassuring.
+- The universe is not required to be in perfect harmony with human ambition.
+- There is a wide, yawning black infinity. In every direction, the extension is endless; the sensation of depth is overwhelming. And the darkness is immortal. Where light exists, it is pure, blazing, fierce; but light exists almost nowhere, and the blackness itself is also pure and blazing and fierce.
+- Science is a way of thinking much more than it is a body of knowledge.
+- A celibate clergy is an especially good idea, because it tends to suppress any hereditary propensity toward fanaticism.
+- I am often amazed at how much more capability and enthusiasm for science there is among elementary school youngsters than among college students.
+- No other planet in the solar system is a suitable home for human beings; it's this world or nothing. That's a very powerful perception.
+- The Earth is a very small stage in a vast cosmic arena.
+- Imagination will often carry us to worlds that never were. But without it we go nowhere.
+- Even these stars, which seem so numerous, are as sand, as dust - or less than dust - in the enormity of the space in which there is nothing.
+- You probably don't need more weapons than what's required to destroy every city on earth. There's only 2,300 cities. So, the United States, by that criteria, only needs 2,300 nuclear weapons - well, we've got more than 25,000!
+- We live in a society exquisitely dependent on science and technology, in which hardly anyone knows anything about science and technology.
+- Our posturings, our imagined self-importance, the delusion that we have some privileged position in the universe, are challenged by this point of pale light. Our planet is a lonely speck in the great enveloping cosmic dark.
+- Absence of evidence is not evidence of absence.
+- Most of the people that I deal with are human. So I've had a lot of experience with that.
+- I can find in my undergraduate classes, bright students who do not know that the stars rise and set at night, or even that the Sun is a star.
+- Today, we're still loaded down - and, to some extent, embarrassed - by ancient myths, but we respect them as part of the same impulse that has led to the modern, scientific kind of myth. But we now have the opportunity to discover, for the first time, the way the universe is in fact constructed as opposed to how we would wish it to be constructed.
+- When you make the finding yourself - even if you're the last person on Earth to see the light - you'll never forget it.

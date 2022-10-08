@@ -1,0 +1,25 @@
++++
+author = "Lee R. Raymond"
+title = "Lee R. Raymond Quotes"
+quotes_len = "19"
+description = "the best 19 Lee R. Raymond Quotes"
++++
+- It makes no sense to talk of the social obligations of the corporation without reference to its economic obligations. The two are intertwined.
+- A free economy is as essential to society as democratic political institutions. A strong market-based economy is the fertile ground for democratic freedoms that we think are important.
+- There is no system that is inherently moral if the participants themselves are not.
+- In every aspect of life, including the economic dimension, we are always challenged to do the right thing. In many cases in the market system, which allows a great deal of latitude for human choice, people can get carried away to excess.
+- The freedoms that people have that flow from all civic institutions fundamentally come from the success of a market system.
+- There is hardly an activity that a person can think about that does not intrinsically involve energy, most of which is currently provided by fossil fuels.
+- He or she must be successful in economic terms, but always within an ethical framework. Whether his or her constituency is a corporation and its shareholders or the customers in a small and privately held business, his or her first responsibility is to serve that constituency.
+- The market system requires that people be committed and willing to work hard. Inherent with that is what I call a merit system, which I think gives people the greatest opportunity.
+- I find it interesting that many of the people who want to restrict fossil fuels live in well-developed countries where abundant and affordable energy is readily available.
+- The main professional responsibility of a person in business is business.
+- Without competition, the spectacular development of technology that we have seen in the last one hundred years in this country would not have happened.
+- I have a great deal of difficulty with those who live in a hugely prosperous country telling people in the developing world that they should be deprived of a critical source of energy.
+- In some of the countries where we operate, there is a tradition of corruption, in which the political elites work with business in the framework of unsavory relationships.
+- Ethical conduct is something that becomes inherent in an organization over a long period of time.
+- It is important to remember that all business has an impact on the lives of real people.
+- We obviously want to produce things that people want. We are going to continue to do that in an environmentally responsible way, while still being aware of the physical, scientific, and practical issues that we have to deal with.
+- It is the potential for economic growth that provides the basis for the development of countries, for bringing to people essential goods and services, such as water to drink and facilities for healthcare.
+- We should seek a system that provides outlets for those skills and talents so that everyone can find a way to work and serve in a manner that best suits the strengths of each individual.
+- We have seen that in this country in the last few years, particularly on Wall Street, with the rise of the old human frailty of greed. This occurs when people begin to serve only their own needs to the detriment of everyone else.

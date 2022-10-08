@@ -1,0 +1,62 @@
++++
+author = "Loretta Young"
+title = "Loretta Young Quotes"
+quotes_len = "56"
+description = "the best 56 Loretta Young Quotes"
++++
+- In my dreams, I could be a Princess, and that's what I was. Like most little girls, I believed nothing less than a Prince could make my dreams come true.
+- I believe in the Golden Rule. I believe in practicing it.
+- Of course it was Mamma who both stopped my career and crystallized my determination to resume it.
+- Giving credit where credit is due is a very rewarding habit to form. Its rewards are inestimable.
+- Fashion should not be expected to serve in the stead of courage or character.
+- I can't imagine dating a boy, meeting him only outside the home. What's a home and family for if it's not the center of one's life?
+- I'm not sure the public knows what it wants.
+- A face is like the outside of a house, and most faces, like most houses, give us an idea of what we can expect to find inside.
+- Like charity, I believe glamour should begin at home.
+- A pleasant voice, which has to include clear enunciation, is not only attractive to those who hear it... its appeal is permanent.
+- Love isn't something you find. Love is something that finds you.
+- I was as impatient about finding my dream man as I was about everything else I wanted.
+- If you have enthusiasm, you have a very dynamic, effective companion to travel with you on the road to Somewhere.
+- I do not hold with those who think it is all right to do whatever you want so long as it doesn't hurt anyone. Who's to be the judge of that?
+- A charming woman is a busy woman.
+- Glamour is something you can't bear to be without once you're used to it.
+- I believe in living today. Not in yesterday, nor in tomorrow.
+- There is no personal achievement in being born beautiful.
+- I believe that prayer is our powerful contact with the greatest force in the universe.
+- In 1949 there was a new thing called Television, to which my agency and advisers opposed as a performance medium.
+- I want no part of making any contribution whatsoever to the despair which eventually follows downbeat thinking.
+- Nearly everyone I met, worked with, or read about was my teacher, one way or another.
+- I'm grateful to God for His bountiful gifts... He gave me courage and faith in myself.
+- Just after I entered my teens I suddenly entertained an insatiable enthusiasm for the delightful habit of criticizing others.
+- Wearing the correct dress for any occasion is a matter of good manners.
+- As an actress, emotions are my business, my stock-in-trade. As such, I've dealt with them nearly all my life.
+- I've learned that getting what you want gives you a pretty high batting average, and leaves you plenty to struggle for.
+- What you don't know intrigues you more than what you do know.
+- No one is ever too old, too rich, too poor, to pray.
+- In common with many others in the varied branches of our profession, my academic education is subnormal.
+- Your hands, your eyes, your voice, your thoughts are your servants.
+- It's so important to look relaxed.
+- I think making mistakes is as inevitable as receiving disappointments.
+- As an actress, I have to be objective about myself. If I don't criticize myself, there are plenty who will do a find job of it for me!
+- Everything worthwhile, everything of any value, has its price. Everything anyone has ever wanted has come neatly wrapped up in its penalties.
+- A charming woman... doesn't follow the crowd. She is herself.
+- I believe you have to nurture your conscience.
+- In silence - and in self-defense - I figured things out in my own little way.
+- I don't yearn to be a child again.
+- When I left 20th Century-Fox to freelance, my agent believed that getting big money was the way to establish real importance in our industry.
+- I learned you have to fight for yourself in the picture business.
+- I'd lived by quotations, practically all my life.
+- There are no ugly ducklings.
+- I was deaf and dumb and blind to all but me, myself and I.
+- I'd thought of myself as a great big motion picture star from the time I was 6.
+- Success can't be forced.
+- The split second she ceases to care is the only time a woman ceases to be attractive.
+- I couldn't bear it if anyone knew I had hardly any self-confidence at all.
+- I've always been scared to death of pain - afraid, even, to think of it.
+- If you want a place in the sun, you have to expect a few blisters.
+- Gratitude isn't a burdening emotion.
+- I was a very wanting child.
+- A face that is really lovely in repose can fall apart if, when its owner stars to talk, she distorts every feature.
+- Certainly tears are given to us to use. Like all good gifts, they should be used properly.
+- Just because you want to be glamorous, don't be a sheep about your eye makeup.
+- Unless some misfortune has made it impossible, everyone can have good posture.

@@ -1,0 +1,96 @@
++++
+author = "Issey Miyake"
+title = "Issey Miyake Quotes"
+quotes_len = "90"
+description = "the best 90 Issey Miyake Quotes"
++++
+- The core spirit of Pleats Please is joy, and what better emotion to wear on your skin every day?
+- Our goals must be to find new, environmentally-friendly ways by which to continue the art of creation, to utilize our valuable human skills, and to make things that will bring joy.
+- From the beginning I thought about working with the body in movement, the space between the body and clothes. I wanted the clothes to move when people moved. The clothes are also for people to dance or laugh.
+- I do not create a fashionable aesthetic... I create a style based on life.
+- My fascination has been the space between cloth and the body, and using a two-dimensional element to clothe a three-dimensional form.
+- I gravitated towards the field of clothing design, partly because it is a creative format that is modern and optimistic.
+- Everything is an experiment.
+- Frank Gehry not only understood my sense of fun and adventure but also reciprocated it and translated that feeling into his work.
+- My generation in Japan lived in limbo. We dreamed between two worlds.
+- Boys have been wearing skirts for some time now. My three assistants wear mini skirts. They come to work on their motorcycles wearing mini skirts. The French saw the idea on the streets and have done it in better fabrics, and now everyone says, 'Ah!'
+- I have worked with several dance companies.
+- Of course there are many ways we can reuse something. We can dye it. We can cut it. We can change the buttons. Those are other ways to make it alive. But this is a new step to use anything - hats, socks, shirts. It's the first step in the process.
+- Designers must be increasingly sensitive to our Earth's dwindling resources. It is our responsibility.
+- I sent 200, 300 of the clothes that I had made, and the dancers chose what they liked.
+- I love to be free to explore, research, and evolve.
+- If you look back throughout history from the ancient Egyptians onwards, most cultures started making clothing from a very basic premise: a single piece of cloth.
+- I tried never to be defined by my past.
+- One of my assistants found this old German machine. It was originally used to make underwear. Like Chanel, who started with underwear fabric - jerseys - we used the machine that made underwear to make something else.
+- A-POC respects that there is a fine balance between the value of the human touch, which can be called artisanal, and the abilities of technology. I like to think of it as poesy and technology.
+- Indian clothes are usually tight.
+- By the way, Marilyn Monroe was a size 14.
+- I suppose there are many, but I cannot imagine ever having a more perfect collaboration than that which Penn-san and I shared. It was based upon mutual trust, respect, and a desire to have our own work pushed to new places. And it always resulted in delight.
+- Polyester is easy to work with and results in clothing that is well suited to the needs of a modern lifestyle.
+- I like women who have their own idea of life: the woman who is assured, comfortable with herself, strong inside, proud of herself - not in an arrogant way, not showing off.
+- In the past, art was admired and revered from afar. Today, there is more of an interactive relationship between the art and the person who admires it.
+- To be honest, I think we should find first the possibility to make it. Research is first - if you're not interested, you never can find something. Many things happen from forgotten machines - ones that are no longer used.
+- When I first began working in Japan, I had to confront the Japanese people's excessive worship for foreign goods and the fixed idea of what clothes ought to be. I wanted to change the rigid formula of clothing that the Japanese followed.
+- We can also cut by heat - heat punch. And we also can cut by cold - extreme cold. When you cut with heat, it makes a mark. With cold, no mark. It depends on the fabric.
+- Retire? Never! We are far too busy!
+- Think of things that can be created, not destroyed, and that bring beauty and joy.
+- I never thought fashion was the job for me, because I'm Japanese. Clothes! That was a European, society thing.
+- Paris is an old and traditional place; it needs new blood.
+- I am most interested in people and the human form.
+- We yearn for the beautiful, the unknown, and the mysterious.
+- Indian paper is famous, Egyptian papyrus, Chinese paper... every country has used this natural material. But the problem is it's going to run out because it's very difficult work.
+- Clothes should fit comfortably - not too tightly - so that you have space to move in and think freely.
+- You see it in the many bouncing clothes that are not just pleats. To make them, two or three people twist them - twist, twist, twist the pleats, sometimes three or four persons twist together and put it all in the machine to cook it.
+- If Mr. Obama could walk across the Peace Bridge in Hiroshima - whose balustrades were designed by the Japanese-American sculptor Isamu Noguchi as a reminder both of his ties to East and West and of what humans do to one another out of hatred - it would be both a real and a symbolic step toward creating a world that knows no fear of nuclear threat.
+- The future of fashion is light, durable clothes.
+- I am not really interested in clothing as a conceptual art form.
+- I realised I wanted to make clothing which was as universal as jeans and T-shirts.
+- I've never been involved in any kind of political movement.
+- In fashion, you need to present something new every six months, but it takes time to study things. Development is very important.
+- The combination of human skills with technology will always be at the root of any solution to the future of making clothes.
+- Paul Poiret did wonderful things because he was so influenced by motifs, but Vionnet really understood the kimono and took the geometric idea to construct her clothes - and that brought such freedom into European clothes in the 1920s.
+- The joining of the Japanese with the French should make a new movement. I think it should be good for Paris.
+- I was always interested in making clothing that is worn by people in the real world.
+- A few of the influences on my career so far have been Isamu Noguchi, Irving Penn, and seeing the riots of 1968 in Paris.
+- I did not want to be labelled 'the designer who survived the atomic bomb,' and therefore I have always avoided questions about Hiroshima.
+- A great thing happening now in art is that artists are using the figure, the body, clothing, life.
+- I started to work with cotton fabrics. I used cotton because it's easy to work with, to wash, to take care of, to wear if it's warm or cold. It's great. That was the start.
+- With imagination and personal creativity, people who sew can design the way they look to suit themselves.
+- I became a fashion designer to make clothes for the people, not to be a top couturier in the French tradition.
+- I am not sentimental about the past. I like to think about what is next.
+- Function alone does not make clothing appealing.
+- I try to be free. The women also must be free.
+- Clothes have become more personal, more a matter of very individual taste.
+- In Paris, we call the people who make clothing 'couturiers' - they develop new clothing items - but actually, the work of designing is to make something that works in real life.
+- I am always looking to the future of making things.
+- My touchstone started out being - and is still - exploring the ways by which to make clothing from a single piece of cloth.
+- Well, what I'm doing is really clothing. I'm not doing sculpture.
+- Architects always have a feel for time - the generation they live in - as we do, and they are always striving toward boundless adventure.
+- We have to keep a very tight check on quality.
+- I make clothing, and I don't care about trendy things.
+- I believe that all forms of creativity are related.
+- I am neither a writer nor a theorist. For a person who creates things to utter too many words means to regulate himself - a frightening prospect.
+- Design is not for philosophy it's for life.
+- There are no boundaries for what can be fabric.
+- I always wanted to create clothing that was universal - easy to wear, to care for, and that was also beautiful. As such, I became interested in polyester, and its potential, from the beginning of my career.
+- Many people will say, well, clothes should be worn; but I think people can look at them in public, like seeing a film. I think museum exhibitions are very important.
+- The purpose - where I start - is the idea of use. It is not recycling, it's reuse.
+- My design is no design.
+- Clothing is the closest thing to all humans.
+- Technology allows us to do many things, but it is always important to combine it with traditional handcrafts and, in fact, use technology to replicate dying arts so that they are not lost.
+- Design is a vital component to the enrichment of our everyday lives. Japan has a very rich history and culture of design, and I feel it is a very important dialogue to open and keep evolving.
+- When I close my eyes, I still see things no one should ever experience: a bright red light, the black cloud soon after, people running in every direction trying desperately to escape - I remember it all.
+- Most of us feel some kind of uncertainty, with the population increasing and resources decreasing. We have to face these issues.
+- Many people repeat the past. I'm not interested. I prefer evolution.
+- All of my work stems from the simplest of ideas that go back to the earliest civilizations: making clothing from one piece of cloth. It is my touchstone.
+- I'd rather look to the future than to the past.
+- I very much like dance and dancers.
+- Even when I work with computers, with high technology, I always try to put in the touch of the hand.
+- Clothing has been called intimate architecture. We want to go beyond that.
+- A-POC unleashes the freedom of imagination. It's for people who are curious, who have inner energy - the energy of life and living.
+- I feel it is urgently necessary to train people who are capable of tackling the various problems we face today in regards to environmental turmoil and the relevancy of clothing.
+- The important thing is to make something. In reality, it's not important that a designer be known by name - you can remain anonymous. Even the status of a designer will undergo changes, I believe.
+- I am very interested in the culture of paper.
+- In the Eighties, Japanese fashion designers brought a new type of creativity; they brought something Europe didn't have. There was a bit of a shock effect, but it probably helped the Europeans wake up to a new value.
+- I respect men and women who age and are proud and don't lose energy. I think fashion forgot those people.
+- Men have been buying my women's coats for years.

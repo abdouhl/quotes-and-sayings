@@ -1,0 +1,57 @@
++++
+author = "Lizzy Caplan"
+title = "Lizzy Caplan Quotes"
+quotes_len = "51"
+description = "the best 51 Lizzy Caplan Quotes"
++++
+- 'Party Down' is the most fun I've ever had working in my life. We shoot 10-episode seasons and we shoot it in 10 weeks, so it's very brief: 4-day episode shoots. You never get sick of anybody, and it never feels like a drag. It's way, way, way too short.
+- You'd be surprised. Girls like sensitive, namby-pamby guys.
+- I'm choosy to a fault. You want to hold out for a project that means something. You're the one who's there working fifteen hours a day, and if you don't believe in it, it can feel a whole lot longer.
+- I find that break-ups are so much easier when you can hate the person.
+- I'm really awkward when people recognize me. I'm not good at it, and for the most part it hadn't happened to me until 'True Blood,' and then, all of a sudden, it started happening all the time.
+- I had a bat mitzvah, was confirmed, went to Jewish summer camp, I go to temple for the High Holy Days. I think, like most people in their early 20s, I kind of strayed away from it. I think once I have a family I'll be back into it.
+- None of my friends are in the entertainment industry.
+- I think being mean to people in high school is healthy. It's sort of like you're in this situation with all these other kids and sometimes you need to get your aggression out. And if you'd had people be mean to you before, it really does build character.
+- As an actress - and as an actor, too, but it's worse for actresses - you constantly get picked apart for how you look.
+- I was a Russian dancer in my elementary school production of 'Fiddler on the Roof' when I was in third grade or fourth grade. I was one of the younger kids accepted into the play, and the plays were pretty impressive, let me say.
+- There's only so many times you can read how ugly you are and how much people hate you.
+- When you're shooting a network television show it inevitably starts airing a few episodes in, and depending on the ratings and the response from the public, you find yourself tweaking your performance or the scripts go in a different direction.
+- There's definitely a luxury to the fluidity of not being a mega-star. I've done a ton of really, really odd, off-the-wall movies. There's this movie I did called 'Queens of Country' a couple of summers ago that is so bananas, and if I was at a certain level, I probably would not have done that movie.
+- I think, as an actress, people get on your case if you do the same thing over and over again. But if you get too far away from that, people don't like that, either.
+- It's scary to sign a six-year contract for something that you don't necessarily know about. And yet I did that most every year. I've done a lot of failed pilots.
+- 'Save the Date' feels like a quiet story about two sisters and the men in their lives, kind of reminiscent of the quieter rom-coms of the 1990s; it's very character-driven and not as wedding-focused.
+- Don't peak in high school.
+- It's weird, It's really weird to be called a breakout star. And some people are referring to my show as the new 'Friends', which I can't really even wrap my head around.
+- Everyone who made 'Save the Date,' like the writers and the director, they're all happily married and not anti-marriage at all, so that was kind of interesting to me.
+- I think there's something very lovely and hilarious about exploring the particular neuroses of the female mind. It's just not the same thing with men. I mean, there are exceptions, but for the most part, women beat themselves up in their heads more. They overanalyze stuff far more than men do.
+- I did the whole non-dairy thing for a year.
+- I don't think you should be allowed to eat in a restaurant if you haven't waited tables at least once. It's so irritating when I see people being rude to waiters, like, it makes me want to slit their throats! Like, really? You're really this inconsiderate?
+- I have a habit of getting very obsessive about one thing, but it usually lasts no more than three days.
+- I'm still waiting to hit it big. But there was the moment when I didn't have to work at the restaurant anymore, which is the milestone for every actor. When your job is just to be an actor and not to have to do anything else.
+- Whenever you're starting a new show, you have these awkward first lunches and meetings that are sort of mandatory, and everybody shows up, but nobody knows each other.
+- In the early days, I just got lucky. I would audition for everything and just happen to land in something pretty respectable, like 'Freaks and Geeks,' my first job, which was a complete fluke.
+- I saw 'Clueless' five times in the theatre when I was growing up.
+- I've loved being the sarcastic chick, but I didn't want to be her forever.
+- I have no drawing talent whatsoever. I cannot do it.
+- When I was younger, I actually wanted to be a CIA agent. Really. I even did the online questionnaire.
+- Had 'Bridesmaids' not ended up being so amazing and successful, we would never have been able to make 'Bachelorette.' So we are in awe of 'Bridesmaids' and totally owe them so much.
+- I really unfortunately don't have tons of hilarious Sundance stories, because really I am not the biggest fan of hanging out, but the reason why is because I never go see other people's movies and I think that's the way to do it.
+- I have a special ability to spot TV shows that don't go past two seasons; that's my gift.
+- I try to find some similarities between myself and the characters, even if it's the tiniest thing.
+- I do think, oddly, that a comedic actor has a better chance of pulling off a dramatic role than a great dramatic actor has of being able to pull off a highly comedic role.
+- I try to bring elements of my own personality to every character I've played, but I think I'm pretty similar to the character I'm playing now. The biggest departure would have to have been Freaks and Geeks Sara, who was this sort of subordinate and shy girl.
+- I think it's necessary to identify with anything - with any character you play, there's got to be something in common, so you can link up to that person, even if it's like one tiny thing. But it's equally fun to play somebody completely different, and trying to find what that thing is to make it.
+- The family you were raised in, the time period you were born in, and the part of the country you're in absolutely shape your view on sex, which shapes a huge part of anybody's personality.
+- I really fancied myself a comedic actress.
+- Comedy is not something that a person can fake or learn how to do.
+- For the past few years, I've been more selective than I have any right to be, but I think that's finally starting to work in my favor. I think I get way too much credit for making what people consider to be smart choices, but it's only because I made a decision to stop worrying about making money.
+- I never get recognized for 'Mean Girls.' I can be walking around with Daniel Franzese, who's in the movie and a friend of mine, and people will come up to him and start freaking out and have no idea who I am.
+- I think I get way too much credit for making what people consider to be smart choices, but it's only because I made a decision to stop worrying about making money. I had done network sitcoms. I had a nest egg.
+- I really like doing television shows, and I anticipated doing a comedy, because that's the place I feel the most comfortable - those are the risks I want to take.
+- There are some of us who are just born with a more adventurous spirit than others.
+- My first acting role as a kid was on 'Freaks and Geeks.'
+- I find reality television to be so delectable.
+- I find that working with friends is always the goal, even if it's just one person. Because the comedy community is kind of insular, it's easy to run into people you've worked with, even if you worked with someone on something for a day, or whatever.
+- On 'Masters of Sex,' especially in the pilot, everybody was showing up word-perfect, and you're expected to show up word-perfect.
+- I had to do a lot of dancing in 'Queens of Country.'
+- Everybody hangs out with everybody, which is very strange for a cast this large and this young. We're all cool and down to earth and not caught up in this maniacal business at all... . Everybody really, really likes everybody else.

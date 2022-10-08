@@ -1,0 +1,105 @@
++++
+author = "Robert C. O'Brien"
+title = "Robert C. O'Brien Quotes"
+quotes_len = "99"
+description = "the best 99 Robert C. O'Brien Quotes"
++++
+- The Trump administration has taken the fight to those espousing hateful anti-Semitic views.
+- You know, the Chinese don't have a democracy, they don't share our values.
+- Ventilators can be reused but hospitals need a sufficient supply to treat critically ill patients while still allowing enough time for each ventilator to be refurbished between patients.
+- The worst kidnapper of Americans is a nation state - Iran.
+- We've made it very clear that when Iranian proxies that are directed by Iran attack Americans, that we're going to hold the Iranians responsible.
+- Nowhere outside of Southeast Asia is China's rise as a global power more visible than in Africa.
+- Under Mr. Trump's leadership, America continues to lead the free world.
+- The NSC staff should not, as it has in the past, duplicate the work of military officers, diplomats or intelligence officers.
+- President Trump is committed to democracy and rule of law in our hemisphere.
+- Modern warfare is increasingly expeditionary and requires platforms with extended range, flexibility and endurance.
+- In fact, the CCP's ideological agenda extends far beyond the country's borders and represents a threat to the idea of democracy itself, including in the United States.
+- President Trump's efforts have made the American people safer and our nation stronger.
+- Freedom of navigation, as ensured by the Navy, is critical to America's ability to project power by moving men and equipment over 70 percent of the earth's surface and to maintaining world trade and commerce.
+- We want to have a great relationship with the Chinese, we want a great relationship with the Russians.
+- President Trump has made good on that pledge by fighting anti-Semitism at home and abroad and by standing shoulder to shoulder with Israel, the historical homeland and refuge for the Jewish people.
+- The Cold War practice of garrisoning large numbers of troops with their families on massive bases in places like Germany is now, in part, obsolete.
+- While air bases and logistics hubs remain important, the Cold War-style garrisoning of troops makes less military and fiscal sense than it did in the 1970s.
+- First and foremost, the United States did not ratify the 1998 Rome Statute that founded the ICC. Successive administrations have stood by that decision and, as a result, American citizens are not subject to ICC jurisdiction.
+- When foreign governments hold Americans they always claim it's a criminal case.
+- In the rare cases where our servicemen and women violate laws and norms, they are held to account. The United States military justice system is far more effective at holding Americans accountable for alleged wrongdoing than the ICC has ever been.
+- Beijing is on the move in Africa - using aid, diplomacy, weapons sales and Chinese ex pats in a bid to become the preeminent power in the region.
+- My job as the national security adviser is to distill and present to the president the views and options that come from the various departments and agencies.
+- Under Marxism-Leninism, the self-proclaimed ideology of the Chinese Communist Party, individuals do not possess inherent value. People are merely a tool to achieve the ends of the collective nation-state. The idea may sound inhumane, but it is as fundamental to the CCP as the Bill of Rights is to Americans.
+- Israel is an inspiration, a trusted ally and a cherished friend. The United States will always stand by its side.
+- I'm old enough to remember Bush v. Gore, and the transition there didn't start until mid-December, and yet it got done.
+- The prospect of an Africa dominated by China means that progress in human rights and democracy in the region will stall and could be reversed.
+- Taiwan needs to start looking at some asymmetric and anti-access area denial strategies and really fortify itself in a manner that would deter the Chinese from any sort of amphibious invasion or even a gray zone operation against them.
+- Relations between the United States and Iran can improve but will not get better so long as innocent Americans are held hostage.
+- It is hard for anyone born after 1945 to imagine a world where the oceans - the global commons - are not open for trade and commerce or where freedom of navigation is imperiled.
+- President Trump stands with Interim President Juan Guaido and the Venezuelan people.
+- Ventilators are life-saving tools in the fight against COVID-19. They are durable medical devices intended to control or assist a critically ill patient's breathing by mechanically delivering them a predetermined percentage of oxygen.
+- For those Muslim Chinese not in camps, Xinjiang is a surveillance state. Millions of artificial-intelligence-powered cameras use facial- and gait-recognition technologies to monitor individuals, Internet activity is closely tracked and DNA samples are collected.
+- The American voter knows that we cannot protect the seas and our interests overseas unless we have ships that can fight and deliver Marines and carrier-based fighter jets to the world's hot spots.
+- For decades, the United States condemned the Chinese Communist Party's coercive population-control policies - too often alone in its criticism, while other nations turned a blind eye as they sought commercial advantages in China.
+- Not many Americans understand how many Army divisions we have, the percentage breakdown of the Air Force's fighter/bomber mix, or the three 'Triad' legs of our strategic nuclear force. But just about everyone understands the Navy's 'ship count' and what it means for a president to send a carrier battle group into a crisis zone.
+- Freedom, democracy, human rights and the rule of law... are universal values of the human spirit.
+- Rubio rode his skill as a high school quarterback to college in Florida, followed by law school.
+- Both cyber and old-fashioned human-intelligence industrial espionage has occurred for decades without any significant retribution by the United States.
+- President Trump has demonstrated to Russia that he means what he says about putting 'America First.'
+- China's rapid inroads into Africa are made possible by a combination of Chinese money and a willingness by Beijing to deal with some of the world's most unsavory leaders and human rights abusers like Robert Mugabe in Zimbabwe and Omar Hassan Ahmad al-Bashir in the Sudan.
+- While the statutory members of the NSC, in some cases, run departments that execute foreign policy, the NSC staff at the White House was intended to coordinate policy rather than run it.
+- Since taking office, President Trump has repeatedly demonstrated that bringing Americans home is a top priority for his administration. The president and Secretary of State Mike Pompeo understand the terrible toll terrorist networks and pariah states like Iran take on our American hostages and their families.
+- I think 99.9% of our law enforcement officers are great Americans. Many of them are African American, Hispanic, Asian, they're working the toughest neighborhood, they've got the hardest jobs to do in this country and I think they're amazing, great Americans.
+- We are not a banana republic.
+- I never wanted Mark Esper's job. I just wanted to see Mark Esper succeed and do a great job as secretary of Defense.
+- Iran has pursued a deliberate policy of kidnapping and unjustly detaining innocent Americans since the very beginning of its revolutionary regime.
+- Both Russia and the United States have had their homelands attacked by violent extremists.
+- When the Jewish state of Israel is strong, Jewish communities worldwide are also strong.
+- President Trump has rebuilt the American military to an extent we haven't seen since Ronald Reagan.
+- Rubio and Cruz bring with them only in America personal stories that rival the 'log cabin' narratives of presidential candidates the 19th Century. They are Hispanic-American children of immigrants.
+- Every American should understand that their vote is secret.
+- Whereas the U.S. views its naval role in the Pacific as a force for keeping the seas free for navigation by all, China sees things quite differently.
+- Abraham Lincoln once noted that 'the ballot is stronger than the bullet.' Foreign adversaries, who can't match the military, economic or diplomatic power of the U.S., understand Lincoln's wisdom. They seek to sow chaos and confusion in our electoral process to gain an advantage over us.
+- The world has grown increasingly dangerous, with a nuclear madman in North Korea testing an ICBM a month, mullahs in Tehran plotting the takeover of the Middle East, Russia engaging in 'frozen conflicts' in Ukraine, Georgia, and Moldova, a very hot civil war in Syria, and China appropriating a vast swath of the Pacific to itself.
+- The 'Scowcroft Model' recognizes - and embraces - the unique but necessarily modest place the National Security Council and the national security adviser occupy in the American national security architecture.
+- The men appear to have a special blend of GOP DNA: Rubio and Cruz appeal to both the key social conservative and defense hawk wings of GOP with their respective 98 percent and 100 percent lifetime American Conservative Union ratings.
+- By interacting with NATO vessels on E.U. anti-piracy duty, the Chinese are gaining valuable insights in to Western naval doctrine.
+- I don't want foreign governments to support President Trump to influence our elections.
+- We've turned a blind eye to Chinese economic activity, the manipulation of the renminbi, the dumping, the unfair trade practices. We've turned a blind eye to intellectual property theft.
+- The United States does not carry baggage from a colonial past as do European countries.
+- No, I don't think there's systemic racism.
+- As it seeks to rule the seas once again, China desires tangible symbols of its past as a naval power. Finding a sunken Chinese ship or coins in Kenyan waters would be powerful in this regard.
+- There is no doubt that there are some racist police, I think they're the minority, I think they're the few bad apples and we need to root them out.
+- There are areas where we have common interests with the Chinese or the Russians and where we have common interests fighting terrorism, seeking to limit the D.P.R.K. nuclear and ballistic missile program. We'll work very closely with them, there are opportunities for trade with those countries.
+- Our message to the Russians is stay out of the U.S. elections.
+- For decades, conventional wisdom in the United States held that it was only a matter of time before China would become more liberal, first economically and then politically. We could not have been more wrong - a miscalculation that stands as the greatest failure of U.S. foreign policy since the 1930s.
+- Without command of the seas ensured by the Navy, it will become more difficult to project American power where necessary to defeat terrorists, interdict WMDs and illegal arms trading and deter nations, including the new super power China, that might do America and its allies harm.
+- Corruption and manipulation of the ICC by foreign intelligence services subvert the original mission and purpose of the ICC.
+- I haven't seen any intelligence that Russia is doing anything to attempt to get President Trump reelected.
+- I believe that in America, freedom and individual liberty will, in the end, always triumph over class division and collectivism with voters of all stripes.
+- Election security isn't a partisan issue.
+- President Trump knows that peace comes through strength. Accordingly, his administration has embarked upon a historic rebuilding of the U.S. military.
+- Thousands of dedicated men and women in the intelligence community and law enforcement are working tirelessly to prevent the subversion of our democratic processes by Beijing, Moscow and Tehran.
+- There are some bad cops who are racist. There are cops that maybe don't have the right training.
+- Despite repeated calls for reform from nations like the United Kingdom, Germany and Japan, the court has become an ineffective, unaccountable and politically motivated bureaucracy. There are serious concerns about corruption and misconduct at the highest levels of the ICC Office of the Prosecutor.
+- I have been with President Trump as he has spoken with leaders from countries on six continents, including Brazil, Bolivia, Ecuador, France, India, Indonesia, Italy, Kenya, Pakistan, Paraguay, Philippines, South Africa, South Korea, Spain, the United Kingdom and many more.
+- We are not a country where a bunch of lieutenant colonels can get together and decide what the policy is of the United States.
+- Like Reagan, President Trump strives for good relations with all nations, including Russia. But no nation, including Russia, should doubt the president's commitment to defending the United States and our allies.
+- Under communism, individuals are merely a means to be used toward the achievement of the ends of the collective nation-state. Thus, individuals can be easily sacrificed for the nation-state's goals.
+- In World War II, America was the Arsenal of Democracy, providing war materiel to our Allies that ultimately led to victory over tyranny.
+- America and the world have been great beneficiaries of the forward presence of the United States Navy around the globe since the end of World War II. The U.S. Navy has been a key foundation of this Pax Americana.
+- We're going to do everything we can to harden our systems, to make sure that our elections are free and fair and the will of the American people is implemented.
+- After World War II, defending America in the modern world required new intelligence agencies, the unification of the armed services under a massive new Defense Department, and later the creation of new civilian organizations with some defense functions, such as NASA and the Energy Department.
+- The United States Navy is of critical importance to the defense of this country and to maintaining freedom of the seas internationally.
+- China, Russia, Iran and other adversaries each pose a threat to our elections, and the Trump administration seeks to counter all of those threats in a serious, professional and apolitical fashion.
+- President Trump reversed the previous administration's disastrous policy of appeasing Cuba and has implemented a vigorous sanctions regime against Nicaragua. Our hope is that the people of Cuba, Venezuela and Nicaragua will one day live in democracies like the rest of their neighbors.
+- While some national security advisers have eschewed the Scowcroft Model and sought to 'operationalize' the NSC or pursue their own policy agendas without regard to the cabinet, the president and the country are best served by the NSC's adherence to its intended 'honest broker' advisory role.
+- A strong believer in the importance of cooperation in the hemisphere, President Trump has made engagement with regional leaders a top priority.
+- Well, free elections are the foundation of our democracy.
+- If you vote early, great. If you vote on Election Day, great. If you vote absentee, great. But get out and vote.
+- The average daily income of a Venezuelan is 72 cents, which isn't enough to purchase daily food. This grinding poverty is a result of a socialist experiment in a country that is home to one of the largest oil reserves in the world - a grim irony.
+- I think the Russians have gotten a great return on investment for a very small amount of, of election interference.
+- President Trump's diplomacy and economic investment demonstrates America's commitment to building a prosperous, safe and democratic Western Hemisphere. Those policies are good for the region and they are good for the United States.
+- As the Navy gets smaller, the world's oceans are becoming more dangerous.
+- The Navy has demonstrated time and again that it is unwilling to embrace innovative approaches that are both efficient and effective with regard to its force structure.
+- The National Security Council assists the president by ensuring that he receives the best views and options from the various departments and agencies on any given issue. The ultimate policies are, as they should be, then decided upon by the president - not by the NSC staff or the national security adviser.
+- The details of the CCP's anti-Uighur campaign are heartbreaking, but they reflect the Marxist-Leninist disdain for individual human beings. Whenever Chinese people dare defy the party by asserting their individual humanity, they stop being useful to the state and become a problem to solve the only way the CCP knows how: suppression and coercion.
+- I made it very clear that the United States will not tolerate foreign interference in our elections, and the Russian side committed not to do so.
+- The United States always maintains the right to self-defense.

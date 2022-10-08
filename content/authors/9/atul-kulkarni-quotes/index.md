@@ -1,0 +1,106 @@
++++
+author = "Atul Kulkarni"
+title = "Atul Kulkarni Quotes"
+quotes_len = "100"
+description = "the best 100 Atul Kulkarni Quotes"
++++
+- I always try to humanize a character.
+- Awards give you confidence apart from official recognition. They act as a dose of encouragement, as they are judged by experts. But, at the same time, you can't ignore the audience's response that matters the most.
+- As an actor, you always want to try something you haven't done before. For me, the uncomfortable zone is the one to enter.
+- India has a cross section of audience whose cultural levels are varied. So where there are takers for Dabangg,' there are also audience for A Wednesday' and Peepli Live.'
+- Among books, one of my early favorites was Gurunath Naik, a Marathi novelist. His mysteries were very popular in the 70s.
+- I always gel with people easily.
+- If you have been accepted and appreciated in a particular role, the industry finds it convenient to slot you in that image. You can't blame them actually - a lot of money is involved.
+- Film scripts are more important for me than the language of the film.
+- I came into the film industry when I was 35 years old; I reckon it's a bit late to start with that.
+- I have been working in seven languages.
+- Dancing like a typical Hindi film hero was a bit strange at first but I enjoyed it.
+- I have always believed that my life is more important than my profession and I have never ever allowed my profession to dictate my life.
+- For any film or any web show, the story dictates everything. If it is a good story, it obviously has good characters in it.
+- When you are acting in a film, you are only worried about your performance and how the film will shape up.
+- I had read an article about a couple who had developed a private forest in Coorg, and were working towards preserving it. I wanted to do something similar and wanted to give something back to the nature from which we have stolen so much. So my cousins and I bought 24 acres of land and we planted trees in that.
+- Zero budget filmmaking is frustrating but also liberating.
+- My native place is Belgaum and I understand Kannada and have a flavor for acting in South Indian languages.
+- After studying theatre from National School of Drama, theatre became a passion, an ambition.
+- There are many talented writers in Mollywood.
+- I don't think I will ever be erased from people's memory as I like to believe the work I do leaves an impact on people.
+- Most of my popular movies have seen me cast in serious roles. But then I am mostly offered such roles.
+- TV is a comparatively younger medium in India. It will take some time to be mature. We need to have patience.
+- I must say that the role in Hey Ram' is one of my favorites. It brought me a lot of acclaim and appreciation.
+- There is a certain kind of anxiety whenever I go perform live in a play.
+- I'd rather concentrate on making my character more convincing than trying to prove my acting prowess.
+- Meaningful cinema which lets me explore my talent to the fullest and with different roles is more important to me than just doing more and more films.
+- I have always believed that awards are like accessories to a car. They are very similar to the rear view mirror in a car, which gives you the confidence to drive. They sure mean a lot; however, they are not the be-all and end-all of life.
+- I love to be a part of movies, irrespective of the cultural and language barriers.
+- In south India, the film culture is deeply rooted. That makes it very professional.
+- The success of Chandni Bar' at the box office was a huge boost at that time of my career.
+- Nobody wants to make bad cinema.
+- People might like an actor, but they love a star.
+- I don't miss theatre.
+- Be it any industry, what matters to me is the story as that is what the audience are primarily in a theatre for - to enjoy a good story.
+- What is the point of doing a long length character if that does not make sense or create an impact on story?
+- I don't want to work in just any movie for money. I do films in seven languages so I am pretty busy to be out of work.
+- As a format, I have watched shows from the West. I have tried to understand what it is and how this format is treated by writers, directors, and actors. I have been studying this format for four to five years.
+- My profession is very important but it's a small part of my life.
+- I have worked with Amitabh Bachchan and Aamir Khan but I believe that if you work hard and well enough in this industry, these are the people you end up with working with anyway.
+- I have done comedy on stage so when I got the chance to do it in cinema, I was extremely thrilled.
+- I had not set out to achieve something. I had left my home to act and am still acting in films.
+- Movies are truly in Kamal Haasan's blood in every sense of the term.
+- I felt huge after I gained weight as I was never this big before. My thighs started to rub against each other and my arms brushed my sides while I walked. I started walking with my legs apart.
+- Reading a newspaper is as important to me as reading a script. Sitting in a cafe and drinking coffee is as important as going for a shoot.
+- I started taking my dance seriously and I have been choreographing for corporate and television shows.
+- I put on 15 kg for my role as an amateur wrestler in the first half of the Marathi film Natrang.' Then, I lost 17 kg for the second half of the film where I play a nachya,' an effeminate character in traditional Marathi tamasha. The weight gain took 40 days and I lost weight in the next 40 odd days.
+- It is important for an actor not to get stuck with an image.
+- I am trying hard not to take on roles similar to what I have already done.
+- Whether I am going in the right direction or not is determined not just by awards but also by the kind of films I do and their success.
+- As filmmakers are nervous while casting, they naturally tend to sign actors depending on what they've seen before.
+- It is always a pleasure to work with a Malayali crew, regardless of the language of the movie.
+- I believe in listening to a script as an audience more than an actor.
+- I was initiated into acting with college plays, enacted by our amateur theatre group, Natya Aradhna, in Sholapur.
+- Web series is a new format, where everything, from the writing to storytelling is different. As an actor you have to approach it differently because you have a character which can go on for a long time. It is my duty to be on my toes, understand the new technology and adapt.
+- I like to keep track of all the developments in world politics.
+- Circuit training is doing repeated exercises on machines without rest. It tones the sagging skin when one starts to lose weight fast.
+- I won't be surprised if I stopped acting after some years because there are other things in life that interest me.
+- Ever since I had decided to study at the National School of Drama, New Delhi, I had wanted to take up acting as my profession.
+- I have been extremely lucky to have worked with directors and actors that have made a fabulous impact in Indian cinema and have received some of the nicest compliments ever.
+- The movie Gul Makai' will showcase the earlier life of Malala and how she was forced and stopped from going to school. It's a proud story of a girl fighting for her own and other girl child rights to education in her village in Swat Valley. I am glad I was chosen to play this role in Gul Makai.'
+- No genre is easy. For an actor, it's a serious business even when he's essaying a funny character. In fact, comedy is more difficult.
+- I don't like to get typecast, and I believe, one should be cautious while choosing roles.
+- When I came into this profession, my first condition to myself and my managers was that I don't want to work every day. As an actor you keep giving, so it's important for you to need the time to take things in.
+- Kannada films are my way of reconnecting with Karnataka, which is close to my heart.
+- In order to be a good director, you also need to be a good entrepreneur because the director is in charge of everything and everyone on the sets.
+- I make it a point to speak to the directors and tell them why I don't want to do a particular role or film. If, despite that, they hold it against me, I cannot help it. I cannot do things that I don't want to just to please someone else.
+- 'Burma' is a new-age thriller on funding for private cars and issues pertaining to the process. I play a car financier, who appoints people to recover the car if funds don't come on time. It is like a bank job, the only difference being they do it unofficially.
+- As an actor I like to be challenged all the time.
+- 'The Raikar Case' will offer the viewers with a kind of such a real experience as it truly delivers more than what meets the eye.
+- Actors require flexibility, a kind of openness and readiness to leave their comfort zone.
+- History is a point of view always.
+- Playing the Mahatma at the start of my career has made a difference in my life as I had read a lot about him at that point of time. I still read a lot on him. His opinion about life and politics has affected a lot of persons, including me.
+- I chose those films which I would like as a spectator. Then, I also look at the character and decide whether I will enjoy playing it as an actor.
+- For weight gain, one must do cardio in the evening and for weight loss, in the morning. So, while gaining weight, I did weight training in the mornings and light cardio in the evenings.
+- I play roles that frighten me as an actor.
+- There is a striking difference in my look in Burma.' I've experimented with my hairdo, and got a new hair color especially for the role.
+- In Maharashtra, films are not as big as theatre. I think theatre is deeply rooted in this state's culture.
+- I have no regrets for not having a solo career in Bollywood because when I joined the film industry I was 35 years old. Nobody gets solo leads when they start their career at this age.
+- In fact, my earliest films were in Tamil and Telugu and since then I have been acting in all languages.
+- At the end of the day I can't change myself. It's only different characters that I play. And in those it should not be me, Atul Kulkarni, it should be the character that is being played by Atul Kulkarni.
+- I love Hitchcock's films because even though you knew who did it right at the beginning, he still kept the audience engaged till the last frame.
+- We cannot compare Marathi cinema industry with other regional industries or even Hindi industry. It will be unfair for us. Every industry takes time to evolve.
+- I quit my job in New India Insurance and was confronted by various options. I could either go to Pune to do a course in acting from Poona University or shift base to Bombay or Delhi and study at NSD. I opted for the latter because it is the best place to get a formal education in acting.
+- I had the Forrest Gump' DVD and started watching. While watching it, I had no intention of writing it. When I started watching it, I got some flashes that it can be adapted in Hindi. That's how it started.
+- I have never accepted any random offers for the sake of being a regular face in the film industry.
+- I am enjoying the process of filmmaking and I might take up direction as well.
+- As far as Raikar Case' is concerned, I give the entire credit to the writer because of the way they have written this show. It is extremely intriguing.
+- No regional cinema can compete with national cinema.
+- I don't act to prove anything to anyone. I like acting. It is the only profession I know.
+- I love working in multiple languages, and these days good films are being made across the country.
+- I enjoy doing theatre as much as cinema.
+- I am not at all a serious person in real life.
+- I love comic roles.
+- Playing a character is like compressing an entire life into a few lines - that isn't an easy task.
+- As a camera actor, you're constantly in touch with technology. First the technology came into existence and then film acting happened. So it's always going to lead us.
+- I do not have AC, TV, microwave or a washing machine in my house.
+- It's not that I am not being offered work in Bollywood but I seldom like any script.
+- I am not really missing theatre as I get to act in films, that too in different languages, such as Tamil, Telugu, Kannada and Marathi, my mother tongue.
+- Given a chance, I would wish to act along side Aamir Khan again.
+- I have shot extensively in Kerala for various films and always loved the experience.

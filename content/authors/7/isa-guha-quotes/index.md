@@ -1,0 +1,101 @@
++++
+author = "Isa Guha"
+title = "Isa Guha Quotes"
+quotes_len = "95"
+description = "the best 95 Isa Guha Quotes"
++++
+- It is important for big names such as Sunil Gavaskar and Ravi Shastri to get on board and recognise that women do actually understand the game and they can play as well.
+- A level of negativity around women working in men's sport is still present in the U.K., but I keep reminding myself that I'm there to do a job and add a different perspective.
+- Cricket is a sport girls can play and be successful in irrespective of their background.
+- England is leading the way in women's cricket.
+- I have always enjoyed male company, which has probably stemmed from playing in boys/men's teams while growing up.
+- It has been a pleasure to play alongside some truly special cricketers and to see them grow as players.
+- There isn't a traditional background of Asian women playing sport, but that's changing.
+- If you work towards goals, everything is achievable.
+- The 'Natmeg' from England's Natalie Sciver attracted a lot of attention as a brilliant piece of improvisation, which requires every bit as much talent as a Tillakaratne Dilshan 'scoop,' or a Jos Buttler 'ramp' shot.
+- I wasn't aware of women's cricket until I was 10. We grew up following the men's game.
+- I started playing cricket with my brother in our back garden when I was eight. The garden was long and thin, so it was perfect for us to play cricket in. We'd use a crate as the wicket. We broke quite a few windows.
+- When the cricket is serious and it's a really important time in the middle we focus on that but obviously when it isn't there is a lot of time to chat and we can use that as time to bring the comedians in a bit more. We get the balance right between getting the calling of the cricket right but having some fun as well.
+- It's no secret that women's cricket needs India performing on the global stage, and any male support is welcome - with key voices like Sachin Tendulkar stating that women's cricket is critical to the future of our game, hopefully people will listen.
+- In T20, I think it's really valuable to have a bowler who can bring the ball back into the right hander at pace.
+- It's about being true to who you are as a person. For example, I'm not going to shy away from an opinion because I have played cricket, whereas other women who haven't played cricket might be more journalistic about their approach.
+- To people who don't take women's cricket seriously, I'd say: just watch a game first, and then make your judgement.
+- I love the multi-format series. Within it they've found a way to retain Test matches and England v Australia in the Test arena, they were always my favourite matches to play in.
+- I made my England debut when I was 17, against India. I was the first Asian to play for the England women's team, and I did have mixed feelings playing against the country my parents are from but I was born and bred in England and I've always known I wanted to play for my country.
+- Looking back over all the sporting spectacles of 2016, I still pinch myself at the things I was fortunate to witness in person.
+- Kohli scores so freely. He's like Joe Root in that before you know it, he's on 30 off 20 balls. He is also the master of the chase - he calculates so the risks so perfectly.
+- Once you get on the pitch you know you've got a job to do.
+- I've never really seen myself as a role model, but if others see me as that then it's something of which I'd be very proud.
+- Mum was the strongest person I knew.
+- Playing cricket has given me an excellent opportunity to get fit and healthy, meet people of similar interests, integrate with people of different backgrounds and see the world.
+- I've been lucky in that my parents have always supported me with my cricket, but I've seen so many young Asian girls who don't keep up their sporting interests after the age of 12 or 13.
+- With four women commentators, the IPL have shown they have faith in women commentators to do a good job.
+- With tournaments such as the Women's Big Bash and the Kia Super League, women are now well practised in the art of big strokeplay.
+- I definitely feel more attached to Kolkata than anywhere else in India.
+- I prioritise different things at different times, so when a cricket tour is coming up, cricket takes priority. But then there are times when I need to focus on my studies. I think it's good to have a balance.
+- In Twenty20, because of the pace of the game, everyone is constantly involved in the field, you have to work as a team covering each other, there's no time to take your eye off the ball.
+- When you start off a T20 innings you want someone who is going to be hitting the top of off stump, causing problems and being quite disciplined with the ball.
+- We believe that we can win no matter what situation.
+- It's definitely good to play out of my comfort zone, especially in the Sydney Premier League which is one of the toughest leagues in the world.
+- Before my parents came to England from Calcutta in the 1970s, they used to go to games at Eden Gardens.
+- What I love in television is when you have the banter between the presenters, that's what makes a really good programme. That's why it is so important for me to have good relationships with people I'm commentating with.
+- Something we do every tour is to choose a song for the team CD that gets played in the dressing room prior to games.
+- Back in 2005, we lost in the semi-final of the World Cup and that was a great learning curve for the team. It gave us a goal and even more of a hunger to win the World Cup, so we went away and set ourselves a long-term plan to do it.
+- I realised my dream of playing for England when I first met Claire Taylor and then Charlotte Edwards at the age of 11. I didn't even know there was an England Women's team until then.
+- Just having the support from the male players is important as the women's game moves forward.
+- I used to play badminton in winter.
+- I have had a bowl with the pink ball but it was in a day game at Wormsley.
+- It's not that there has never been a keen following for women's cricket in India.
+- Many England girls have grown up playing men's cricket and trained in county men's academies, so they've faced 70-80 mph bowling. So when it comes to the women's game you have a 75mph bowler who's not as tall and not getting as much bounce, you feel more assured.
+- I went through a phase after we won the World Cup of 'what am I going to do with my life.'
+- Naturally, any time that our national team beats Australia is pleasing but the first time we beat them in 10 years at Stratford in 2005 was a day I'll never forget.
+- It's been great to see broadcasters waking up to the fact that women do offer a different perspective.
+- We won't necessarily sledge so much but we do have that attitude of 'They're not going to score the runs, we're going to take the wickets.'
+- As part of the England women's cricket team, we had our own rickety period at the end of 2005 through to the beginning of 2007. Learning from our mistakes, by 2009 we were the best team in the world.
+- When I was 11 I was scouted by the Thames Valley under-21s. It was really daunting. I was scared for my life when I went in to bat. The first ball hit me on the leg, the second ball got me out, so it wasn't great but it made me stronger.
+- I don't have much knowledge about Indian culture, but I try to keep a tab of what's happening down here.
+- When I first started playing cricket for England, there was hardly any coverage.
+- I love science.
+- We used to live five minutes from the local cricket club in High Wycombe. My brother Kaush, who is seven years older, played there.
+- I think it's always really important in broadcast to be able to get different views across and not just go down one route, because that's essentially journalism.
+- It goes without saying that I try to do everything to the best of my ability.
+- I am following the IPL. I think it would be great for the women's game, creating more competition and showcasing the world's best players from different countries. It would also be a stepping-stone to women's cricket becoming professional.
+- At a personal level, doing well in the Ashes and winning it was a high.
+- I think T20 cricket has become the flagship spectacle for women's cricket.
+- I do speak a bit of Bengali.
+- One of my heroes growing up was Darren Gough, he always made things happen and I wanted to be like him.
+- I like Tendulkar and I think the Indian batsmen are stylish but I support England and I have always wanted to play for England.
+- My brother was playing hockey, tennis, badminton... I basically copied everything he did.
+- My first game was against India and while my roots will always be Indian I was born in England and wanted to represent them.
+- People say that because I'm short I get a lot more skid off the pitch.
+- I've always been an England fan. I was born and bred here.
+- Broadcasters realise there is a large percentage of women that watch cricket and it was the Caribbean Premier League that first got me to commentate a men's international T20.
+- My parents were proud of the fact that I was playing cricket, they used to ferry me around during the weekends to play the game.
+- Jess Ennis, Chrissie Ohuruogu, Vicky Pendleton and Laura Trott, to name a few, have acted as female role models in England.
+- You never know how you're going to go down as an English commentator in Australia.
+- I feel very lucky and grateful that I've been welcomed by the Australian public.
+- As a pundit, it's important to tell the viewer something they might not know, be unbiased and not sit on the fence.
+- I am High Wycombe born and bred.
+- In 2015, I was privileged to host the first ever televised Women's Test match during the 2015 Women's Ashes on Sky Sports, which saw every game covered of the multi-format series.
+- People in the U.K. should support who they want to but I would like them to think that playing for England is an option.
+- From playing cricket in a boys team I had to learn quite quickly how to handle them and I've always felt quite comfortable in that environment. Because I feel comfortable, I'd like to think they do too.
+- I read the Guardian when I can get it, but I have to admit I mostly turn to the sport.
+- It's about who holds their nerve under pressure.
+- I'd like to thank my family and friends for their continual support over the years and to all those involved in helping me develop as a cricketer of which there are too many to mention.
+- IPL is a T20 franchise tournament combining cricket and Bollywood to offer entertainment.
+- My parents are proud of my achievements. They send articles to my grandparents in India. Everyone's happy I'm doing something I want to do.
+- England Women regularly play against Under-15 and U-17 county men's sides, which is great for the girls to take them out of their comfort zones. It's important to find a balance, though, because the way in which women's cricket is played is still very different.
+- I'm a big one for music.
+- My dream was always to play for England, having grown up in the U.K . Playing India as part of my first test match was a coincidence, and it was never an issue. My job was to do a good job for England!
+- It would be great to see more Asian women playing cricket at every level.
+- I wasn't treated different to anyone else, I just performed on the pitch and that helped my selection for the 'Development England' side at the age of 13 and I had no extra boundaries just because I was Asian.
+- T20 is fast-paced and a wonderful vehicle to attract wider audience. On a technical level, it probably has impacted Test cricket.
+- You want to get both sides of the story and it's my role to try and bring that out of people.
+- When we won the 2009 World Cup in Australia, we flew economy, shared hotel rooms and had a 10:45 P.M. curfew.
+- As an athlete there are times in your career where, during a game, any decision you make seems to be the right one. The bowler bowls where you want, you don't have to think and you are so 'in the zone' that you are not aware of anything else around you.
+- I do love the Ashes and some of my best memories are from Ashes cricket. I just wish we'd played a few more Test matches.
+- That's how cricket should be broadcast. Ball-by-ball calling is important but you've got to be lighthearted like you're down the pub with your mates.
+- Asian parents generally tend to channel their children, especially their daughters, into studying and not sport.
+- T20 is the vehicle to make cricket a truly global game.
+- I remember my England debut, in 2002. It came in Jersey, in a triangular tournament with New Zealand and India. To say that it did not generate great local interest is putting it mildly: our first game, against India, attracted a handful of spectators.
+- I haven't played men's Test cricket, I've played women's Test cricket.

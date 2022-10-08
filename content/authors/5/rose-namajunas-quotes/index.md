@@ -1,0 +1,106 @@
++++
+author = "Rose Namajunas"
+title = "Rose Namajunas Quotes"
+quotes_len = "100"
+description = "the best 100 Rose Namajunas Quotes"
++++
+- From my perspective, if I say that I'm done, I would hope - and I trust - that my corner would throw in the towel for me.
+- When I force things, it just doesn't go well.
+- My dad died, and he wasn't in my life because he had schizophrenia, so it's been something that my entire family has been fighting against since I can remember.
+- My hands look like my dad's and my mom's put together. She's a piano player, he was an artist, and I use the creative qualities I got from them in my fighting. But I don't just destroy with my hands; I also create: I cook and make art and garden.
+- Fighting helped me learn that I can't let my emotions take over.
+- I don't think anybody is perfect.
+- I love to learn, and that's the really cool thing about martial arts - you're always learning new things.
+- I wanna fight the best.
+- Always try to reinvent myself; never try to stay the same person, because that's how people figure you out.
+- Some of the things I've had to overcome in my past, fighting helped me deal with a lot of struggles. Obstacles in life don't make you a great fighter, but fighting - or, I should say, martial arts - helps you overcome your obstacles.
+- I definitely get down on myself. I needed to work on my self-talk. The same way you do footwork drills and cardio training, I had to do self-talk training.
+- The learning curve, and the things that you have to adapt to on a daily basis in the UFC, is pretty crazy. It's a huge burden for anybody to have: not just the fighting itself but learning how to deal with the other responsibilities.
+- I love my 303 ladies. We go hard here, you know - we're fierce!
+- I feel like anything can be worked out; you just gotta talk through it as adults.
+- Any mistakes that I make is an investment in my future.
+- Every fight is dangerous, no matter who you're fighting, no matter what the story behind it is.
+- I've done taekwondo striking my entire life.
+- I feel like I can go all the way for the belt and hold it awhile.
+- What's the point of being the best in the world if you scratch and claw your way to the top, and you push everybody down instead of lifting everybody else up with you?
+- My dream is to be a farmer myself, but also to provide opportunities to others who don't have the land or the resources, in order to grow food themselves and teach them how to do it.
+- I guess I'm crazy. If everything was easy-peasy and green lights all the time, it'd be kind of boring.
+- When I'm totally in tune with myself, and I'm flowing, it don't matter who I'm fighting; that's just a problem for anybody.
+- 2016 was really challenging for me. I don't know what it was.
+- Money and fame, it only makes you so happy. You gotta find other reasons to fight. I want a certain amount of money to do the things that I want to do.
+- I used to fight with hate. There's been a lot of aggression in my past growing up and stuff. That's because I was hurt myself.
+- Every fight is personal, but with myself.
+- There's a lot around us that we can't control, but my body, my mind, and my soul are pretty much the only things that I can.
+- I just wish there were a little more peace in the world.
+- Wrestling and kickboxing, like martial arts, combine a handful of skills. They're really an art form.
+- Martial arts is about honor and respect.
+- I didn't need the belt to validate me.
+- I wake up every morning trying to be a new, better person and version of myself. I never try and be the same thing. So that's what's going to be hard for girls to keep up with me, because I'm always ever-evolving my style.
+- I want to encourage people to be nicer to each other, to be nicer to themselves.
+- I think that I can speak in front of the camera. I think my fighting ability can speak for itself as well.
+- Being resourceful and creating is a big part of my Lithuanian culture. My grandfather is part of who I am, too. He was a professional wrestler. He had a very functional, very slick, long frame.
+- All my jabs, they're all different. I have a million different jabs.
+- I learned that love is a much more sustainable energy to draw on than hate.
+- Fighting causes you to face life head on, because you could end up seriously getting hurt, and you could hurt somebody else. It causes both people to face the reality that we are fragile beings, but it doesn't mean we can't enjoy ourselves in the process and punch each other in the face and have a good time.
+- I think we have a great opportunity as fighters and athletes to be good role models. I'm by no means perfect, but I think we can try.
+- It's hard to focus on a fight when your heart is broken and you're not happy in your relationship, especially if that's your coach. That's like fighting without one leg.
+- Everybody's one fight away from getting a title shot if they step in on short notice for somebody.
+- I love spoiling a party. I love it when someone is on a roll and just messin' that up.
+- If I'm not fighting for a good reason, then your personal life starts to get messy, and it's like, 'What am I doing this for?'
+- I grew up with lots of anger, frustration, and violence in my heart.
+- Oh, man - I don't have just one favorite fighter, but I draw from many different aspects of each fighter. But I will say, just going back in the history of the UFC, just kind of trying to learn from each fighter, I've been looking at Brock Lesnar, all the things he did for the UFC back in the day, and his attitude and things like that.
+- When you want to be a fighter, you have to give it everything you got. MMA just became who I am because of the amount of work I was putting into my training. It all starts in the gym. The hours turn into days, days into weeks, and weeks into months; it's like school - the more time you spend learning, the better you'll be prepared for a test.
+- I've always felt that I was a star. I always knew that I am a star.
+- I have overcome some demons in my path.
+- Your mind is just like your body. It's a muscle you can train and get better at.
+- I think that's what makes me so great of a fighter. I'm crazy as hell. And fighting helps me with that.
+- I've got Pat 'HD' Barry in my corner.
+- I'm glad I went through the 'TUF' experience.
+- It takes a lot of courage in that cage no matter who you are.
+- A big misconception is that women shouldn't be in the UFC because we fight 'like girls,' but I think women have some of the most exciting fights.
+- There's pros and cons to everything, and I choose to look at the positives.
+- In order to survive, I created a certain type of aura about myself that I was the baddest chick walking down the street. Anytime somebody underestimates me, Thug Rose comes out.
+- It's great that mixed martial arts allows people to still be in touch with their animal side and duke it out in a cage, but I think it's important: we're still nurturing beings, and we should still have compassion for each other.
+- It's pretty cool to be called a champion.
+- Mixed martial arts - there's just been a lot of trash talking and things like that. People, I feel like, aren't really being true to themselves or being honest. I don't know, maybe that's what they feel they need to do to entertain things.
+- I'm just a very impatient person. It's always something that I'm working on, and just staying interested in the fight game is the biggest challenge for me. As long as I'm interested and I have an incentive to stay interested, then I'm unbeatable.
+- All I can control is myself and just keep having a positive attitude.
+- I respect my competition.
+- We need the villain sometimes. It makes for an interesting story.
+- Me being the best in the world, it doesn't mean that much to me if I'm not a good person at the end of the day, if I'm not setting a good example for other people to be better to each other.
+- I've always been like, if society's trying to push me in one direction, I always rebel against it, thinking, 'Nope, I'm going to do the opposite, something that is not expected.'
+- I think it's important to inspire other people to try and do things that people discourage you to do.
+- I thrive on chaos and difficult situations. I guess that's who I am.
+- People are gonna go up and down and people are gonna come in and out of this sport.
+- You just keep a positive attitude no matter what comes in your way - challenges, roadblocks - don't let it faze you, and you can overcome anything.
+- That's what I want to do when I finish fighting - build urban farms and learn how to become a farmer, because that's what I wanted to be when I was a little girl.
+- I'm just here to show up and fight and then get my money and go home.
+- I'm always trying to improve, and you can't ever expect anything from me. You can always just expect me to be dangerous.
+- All I can do is make sure I show up to fight, and then they have no choice but to pay me.
+- I'm more dramatic than other people are, or I just show it more. I don't think there's anything wrong with that. I have a lot of passion.
+- Sometimes when you push something or you force something too much, the progress doesn't happen the way it should.
+- I'm the all-around threat. I've got the look; I think I've got the whole package.
+- It's all about me, no matter who I'm fighting.
+- I was kind of a loner growing up.
+- When they asked us what we wanted to be when we grow up, in kindergarten, I always said I wanted to be a farmer.
+- I'm like a tree. My leaves might change color, but my roots are the same.
+- To me, fighting is special because that's what I enjoy to do. Every fight is a memory to me.
+- That Dutch style of kickboxing, that's great. That's hard. It's very intimidating to stand across from, but you know it's very rhythmic on the beat. It's just something: It looks scary, but it's nothing to be scared of.
+- I come from a place of lots of turmoil.
+- I feel like we have a duty as fighters to try and be a better example.
+- I had to really create a positive atmosphere for myself, and that has to come from within.
+- I think there's a lot of mental instability in this whole country.
+- We're not just fighters, we're entertainers.
+- I live in a very nice neighborhood. There's nothing that really goes on around here.
+- I don't necessarily know about the rankings. I always like to look at it as, it's the person with the belt, and it's everybody else.
+- All the scars on my body, all the bumps and bruises, all the muscles - that is a story of everything I have done. And it's not just my story. My ancestors who came before me gave me this vessel to sculpt and mold.
+- There are so many variables that go into a fight, you shouldn't waste your time worrying about the other fighters.
+- I'm sick of all the hate and anger and stuff like that going on.
+- People think after the fight you get to sit around and relax and all that. But really, people come around and family and all that, so it's a whole 'nother responsibility you have to take care of.
+- A lot of times, my best friend was my dog.
+- There's a process to everything. If you fast track or make shortcuts in any way, and you get too much of one thing, you're just out of balance.
+- Nobody's the same. So, I think that people benefit in different things than others.
+- I want to be the most influential champion, in a positive light. I want to change the world.
+- It's really nice to know that hard work does pay off.
+- Of course, fighting is one of the most emotional things that you can possibly do. You have to constantly deal with your emotions, especially myself. I have so many that that's where I get my energy from. But it's a matter of controlling them, and yeah, I just don't let nothing affect me.
+- I'm successful every day because I look in the mirror, and I'm happy with who I am.

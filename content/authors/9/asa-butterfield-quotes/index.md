@@ -1,0 +1,49 @@
++++
+author = "Asa Butterfield"
+title = "Asa Butterfield Quotes"
+quotes_len = "43"
+description = "the best 43 Asa Butterfield Quotes"
++++
+- I think I'm good at playing dramatic and serious roles, but it's not necessarily what I want to keep doing.
+- I watched films growing up, but no more than the next guy, really. Working on 'Hugo' made me appreciate cinema and the art of cinema a lot more.
+- I work and come home and just have a type of normal home life. It's what I've always wanted. I've never felt like I'm pressured into doing something and that I've got loads of responsibility.
+- I've been in a few films that have been adapted and, as an actor, the amount of resources and things you can gain just from reading the story, as well as the script, are so massive that it's something you just can't put down.
+- When you're hanging there twenty feet off the ground, surrounded by green screen, and all you've got is the other actor and the wonderful Gavin Hood shouting instructions at you as to what's going on; it's a really unique experience.
+- A kid actor to an adult actor is a tricky one.
+- The whole celebrity culture is super weird, but I'm part of it for some reason, and you kind of have to be as an actor to be successful.
+- I always think that trying to push yourself as an actor in a direction that you've never been before, developing characters which are more difficult to get into the head of, or are more interesting and further away from yourself, is always a challenge. But, you want to take up that challenge and try your best.
+- When things don't go your way, you brush it aside and carry on. Don't take what you have for granted. Enjoy what you have.
+- That was the most important thing to me: making sure 'Gardner Elliot' was likeable and funny and interesting. I took my time before filming to chat with Peter, the director, to create this character.
+- I don't really like scary movies. I mean, I didn't as a kid, but I think I got a bit better now. I've been easing myself into it, starting off with the less spooky ones.
+- My little sister, who is four, can work my mom's iPhone better than she can.
+- I don't look for anything in particular, like a particular genre. It's all very much to do with the quality of the script and the character as well.
+- I'm a pretty normal person outside of the film world. It doesn't really affect me when I'm at school or with my mates.
+- For me, I value connection a lot, talking to people and connecting. Don't get me wrong: I enjoy having my own time, but I think it's really important to have that connection, so living on Mars would be a struggle for me.
+- When you have a book as material as it is, it's a lot easier to create a character because you have so many resources to draw upon when acting.
+- I just read the scripts that come to me, and I see the ones which I really kind of understand and connect with, whether that's a science fiction or a period piece. It doesn't really matter as long as they're original and I have something to do with the character.
+- I think I can speak for a lot of people in that they would be pretty nervous about meeting Harrison Ford, and I was definitely one of those people.
+- I did a film, 'X+Y', in which I played somebody on the autistic spectrum. It's a subject I didn't know very much about, but being an actor gives yourself the opportunity to really immerse yourself in that world and learn things. It's one of the great things about what I do.
+- I'm very optimistic. I'm happy-go-lucky, I guess. I try to be.
+- I already had a lot of friends at school who didn't care about the whole acting thing, so there was no reason for me to not be in school.
+- To have that normality to come back to, to totally relax and not have to deal with a lot of the pressure that's put on young actors makes it a lot easier.
+- One of the things that I really enjoyed playing with Ender was how he's constantly struggling between his brother and his sister. It's like he's got two sides to him. And I've always wanted to play a darker character, and in this film and in the novel, Ender has his moments where he isn't a glorified hero.
+- For me, not just the character of 'Ender', but the whole world is so beautifully crafted in the novel that I wasn't sure how it could be brought to the screen - but Gavin has done it justice, and he's done it amazingly.
+- I don't like to set myself goals because then you might fail to reach them. I just go with the flow.
+- When you're acting, you do have to prepare yourself for doing that. You have to leave behind - or you try and leave behind - anything that's going on in your personal life.
+- All of the other books in the series... none of them are particularly like 'Ender's Game.'
+- When you're working in the industry, and you're working with people who are well known and are so regarded, you do just pick up on things. Talking to people and hearing their stories, you learn a lot.
+- You might only get three takes to do a scene; sometimes it takes longer than that to find those moments.
+- I think having a character piece is great. It will challenge you and be different.
+- Whilst I've got these opportunities, and whilst I still love doing it, acting is something I can see myself continuing forever until I get bored of it.
+- I've never done a horror movie, like a full-on gore slasher film.
+- I like science fiction. I am quite a technologically kind of up-to-date person. I like seeing what the new developments are.
+- I've played a worrying number of orphans, children who have been abandoned or had something terrible happen to them.
+- I never wanted to be home-schooled. I didn't like the idea of being home-schooled.
+- I don't see myself acting for the rest of my life.
+- People think when you're moving in Zero-G, it's like moving in jelly. But it's not. You're completely free to move however fast as you want.
+- It wasn't until I did 'Hugo' where I sort of started to think that this could be something that I do for a long time - not necessarily the rest of my life, but we'll see.
+- I always think that trying to push yourself as an actor in a direction that you've never been before, developing characters which are more difficult to get into the head of, or are more interesting and further away from yourself, is always a challenge.
+- I'd really likely to shoot wildlife documentaries. I watched so many of those as a child, and I'm quite into wildlife and love photography as well, so that's something I'd like to do.
+- I would go back to school after working on a movie, and it didn't feel I missed anything, like I had been away. I did mature pretty quickly, though, but I still sound pretty immature sometimes.
+- I do have people looking up to me, which is still kind of weird to me. 'I'm like, 'Why? What have I done?'
+- As an actor, depending on who you are, you might be stopped on the street and might not get all the privacy you want, but I'd rather have that than no human connection whatsoever.

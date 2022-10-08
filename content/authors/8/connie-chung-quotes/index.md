@@ -1,0 +1,31 @@
++++
+author = "Connie Chung"
+title = "Connie Chung Quotes"
+quotes_len = "25"
+description = "the best 25 Connie Chung Quotes"
++++
+- I think that they had afforded me many opportunities to do good work there, and I think I did. It was a wonderful four years. I really worked with some great people, terrific producers, terrific editors.
+- The Harding/Kerrigan saga was one of the first feeding-frenzy stories that would forever change news coverage.
+- But, you know, sometimes - many - they all understand. That's the nice thing. They were all very happy for me and they understand why I decided to come to CNN. So in that respect, I know that they think it's the best thing for me to do.
+- Our son is in school now. You know, he's six-and-a-half and so a big chunk of the day is taken up by school. So I'm hoping that I'll be able to certainly take him to school in the morning, maybe pick him up in the afternoon and come back to work.
+- I don't know when network executives will get out of the Dark Ages.
+- As the youngest, I wanted to be my father's son and perpetuate the family name.
+- Just about any story we think about doing, whether we've read it in a newspaper, heard it on the radio or come upon it through word of mouth - by the time you get there, every other network, cable station and talk show is already racing to the scene.
+- I mean, all the ratings wars are silly. But, I mean, someone has to be concerned about the ratings because it means, you know, it translates into revenue.
+- Today, especially, when there are so many stations for viewers to choose from, if they want news, they always come to CNN and that's where I wanted to be.
+- Do you have a year to tell you what I have been through as a woman working in journalism? I went through hell. A lot of discrimination, everything you can think of.
+- I once bought an old car back after I sold it because I missed it so much and I had forgotten that it never ran. It was a British racing car. You know, because I just wanted it back. I could only remember what was good about it.
+- The cavemen are still in charge at the networks. They're all white males, and you can't get away from that.
+- I think men are allowed to be fat and bald and ugly and women aren't. And it's just not - there is no equality there.
+- The ones who are the smartest are the ones who use us. In other words, they understand the relationship between the press and leaders.
+- For instance, he says I let him play golf, and he says, he lets me be miserable in my job. Now - that doesn't quite sound right, does it? But nonetheless, I think for the first time in my life, I'm not going to be miserable in my life when I come and work at CNN.
+- In the beginning, all of us got 'women type' stories. Like covering the first lady instead of the president.
+- Dan Rather had to move over a few inches to make room for me. It was my dream job. And my dream came true.
+- I think, you know, it was something that I really wanted. I wanted so much to have a son or daughter. We adopted a son. And it was just the most wonderful thing. I think the only thing that was difficult for both Maury and myself were the sleepless nights.
+- You know, there are not only - all of the networks, and I mean every television news operation and print and radio and magazines, newspapers, all of them, are remiss in the diversity area. I mean, none of these organizations have reached a level of parity.
+- I now need to take a very aggressive approach to having a baby.
+- We're going to develop - what we want to do is to provide the viewers with what they want from CNN and that is the news. So when people tune in, they'll get the latest news, but they'll also get the biggest story of the day in depth, as CNN does so well.
+- I was just going at this career - boom, boom, boom! Then all of a sudden, at 38, Oh, my God - I forgot to get married!
+- I would gather information and have to give it to somebody else and not get the byline.
+- You can't juggle it all 100 percent. You don't have to be perfect. You don't have to do everything.
+- Well, honestly, both my husband and I tend to ignore the tabloids. We see them every once in awhile or it comes to our attention that we are in a tabloid for one reason or another. But it's always false.

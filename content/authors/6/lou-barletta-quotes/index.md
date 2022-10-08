@@ -1,0 +1,17 @@
++++
+author = "Lou Barletta"
+title = "Lou Barletta Quotes"
+quotes_len = "11"
+description = "the best 11 Lou Barletta Quotes"
++++
+- Big government doesn't work! It just doesn't work!
+- The federal government has failed us, so we, the elected officials of small-town America, are getting tough with illegal immigration.
+- I just want to keep America safe. Who could be against that?
+- Thousands of cities in America are crying out for relief from the burden of illegal immigration. Small towns like mine can no longer wait for Washington.
+- In a city that is barely getting by with its small budget, something like illegal immigration can be the difference from being able to provide the level of public service that people expect.
+- Mayors do not have that authority to pick and choose what laws they're going to enforce.
+- I'm Lou Barletta, and I'm a small town defender.
+- People know that I'm going to do what's right.
+- I love the new legal immigrants; they want their kids to be safe just like I do.
+- I've been a voice for many people.
+- I saw my city gripped by fear. Because of violent acts committed by illegal aliens, my residents were afraid to shop - or even drive - on certain streets.

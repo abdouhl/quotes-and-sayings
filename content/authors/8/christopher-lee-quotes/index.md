@@ -1,0 +1,73 @@
++++
+author = "Christopher Lee"
+title = "Christopher Lee Quotes"
+quotes_len = "67"
+description = "the best 67 Christopher Lee Quotes"
++++
+- I've done a lot of films that have become iconic, not necessarily because of me.
+- I made three films with Boris Karloff. He was absolutely wonderful.
+- I associate heavy metal with fantasy because of the tremendous power that the music delivers.
+- Acting as a profession came to me by chance: in 1946, after the war, I was having lunch with my cousin, who was the Italian ambassador, and he asked, 'What are you going to do now you're out of uniform?' I said, 'I'm pretty inventive, and I can imitate people,' and he said, 'Have you thought about being an actor?'
+- There is something sad about malevolence, to be wicked. I have always tried to make that come across in the villains I have played.
+- 'The Wicker Man' for me, as an actor, was definitely the best film I've ever done.
+- When the Second World War finished, I was 23, and already I had seen enough horror to last me a lifetime. I'd seen dreadful, dreadful things, without saying a word. So seeing horror depicted on film doesn't affect me much.
+- I wasn't a spy. I'd have been spotted in five seconds. Yes, I was in intelligence, but that covered a multitude of things.
+- We don't live in a particularly attractive world. I don't really remember, except as a small boy, anything but a pretty grim world.
+- I haven't spent my entire career playing the guy in the bad hat, although I have to say that the bad guy is frequently much more interesting than the good guy.
+- Before 'Lord of the Rings,' some people would have just classed Peter Jackson as a horror director. But there is a mind there.
+- My favourite country is Finland because once you get to a certain point, you can drive for hours without seeing a single person. I love peace and quiet - something I don't get very often.
+- Not every Hammer film was perfect.
+- What's really important for me is, as an old man, I'm known by my own generation and the next generation know me, too.
+- There are certain things producers ask you to do, and when I was starting out, I said yes to everything. I was asked, for 'Quo Vadis,' to drive a chariot. I said, 'Oh yes. I'm licenced for all vehicles.' Two days later, I was sitting in this dustbin with two very aggressive horses. I didn't stay in it for long.
+- The song 'My Way' is a very remarkable song. It is also difficult to sing because you've got to convince people that what you're singing about is the truth. It's a man who is very proud of having achieved everything that he's achieved his way.
+- I don't really like long flights any more - I find them too tiring. Flying always involves the same things these days - huge crowds at airports, waiting around, late take-offs, weather problems, and so on. I don't really enjoy travelling. I don't imagine anyone does except young children.
+- The saddest country I went to was Romania, years ago, during Ceausescu's rule.
+- I knew Vincent Price from films - he was a big movie star - but the first time I met him was when we filmed 'The Oblong Box.'
+- I'm much softer than people think. I don't present to the world an emotional face. I'm pretty good at self-control, but I am easily moved.
+- There are many vampires in the world today... you only have to think of the film business.
+- In 1956, the success of the Hammer films kick-started my career. That immediately gave me a name and a face to go with it. I will always be grateful to Hammer for that.
+- Let's just say I was in Special Forces and leave it at that. People can read into that what they like.
+- I did play Ramses II once, who lived to be 91 and had 120 children, but he died 4,000 years ago.
+- It's what you don't see that keeps you on the edge of your seat in any kind of film - leave it to the imagination of the viewer.
+- I've always acknowledged my debt to Hammer. I've always said I'm very grateful to them. They gave me this great opportunity, made me a well known face all over the world for which I am profoundly grateful.
+- Comedy is the most difficult thing to do. Easily the most difficult.
+- I still think 'The Lord of the Rings' is the greatest literary achievement in my lifetime. Like so many other people, I couldn't wait for the second and then the third book. Nothing like it had ever been written.
+- One of the first things a British visitor to Southern California discovers is that he must have a car. Freeways. Bad public transport. I took driving lessons.
+- The secret to a long marriage in the film industry? Marry someone wonderful, as I did. And always have her come along on location.
+- Every actor has to make terrible films from time to time, but the trick is never to be terrible in them.
+- Making films has never just been a job to me; it is my life. I have some interests outside of acting - I sing and I've written books, for instance - but acting is what keeps me going: it's what I do; it gives life purpose.
+- 'The Impossible Dream' is, in my opinion, one of the greatest songs ever written. Here is a man, an old man, a very old man full of daring, bravery, courage, determination, romanticism and dreams.
+- The thing I have always tried to do is surprise people: to present them with something they didn't expect.
+- I didn't want to be known as a man who only made horror films. I made some - very few.
+- There was a gap of seven years between the first and second Dracula movies. In the second one as everybody knows, I didn't speak, because I said I couldn't say the lines.
+- I've worked with Tim Burton five times, and it's just like being part of a family; life doesn't get much better than that.
+- I have made a lot of movies, but I don't see any point in talking about films I don't think are terribly good. I have been in a few. I don't know any actor that hasn't.
+- You can learn Elvish, if you want. It's a language like Italian and English. You can learn to read it, you can learn to write it, and you can learn to speak it.
+- There is a dark side in all of us. And for us 'bad' people, the bad side dominates. I think there is a great sadness in villains, and I have tried to put that across. We cannot stop ourselves doing what we are doing.
+- My great-grandmother was born in London, the daughter of a Brixton coachman, and became the most famous singer in Australia. Her name was Marie Carandini, Madame Carandini.
+- Ian Fleming was my cousin, you know. He was in naval intelligence.
+- If I had any deadly secrets, I wouldn't still be alive.
+- I was always interested in enchantment and magicians and still am.
+- To be a legend, you've either got to be dead or excessively old!
+- Ian Fleming was my cousin, and he wanted me to play Dr. No, but by the time he got around to remembering to tell the producers, they'd already cast someone else. Spilt milk!
+- When I first read 'Lord of the Rings,' I wanted to see a film of it. But at that time, the technology wasn't there; there was no such thing as CGI.
+- As far as I am concerned, Don Quixote is the most metal fictional character that I know. Single handed, he is trying to change the world, regardless of any personal consequences.
+- I don't think anyone has ever succeeded in putting Ian Fleming's James Bond up on the screen. The closest in my opinion is Pierce Brosnan.
+- My father's family can be traced back to 1400. I've been told by gypsies that there is unmistakeably gypsy blood in me. Lee is a gypsy name, you know.
+- Films are now made by accountants. They pick a pretty young female or male face out of the air and give them a part - not because they think that person is right for it or is ready for it, but because they think that person will make them money.
+- I was attached to the SAS from time to time, but we are forbidden - former, present, or future - to discuss any specific operations.
+- The most important film I made, in terms of its subject and the great responsibility I had as an actor, was a film I did about the founder of Pakistan called 'Jinnah.'
+- The first 'Charlemagne' album is metal, of course, but what I sang was more symphonic.
+- On the Italian side, we can trace the family back 2,000 years. I have a cousin in Rome, a famous archaeologist, Count Andrea Carandini, who was in Lombardy and came across some pottery with the original name of the family, Carandinus, painted on it.
+- Peter Jackson's instincts are extraordinary, as is his stamina.
+- I am never going to stop playing the villain. I would be foolish to do so because the audiences apparently enjoy watching me, and who am I to say no?
+- I haven't done lots of horror.
+- I thought that people should know about the dangers of Satanism, and diabolism does exist - there's no question about it.
+- We don't always get the kind of work we want, but we always have a choice of whether to do it with good grace or not.
+- Somebody once asked me how I found Peter Jackson, and I said: 'Well, I parted his hair, and there he was.'
+- A whole new career opened up for me when I was in 'Lord Of The Rings' and 'Star Wars.'
+- I don't play long parts. They must be short parts, but they've got to be parts that mean something, that matter, where people will notice when I'm on the screen, and people will remember the character after they've seen the film.
+- I lived for 10 years in Los Angeles, and the one element that surpasses everything else - that you are very conscious of - is fear. You can smell it.
+- I turn to the 'Telegraph's' obituaries page with trepidation.
+- I'm still asked a great deal about 'The Wicker Man' because it's become one of the great cult movies of all time. That's the story of my career, really, making cult movies. And I've always said it's the best film I've ever made.
+- When I was very young - around the age of nine - my family used to go to a house in Somerset that my stepfather rented every summer. There was fishing, lakes and riding.

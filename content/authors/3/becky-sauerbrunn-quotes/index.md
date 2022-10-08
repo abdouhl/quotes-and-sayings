@@ -1,0 +1,69 @@
++++
+author = "Becky Sauerbrunn"
+title = "Becky Sauerbrunn Quotes"
+quotes_len = "63"
+description = "the best 63 Becky Sauerbrunn Quotes"
++++
+- A man's foot is wider, so when I would wear men's cleats, my foot would be sliding inside of it, so it's nice to be secure because then your body's not compensating, and you're not getting injuries.
+- Julie Johnston is what I would call a loud central defender, as far as how she tackles and how she plays - you notice her. And you notice her in a positive way. She's a destroyer. She interrupts plays and tackles the crap out of people. That's a very visual thing.
+- If they don't score, we can't lose.
+- I've always been very hard on myself, and I never want to get to a point where I'm like, 'Alright, I'm kicking butt,' but I know I need to be confident because I think that will take my game to the next level.
+- We joke that St. Louis people love their own.
+- When you have somebody like Christie Rampone, with the vast experience she has had, you're going to defer to her line because she has played in so many huge games, and she knows what she's talking about.
+- When I started with the national team, it was made very clear I was going to be the backup to Christie Rampone and Rachel Buehler. So for the first few years, it was just me training my heart out and pushing those centerbacks to be the best they could be.
+- I'm a pessimist.
+- You think about the legacy that you leave behind, and I've been very fortunate to be part of a very successful team, but I think the fight for equal pay and respect is something that goes beyond the field. I think it is very important, something that I'm very willing to take on to help the generations that come behind me.
+- Soccer, more often than not, helps to unite the world. What this Muslim ban is doing is dividing it: separating 'Us' and 'Them' to another degree, adding more division to a country that already struggles with race, religion, sexual orientation, and gender.
+- I actually got my start playing indoor soccer with the boys, a bunch of boys I played with. We eventually became a club team and then essentially got to the point where I couldn't be a girl on the boys' team, so I switched over to JB Marine.
+- I'm very hard on myself. I think that drives me because I don't want to let people down or let myself down. That fear of failing drives me from being complacent.
+- When it comes down to it, it's about putting the players on the field that will be the best 11.
+- I think a lot of where I find my confidence is knowing I've prepared as well as I could have.
+- It's a rare treat to be able to play in front of friends and family.
+- There's no justification to not be paid the same as the men. We do everything the men do.
+- I always wanted to write a book. Not a romance novel. Maybe a crime thriller. Something with action. Maybe that will happen some day.
+- If you've done the work, done the training sessions, when you go into these games, you should feel ready. All you can ask is, 'Did you do your best, and try your best,' and then what happens, happens.
+- Defending is mostly about focus.
+- I kind of had to convince myself when I was playing for the Washington Freedom that this was the highest level that I'm going to reach. 'I'm going to be a professional player, and I'm going to try and be the best one I can be, but it's maybe just not in my cards to be an international player. I won't play in a World Cup.' That was hard for me.
+- I'm impassioned about injury prevention as an athlete.
+- A lot of sport is being comfortable with being uncomfortable.
+- We like to be kind of at the forefront for how all football federations should treat their female athletes.
+- We put in the same amount of time, effort, and we do the same amount of work requirements. We feel like that should be equal, and we should get the same amount of money as the men.
+- Anything you train can be improved upon. If you do it over and over again, your body is going to remember these moves and not be surprised in the game.
+- Soccer can be very subtle; it's a very nuanced sport. If I happen to make things easy and people don't see it, that could be a reason why someone might stand out more than I do. But that's just the way I've grown up playing the game.
+- I know that I'm not the fastest or the strongest or the best in the air, so from a very early age, I had to be positionally sound, or I was going to get beat. So you just kind of learn as you grow.
+- The past doesn't matter. Take today.
+- Soccer is always changing and evolving, and I think our national team has had to change with the times.
+- Anytime that you're getting games in, you're going to get better.
+- Winning the World Cup is definitely the highlight of my career. I thought the gold medal at the Olympics would peak it, but winning the World Cup, the reception... it's what we all dreamed of when we were little.
+- At the Olympics, I'm representing the United States as well as the town and people who helped shape me.
+- Although offensive play is important, it's defending that gets you titles.
+- In soccer, female athletes across the world wear shoes that are not meant for us, our feet, or our game.
+- Success doesn't motivate me as much as integrity does. Everyone loses. I enjoy the pressure of showing up every single day, being focused, putting forth my best effort, getting the best out of my teammates, and enjoying the journey.
+- It's almost ludicrous that I'm playing a game and getting paid for it. I'm just going to ride it as long as I can.
+- I wasn't shuffling from one sport to the next that much. I had downtime to just be a high school student.
+- When I'm on the field, I don't want to be worrying about my cleats. I want them to enhance my playing style.
+- I've never been the tallest or the strongest or the fastest. But I'd like to think that I can read the game well enough, that I can position myself well enough, that I can level the playing field when it comes to physical differences. When it comes to height, whoever wants the ball more is going to win it.
+- A lot of goals are scored when defenders lose their concentration for a split second and a forward makes a run in behind or gets that one extra step that leads to a shot.
+- As a defender, how much ground I cover isn't up to me. I'm defending against a forward, so her movement determines my movement.
+- A lot of young women play soccer, and it's wonderful to give them something to aspire to.
+- It's really indescribable. All the hard work you put in and all the sacrifices.
+- It's always been a dream of mine to be an Olympian.
+- Defenders must be careful yet decisive when taking action.
+- Defenders don't really get any sort of notoriety or anything like that.
+- I'm naturally competitive, and I always want to win and always want to help our team win. So I always want to be on the field.
+- When I represent my country on the field, I do so with heartfelt gratitude to the people who fight for and defend our fundamental freedoms - to believe in whatever I want, to love whoever I want, and to be a valued member of society while doing so. That's the America I play for.
+- I play for the America that embraces refugees from war-torn nations, for the America that welcomes all people who want the chance to experience the American Dream, for the America that appreciates the contributions from all the people it shelters.
+- U.S. Soccer has no justification for paying us as little as they do.
+- Even when matches don't work out the way you planned, you've always got to stay strong in defence; it's a matter of willpower and intelligence.
+- With soccer, it's such a dynamic sport. It's important that however you play, you should be training like that.
+- That's one of the best parts of my job. I love interacting with the community, getting out there and getting to know people and making bonds with the community.
+- I always have oatmeal before training or a match. It's easy on the stomach, offers so many vitamins and minerals, and is slow-burning, so it won't leave me hungry at half-time.
+- If I could play a game and not have to tackle, I know that I did everything right. I organized everyone the right way, read every play the right way.
+- St. Louis has a super-rich history of soccer, so I was very fortunate growing up to have coaches that played.
+- The women's national team is a very successful team, and that success has given us a platform to speak on gender equity issues. Millions of young women play soccer in this country, and it's empowering for them to see that our contribution to the game is valued.
+- I think everyone, including myself, was pretty surprised the first Freedom goal came from me. So when I think about that goal, all I can really do is laugh at the incredibility of it.
+- The toughest part of my career was at the 2011 World Cup and 2012 Olympics and wanting so much to play and physically contribute - but having to understand and realize that it's just not my time.
+- Soccer is an uncomfortable sport. You're running; you're getting tackled.
+- It's lucky I haven't been in a bad tackle. I could be prepared, but if my body gets wrenched in the wrong way, I can't help that.
+- The way I play, it's very much more a mental game than a physical game. I'm looking for space and where are players leaving space. Defensively, where are we at numerical disadvantages? Do I shift more to the left because they have more players on their right side? It's about reading the game before the game happens.
+- The game can be quite dangerous when you look at certain injuries, especially head injuries.

@@ -1,0 +1,32 @@
++++
+author = "Lillian Hellman"
+title = "Lillian Hellman Quotes"
+quotes_len = "26"
+description = "the best 26 Lillian Hellman Quotes"
++++
+- They're fancy talkers about themselves, writers. If I had to give young writers advice, I would say don't listen to writers talking about writing or themselves.
+- Belief is a moral act for which the believer is to be held responsible.
+- Things start out as hopes and end up as habits.
+- Failure in the theater is more dramatic and uglier than any other form of writing. It costs so much, you feel so guilty.
+- We are a people who do not want to keep much of the past in our heads. It is considered unhealthy in America to remember mistakes, neurotic to think about them, psychotic to dwell on them.
+- Truth made you a traitor as it often does in a time of scoundrels.
+- Cynicism is an unpleasant way of saying the truth.
+- I like people who refuse to speak until they are ready to speak.
+- There are people who eat the earth and eat all the people on it like in the Bible with the locusts. And other people who stand around and watch them eat.
+- God forgives those who invent what they need.
+- What a word is truth. Slippery, tricky, unreliable. I tried in these books to tell the truth.
+- If you believe, as the Greeks did, that man is at the mercy of the gods, then you write tragedy. The end is inevitable from the beginning. But if you believe that man can solve his own problems and is at nobody's mercy, then you will probably write melodrama.
+- Since when do we have to agree with people to defend them from injustice?
+- My father was often angry when I was most like him.
+- If I had to give young writers advice, I would say don't listen to writers talking about writing or themselves.
+- Lonely people, in talking to each other, can make each other lonelier.
+- It is a mark of many famous people that they cannot part with their brightest hour.
+- Unjust. How many times I've used that word, scolded myself with it. All I mean by it now is that I don't have the final courage to say that I refuse to preside over violations against myself, and to hell with justice.
+- It is not good to see people who have been pretending strength all their lives lose it even for a minute.
+- Nothing you write, if you hope to be good, will ever come out as you first hoped.
+- You lose your manners when you are poor.
+- It is best to act with confidence, no matter how little right you have to it.
+- I cannot and will not cut my conscience to fit this year's fashion.
+- Success isn't everything but it makes a man stand straight.
+- Nobody outside of a baby carriage or a judge's chamber believes in an unprejudiced point of view.
+- People change and forget to tell each other.

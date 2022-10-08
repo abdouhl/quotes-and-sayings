@@ -1,0 +1,69 @@
++++
+author = "Bob Iger"
+title = "Bob Iger Quotes"
+quotes_len = "63"
+description = "the best 63 Bob Iger Quotes"
++++
+- A lot of people - a lot - have urged me to seek political office. All kinds of different jobs. Everybody has got a different idea for me, except all roads lead through my wife.
+- I had worked at Disney since they bought the company that I had worked for, ABC in the mid-90s.
+- I don't get described as necessarily being aggressive. I don't know if 'laid-back' is the word. I think, if anything, what I would want people to say about me is, 'I think he had guts.'
+- I ride a bike and use aerobic equipment twice a week, and work out with a trainer, lifting weights.
+- I won't speak for the entertainment industry. I speak for Disney. I've seen people in the industry come to work every morning paranoid about what the other person or other company is doing. That means you're spending time and focus on somebody else's business instead of your own.
+- People don't like to follow pessimists.
+- I think it is incredibly important to be open and accessible and treat people fairly and look them in the eye and tell them what is on your mind.
+- I think it is important for people who are given leadership roles to assume that role immediately.
+- Where we are as a nation is due to having an openness to the people of the world. It's incredibly important. I firmly believe that we cannot shut our borders to immigrants. I think a fair and just immigration policy is good for our country and good for our society.
+- The heart and soul of the company is creativity and innovation.
+- I'm not a big believer in second-guessing decisions.
+- It's in our best interest to put some of the old rules aside and create new ones and follow the consumer - what the consumer wants and where the consumer wants to go.
+- Are we blasphemous in saying that 2-D is largely a thing of the past, and computer-generated animation is the present and future? It's all about creating a better experience for the viewer - and that includes 3-D.
+- People gravitate to what they believe to be popular... Technology is enabling even more of that.
+- I get up at 4:30 in the morning, seven days a week, no matter where I am in the world.
+- Netflix, Amazon, iTunes - whatever platforms emerge - we are looking at as having the same potential that home video had for the movie business. Which means there are entirely new opportunities to monetize our capital investment in content and do so in ways that work for distributors, for consumers and for creators.
+- Sometimes I feel like I'm a contestant in a reality show that probably would be called The Apprentice Survivor Millionaire.
+- I've certainly had a number of failures along the way, depending on my own instincts and creativity, some fairly celebrated, at least during their time.
+- I don't want to sound too critical, but we're taking a wait-and-see approach on UltraViolet.
+- We really believe that Walt Disney is a very able company with great depth and a great set of franchises.
+- I drive myself to and from work. I love the privacy.
+- People go to Disney because they know its brand attributes. We believe we have an opportunity to go with our content directly to consumers.
+- I've always believed that the best way you combat intellectual property theft is making a product available that is well priced, well timed to market, whether it's a movie product, TV product, music product, even theme-park product.
+- I never judge myself according to the expectations of others. I judge myself by the jobs I've been given over the years and by the extent to which I succeeded in those jobs.
+- It's not that I'm a daredevil. But I'm just generally not a fearful person. I don't conduct my life worrying about what could happen, what may happen.
+- I'm a lifetime Green Bay Packers fan.
+- I'm a big believer in investing for the long term, and the decisions you make shouldn't be made if the economy is good or bad at a specific time.
+- People still love a good story, and I don't think that will change.
+- We have a unique opportunity as Disney because it really is the only true global entertainment brand.
+- Honestly, I'm interested in politics; I'm interested in giving back in some form, performing some sort of civic duty. But I'm not exploring a run for governor or senator or anything along those lines. I'm focused on running Disney.
+- For us to grow globally, it's not enough to just be an exporter. We have to be a creator.
+- When you think about it, media's the intersection of content and technology - it's all about storytelling, like photography and the camera.
+- It's not about how much you make: it's about how good the quality is. You'll be better off as a company making fewer things and concentrating on those and how you bring those to market... in a very less cluttered way, even though the marketplace is more cluttered.
+- An all-out trade war with China would be damaging to Disney's business and to business in general. It's something I think we have to be very careful about.
+- The riskiest thing we can do is just maintain the status quo.
+- Keeping it simple for the consumer is incredibly dire.
+- I started off wanting very much to be a newscaster.
+- Even though I started off being interested in news, and I spent 13 years of my career working in television sports, I always was passionate about television and movies.
+- Working hard to fulfill a dream or instinct and learning over time it doesn't work, doesn't mean a career is over and a reputation killed. When a reputation is killed, it's when failure comes as a result of loss of integrity or judgement... breaking of laws.
+- Success can breed all kinds of other behavior and cause companies to behave a certain way that isn't necessarily the ingredients for achieving more success. For instance, with success comes arrogance, and that's typically the death of success.
+- Are there challenges? Absolutely. But in aggregate, this is a very strong and valuable company.
+- You can't allow tradition to get in the way of innovation. There's a need to respect the past, but it's a mistake to revere your past.
+- I don't happen to believe, by the way, that immigration policies that single people out because of religion, for instance, are fair and just.
+- I'm privileged and grateful to lead The Walt Disney Company and our talented, dedicated team at this exciting time.
+- I can stand here today, look you in the face, and say I'm proud of the efforts of 'ABC News.' I respect 'ABC News.' And I believe they work very hard to present news in an extremely fair way.
+- I have tremendous brand experience. What I do a lot for Disney is manage the great brands of this company, whether it's Disney, ESPN, ABC, Pixar, Marvel, 'Star Wars.' And I'm very engaged in technology and its impact on the consumer, either what experience you deliver for them or how to market and sell to them.
+- What I've really learned over time is that optimism is a very, very important part of leadership.
+- I have a fondness for jazz, particularly for jazz singers, Billie Holiday and Ella Fitzgerald all the way through the Sinatra era.
+- I have this lust for the so-called South Seas. I would like to explore every corner of the Pacific. You know the song: 'To everything turn, turn, turn, there is a season.' It's just time.
+- We're delighted to be working with Apple to offer fans a new and innovative way to experience our wildly popular shows.
+- If we give people the ability to buy a lot more because they can store a lot more, for a company that creates TV shows and movies, that's fantastic.
+- I'm committed to increasing long-term value for shareholders and am confident we will continue to do so through the successful execution of our core strategic priorities: the creation of high quality, branded content and experiences, the use of technology, and creating growth in numerous and exciting international markets.
+- There is no science in creativity. If you don't give yourself room to fail, you won't innovate.
+- I began as a weatherman and I learned very quickly I wasn't very good at it.
+- If someone comes to you with, 'It's my kid's graduation,' you don't tell them, 'Sorry, you can't go to that.' You just don't do that. You figure out some other way.
+- When you run the Walt Disney Co., you gain a fair amount of experience in customer-facing businesses, particularly in site-based entertainment. I have a lot of experience in marketing, a lot of experience in selling, particularly tickets to site-based entertainment or movies or whatever.
+- You try things creatively all the time, and while you want every one of them to be great, and you set out to do that, that's not always going to end up being the case.
+- It's a good time to be in the content business though, the branded content business.
+- The attributes we're focused on for Mickey are exactly the ones Walt had in mind in the first place. The original Mickey was impish and irreverent. Walt sanitized him because when Mickey got so popular, there was a fear that his behavior was influencing kids.
+- We're privileged as citizens of the United States to live in a society where the press can act in an adversarial role in a number of different ways.
+- I just was built with an innate ability to not let fear guide me in how I run my life.
+- We like the size of the company today given the environment and have no plans to split it up and make it smaller.
+- No one wants to follow a pessimist... You can be skeptical, you can be realistic, but you can't be cynical. If your boss is Eeyore, do you want to work with someone like that? Oh, bother.

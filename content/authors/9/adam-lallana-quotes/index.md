@@ -1,0 +1,80 @@
++++
+author = "Adam Lallana"
+title = "Adam Lallana Quotes"
+quotes_len = "74"
+description = "the best 74 Adam Lallana Quotes"
++++
+- It's about just staying fit, staying strong and staying ready.
+- We win and lose as a team; we need to stay together, keep fighting and keep working for each other.
+- I feel now that a tackle or an interception high up the pitch is as nice a feeling as creating a goal for someone else.
+- If I was a manager, I wouldn't want a 'nearly man' in my team. Not a chance.
+- Dad used to reminisce about the good old days when Everton won the old first division championship and the FA Cup back in the 1970s and 80s but they weren't quite so good when I started supporting them.
+- Going out on to the pitch and being mentally free is a massive thing.
+- When the manager comes in he cannot say, 'This is something I want to do.' It is an environment that the manager creates and it happens over time.
+- If we are going to achieve something, we are going to need a strong bench.
+- Gaston Ramirez is a class act.
+- It is something you can't quite explain unless you have experienced it. There is that difference when you pull on a Liverpool shirt.
+- Every footballer gets injuries - Jordan Henderson has had a tough couple of years. We all have to deal with it at some stage in our career.
+- Being as fit as I can, and working as hard as I can, is at the forefront of my mind. The rest will take care of itself.
+- I could have stayed at Southampton until I retired and finished my career there.
+- When you're having a tough time as a team, you all need to stay together - you can't start becoming individuals.
+- I am working really hard to keep fit because I feel if I stay fit, then the club will see the best of me.
+- I was a late developer.
+- I think managers see that I am honest.
+- I did not play my first full season until I was 21.
+- I had a great time getting promoted twice in two years, but I never forget how special it is to be playing in the Premier League.
+- Sometimes when you are a professional footballer, you have to deal with tough decisions.
+- I'm an ambitious person.
+- Football's a funny game.
+- Football is a fickle game - if I do get the jeers and the boos I'm just going to take it as them missing me playing down there because I miss Southampton. I miss the fans and I miss the good times we had down there. Of course I do.
+- I've always had a good relationship with Pochettino. We are very good friends off the pitch now.
+- Being the hero doesn't bother me, but being part of a successful team does bother me.
+- You don't have to always win by scoring five or six.
+- I just want to enjoy my football. That's when I am at my happiest.
+- We don't say anymore 'OK, we have a player who is unbelievably technically gifted, he will score us 20 goals but he doesn't have to work hard.' Everyone needs to put a shift in.
+- Throughout the course of the season everyone is going to have to contribute if you want to achieve something special.
+- Sadio can play on the left or the right. It's similar to me, I used to play out wide and I now play more central.
+- It's a good feeling to know you've had a good day at work.
+- At times you've got to be patient, and that's it. I just take it; another good training week, train hard and train strong, look to perform there and hopefully start at the weekend.
+- When someone else is injured, they are the ones who motivate you. It's not just for yourself - it's for them.
+- At times, my insecurities were real. How am I going to get back into the team? I felt like I was climbing a ladder that was never-ending at times.
+- Of course, you think ahead and like to plan to a degree.
+- I'm not one that sulks when he's injured. I use it as time to learn, to pick up on things.
+- I'd always like to score at Goodison Park, being an Everton fan growing up. Anfield as well would be a nice place to score.
+- I was with Luke Shaw at Southampton. He's a very strong boy. He's had a horrific leg injury. You don't come back from that without being mentally and physically strong.
+- I don't think by any stretch I'm an established international.
+- It's a great mentality that we have, we don't want to settle for just winning games.
+- I feel as though I have established myself at Liverpool and I am enjoying it.
+- Sadio is a match winner.
+- Speaking selfishly, having to counter-attack is not one of my strengths.
+- I have played on cold, wet nights at the end of the earth in midweek, and it is character-building stuff, but I wouldn't have had it any other way.
+- Every now and again, it doesn't hurt to utter some home truths as long as it is not personal, just purely professional.
+- The more you're competing, the higher the level is in training. That means the quality is going to be higher on a Saturday, Wednesday or whenever we're playing.
+- I know my ability and I know what I can give.
+- I'd just like to thank everyone at Southampton for what they've done for me.
+- Deep down I hope Saints fans appreciate the times we had at the club together.
+- It's like an addiction: you win one medal and you want to win more.
+- I'm an honest player.
+- We don't ever want to be complacent, and it's good to look back and see places you can improve. That's a good mentality to have.
+- It's cliched but football has its own language.
+- At any level I'm not built with complacency. I think you see that in the way I play. The people that manage me know that, my teammates know that. I'm not built like that.
+- I will always love Southampton. I had a great time down there.
+- We want to progress and ultimately win something. You can't do that with 11, 12 or 13 players, you need a squad.
+- I want the best players to be linked with Liverpool and coming to Liverpool.
+- Sometimes as a No. 8 you are making decoy runs, or you are offering and you don't get the ball.
+- The only thing you are guaranteed in football is disappointment.
+- The feeling Klopp gives to the players... you want to run for him.
+- I just want to contribute as much as possible.
+- People said when I was a young lad 'Oh he's got good feet.' He's good in small spaces and that's something I have always had since a young age.
+- I am always looking to improve.
+- I think Dele Alli is one who is psychologically strong.
+- Getting to two finals is difficult in the same season.
+- Practice does make perfect and when you know what's asked of you by your manager and when he demands it you do it.
+- Whatever my contract situation is, that will be going on in the background.
+- I'm confident enough in my own ability and what I bring to the squad.
+- It's not just about training, it's about playing competitive football.
+- We have good stages in our career and stages where you could do better.
+- It's obviously nice to contribute.
+- Everton always seemed to be fighting relegation when I was supporting them.
+- It's always good, even in training, to show the manager what you can do and remind him.
+- The older I get, the more I am willing to sacrifice myself for the team to win.

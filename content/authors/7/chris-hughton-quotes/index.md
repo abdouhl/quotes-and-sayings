@@ -1,0 +1,106 @@
++++
+author = "Chris Hughton"
+title = "Chris Hughton Quotes"
+quotes_len = "100"
+description = "the best 100 Chris Hughton Quotes"
++++
+- I understand the Rooney Rule and I understand why it is critical in America. I certainly think there are differences between the American system and in American football, there is such a large percentage of players who are of ethnic backgrounds. I think there is a difference here... I don't think its appropriate here.
+- You look back and reflect and there are things you could do better - even when there's been an 'experience that was unjust.
+- Ossie Ardiles got the job at Tottenham. I knew Ossie well and he brought me back as his reserve-team coach. That was my intro into coaching. Over the years I have known lots of other potential coaches who couldn't see a pathway. They couldn't see role models. There were so many BAME coaches who would apply for jobs and not even get an interview.
+- When you speak to potential black and ethnic coaches who want to go into the game, one aspect that they always speak about are role models. They would like to see representation, more at a higher level. And any part I can play in that I am delighted to do.
+- We don't see enough women in the boardroom.
+- Well, it's about getting points. And there are different ways of getting points. Whether you're offensively good, capable of scoring enough goals to win enough games, or resilient enough not to lose too many.
+- My concerns have always been to do the best job I can. But I am conscious that I'm a black manager and I am conscious that there is a profile that goes with that.
+- The nature of football can bring out the best in people, but it can also bring out the worst in people.
+- I have never been afraid of being in charge, whether I have been coach, manager or caretaker.
+- On a good day everybody can beat everybody.
+- I was a coach at Spurs for 15 years. I did want to go into management but what was important to me was doing a very good job in whatever capacity I was employed.
+- When the game is played by such a high percentage of black and ethnic minority players and we're looking at the percentage of managers and coaches, at the top level it is minimal.
+- Racism holds no place in our game and it holds no place in society. But unfortunately there are going to be incidents.
+- As a manager, you manage a team and there are good periods where there are good feelings in the group.
+- The more games I have as a manager the more I realise that there is only one thing that really matters - getting results and accumulating points.
+- There is always pressure on managers at whatever stage of a season because we want to be winning games and we want to be winning football matches.
+- I think as a manager you want to manage at the highest level possible and international management is one of those higher levels.
+- I was brought up in a football environment where we saw a lot of racism - whether it was abuse from other players or huge groups of supporters in away matches.
+- When we see something as a problem, we have to try and solve it and the best way is generally through education.
+- I've lost two jobs, at Newcastle and Norwich, but that's the nature of the game these days. It doesn't remove winning the Championship with Newcastle from my record, nor finishing 11th in my first season at Norwich after we went on an incredible run before Christmas.
+- When you play the top sides you cannot afford to be as open as 4-4-2 can leave you. Consequently teams adapt their formation.
+- I certainly believe in a type of Rooney Rule - in legislation that doesn't give black and ethnic individuals a job but, at least, puts them in the frame.
+- The ideal time to take over a club is always in the summer, but I'd certainly rather take over with four games having gone than 10, 14, 20 played.
+- You'll never get anyone saying something detrimental about Jose - he's an outstanding manager.
+- If I look at my era, you looked at the black players who were playing then and there weren't many - Clyde Best... Certainly as each generation has gone, there have been role models for young black players to aspire to.
+- Management has never been the most important thing for me.
+- If you said to me there's a top quality player who you can bring in and we are confident he will add to your squad, but you have to work with him a bit and he can be a bit fiery, then you feel if you are bringing him into a good group the group can take care of that.
+- If there is one rule I have, it is you have to remain level-headed.
+- I consider Birmingham a proper football club; the tradition and support base that fits the club.
+- I remember going to stadiums and huge sections of the stand gave you racial abuse. It was never nice but it wasn't a surprise - particularly when I was first at Spurs.
+- Don't get carried away when things go well, don't get carried away when they go badly.
+- If you're not starting well and not taking the lead, then you're constantly putting pressure on yourself as a team.
+- There is no better feeling than knowing you are pushing for something.
+- When you look at role models, you tend to look at players who have played at the highest level, your Viv Andersons and so on.
+- I think the nature of the game can be very unforgiving and of course, the longer you are out of the game - this is a very fast evolving game and particularly with the media we have.
+- I went through 15 years as a coach at Spurs working under seven, eight different managers. And every time a manager went, you weren't sure whether you'd still be there. Some people might worry about these things but I never have.
+- I've always been a great believer that you work as hard as you can and try to have some direction in your life.
+- One thing that will never change as a manager is that there is so much game stuff and management stuff to deal with that you want good information.
+- As a coach you're able to have better relationships with the players because you're not picking the team.
+- I enjoyed a wonderful career at White Hart Lane. I had some terrific highs as a player in the eighties and to go from there and have so many years on the coaching staff is something that makes me very proud.
+- Of course you get butterflies as a manager.
+- You have to be able to get enough points from your away games or it puts difficulty on your home games.
+- I was brought up working class in east London with my own thoughts and my own beliefs and, when I began playing, I got involved in charity work and expanded those beliefs.
+- We have seen a lot more black and minority ethnic coaches at grass-roots level, academy level, development level, but of course at senior level there is a massive void. That is something that has to be addressed and there has to be a pathway for them.
+- What I do know as a manager, as a person, is that you have to try and be honest with everyone around you. If I leave a player out, they deserve an explanation. It's about communication, about being clear in what you want.
+- What you have to do is work around whatever the 'circumstances are at a club.
+- What I have done in my management career means I would have a good chance to get offered a job that will give me a chance to achieve success again.
+- I didn't set out specifically to be a manager, but once you end up in that role you want to be measured against the best in the profession.
+- Managing in the Premier League isn't something I am fearful of.
+- Everybody knows what Peter Crouch's strengths are and when he plays he is a handful for any side.
+- For a player with his talent, it is about doing it consistently week in, week out and over 90 minutes.
+- Racism doesn't go overnight. It's over a period of time and education.
+- I think the fact that we are trying to get as many young black and ethnic coaches involved in the game through campaigns to encourage that are important.
+- It's true, I did write - but it's probably not as dramatic as it sounds.
+- The bosses at Newcastle basically decided they didn't want me. Ultimately, there isn't anything you can do about that. The only thing you can do is move on. But I don't think I've anything to prove.
+- As a black manager, somebody talking in good terms about me I don't think can be a bad thing.
+- A big part of managing is managing defeats and assessing where you are. It's making sure that you prepare a group of players and that you create an environment that is a competitive one but that is also a realistic one.
+- I think all you can do is prepare properly for every game but you also have to be realistic. Be realistic about what you are as a team.
+- I speak to black and ethnic coaches who ring me, or write to me, for some advice. There is a frustration from a lot of young, very able, black coaches to find that pathway that will get them into full-time positions.
+- I have spoken on many occasions about what I felt about a lack of black managers at the highest level. Total inclusion is good for our game and that is what I think everyone wants to see.
+- Racial events in our game, which we are trying as hard as we can to eradicate, are always going to happen. You hope that it is something that doesn't escalate. Sometimes when times are harder they become more prevalent.
+- You can't afford to be bitter in this industry.
+- I am naturally very disappointed to have lost my job but immensely proud to have served as Norwich City's manager.
+- If other managers are going to say things I can't legislate for that, that's their opinions.
+- I think you have to dig deep in every performance.
+- Winning the Championship was my biggest achievement.
+- The percentages of black and ethnic players compared to those in management is a massive gap. We have to make sure we work hard enough to resolve that.
+- You have to take each player as a separate case and understand how to deal with them, which is not easy when you start in the job and are confronted with a player telling you he has a gambling or a drink problem.
+- Whether it is a classy performance where you are creating a lot of chances or a scrappy one-goal win, it doesn't matter.
+- I am immensely proud of my achievements with Newcastle and I enjoyed a fantastic relationship with the players, my staff and the supporters during my time as manager.
+- All we want eventually to see is more black and ethnic coaches involved at the higher levels of the game. Anything that promotes that is something very much worthwhile.
+- As a manager, a coach and a player, you want to be at the top end of the table.You want to be challenging.
+- One thing I would always say is speculation is always flattering because if someone is talking about you or linking you to a job then it's something that is flattering.
+- I feel there has to be a concerted effort that we encourage, in whichever way, more black and minority ethnic coaches to take their badges at the higher levels.
+- Whatever role I have had on the management side I pride myself on having done my best in the job. I have never shied away from that responsibility.
+- Credit to all the clubs, if there are incidents anywhere I think the clubs are very quickly on that and are banning supporters who are making racial comments. I think clubs are very much on top of what they see.
+- It is harder to win Premier League games playing 4-4-2 without having players of the quality the top teams have.
+- You're always looking where you could do better.
+- I worked under a lot of 'top-class managers at Spurs and had to take over as 'caretaker a couple of times when things were not going well. I know what's required.
+- If you are a manager who is in your first or second job, the big worry would be where is your next job coming from, but I'm not in that position.
+- I remember the days when a footballer who had an issue in his personal life may have been told to grow up and deal with it but in 2019, that approach won't work any more. A manager needs to make sure the problem is solved, as a player will not play at his best unless he is happy in his mind and in the environment he has around him.
+- I always keep busy it gives you an opportunity to go through your coaching methods, your files, to see how other managers are working and re-educate yourself.
+- When I started my pathway, black players were often considered to be good wingers, good players, but not captain or management material. It has changed since then, which is pleasing, but we still have so far to go.
+- Well, every manager has to take his personality into the job that he does, but irrespective of that personality you have to be aggressive when you need to be.
+- You don't expect to have a happy changing room when things are not going so well.
+- Instead of holding grudges, it's better to learn from the bad experiences.
+- It's very difficult for me to talk about myself, it's not something I enjoy.
+- What everyone wants to see are exciting football matches where fans get behind the team that they support.
+- When I was a player the mentality was black people would make good players but weren't captain material or managerial material. That stereotyping existed.
+- When I played and got abused by another player, called a 'black so and so,' I always said 'that's out of order' but I tried to ignore it. I'd be thinking: 'You're not going to bring me down to that level.' But there were occasions when something was said and the next tackle went in a lot firmer.
+- The most important thing is that you can make tough decisions, discipline people when you need to, but also create a spirit to get the ultimate thing you're aiming for, which is winning enough games.
+- It's always a nice thought to be coming against the best managers.
+- Jose has managed at some big, big clubs, and at all of those clubs, there is pressure, it comes with the territory. But he has a wonderful way of dealing with that pressure, and when you manage these sorts of clubs, you've got to be used to that.
+- When I signed for Spurs, I was the only black player in the team.
+- My priority has always been to do the best possible job in whatever role I'm in.
+- Part of the game is moving on. And you do.
+- I've always had strong views on social issues such as hospitals - I think we should have a good health system - and the education system, too.
+- As a manager, if I saw a female on the line for my match, that would not worry me in the slightest. To get to that level, it means they are deemed to be good enough.
+- My managerial drive has always been about doing the best job I can.
+- It's tough when you are fighting relegation.

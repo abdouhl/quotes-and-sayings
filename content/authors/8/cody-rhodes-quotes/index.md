@@ -1,0 +1,96 @@
++++
+author = "Cody Rhodes"
+title = "Cody Rhodes Quotes"
+quotes_len = "90"
+description = "the best 90 Cody Rhodes Quotes"
++++
+- I really got struck by lightning when it came to my decision to leave WWE. If I literally think about that day and who I was then, it's drastic. It almost happened overnight for me.
+- My dad had a habit of giving me the Abdullah the Butcher matches as well as the ones with tables and chairs - basically, the matches that went all over the building.
+- As the leader of the Bullet Club, I can't slow down now. I am an example for everybody who thought just slapping the Bullet Club logo on you would define your career.
+- I had one of the best matches of my career with Matt Cross, and I'd never met him before, until that day. Wrestling will always be in my heart.
+- At 15, I refereed my first match, and I was training at my dad's school even prior to that, so the only thing that I was concerned about - I guess the only thing that made me reluctant and was the reason I was in L.A. and the reason I went to acting school - was I thought maybe I wasn't big enough - physically big enough - to compete with WWE.
+- It was just my sense being on the ground, doing four unique independents a week and then finally seeing how, at the ROH event, fans react to us as a group. I really see the sport trending upwards.
+- It's kind of a tricky subject because I had a great time in WWE. There were highs and lows, but I cut my teeth there. I met my wife there.
+- There is an honor to what we do, and there are no shortcuts.
+- I love politics. It could be that, or it could be that my dad was always really big on, 'This is your job. You are going to work...' You know, it's really funny cause he was such a cowboy, and he doesn't like the concept of guys coming in like cowboys - unshaved and wearing flip flops - and stuff like that would eat him alive.
+- When guys leave - whether they decide to leave or they're forced out - there's usually this period of time we see them around the world, and they can ride that WWE wave and use it, and then it goes away. It loses its luster after a few months.
+- I loved the idea that I had an alter-ego but that my true identity was very well known and very much on the surface. I was the only one who didn't know who Stardust really was. So it was very much tied to comics - everything I've done. I did a whole run where I'd wear a face mask when I was on SmackDown, and that was based on Dr. Doom.
+- I think the yearning for a different product is really strong. WWE hasn't had any significant change since, what, 2001 in wrestling? WWE provides so much good content. Just good, wholesome content, but they're still the only one.
+- I just play it safe when it comes to television because it is WWE's intellectual property. But it is literally my legal name, like on my ID. My name hasn't been Cody Runnels since I was 17. But it's theirs. At no point would I ever want to go into a courtroom with a company I have love and admiration for.
+- I like to think of Christopher Daniels as one of those who's a great professional wrestler, but I like to think of myself as one of those people that's great at everything.
+- Everytime there's an NXT show, people are like, 'Oh, that's the greatest thing I've ever seen.' It's the greatest show on Earth. One of things that they have going for them is the fact they make you wait. They build to it properly. That's a good way to go at this.
+- I had a habit of watching classic wrestling pretty much on repeat in the locker rooms. With the influx of talent at WWE, with guys like Kevin Owens, he was one of the first people to open my eyes up to the world that is PWG and BOLA.
+- The Bullet Club keeps New Japan Pro Wrestling in the black. Far in the black. Because of me. I'm a part-timer in that company, and I hold the Tokyo Dome merchandising record and Osaka's. Funkos. Bucks on a career run. This Bullet Club may never be topped.
+- I always tried to stand out as a ref. I wore a long-sleeve black Under Armour t-shirt so that you knew I was the cool ref as opposed to the old dude.
+- Entertainment is changing so much because of the devices we have at our hands. I'm really proud to be on the forefront of that. You don't have to work one place. It's our generation. As much as we get knocks against us, we don't accept non-quality work in our entertainment. We're no longer force-fed. Wrestling is going through that.
+- I love good balance, so being a collector is a fun little thing while we travel this world. I mean, every night, it's something else. The other night, I head-banged a dude on my rental car and drove him through the curtain in my rental car. So some moments are not as good as others, but they are all fun, that's for sure.
+- Luke Gallows is now entirely focused with WWE, but he built WrestleMerica, which was very much a Southern-based independent.
+- A lot of the work I did with WWE had very strong comic book ties that were more than just a wink at the audience. There was a period of time when I had a clear protective face mask and a hood over my head that correlated with Doctor Doom.
+- Nobody is keeping me from using my last name.
+- I'm still the guy who shared the ring with The Undertaker, Shawn Michaels, Triple H when they were still actually active. And I'm aware, as my wife loves to hear. It's not different than any sport in the world where the best wrestlers are gonna get the best spots. That spot is for me, because I've earned it.
+- I don't have the same knack for the business end that my old man did. Recruiting people has been tough. I don't envy anyone in that spot, especially some of the great non-WWE promoters like 'Evolves' Gabe Sapolsky, Beyond Wrestling's Drew Cordeiro, or Markus Mac at All Pro Wrestling.
+- Whenever they bring out a new Zelda game, I'm there. I don't know if it's Link or if it's Zelda with the pointy little ears. I remember thinking as a kid that she was pretty hot.
+- I think it's really exciting for me to see Brandi branch out. Because when you look her up and see her pictures online and see that she was this bikini model, it doesn't tell you that she's got a degree from the University of Michigan or that she attended the master's program and the University of Miami.
+- I was a referee in TCW in Carrollton, Georgia, doing Turnbuckle Championship Wrestling, and it was 1,000 degrees in there, and it was completely sold out every Friday that we ran it. That was my dad's independent promotion.
+- I had several decorated characters within the WWE that I was really proud of, coats of paint that changed that I could show a different side to the audience, because I've been in front of them since I was 20 years old, and none of them were necessarily the right one.
+- A lot of times when people are released or, unfortunately, get fired, they almost scramble for what it is they are going to do next. I think when you are no longer working under a big, corporate umbrella, you have to be your own brand, your own enterprise. That was my thought process before I left.
+- I work full-time, whether it's on 'All In,' my own show, whether it's Ring of Honor, whether it's New Japan - I make every show.
+- My dad was a three-time world heavyweight champion, so I want to be a three-time world heavyweight champion.
+- It's damn exciting that without the biggest wrestling company in the world, I'm able to build a brand and be successful. It's hard to stay on top of it. I had to hire a staff. It sounds so silly. I had to hire a kid to do social media work for me. It's really cool.
+- When I wasn't wrestling, I got back into school a little bit. In Dallas, there was VIP Wrestling, and in Atlanta, AR Fox has a great school, so it's good to get back in there and continue to learn.
+- There is something to not always reminding people of a show they've already seen, but instead embracing the one right in front of him. I am Cody, and I can promise you that the future is going to be even better than the past.
+- I put my confidence in Ring of Honor because they put their confidence in me.
+- I try to live under a rock when it comes to WWE, but you can't avoid seeing your Twitter feed, people talking about Jinder Mahal wrestling Randy Orton at a pay-per-view.
+- If you ask me what I like about Green Arrow, I can tell you that I read 'Longbow Hunters' years ago and that it's my favorite Green Arrow.
+- Whoever did my mo-cap for Stardust watched my very first entrance and nothing else, because I never did half the stuff ever again, and it's funny to watch. Well, hey, that's what they used, so yeah.
+- I believe in hard work, but I believe in vindication as well. You have a few nightmares, I imagine, before you reach your dream.
+- Pro wrestling is what provided for my family.
+- I just had the absolute best luck in the world in terms of meeting The Young Bucks, and they might look like wild little rock stars who are irresponsible, but they are business geniuses. They set up the deal with Hot Topic, and they're going to be the first 7-figure downside characters that New Japan Pro Wrestling has.
+- I'm a second-generation professional wrestler. My family, the Rhodes family, has been wrestling for 50-odd years.
+- I was really confident when I left WWE. I was confident that I would have a good time, and I was confident that I could wrestle differently than perhaps people saw me in the last few years with WWE, but I definitely wasn't prepared for this level of everything.
+- Some people, they're seeking elsewhere, looking elsewhere. I love WWE, but this is the type of wrestling that I grew up on. And every week, it's bigger and bigger. And these shows are just getting more and more special.
+- I wanted to be a world champion of some sorts since I got into the industry, when I was 15 years old, and I was able to do that.
+- 'Final Countdown' would be a welcomed tune, even as a competitor.
+- WWE is the biggest, most wonderful company, and they have WrestleMania, so almost any professional wrestler is going to seek that goal.
+- I have this little, tiny Dusty Rhodes figure they make in Japan that people always give me in my bag. I set it next to the title and took a picture of it in my bag. That was my big goal in the industry. I wasn't able to achieve that in his lifetime, but he always believed.
+- Some kids like books, some kids like movies, but for me, every year I still go back and play 'Legend of Zelda.' So to me, when I got up to the big time, I thought that Zelda was my thing. CM Punk has a Pepsi tattoo, so why can't I have the Triforce? Gaming is huge to me; it's all I do.
+- I think Christopher Daniels' first championship reign with ROH is about 20 years too late, and I fully embrace the role that I've naturally been given here as spoiler for that reign.
+- I worked for a big corporation for a decade for the majority of my youth. Now I really like the opportunity to essentially play my music on as many brands and stuff as I can, and Ring of Honor and Impact have been exceptional. They have been exceptional about that; there has been no pushback. It's all lined up exactly how we hoped.
+- I always looked at 'All In' with the perspective that it's about the present and future of the industry and not really about cheap pops, even though I'm sure they'll be plenty of those on the show.
+- Nothing has been more exciting for me knowing that Ring of Honor is experiencing their best crowds, their best buy rates, and their best merchandise numbers while I'm the champion.
+- I'm looking at the belt on the top of the bag across from me, and it still hasn't fully hit me. There are multiple stages to all of this, but I know that every time I walk into a gym or go to a new locker room since I won the title, I've felt like the world champion.
+- Everything in the business is based around the idea of a World Championship. WWE, World Heavyweight Championship, Universal Title, the ROH Title, or the IWGP Title - they are all World Championships. The best of the best.
+- I'm in the best shape I can possibly be in, and I'm drug-free. I'm doing what I have wanted to do my entire life, so life is good.
+- I had seen a lot of people who had been released from WWE, or asked for their release, and gone out into the wild unknown. There's more cases of it being unsuccessful than successful.
+- I'm not capable of being in a group where I'm not the leader. I did it once earlier in my career with Legacy, and that was cool because I was young and green and a rookie in the industry, but now no more.
+- If you're a foolhardy, braggadocio male figure who wants to charge forward in every fight, it has its pros and its cons, that's for sure.
+- One thing I learned from my old man is that people are going to be happy for you, but not too happy. When the tables are turned and you're hanging out on top with a guy like Randy Orton, who is in the main event at Wrestlemania, not all the guys are going to like you.
+- I was a Shawn Michaels fan, so that's a sad memory for me. I'm proud to add a happier memory in that building, even though Christopher Daniels also lost his smile.
+- As we formulate big four matches, there should definitely be a lucha presence involved.
+- I reached a point where nothing scares me in this industry, mainly because I grew up in it. My earliest memory is 4 years old, getting in a wrestling ring.
+- If you're in front of a Ring of Honor crowd and you suck, they'll let you know.
+- To have a record crowd for What Culture, to be in there with Kurt Angle and not to be just, like, Kurt Angle plus garnish, for it instead to be Kurt Angle v. Cody Rhodes, our second match, actually - it was very vindicating. It's also nice, you know: the greatest revenge in all the world is success, so it's nice to be vindicated.
+- As far as Dustin or Dusty, neither of them contributed to me wanting to be in the industry as far as encouragement. They didn't discourage it, but I think they both were indifferent as far as it had to be my decision.
+- There are fans who just like their indie stars, and then there are your more casual fans that are more familiar with somebody like Kurt Angle, and their interest might be piqued.
+- The fans never gave up on CM Punk. If CM Punk wants to be part of 'All In,' he can be part of 'All In.' But I am not putting it on him to draw those 10,000 seats. If we did have CM Punk, we would not tell you we had CM Punk - unless we didn't sell any tickets.
+- I think one of my biggest attributes as a person and a businessman in wrestling is I'm very self-aware. There's a reason why I like all of the negative comments on social media. It's because I'm not delusional about my skillset, about my consistency and what I have to offer.
+- Sometimes I just revert back to Dusty's kid. I'm trying to chase his ghost, and it's a pretty hard ghost to chase.
+- Every time someone told me I couldn't, I did. I'm still the same guy who's responsible for one of the better Intercontinental runs of all time and changing that title.
+- The feeling, the sensation behind it is, it's exciting to cherry pick and select and be your own boss and to be in control of your own brand; however, it's a lot of work.
+- I think I was always so resistant to coloring my hair because, you know, when my dad was still alive, it's so easy for a second- or third-generation wrestler to just copy their predecessor. The hardest thing you can do is try and carve out your own legacy.
+- You go real long in this business, and then you have these light-bulb moments. I just had this fleeting moment of fearlessness and a moment of trust in myself that I'm not going to listen to anyone. I'm going to do it how I want to do it. And how I want to do is what people are going to want to see and promoters want to pay for.
+- One of the last things that my dad and I discussed, and it sticks with me today, is that he no longer believed in the concept of Good Guy/Bad Guy. He believed in the idea that one guy is trying to beat the other. However, he would say, 'You can be a Good Guy/Bad Guy, or you can just be a star.'
+- I am the best in the world. It's 1: Cody; 2: Kenny; 3: Okada; 4: Charlotte; 5: Cena, with Ospreay creeping up on the list. It's my responsibility with the event to live up to that ranking. I am unbelievably good at this because of hard work and dedication.
+- My mother stayed at home and raised me and my closest sister, and that meant that the American Dream and what he was doing on television as a character and behind the scenes as a producer was producing for us at home, so it is your life.
+- All you need to do is look down at my boots. My pro wrestling boots that I've worn for the past year have the Triforce symbol from 'Legend of Zelda' on them.
+- When you get a record attendance for What Culture Pro Wrestling - or just recently with Matt Cross, we did a record attendance for Next Gen in Tennessee. These are various brands. They're not rinky-dink. They're small - they're not WWE - but their soul is there.
+- I had adapted to the blonde. So when they told me I'm going back to do these five episodes of 'Arrow', I was clearly really excited, but when they said I couldn't be blonde, it stung a little.
+- After a world title run, you can't really call someone else your leader.
+- Shane McMahon did his own mo-cap. Did you guys know that? He went and did his own mo-cap. He didn't want somebody doing his moves. Shane did his own mo-cap.
+- A lot of times, guys leave WWE or get fired by WWE, but there's always that little bit of buzz right when they get out on the scene, but like all buzz, it fades. But I feel really flattered that, for whatever reason, it seems to be trending upwards.
+- I live for this. I continue to study. To bump and learn.
+- The Rhodes in WWE have a wonderful history. I'm glad they let me go. They are the house that built me, and you never know - I might be there again one day.
+- It's my whole life, brother. It's a world title. It has been something I've worked for and quested for, and now I have the opportunity to compete for one.
+- We've been very lucky with the 'Being the Elite' crew that everyone is very passionate about pro wrestling. There's no crooks in the group. Everyone's ideas are valued. And everyone who has something they pick and put on the map, they are fully going to commit to that.
+- After 10 years of WWE, in a somewhat dramatic fashion, it just didn't feel right, so I stepped out of my contract, and after 10 years of that schedule, I had all this time.
+- I loved WWE , but in the end, I was unhappy. It was just like planning an escape from a maximum security prison. I'd released a list of potential opponents online, so when the 90-day no-compete clause was up, I had matches booked on good faith. I thought about the follow-up.

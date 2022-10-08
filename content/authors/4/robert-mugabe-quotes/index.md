@@ -1,0 +1,39 @@
++++
+author = "Robert Mugabe"
+title = "Robert Mugabe Quotes"
+quotes_len = "33"
+description = "the best 33 Robert Mugabe Quotes"
++++
+- I have been given a list of 35 white farmers in Mashonaland West alone. We say no to whites owning our land, and they should go... They can own companies and apartments... but not the soil. It is ours, and that message should ring loud and clear in Britain and the United States.
+- We of Africa protest that, in this day and age, we should continue to be treated as lesser human beings than other races.
+- True, some land was bought by a few Cabinet Ministers. They bought the land. No minister, to my knowledge acquired land which was meant for resettlement.
+- We pride ourselves as being top, really, on the African ladder... We feel that we have actually been advancing rather than going backwards.
+- Some people are contriving ways and means of making us collapse.
+- We are no longer going to ask for the land, but we are going to take it without negotiating.
+- It may be necessary to use methods other than constitutional ones.
+- Our small and peaceful country is threatened daily by covetous and bigoted big powers whose hunger for domination and control of other nations and their resources knows no bounds.
+- If the choice were made, one for us to lose our sovereignty and become a member of the Commonwealth or remain with our sovereignty and lose the membership of the Commonwealth, I would say let the Commonwealth go.
+- Our votes must go together with our guns. After all, any vote we shall have, shall have been the product of the gun. The gun which produces the vote should remain its security officer - its guarantor. The people's votes and the people's guns are always inseparable twins.
+- I wish to assure you that there can never be any return to the state of armed conflict which existed before our commitment to peace and the democratic process of election under the Lancaster House agreement.
+- We are not hungry... Why foist this food upon us? We don't want to be choked. We have enough.
+- We have this American president, Obama, born of an African father, who is saying we will not give you aid if you don't embrace homosexuality. We ask, was he born out of homosexuality? We need continuity in our race, and that comes from the woman, and no to homosexuality.
+- We don't mind having sanctions banning us from Europe. We are not Europeans.
+- I am glad that Zimbabwe and China speak the same language on many issues. We share the same conviction that only a fair, just, and non-prescriptive world order, based on the principles of the charter of the United Nations, can deliver the development we all need.
+- Grooming a successor, is it an inheritance? In a democratic party, you don't want leaders appointed that way. They have to be appointed properly by the people.
+- Zimbabwe has lots of safaris, but very few are African. Most are white-owned. In our region, we have the most safaris and animals. Our people cannot keep suffering.
+- Zimbabwe will never be a colony again.
+- Countries such as the U.S. and Britain have taken it upon themselves to decide for us in the developing world, even to interfere in our domestic affairs and to bring about what they call regime change.
+- Stay with us, please remain in this country and constitute a nation based on national unity.
+- The white man is not indigenous to Africa. Africa is for Africans. Zimbabwe is for Zimbabweans.
+- So, Blair keep your England, and let me keep my Zimbabwe.
+- People are free to campaign and they will be free to vote. There won't be any soldiers, you know, at the queues. Anyone who has the right to vote is free to go and cast his vote anywhere in his own area, in his own constituency.
+- We have said the first step was to designate the land, inform the owners. And the second would be to get the responses from the owners. And this will be openly done.
+- Our party must continue to strike fear in the heart of the white man, our real enemy!
+- There are things one must do for oneself.
+- I have died many times. I have actually beaten Jesus Christ because he only died once.
+- In most recent times, as the West started being hostile to us, we deliberately declared a Look East policy.
+- Zimbabwe is for Zimbabweans; so are its resources.
+- I've just concluded - since President Obama endorses the same-sex marriage, advocates homosexual people, and enjoys an attractive countenance - thus if it becomes necessary, I shall travel to Washington, D.C., get down on my knee, and ask his hand.
+- Was it not enough punishment and suffering in history that we were uprooted and made helpless slaves not only in new colonial outposts but also domestically.
+- Cooperation and respect for each other will advance the cause of human rights worldwide. Confrontation, vilification, and double standards will not.
+- The land is ours. It's not European and we have taken it, we have given it to the rightful people... Those of white extraction who happen to be in the country and are farming are welcome to do so, but they must do so on the basis of equality.

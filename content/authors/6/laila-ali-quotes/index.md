@@ -1,0 +1,50 @@
++++
+author = "Laila Ali"
+title = "Laila Ali Quotes"
+quotes_len = "44"
+description = "the best 44 Laila Ali Quotes"
++++
+- I do my best to work out 5 days a week. There are times when I can only get in 3 days a week because I am traveling or just need rest due to a hectic schedule. But working out is always a priority, and if I fall off due to my schedule, it is not long before I get back on track.
+- I'm not a team sports person type person, so I probably would have been good at tennis, because I like tennis. But my parents really didn't push me. I think if my parents would have guided me and stay committed, I could have played any sport I wanted to, but I never did.
+- I never intended to box forever, and always planned to move on to do other things.
+- I have to get a workout in in the morning. Once my day starts, I'll have the best intentions, and it still won't happen: one of the kids needs to be picked up somewhere, I have to hop on a conference call, or I'm just tired. So I get it done in the A.M.
+- People who are fit are the same as anyone else. The only difference is their level of commitment. If looking good and being fit was easy, everyone would do it! Most people don't want to put in the work or make the sacrifices needed in order to be fit.
+- I want to encourage women to take control of their health.
+- I'm a professional world champion. Of course if you're a world champion, you're working harder than everybody else. You're making the commitment, and you're making the sacrifices. If it were easy, everybody would be able to do it. Everybody would be able to be world champion, but everybody can't be. Everybody doesn't have it in them.
+- My kids know the importance of being active - and that's why teaming up with the USTA was such an organic fit for me. They are making strives to get families outside - and using tennis as a way to get kids to stay active.
+- Running is my time for myself. I'm like, 'I'm going for a run!' and my husband knows I'm out of there.
+- I wasn't in shape at all before I decided to do boxing. I wasn't an athlete. Before boxing, I would go to the gym for a month and stop.
+- You have to fight for your health and stay on top of it. Our bodies are meant to be healthy.
+- I was never offended that people underestimated me because of my appearance or that they thought I was pretty and discouraged me from fighting because they didn't want me to risk hurting my looks.
+- We shared our father with the world.
+- I think that the greatest lesson I learned from my father is just having compassion towards people.
+- I don't like crazy names. I don't like them. I don't think it makes any sense. You have to think about the child and, as they get older, what they have to deal with. A lot of people do things as a fad, and they want to get some attention, but it's like, this is your child.
+- Pregnancy isn't 'I can eat whatever I want,' because you have to remember you're going to be stuck with a lot of that weight afterwards that you need to try to get off.
+- While I was boxing professionally, I never thought about my looks. The furthest thing from my mind was 'messing up my pretty face' when I was on my way to the ring to meet my opponent. Yet, people I'd meet along the way would always ask me if I was worried about my looks. Then they would go on to say that I was 'too pretty to box.'
+- I've had people in the family, male and female, impacted by heart disease. But people can prevent it.
+- Since I was a child, my father was sick. I've always known him to be that way. That's why I'm proud of him - he has a disease he's obviously struggling with, but he's not letting it stop him from doing what he wants to do.
+- I saw women's boxing on television for the first time when I was 18, and that's when I wanted to do it. So, it didn't come from me watching my father. I didn't know the sport existed; therefore, I wasn't really interested in it until I saw it.
+- My dad is an excellent grandfather. He loves kids. He loves to kiss them to death.
+- All fighters run. The constant motion prepares you for being in the ring. And running strengthens your legs. Punching power comes from your lower body.
+- People like to see me fight. A name can only take you so far. There are only a few fighters out of the thousands of boxers out there that have name recognition. I'm definitely not upset by that.
+- I think that if you do want to be a fighter, then you need to work harder than everybody else and make sure that you surround yourself with good people, especially if you're a woman. You've got to find a team that takes you seriously as a female fighter and is not going to rush you into the ring before you're ready.
+- I don't really try to tell people whether they should fight. It's definitely not for everybody.
+- Everybody wants recognition, but we can't all get it.
+- 'All in With Laila Ali' is educational, inspirational, compelling programming profiling individuals that have reached for the sky, pushed themselves to the limit and did things that you would think were impossible.
+- I love engaging in conversation with other moms because we can relate to one another, and we swap valuable insight and information.
+- By being an athlete, I have uncovered so many other ways to express my beauty. Being a strong, fearless woman makes me feel beautiful. I love the way I look and feel when I am two hours into my training and my skin is glistening with sweat and my clothes are drenched because I have given it all I've got.
+- My dad lived by example. I lived by watching him. I watched all the great things he did and said. I try to walk that talk for my children.
+- I'm Muhammad Ali's daughter, but my father and I are very different in that area. I don't necessarily try to put on a show. That's what my father's thing was, and he was great at it. Everything I say is because I feel it, and it comes out of my mouth. It's not scripted.
+- I'm not one of those women who's like pro women. I'm an individual, and I'm in an individual sport. So I see everyone as individuals, not as male or female.
+- If you knew you could change your lifestyle and diet and avoid heart disease and other things, you should do it.
+- I never ran with my dad. He was old-school. He had a whole different idea of training. He ran in steel-toed boots! But, of course, he's proud of me and proud of the boxer that I became.
+- I like to play by my own rules.
+- Authenticity is very important - be true to one's self.
+- I understand that the average person can't imagine damaging their looks in any way if it could be avoided. But I don't value my physical beauty to the point where I would not do something I truly enjoy because I'm afraid of potentially hurting something superficial.
+- Focus on being balanced - success is balance.
+- My father loves people. No matter what their race, no matter what their position in life, he treated everyone with kindness and love and respect. And that was instilled in me just by watching him.
+- My dad is a comedian, entertainer, you know. He always likes to make people laugh. With me, it just depends on what mood I'm in. You get what you get.
+- Anyone who's seen me before knows that when it's fight time, I don't have much to say.
+- I'm private in the sense that I like my personal space and only want people in the parts of my business that I choose to share. Anything I feel is too personal to share publicly, I keep to myself.
+- I don't play video games. My husband does. He plays sometimes the football, and every once in a while when he gets bored, he'll do a little boxing in there. He gets into the football. You can trade players, and he keeps up with the whole aspect of the game, not just the game. He's a fanatic.
+- I have cravings all the time, even when I'm not pregnant.

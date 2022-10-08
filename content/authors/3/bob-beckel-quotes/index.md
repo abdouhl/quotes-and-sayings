@@ -1,0 +1,105 @@
++++
+author = "Bob Beckel"
+title = "Bob Beckel Quotes"
+quotes_len = "99"
+description = "the best 99 Bob Beckel Quotes"
++++
+- I always say if anybody is running for president, for office, I always take them seriously.
+- Elvis and Jerry Lee Lewis had enormous talent, and Elvis was the major contributor to an entirely new genre of music. Sometimes their exploits were distasteful to people, but they left behind an enormous body of work that endures.
+- As a survivor, you learn how to talk fast, cut deals, lie when you have to - perfect training to be a politician, you know?
+- Domestic wiretaps, government television cameras blanketing our streets, spy drones by the thousands flying over our heads. It makes you wonder if the very foundation of this great country, which is liberty, is eroding right before our eyes.
+- Trump is going to be around a while.
+- The hardest-hit taxpayers in our disgraceful tax system are those folks who pack Trump's rallies, especially in hard-hit Rust Belt states like Ohio and Michigan.
+- High-quality health care is not available to millions of Americans who don't have health insurance, or whose substandard plans provide minimum coverage. That's why the Affordable Care Act is so important. It provides quality health insurance to both the uninsured and underinsured.
+- In presidential campaigns, experience as a candidate is an invaluable asset.
+- Charter schools are not a panacea.
+- When issues emerge that might harm a campaign, like the Clinton e-mails, you have to get all the facts out right away, but not before you have all the facts.
+- Republicans just don't get that their idea of scandal is not what the average American thinks is a serious scandal.
+- I understand why foreign government contributions to the Clinton Foundation could raise ethical issues should Hillary run for president.
+- As tragic as Benghazi was, its importance pales next to killing Osama bin Laden.
+- Jim Crow laws stripped blacks of basic rights. Despite landmark civil rights laws, many public schools were still segregated, blacks still faced barriers to voting, and violence by white racists continued. Such open racism is mostly gone in America, but covert racism is alive and well.
+- In the black community, Trump's history of racial discrimination is deeply embedded.
+- It is Trump who plays with the tax code to pay no taxes; it is Trump whose Trump-brand products are made overseas by cheap labor; it is Trump who hires undocumented workers from Poland to work on his projects, then refuses to pay them minimum wages.
+- As a former presidential campaign manager, I remember the final week of the campaign as being the longest and most important week of the campaign. The week doesn't seem to end.
+- Both parties are so entrenched in their ideologies and a desire to score political points and hold on to power that we never seem to agree on a problem, much less find solutions.
+- I can talk to more persuadable voters in a week on 'The Five' than I could at CNN in a year, so it's worked out fine.
+- Rural voters believed the Democrats traded millions in campaign cash at their expense. Along came a guy named Trump to give these voters a political voice.
+- Always taken Donald Trump seriously. I think people have underestimated him.
+- In 1984, I managed Walter Mondale's campaign for president. Mondale won the nomination after a bruising battle with Colorado Senator Gary Hart and Reverend Jesse Jackson.
+- If I never hear of Kim Kardashian and Casey Anthony again, it would make my entire day.
+- Iran would have become a nuclear power had President Obama not united most of the world in boycotting Iranian oil sales, which crippled Iran's economy and forced it to negotiate. Other presidents tried to stop Iran's nuclear program. They failed. Obama succeeded.
+- My pop culture ended somewhere north of Elvis but not too far.
+- Trump is part of the reason you are suffering. Trump is the one playing on the not-so-level playing field where he wins and you lose.
+- Trump has predicated his whole campaign on the unfairness of the playing field. Big corporations, rich donors, big media, and trade deals that punish the little guy.
+- Iranians have suffered economically under the U.S.-led sanctions.
+- Most voters assume because these political 'pros' are on TV or write for national papers, they know politics. Sadly, most don't have a clue.
+- Very few undocumented workers come here to be unemployed.
+- When I came to faith, I was on pro-choice boards, and I dropped off of those because you couldn't read the Bible and be pro-choice.
+- Congress continues to pass laws to limit lobbyists' influence, but people find ways to get around them.
+- I have never analyzed a presidential election as much as I did the Trump-Clinton race of 2016.
+- Schools alone are not to blame for underachievement. The breakdown of the family, poverty, and decaying cities with eroding tax bases have made a good public school education nearly impossible in many parts of the country.
+- Academic freedom and free speech mean the right to consider ideas with which you might disagree.
+- Anger in the black community towards Republicans is established and immutable.
+- There have been plenty of Republican efforts to go to the extreme scandal zone. Impeaching Bill Clinton was a classic example. Fortunately, the Senate had enough sense to acquit Clinton, and the American people were behind him in huge numbers.
+- In 2016, Trump, with his outsized ego, his anti-immigrant and anti-trade positions, coupled with barely disguised racism and deep-seated sexism and a willingness to lie whenever it suited him, was a near perfect fit.
+- Money is at the root of most that is wrong in American politics.
+- A few states have taken redistricting out of the hands of partisans and put them in the hands of fair-minded committees. Every state should do the same.
+- The questions I get invariably focus on Glenn Beck, Bill O'Reilly, and Sean Hannity. It's no secret Hannity is conservative, and O'Reilly certainly is not a liberal. Beck goes well beyond conservatism to some very strange places.
+- Liberal arts colleges have traditionally provided a forum for debating ideas. Avoiding controversy and 'playing it safe' by not inviting - or disinviting - speakers with 'controversial' views stifles debate.
+- The vast majority of Secret Service agents are incredibly competent people.
+- The fact of the matter, it's that Trump is getting money from blue-collar workers who send him checks for $250. Why? Who is Donald Trump? It's not who he is, it's who he isn't. Not what he is for, what he is against - that is, everything Washington is doing.
+- Ever since 9/11, our intelligence agencies, as part of the 'war on terror,' have expanded their operations to include American citizens. I was 'terrorized' when I learned that the National Security Agency was intercepting information on Americans.
+- Our first priority should be to protect the homeland. If we don't, a future generation might ask, 'Who lost America?'
+- An early attempt at education choice was charter schools. These were meant to attract the best and brightest students and provide them a level of education they often could not find in their local school districts. The problem is that, of the thousands of charter schools, many are outright failures.
+- Hillary Clinton is in political trouble and perhaps even legal trouble over her use of private e-mail accounts and bypassing government-issued accounts containing substantial amounts of information that belongs to the federal government. But ultimately, I don't think this latest controversy will hurt her presidential ambitions.
+- I am not opposed to government efforts to stop terrorist plots. We are still seared by the memory of 9/11, and we should be.
+- Disney World is exactly the wrong description of how the Secret Service should operate in public. Their jobs are not about pleasing adults and children, but rather protecting the president and the first family.
+- I strongly favor shortening the campaign season and putting more primaries and caucuses on the same day, preferably regionally.
+- You don't hear much crosstalk on 'The Five.' When you try to make a point, the other person will back off.
+- I salute South Carolina Gov. Nikki Haley and Sen. Lindsey Graham for their calls to remove the Confederate battle flag from the grounds of the Statehouse.
+- There is no doubt that terrorists acting under the banner of Islam have declared war on us.
+- Where most politicians would have abandoned a supporter like Jeremiah Wright and the community he served, Obama, while strongly criticizing him, did not throw his friend overboard.
+- I do oppose repealing Obamacare, because it's working for growing numbers of previously uninsured Americans.
+- The U.S. military cannot fight Iraq's war for them.
+- I think a flat tax has merit. Anything would be better than the current tax code.
+- It's time to review what damage the Supreme Court ruling in Citizens United v. Federal Election Commission has done to our political system.
+- Some credit is due to Trump for seizing the anti establishment mood of the country, but most of his success can be attributed to pure luck.
+- The decision in McCutcheon v. FEC is a devastating blow in efforts to rein in out-of-control costs of campaigns.
+- Republicans want to use Obamacare in the 2014 elections against Democrats who voted for it. They want to see it fail, even at the expense of people's health.
+- Like many other Americans, I'm tired of the U.S. taxpayer paying for foreign wars, especially when the countries we defend have raked in huge oil profits.
+- Unfortunately, some politicians think they are immune from allegations of ethics abuse.
+- We need to gather intelligence, but we need to do so legally.
+- Politicos talk a big game about bringing jobs to devastated cities like Detroit, but rarely succeed.
+- As a life-long liberal who has engaged in protests against the government and for civil rights, I am saddened at efforts by some of my fellow liberals to silence commencement speakers with whom they might disagree on some issues.
+- Every time I think that political analysts and writers will finally recognize that most of them don't understand much about political polls, they prove me wrong. They don't know how to read them; they don't understand the importance of cross tabs within a given poll, and they don't know how to analyze them.
+- If pluralism and academic freedom are to be used to defend liberal speakers and ideas, they ought to be equally valid for conservative views.
+- It should be mandatory that any tax breaks go through appropriate committees and be voted on separately by both the House of Representatives and the Senate.
+- Too many younger people seem to prefer following celebrities instead of doing the work required to get an education that will someday lead to a job. If students today spent as much time on math and science and history as they do following these shallow celebrities, they might actually become contributors to society someday.
+- In the 1990s, the Democratic Party began to cozy up to their long-time enemies: Wall Street Bankers. They took their money and relaxed their regulations until the Great Recession forced the Democrats via Dodd-Frank to re-regulate the banks.
+- When I worked in the White House in the 1970s and '80s, I was often stopped within the White House by agents checking my credentials. They were very observant and would stop anyone they didn't recognize.
+- What I have learned over hundreds of campaigns is if you have lost voters who have supported you in the past, you can get them back. If you never had them, it is a very difficult sell.
+- I've been involved in five presidential campaigns, once as national campaign manager for Walter Mondale.
+- If we have intelligence on the location of terrorist training centers, it is insane not to act.
+- We know that in the Muslim communities around the world, they do not like us. They recruit people from poor areas and turn them into terrorists.
+- I would be delighted not to see another celebrity, regardless of their political beliefs, come to Washington to make yet another appeal for some cause about which they know little.
+- There is a huge difference between gathering intelligence in foreign countries, even our allies, and secretly getting information on U.S. citizens.
+- Not only has celebrity dumbed down our politics, it has become intertwined with it.
+- Many good journalists have attempted to confront Trump about his many lies and failures, and have failed.
+- When anyone in Washington asks for a favor, no matter how little the favor means to you, act pained and get as much as you can in exchange - even if the person asking is the president of the United States.
+- I have long been an advocate of school choice, but I also believe the problem lies with school administrators and union leaders who refuse to believe there is such a thing as a bad school.
+- Life is a series of chapters, and one leads to another to another to another, and God knows what it is.
+- Carmakers do not lobby to remove safety regulations on their vehicles, but the NRA constantly lobbies to keep restrictions off deadly weapons.
+- I came from a dysfunctional family - very dysfunctional. And my father used to find great humor in throwing me down the stairs.
+- Congress votes for things the military doesn't want, and planes and other weaponry that cost a lot but don't work.
+- The media role in highlighting racial incidents only serves to exacerbate tension. We rarely write about racial harmony.
+- Republicans need to stop complaining about blacks voting over 90% for Democrats. If they're not willing to compete in those neighborhoods, they will keep losing those voters.
+- Most federal employees perform their tasks honorably and well.
+- I don't have a problem with stepped-up surveillance as long as we follow the rule of law.
+- We've come a long way from the days of Jim Crow, and yes, we elected a black president, but racism lives.
+- Ideological purity does not now, nor has it ever, produced results.
+- If politicians of both parties would spend more time legislating and less time attacking each other, we would all be better off.
+- On the road to the GOP nomination, Trump earned the reputation as a good debater by slandering and bullying his opponents, knocking them out with cheap shots and lies. On a crowded stage, Trump got away with these deplorable tactics.
+- Putting fear into people is the principal goal of terrorists, and they have been successful.
+- I have long believed there is a lot of waste in the defense budget.
+- When a black man is stopped by a cop for no apparent reason, that is covert racism. When a black woman shops in a fancy store and is followed by security guards, that is covert racism. It is more subtle than 1960s racism, but it is still racism.
+- Unless public officials are wealthy and fund their own campaigns, the only place they can turn to is lobbyists and institutions like labor unions and corporations.

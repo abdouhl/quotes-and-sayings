@@ -1,0 +1,106 @@
++++
+author = "Bhushan Kumar"
+title = "Bhushan Kumar Quotes"
+quotes_len = "100"
+description = "the best 100 Bhushan Kumar Quotes"
++++
+- 'Marjaavaan' was a huge success among mass audience and at single-scene theaters.
+- The return in the regional market is huge. But I don't consider Yo Yo Honey Singh and Guru Randhawa under that category. They get their views from all over the world. They have a global appeal.
+- Competition keeps you on your toes, encourages you to do better, so it's actually a must for me.
+- I have enjoyed an impeccable reputation and have always maintained professionalism.
+- Salman is all heart. Once he gets into a relationship with someone, it is for keeps.
+- The key is to identify and know what the audience wants and give it to them in the best package possible.
+- The talent we have in our country is boundless, and we are going to do our best to keep releasing new music for our audience.
+- Actors matter only if you have great content. There are so many actors who work only with good content, either the films will not work or they will get audience for a day or two if they are not backed by solid script.
+- 'Aashiqui' and 'Dil Hai Ke Manta Nahin' are great franchises to take forward. Both films were big hits back in the day. I definitely want to make these beautiful films into franchises in future.
+- Teamwork is very important. A music label who has that kind of knowledge is very, very important for the artist to grow on that level. Otherwise, all the artists get into that zone of doing things themselves, sometimes the song works, sometimes it doesn't.
+- I personally get into the supervision of every song, from the lyrics to the artiste, I oversee everything before it goes out to the world.
+- I was too possessive of my cars to take a girl in them. I only drove around with friends.
+- People used to say only content-driven films work these days. Then 'Total Dhamaal' came and worked.
+- Finally, after a long wait of 11 years, Murad Bhai came to me with a script, which I felt was worthy of taking 'Bhool Bhulaiyaa' forward as a franchise. I am thrilled to announce 'Bhool Bhulaiyaa 2' in association with Murad Bhai, together with whom we delivered the box-office hit 'Kabir Singh.'
+- Some things have never changed in India. Melody, for one. The sound has changed, the rhythm has changed, and lyrics have become more contemporary.
+- We are definitely doing 'Sonu Ke Titu Ki Sweety 2,' it's a great franchise to take forward.
+- We do not believe in keeping 100 people, instead, we have a team of 20 running our digital business. It is led by a bunch of our senior-most people.
+- I've always worked towards creating platforms and partners along the way.
+- There's no stopping and no limits on what musicians and artists can produce.
+- My dad created wonderful music with 'Aashiqui,' and with 'Aashiqui 2' I hope to reach somewhere near to the songs that he created.
+- Music will always be the heart and soul of a film, whether the film is star-driven or content-driven.
+- It's always interesting to present a fresh pairing on screen.
+- 'Mogul' is a very emotional project. This is a story which will be narrated only once.
+- People would not take me seriously. They would say: Your father was a genius in marketing, what can you do? I had to convince them, literally with folded hands, to trust me.
+- If we get a good response to 'Bhootnath 2' and 'Creature,' we would surely go ahead and make the next part.
+- English movies releasing in India should be confined to a certain number.
+- We are backing good content-driven films. The company has movies like 'Bharat,' 'Tanhaji: The Unsung Warrior,' 'De De Pyaar De,' and 'Bhuj: The Pride Of India.'
+- Apart from music, T-Series is also producing a couple of films. We'll never be a film factory though.
+- Smartphone usage is on the rise and mobile data is getting cheaper. People are watching a lot of content on their smartphones. So, digital has a bright future in India.
+- Change in both the generations is there as society changed. But love is love, the definition of love has not changed.
+- I had to take over the reins of the company at a time when I did not know a thing about the business. The producers who were committed to work with my father wanted to back out because they felt I would not be able to sell their film's music the way my father did.
+- It makes me even happier that as a team, T-Series is taking rapid strides at making Indian entertainment available to the global audience.
+- Dance songs can be different sometimes - sometimes it could be related to liquor, sometimes to a girl, sometimes even a romantic track.
+- When I was making 'Marjaavan,' I was asked why are you making this dated film. But we have to offer films for all audience and not only class audience. As a studio I have to balance it out.
+- Our label was always known as a mass brand. To bridge that gap and to take it to the classes by bringing it a respectability with niche brand associations was what I took up as a challenge.
+- We can judge the pulse of a song and match it with our listeners' sensibilities. I think we do this extremely well, and it helps us a lot.
+- You give me a song now, I will give my judgement, and 90 percent of the time I will be right. It is simple for me but is otherwise tough to do. But there are times - because I am not God - 10 percent of the times, when a song has worked though I said it would not.
+- My mother, in particular, has been very disturbed and scared since my father's death.
+- Getting into film production was obviously the next step once we had consolidated our music business.
+- I am a teetotaler but I have to say that the film business is intoxicating.
+- Romantic films have a greater recall value.
+- Remixes also appeal to the older generation who get to revisit their past through these songs and after all, music is loved by all, so the more music, the happier people are.
+- The director is the boss on the set. We don't take away anyone's creative freedom. There are many production houses which get into creative calls. I just give suggestions.
+- In 'Aashiqui' we have shown the couple is loyal and in love with each other and same thing we have shown in 'Aashiqui 2.'
+- 'Baby' has given us the confidence to continue backing progressive content.
+- As 'Ready' did 100 crore-plus business, we will continue to dabble in film production in a big way.
+- We do not wish to make multiple films but would rather do a few good projects. No run-of-the-mill stuff for us.
+- I don't believe that remixes will reach a saturation point.
+- In 'Baadshaho,' we have taken a topic that is relatable and we are hopeful people will connect with it. We are showing what has happened during the Emergency period.
+- Thankfully, I have got the ear to select music, which I think I have inherited that from my father. That matters a lot, when you are recording a song.
+- We dabble in the regional market and have tapped into it with some amount of success. Be it Punjabi, Telugu, Tamil, Malayalam or even Bhojpuri music, we have explored all possibilities.
+- We know what kind of music people want to listen and we are doing the same with films. We know what kind of stories people want to see. Earlier people had tagged us that T-Series only does musicals but now that label has gone away.
+- I am a very calculative producer. I make films like business.
+- Signing my father's biopic inside a Shiv temple was surreal.
+- When I made 'Satyamev Jayate,' which is a typical Hindi action masala film, people told me it won't work because only real cinema worked. But it was a hit.
+- Both 'Thappad' and 'Tanhaji' were films that we believed in and we're proud to support.
+- We would have never thought of remaking 'Aashiqui' but we will make it a franchise.
+- All over the country, you ask anyone if they know T-Series, they will say yes.
+- If a hit song comes on in a theater, the mass audience get so excited they throw money, just out of excitement.
+- Monetization of rights in an era of YouTube, Google, online piracy and free downloads is the biggest challenge for the entire entertainment industry.
+- My father never violated any copyright laws. He created cover versions, that is, he got new singers to sing popular Hindi songs to build his music empire. This was permitted under the law and he did not do anything illegal.
+- 2021 is a fresh start for all of us. Production houses, actors, directors, the crew are strictly following shoot guidelines so we can finish our pending shoots and start new projects.
+- Many music directors have studios at home.
+- Music has always played an important role in our films and with 'Ludo' winning Best Music album we couldn't be happier.
+- I have been wanting to join the digital world for some time now and engage with T-Series followers. What better than having a social media account where I can share, contribute and stay in touch with the world personally.
+- 'Baadshaho' is not an imaginative film, it's real and made it an entertaining way.
+- I am positive that T-Series will be one of the biggest market leaders not only in music but also in film production.
+- For a businessman like me, smartphones are a lifeline. I use the device to watch promos of my films, songs, and videos. There are days when I end up spending as much as five hours on the phone.
+- Salman Khan has realized that if he markets himself and the product well, people will lap it up.
+- It's a cycle, 20 years down the line, they will remix today's songs for the youth to listen to at that time.
+- I am immensely overwhelmed and thankful to Filmfare and the Times Of India Group for bestowing on my father and my guru the honor he truly deserves. It is prodigious to see the Best Music Album Award being named in memory of the man who pioneered and changed the face of music industry in India.
+- My father would make music keeping public tastes in mind. I have inherited this from him.
+- YouTube consumption is entirely based on good content. If you don't put out good content, people will not consume it.
+- YouTube is where you get branding and revenue, where content is analysed immediately to get a sense of what people like.
+- For us the acceptance of audience is important, we won't keep making sequel after sequel just for the heck of it.
+- Yes, I am passionate about films but along with passion I am very calculative. When you put your hard earned money, you have to be calculative.
+- We are committed to making content driven films of all kinds and are proud to be jointly producing films with LUV Films.
+- The audience is open to all kinds of films but the content has to be good.
+- Yes, Luv Ranjan and I have a sequel in mind for 'De De Pyaar De.'
+- My father's biopic is very close to me.
+- T-Series has invested heavily in monitoring technologies and is very aggressive in protecting its copyright.
+- I knew what this business meant to my father. I had to fulfill his dream. Any son's job is to make his parents happy; that's what I did.
+- When the digital revolution was approaching, we were scared. It was so new to all of us but we when we took it over, it was so convenient because we took it head on.
+- The audience loved 'Aashiqui 2'. We are happy we could bring back the time of romance in Bollywood.
+- Using a smartphone for long hours is stressful, bad for the eyes and overall health. But a smartphone is a necessity today. You cannot do without it.
+- An ear sense for music is the secret.
+- Interestingly, despite being based on a real encounter, 'Batla House' has a strong mass appeal to it too.
+- As a production house, we have tried all kinds of films.
+- I've inherited the quality of understanding good music from my father.
+- If I just remix and release, no one will listen. I am adapting, changing the song and merging a new song into an old one.
+- In India, romantic and sad songs will never die.
+- I emotionally invest myself in every song!
+- The universality of 'Saaho' is what appealed to me as a filmmaker.
+- The songs that are getting recreated by us or fellow industry friends are because these songs were gold in their time and needed to be heard even today. Remixing them is a way to make them popular to the youth of today who haven't heard them before.
+- 'Wafa Na Raas Aayee' is at its core a very pure, simple song. Its beauty lies in its simplicity and who better than Jubin Nautiyal to express the pain and emotions that the song is trying to convey.
+- It's not easy to tell a life story in two-and-a-half hours flat.
+- We are quite excited about making 'Bhootnath 2.' It is a good franchise and we would definitely like to take it ahead. We would like to make third and fourth installment as well. The basic premise of the film will remain same, the ups and downs and the hilarious moments between Mr. Bachchan and the kid.
+- I have never worried about the competition.
+- Digital is clearly the way forward as can be seen from the numerous marketing efforts undertaken to promote a film today. Besides, we at T-Series are firm believers and followers of the digital age. It was only befitting that I join the social media universe and engage with the audience on a real time basis.
+- Our responsibility is not just to make films for music but to make music for films.

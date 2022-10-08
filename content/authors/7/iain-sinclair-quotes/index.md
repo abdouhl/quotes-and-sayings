@@ -1,0 +1,22 @@
++++
+author = "Iain Sinclair"
+title = "Iain Sinclair Quotes"
+quotes_len = "16"
+description = "the best 16 Iain Sinclair Quotes"
++++
+- The kind of world I'm endlessly going on about is pretty well doomed, but nevertheless I think there are recesses of it worth celebrating.
+- An involuntary return to the point of departure is, without doubt, the most disturbing of all journeys.
+- The only times I'm not relaxed are when I haven't got a project on the go.
+- With the world as it now presents itself, there is something perverse, and probably dysfunctional, about a person who stays in the same house for 40 years. What about the expanding family syndrome, the school-lottery migration, the property portfolio neurosis? Have you no imagination?
+- To try to fix the future is a manifest absurdity.
+- I don't feel proprietary, but I do feel there is a human identity to the borough of Hackney that's quite peculiar. It was always bloody-minded and difficult; it always stood up to central government.
+- I am crumbling in sync with old Hackney.
+- If people are telling you a story about themselves, they gradually map their own local territories and know themselves by them.
+- The world changes, but I want that change to be necessary or respectful of what has happened before. Everything changes, and that's quite right.
+- You can't leave the thing that you are, the house that has become your biography.
+- If the landscape changes, then I don't know who I am either. The landscape is a refracted autobiography. As it disappears you lose your sense of self.
+- The negotiation of city space has been made more difficult with the idea that redevelopment is an improvement for some vague future - but it's never like that, is it? Once you get there, for economic reasons you have to generate the next project - so you're immediately starting to dig up something else, and so it goes on.
+- What I write, I write. I'll always do it in some form.
+- You can't impose a legacy.
+- There is an obvious connection, on the declining Roman empire's bread and circuses model, between political enthusiasm for public spectacles and the periods when we are least able to pay for them.
+- Hackney at certain epochs has given itself suburban airs and graces, before being slapped down and consigned once more to the dump bin of aborted ambition.

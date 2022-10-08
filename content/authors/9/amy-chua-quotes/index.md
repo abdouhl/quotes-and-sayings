@@ -1,0 +1,72 @@
++++
+author = "Amy Chua"
+title = "Amy Chua Quotes"
+quotes_len = "66"
+description = "the best 66 Amy Chua Quotes"
++++
+- I do believe that when your child does poorly on a test, your first step should not necessarily be to attack the teacher or the school's curriculum. It should be to look at the idea that, maybe, the child didn't work hard enough.
+- Westerners often laud their children as 'talented' or 'gifted', while Asian parents highlight the importance of hard work. And in fact, research performed by Stanford psychologist Carol Dweck has found that the way parents offer approval affects the way children perform, even the way they feel about themselves.
+- Kids raised to be pampered and spoiled don't really end up being good leaders. Leaders need to be independent minded and confident.
+- Both of my girls have very high self-esteem because they were both able to master certain things; I should think that's good for their confidence.
+- Once you get to the Enlightenment, the way that powers get to be hyperpowers isn't just by conquest. It's through commerce and innovation. Societies like the Dutch Republic and the United States used tolerance to become a magnet for enterprising immigrants.
+- I say 'I love you' to my daughters every day.
+- I was raised, myself, by extremely strict but also extremely loving Chinese immigrant parents. To this day, I believe that their having high expectations for me, coupled with love, was the greatest gift that anyone's ever given me. And so that's why, even though my husband is not Chinese, I try to raise my own two daughters the same way.
+- I really feel that most things are difficult at the beginning and they become fun, something you love, only after you've worked at them. Making children do something hard can, in the long run, be a great parental service.
+- I was the one that in a very overconfident immigrant way thought I knew exactly how to raise my kids. My husband was much more typical. He had a lot of anxiety; he didn't think he knew all the right choices. And, I was the one willing to put in the hours.
+- There's something suspicious about saying, 'I'm just going to leave my child alone and let her pursue her passions.' You know what? I think most 13-year-olds' passion is sitting in front of the TV, or doing Facebook, or surfing the Internet for hours.
+- I'm a proud strict mom and, you know, I'm really proud of the two daughters I've raised. And I'm especially proud of my relationship with them. We're very close. I think we're good friends.
+- I do not think there was anything abusive in my house. Yet, I stand by a lot of my critiques of Western parenting. I think there's a lot of questions about how you instill true self-esteem.
+- I think there are many ways to raise great kids. From what I can tell, Ayelet Waldman's kids are interesting, strong, and happy, and if that's the case, that's good parenting.
+- I saw my parents come over. They were immigrants, they had no money. My dad wore the same pair of shoes, I had some ugly clothes growing up, and I never had any privileges. In some ways, I think the person that I am now, I think it's good that I had that kind of tough upbringing.
+- You can't invent Google, Facebook or the iPod unless you've mastered the basics, are willing to put in long hours and can pick yourself up from the floor when life knocks you down the first 10 times.
+- I'm a slave to my dogs and go out with them almost every day. They are poorly behaved if they don't run. They really act up.
+- A lot of parents today are terrified that something they say to their children might make them 'feel bad.' But, hey, if they've done something wrong, they should feel bad. Kids with a sense of responsibility, not entitlement, who know when to experience gratitude and humility, will be better at navigating the social shoals of college.
+- I am definitely a Type A personality, always rushing around, trying to do too much, not good at just lying on the beach. But I'm so thankful for everything I have: wonderfully supportive parents and sisters, the best husband in the world, terrific students I love teaching and hanging out with, and above all, my two amazing daughters.
+- My children grew up with one Western parent. My husband doesn't believe in raising his voice with the kids and we don't spank. They were really raised in a half-Asian family.
+- I do think that maybe, even subconsciously, a lot of parents in the West are wondering, have we gone too far in the direction of coddling and protecting - you know, you see kids, sometimes that seem very rude and disrespectful. And the more important thing is they don't seem that happy.
+- In Chinese culture, it wouldn't occur to kids to question or talk back to their parents. In American culture, kids in books, TV shows and movies constantly score points with their snappy back talk. Typically, it's the parents who need to be taught a life lesson - by their children.
+- You can coddle your child and tell them, 'You're the best no matter what.' But in the end, when they go out into the real world, I think it's pretty tough out there and other children are cruel.
+- I do play tennis, but I don't really like competition. I'm supposed to be so intense, but I hate competition.
+- I once won a second prize in a history concert. My parents came to the ceremony. Somebody else had won the prize for best all-around student. Afterwards my father said to me, 'Never, ever disgrace me like that again.' When I tell my Western friends, they are aghast. But I adore my father. It didn't knock my self-esteem at all.
+- I sort of feel like people are not that honest about their own parenting. Take any teenage household; tell me there is not yelling and conflict.
+- China is doing lots of things right. It's investing in education and R&D, it's opening up, it's more cosmopolitan than it's ever been. I think it's very likely that China will continue to explode economically and certainly become a superpower.
+- You know, parenting is so personal. And we're all afraid that we didn't quite get it right. And it feels like the stakes are so high. By we - what if we made a mistake?
+- To be honest, I know that a lot of Asian parents are secretly shocked and horrified by many aspects of Western parenting.
+- Don't assume your child is weak. If you, the parent, assume that they can't take anymore, what kind of signal are you sending them?
+- When my children were young, I was very cocky. I thought I could maintain total control.
+- Some people are just self-motivated - my husband was. I also believe there are many children for whom parental involvement is key.
+- You know, I think it's so ironic that we're calling hard work, striving for excellence, don't blame others, you know, don't give up, that we're calling these, quote, 'Chinese values,' 'cause I always thought of them as American values.
+- When I'm not the Tiger Mom, I'm a professor at Yale Law School, and if one thing is clear to me from years of teaching, it's that there are many ways to produce fabulous kids. I have amazing students; some of them have strict parents, others have lenient parents, and many come from family situations that defy easy description.
+- I'm willing to be different than other parents and go against the mainstream.
+- A Western upbringing tends to stress questioning authority, which is always asking why, why, why.
+- We all want to do the right thing for our children. We all don't know what that is and we all - you know, you won't know until the future.
+- I kind of - I like my life; I feel I have lots of opportunities. And my parents actually having had such high expectations for me - I would say it's the greatest gift that anyone has ever given me. I complained a lot when I was little, but that's how I feel now. And that's why I tried to do the same with my two daughters.
+- When I was little, my parents really only wanted me to be a scientist or a doctor; they had never even heard of law school. I think even these days if you were to tell your mother you want to be a fashion designer, or an artist or a writer, a lot of Asian parents would be alarmed because they don't think that's a secure career.
+- The Chinese model calls for giving your kids very little choice - and I've come to see that you can go too far with that. On the other hand, I also believe that Western parents sometimes give their young kids too much choice.
+- I'm suggesting that, ironically, the secret to becoming a world 'hyperpower' is tolerance. If you look at history, you see great powers being very tolerant in their rise to global dominance.
+- Everything I do as a mother builds on a foundation of love and compassion.
+- The Chinese mom is not the helicopter mom. I would never do their homework for them. It's all about: Take responsibility, don't blame others. Be self-reliant. Never blame the teacher.
+- The most successful hyperpowers are the ones where there was actual intermixing. Tang dynasty China was China's golden age, and contrary to what I was told when I was growing up, Tang China was founded by a man who by today's standards was no more than half Chinese. It was a mixed-blood dynasty that pulled in 'barbarians' from the steppe.
+- Some parents let their kids sleep at other people's houses, where they drink alcohol, watch TV for hours and God knows what else. But if you say you have to get all A's and practice the violin for two hours, then they consider that abusive. That upsets me.
+- I think the biggest difference is that I've noticed Western parents seem much more concerned about their children's psyches, their self-esteem, whereas tough immigrant parents assume strength rather than fragility in their children and therefore behave completely differently.
+- I see my upbringing as a great success story. By disciplining me, my parents inculcated self-discipline. And by restricting my choices as a child, they gave me so many choices in my life as an adult. Because of what they did then, I get to do the work I love now.
+- The Romans thought of themselves as the chosen people, yet they built the greatest army on Earth by recruiting warriors from any background.
+- Instilling a sense of self-discipline and focus when the kids are younger makes it so much easier by the time they get into high school.
+- Questioning authority is, I think, a great thing to instill in children. I just didn't have enough of that when I was little.
+- When my kids wanted to give up on things, I wouldn't let them, and those are lifelong lessons.
+- Parenting is the hardest thing I have ever done. I tried to find the balance between the strict, traditional Chinese way I was raised, which I think can be too harsh, and what I see as a tendency in the West to be too permissive and indulgent. If I could do it all again, I would, with some adjustments.
+- I was raised by extremely strict - but also extremely loving - Chinese immigrant parents, and I had the most wonderful childhood! I remember laughing constantly with my parents - my dad is a real character and very funny. I certainly did wish they allowed to me do more things!
+- For my senior prom, my father finally said I could go - as long as I was home by 9 P.M.! That was around the time that most people were heading out. When I was little I was so mad at them all the time. 'Why can't I do this?' 'Why are there so many rules?' But looking back now, my parents gave me the foundation to have so many choices in life.
+- Real self-esteem has to be earned. I also believe in virtuous circles, like, nothing is fun until you are good at it. It is great if you can instill in children the ability to not give up, to have a work ethic.
+- What the Chinese parent is conveying to the child is not that 'you've got to get A's or else I won't like you.' On the contrary, it's, 'I believe in you so much, I know that you can be excellent.'
+- My youngest sister, Cindy, has Down syndrome, and I remember my mother spending hours and hours with her, teaching her to tie her shoelaces on her own, drilling multiplication tables with Cindy, practicing piano every day with her. No one expected Cindy to get a Ph.D.! But my mom wanted her to be the best she could be, within her limits.
+- I worry that by losing my temper so much and being so harsh and yelling so much that, by example, I will have taught my daughters to be that way, and I'm now constantly telling them not to do that.
+- There's a lot of rudeness and sullen behavior and kids that are very entitled and spoiled, just buy me more stuff. I didn't want to raise kids like that.
+- Tiger parenting is all about raising independent, creative, courageous kids. In America today, there's a dangerous tendency to romanticize creativity in a way that may undermine it.
+- I think if you're a 'tiger parent' early on, you don't need to be a 'helicopter parent' in high school.
+- Oddly enough, I'm not a particularly judgmental person. I just don't have a lot of filtering when I'm in 'tiger mother' mode. I say what comes into my head.
+- Happiness is not always through success. Equally, the constant pursuit of success is sure unhappiness. But we have to find the balance. My own thoughts are that parenting is very personal. And we all feel enormous insecurity about parenting. What are they going to think of us 20 years down the line?
+- Genghis Khan decreed religious tolerance for all of his conquered peoples. So I think he definitely would approve of our constitutional protections of freedom of religion. I think he would also approve of the way the U.S. has been able to attract talented people from all over the world.
+- Some people don't need parental commitment, they will still come out great, but for others, parents can be critical in providing moral and academic guidance.
+- China cannot pull in the best and brightest from all over the world. It's an ethnically defined nation, the opposite of an immigrant nation. You don't see a lot of American engineers trying to be Chinese citizens.
+- It may be the optimist in me, but I think America has a uniquely powerful and capacious glue internally. The American identity has always been ethnically and religiously neutral, so within one generation you have Italian-Americans, Irish-Americans, Chinese-Americans, Jamaican-Americans - they feel American. It's a huge success story.

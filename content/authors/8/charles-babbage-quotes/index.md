@@ -1,0 +1,37 @@
++++
+author = "Charles Babbage"
+title = "Charles Babbage Quotes"
+quotes_len = "31"
+description = "the best 31 Charles Babbage Quotes"
++++
+- The fatigue produced on the muscles of the human frame does not altogether depend on the actual force employed in each effort, but partly on the frequency with which it is exerted.
+- On two occasions I have been asked, 'Pray, Mr. Babbage, if you put into the machine wrong figures, will the right answers come out?' I am not able rightly to apprehend the kind of confusion of ideas that could provoke such a question.
+- A tool is usually more simple than a machine; it is generally used with the hand, whilst a machine is frequently moved by animal or steam power.
+- Some kinds of nails, such as those used for defending the soles of coarse shoes, called hobnails, require a particular form of the head, which is made by the stroke of a die.
+- Telegraphs are machines for conveying information over extensive lines with great rapidity.
+- The half minute which we daily devote to the winding-up of our watches is an exertion of labour almost insensible; yet, by the aid of a few wheels, its effect is spread over the whole twenty-four hours.
+- I am inclined to attach some importance to the new system of manufacturing; and venture to throw it out with the hope of its receiving a full discussion among those who are most interestedin the subject.
+- The accumulation of skill and science which has been directed to diminish the difficulty of producing manufactured goods, has not been beneficial to that country alone in which it is concentrated; distant kingdoms have participated in its advantages.
+- The possessors of wealth can scarcely be indifferent to processes which, nearly or remotely have been the fertile source of their possessions.
+- There is, however, another purpose to which academies contribute. When they consist of a limited number of persons, eminent for their knowledge, it becomes an object of ambition to be admitted on their list.
+- In mathematics we have long since drawn the rein, and given over a hopeless race.
+- The difference between a tool and a machine is not capable of very precise distinction; nor is it necessary, in a popular explanation of those terms, to limit very strictly their acceptation.
+- That science has long been neglected and declining in England, is not an opinion originating with me, but is shared by many, and has been expressed by higher authority than mine.
+- Whenever the work is itself light, it becomes necessary, in order to economize time, to increase the velocity.
+- There are few circumstances which so strongly distinguish the philosopher, as the calmness with which he can reply to criticisms he may think undeservedly severe.
+- In England, the profession of the law is that which seems to hold out the strongest attraction to talent, from the circumstance, that in it ability, coupled with exertion, even though unaided by patronage, cannot fail of obtaining reward.
+- That the state of knowledge in any country will exert a directive influence on the general system of instruction adopted in it, is a principle too obvious to require investigation.
+- Another mode of accumulating power arises from lifting a weight and then allowing it to fall.
+- A powerful attraction exists, therefore, to the promotion of a study and of duties of all others engrossing the time most completely, and which is less benefited than most others by any acquaintance with science.
+- Errors using inadequate data are much less than those using no data at all.
+- Those from whose pocket the salary is drawn, and by whose appointment the officer was made, have always a right to discuss the merits of their officers, and their modes of exercising the duties they are paid to perform.
+- The economy of human time is the next advantage of machinery in manufactures.
+- It will be readily admitted, that a degree conferred by an university, ought to be a pledge to the public that he who holds it possesses a certain quantity of knowledge.
+- Perhaps it would be better for science, that all criticism should be avowed.
+- It is therefore not unreasonable to suppose that some portion of the neglect of science in England, may be attributed to the system of education we pursue.
+- To those who have chosen the profession of medicine, a knowledge of chemistry, and of some branches of natural history, and, indeed, of several other departments of science, affords useful assistance.
+- The proportion between the velocity with which men or animals move, and the weights they carry, is a matter of considerable importance, particularly in military affairs.
+- Surely, if knowledge is valuable, it can never be good policy in a country far wealthier than Tuscany, to allow a genius like Mr. Dalton's, to be employed in the drudgery of elementary instruction.
+- At each increase of knowledge, as well as on the contrivance of every new tool, human labour becomes abridged.
+- The public character of every public servant is legitimate subject of discussion, and his fitness or unfitness for office may be fairly canvassed by any person.
+- In turning from the smaller instruments in frequent use to the larger and more important machines, the economy arising from the increase of velocity becomes more striking.

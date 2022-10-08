@@ -1,0 +1,20 @@
++++
+author = "Billy Casper"
+title = "Billy Casper Quotes"
+quotes_len = "14"
+description = "the best 14 Billy Casper Quotes"
++++
+- I grew up on black sand greens. The best tees were old, dry cowpies, believe it or not.
+- When I drive into Augusta and down Magnolia Lane, there's just a spirit and nostalgia about it that you experience nowhere else. Why? Because it's the same place every year.
+- I never got caught up in playing for history, seeing how many majors I could win, or rewriting the record books. Those are selfish objectives, and the guy who chokes usually does so because he dwells on what it all means to him. I was only worried about my family. And although I had my share of failures, it was never because I choked.
+- I was so dedicated to generating income to keep my family housed and clothed and schooled. That mattered to me. And playing good golf mattered to me. The rest of the things, like how my record stacked up against others, never made that much difference.
+- I want to be remembered for having a great love for my fellow man. Because, you know, I do.
+- I had such a tie with my eyes and my hands. I could look at a telephone pole 40 yards away, take out a 7-iron, and hit it 10 times in a row. I had something special. And somehow, I really understood the game, all without having a lot of guidance.
+- If you can help anyone in any way, that is what we are here for. The pinnacle of my life has really been two lives - golf and service to my fellow man.
+- I learned something very important early on: You accept what happens and move on. In other words, if I hit a bad shot, I can't change it. There is only the next shot. That was a big lesson.
+- When I was in first grade, the kids called me 'fatso.' It hurt, but the way I overcame it was to outrun every kid in the class. So I developed a thick skin, and athletics became my way of performing and being accepted.
+- I played golf for 25 years before I made a hole-in-one of any kind. I was on the tour for years before it finally happened. Eventually I made 23, but boy, that first one was a long time coming. It was the price I paid for not shooting at every flag.
+- I had all kinds of allergy problems with certain meats, and with fruits and vegetables with pesticides. So I turned to bear, caribou, venison, hippopotamus, buffalo, elk and moose. Taste-wise, buffalo and elk are tied for first. Not gamy, and loaded with protein. And very expensive, I might add.
+- I was in the Navy and saw, first-hand, the effects of front-line combat.
+- It's hard to believe a kid hitting golf balls in the cow pastures of New Mexico could have accomplished what I have accomplished.
+- My parents were strict and taught me the proper fundamentals that I would use in my life. They taught me commitment to work hard.

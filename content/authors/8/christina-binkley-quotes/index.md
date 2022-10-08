@@ -1,0 +1,20 @@
++++
+author = "Christina Binkley"
+title = "Christina Binkley Quotes"
+quotes_len = "14"
+description = "the best 14 Christina Binkley Quotes"
++++
+- The Hermes scarf is a coveted, much-collected symbol of success that defines the Paris-based luxury company. But it has no single designer. Rather, the scarves are designed by a far-flung array of freelance artists.
+- Any woman who has attempted to slip a credit card into an inch-deep trouser pocket knows about the annoying puzzle of women's clothing: Pockets rarely work.
+- Every Hermes scarf has a tale.
+- A man's tailored jacket is like a compartmentalized storage unit with sleeves. Women eye those pockets with envy while searching for a ticket stub lost in a handbag.
+- Hermes scarf designers can be found in places from Poland to Japan, not to mention the U.S. post-office sorting room in Waco, Texas. Kermit Oliver, a longtime postal employee, has designed more than a dozen Hermes scarves.
+- What is it about the cut of certain clothes that signals 'VIP?' Men's Brioni suits and Charvet shirts are famous for it.
+- Diamonds may be forever, but emeralds are for 2013.
+- Our social mores no longer conform to a world where nice girls wear skirts that don't cling.
+- Comfortably middle-class, I had shopped for years at the likes of Saks outlet Off Fifth, Banana Republic, and Zara. My mom raised me to believe clothes should be comfortable and practical, not frivolous.
+- Clothes are particularly hard to value. While cars and high-tech gadgets - Maseratis, Audemars Piguet watches, and first-generation iPhones - offer not only performance but the cachet of a visibly rich item, clothing does less to convey what you spent on it. Clothes get stained and snagged, and they go out of style quickly.
+- The power suit is over.
+- For more than a century, New York City has been home to a constellation of department stores whose openings, closings, and transformations have charted the fortunes and foibles of the city itself.
+- When I dine with CEOs at Michael's in New York or Spago in L.A., we score the best tables. On my own, I wind up seated near the kitchen doors.
+- Pockets have long been a male/female divide.

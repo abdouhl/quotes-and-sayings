@@ -1,0 +1,85 @@
++++
+author = "Betty White"
+title = "Betty White Quotes"
+quotes_len = "79"
+description = "the best 79 Betty White Quotes"
++++
+- I was one of the first women producers in Hollywood.
+- I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.
+- Animals don't lie. Animals don't criticize. If animals have moody days, they handle them better than humans do.
+- I don't know where I learned elephants like their tongues slapped. Whatever turns you on.
+- I am the luckiest old broad on two feet if the truth were known. It's - but it all goes back to 'Mary Tyler Moore,' 'Golden Girls,' all those - actors love to take the credit. We couldn't do it without the writers.
+- I don't get political.
+- I really don't care with whom you sleep. I just care what kind of a decent human being you are.
+- I don't care who anybody sleeps with. If a couple has been together all that time - and there are gay relationships that are more solid than some heterosexual ones - I think it's fine if they want to get married. I don't know how people can get so anti-something.
+- Of course, nobody's tearing my door down. If you're successful you're going to intimidate and scare off the people you'd like to spend time with. They're not going to approach you. And the ones who do are often there because you are a celebrity.
+- During the Depression, my dad made radios to sell to make extra money. Nobody had any money to buy the radios, so he would trade them for dogs. He built kennels in the backyard, and he cared for the dogs.
+- Why retire from something if you're loving it so much and enjoying it so much, and you're blessed with another group of people to work with like the gang on 'Hot in Cleveland?' Why would I think of retiring? What would I do with myself?
+- I like bawdy humor. I love bawdy humor, but not dirty humor.
+- Don't try to be young. Just open your mind. Stay interested in stuff. There are so many things I won't live long enough to find out about, but I'm still curious about them. You know people who are already saying, 'I'm going to be 30 - oh, what am I going to do?' Well, use that decade! Use them all!
+- It's fun once in a while to do a serious part but I really enjoy doing comedy because I love to laugh.
+- Long ago, I did a five-and-a-half-hour-a-day, six-day-a-week talk show for four years, early on, in Los Angeles - local show. And when you are on that many hours with no script, you know, you get very comfortable, maybe overly comfortable with that small audience.
+- I have my golden retriever now, Pontiac. He's a career-change guide dog from Guide Dogs for the Blind.
+- A lady likes to be complimented on her looks, her eyes, her figure. But the personality comments are much appreciated.
+- I think a lot of people like hidden-camera shows where they think they're spying on somebody who doesn't know they're looking at them. And nobody takes it seriously - you either enjoy it and get a laugh out of the reactions or not.
+- I always wanted to be a zookeeper when I was growing up, and I've wound up a zookeeper! I've been working with the Los Angeles Zoo for 45 years! I'm the luckiest old broad on two feet because my life is divided absolutely in half - half animals and half show business. You can't ask for better than two things you love the most.
+- The bottom line is, I'm blessed with good health. On top of that, I don't go around thinking 'Oh, I'm 90, I better do this or I better do that.' I'm just Betty. I'm the same Betty that I've always been. Take it or leave it.
+- Animal lover that I am, a cougar I am not.
+- Retirement is not in my vocabulary. They aren't going to get rid of me that way.
+- I don't seem to require a lot of sleep. I just - if I get four, five good hours, I'm fine. But sleeping is sort of dull. There's a lot of other good stuff that you can do without just lying down and closing your eyes.
+- It's a little known fact that one in three family pets gets lost during its lifetime, and approximately 9 million pets enter shelters each year. That's why it's a wonderful thing to get your pet microchipped and registered with your contact information because then they can be located and the owners can track where their pets are.
+- I was an only child and I had a mother and father who were just - there wasn't a straight man in the house, and I mean that in a very nice way. They were fun, and we would laugh a lot.
+- Well, I mean, if a joke or humor is bawdy, it's got to be funny enough to warrant it. You can't just have it bawdy or dirty just for the sake of being that - it's got to be funny.
+- I've worked with Morris Animal Foundation for more than 40 years now, and I'm so proud of all they've done to advance veterinary medicine for animals worldwide.
+- If you have one good series, you know, it's a blessing. Two good series is unusual. Three is a phenomenon, but right now, I'm working with these wonderful women on 'Hot in Cleveland,' and Valerie Bertinelli, and Wendy Malick and Jane Leeves are like, it's like the buddy-ship we had on 'Golden Girls' and 'Mary Tyler Moore.'
+- A good friend of mine was Lucy Ball. Her mother and my mother were best friends.
+- Wilderness is harder and harder to find these days on this beautiful planet, and we're abusing our planet to the point of almost no return.
+- The audience today has heard every joke. They know every plot. They know where you're going before you even start. That's a tough audience to surprise, and a tough audience to write for. It's much more competitive now, because the audience is so much more - I want to say 'sophisticated.'
+- If you're walking with your lady on the sidewalk, I still like to see a man walking street-side, to protect the lady from traffic. I grew up with that, and I hate to see something like that get lost. I still like to see that a man opens the door. I like those touches of chivalry that are fast disappearing.
+- I'm a big cockeyed optimist. I try to accentuate the positive as opposed to the negative.
+- I think that a show that is as successful as 'The Golden Girls' is a once-in-a-lifetime thing. If you don't feel proud to be part of a show that has that kind of track record, then shame on you, because that's a privilege.
+- I love words. Sudoku I don't get into, I'm not into numbers that much, and there are people who are hooked on that. But crossword puzzles, I just can't - if I get a puppy and I paper train him and I put the - if all of a sudden I'd open the paper and there's a crossword puzzle - 'No, no, you can't go on that, honey. I'll take it.'
+- If everyone took personal responsibility for their animals, we wouldn't have a lot of the animal problems that we do. I'm a big spay-and-neuter supporter. Don't have babies if you're not going to take care of those babies. We don't need more. We just need to take care of the ones we have. Take responsibility and breathe kindness.
+- I'm in the middle of my sixth book, which is about animals at the Los Angeles Zoo.
+- When I pontificate, it sounds so, you know, Oh, well, she's preaching. I'm not preaching, but I think maybe I learned it from my animal friends. Kindness and consideration of somebody besides yourself. I think that keeps you feeling young. I really do.
+- I kid around a lot, but pranks are not my best strength!
+- Doing drama is, in a sense, easier. In doing comedy, if you don't get that laugh, there's something wrong.
+- I'm not into animal rights. I'm only into animal welfare and health. I've been with the Morris Animal Foundation since the '70s. We're a health organization. We fund campaign health studies for dogs, cats, lizards and wildlife. I've worked with the L.A. Zoo for about the same length of time. I get my animal fixes!
+- Take personal responsibility. A lot of people go, 'Well, I'll get a dog because I have a kid and a kid needs a dog.' And it doesn't work out for that dog and the dog is on the street.
+- 'Mary Tyler Moore' was - it was my first big hit.
+- Anger tears me up inside... My own... or anyone else's.
+- I'm in the acting business. That's the ego business.
+- A lot of people think this is a goodie two-shoes talking. But we do have a tendency to complain rather than celebrating who we are. I learned at my mother's knee it's better to appreciate what's happening... I think we kind of talk ourselves into the negative sometimes.
+- It's been phenomenal, but everybody keeps congratulating me on my resurgence and my big comeback. I haven't been away, guys. I've been working steadily for the last 63 years.
+- I'm having the time of my life and the fact that I'm still working - how lucky can you get? I'm 90 years old and still able to work as much as I do. That's a privilege.
+- I stayed in show business to pay for my animal business.
+- When we started in television, there was that magic box in the corner of the room, and 'Oh my gosh - look what it's doing!'
+- I just make it my business to get along with people so I can have fun. It's that simple.
+- I think older women still have a full life.
+- It's your outlook on life that counts. If you take yourself lightly and don't take yourself too seriously, pretty soon you can find the humor in our everyday lives. And sometimes it can be a lifesaver.
+- I go out to the kitchen to feed the dog, but that's about as much cooking as I do.
+- You know what the problem that animal activists sometimes have? They only concentrate on the heartbreaking things to the point where the general public thinks, 'Oh, here comes those animal folks again and I'm going to hear all the things I don't want to hear.'
+- I may be a senior, but so what? I'm still hot.
+- I love Cadillacs and name them after birds.
+- I've enjoyed the opposite sex a lot. Always have. Always will.
+- I had to make a major decision with myself because I just don't think you can do both: try to have a baby career and raise it and have a baby baby and raise it. And to try to do justice to either one. It was a very conscious decision on my part not to have children - which I have never regretted.
+- My mother and dad were big animal lovers, too. I just don't know how I would have lived without animals around me. I'm fascinated by them - both domestic pets and the wild community. They just are the most interesting things in the world to me, and it's made such a difference in my lifetime.
+- I like double entendre because then the people who get it enjoy it, and the people who don't get it don't know about it.
+- Animals are near and dear to my heart, and I've devoted my life to trying to improve their lives.
+- I just want to bring as much natural as I can. I'm not saying that people who take acting lessons are false. They're much better than I am, but it doesn't work for me.
+- Hot dogs and Red Vines and potato chips and French fries are my favorite foods.
+- I'm not what you might call sexy, but I'm romantic. Let's put it that way.
+- When I realized I could use Facebook as a way to communicate directly with my fans, I thought it would be a great idea.
+- I've worked with the Los Angeles Zoo for 45 years, and we have this magnificent photographer, Tad Motoyama. He takes these wonderful, wonderful animal pictures. All through the years he's given me copies of these pictures. Well, I have all these gorgeous ones, so I said, 'Tad, I want to do a book with your picture on one side.'
+- I have the backbone of an eel.
+- Wendy Malick and Valerie Bertinelli make fun of me, but I take care of my health - I don't abuse it.
+- I enjoy being busy, I really do. Remember, I'm the stub end of the railroad. I have no family, so I'm not taking busy time away from people that I should be spending it with. So I'm just relaxing and enjoying it.
+- I have a two-story house and a bad memory, so I'm up and down those stairs all the time. That's my exercise.
+- You can always tell about somebody by the way they put their hands on an animal.
+- The writers are the stars of every really successful sitcom.
+- I didn't know what Facebook was, and now that I do know what it is, I have to say, it sounds like a huge waste of time.
+- I'm the luckiest broad on two feet, I'll tell you that. They say once a woman passes 40 she doesn't get any good parts, so I'm blessed.
+- I cannot stand the people who get wonderful starts in show business and who abuse it. Lindsay Lohan and Charlie Sheen, for example, although there are plenty of others, too. They are the most blessed people in the world, and they don't appreciate it.
+- If you get into a Broadway show and it doesn't work, you're a failure. And if it does work, you may be stuck for who knows how long. It just doesn't sound great to me!
+- I am interested in a lot of things - not just show business and my passion for animals. I try to keep current in what's going on in the world. I do mental exercises. I don't have any trouble memorizing lines because of the crossword puzzles I do every day to keep my mind a little limber. I don't sit and vegetate.
+- I'm so compulsive about stuff, I know if I had ever gotten pregnant, of course, that would have been my whole focus. But I didn't choose to have children because I'm focused on my career. And I just don't think, as compulsive as I am, that I could manage both.

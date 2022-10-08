@@ -1,0 +1,81 @@
++++
+author = "Chrissy Metz"
+title = "Chrissy Metz Quotes"
+quotes_len = "75"
+description = "the best 75 Chrissy Metz Quotes"
++++
+- At the end of the day... my love for my body... comes from within.
+- We're all just trying to do the best with what we've got. I hope I help people see themselves on TV.
+- It's very strange. I can't go anywhere without somebody stopping me, which is so cool that I get to connect to people that I never might've ever spoken to, or they have an impetus to speak to me. It's created a career that I wasn't sure if I'd ever really have.
+- My sister's tall, thin, model-esque.
+- I want to have a fit, healthy body and not have to be put in a box. I don't want to be limited by anything.
+- I wanted to be the female Jim Carrey.
+- I remember being at Weight Watchers at, like, 11 years old and my mom just trying to figure it out for me.
+- I try to be present in the moment and to be authentic, and to listen.
+- I would say that when you do something out of the goodness of your heart, and you don't know what the repercussions will be, you have to live with that. And it can be devastating. Because the intention was there.
+- Whether you're tall and you play a basketball player, or overweight and you play somebody who is dealing with the issues behind the weight, we all have to pull from real life to make those performances authentic.
+- I'm the middle child.
+- There is something that happens when you are grateful: You continue to keep receiving blessings. So I will always be grateful.
+- You have to use what you know to make a part real.
+- I realized that... at the core of who we are, we're these perfect beings - and we're not taught that.
+- When I booked 'This Is Us,' I had 81 cents in my bank account.
+- I would love to go on 'The Biggest Loser,' where it's a concentrated thing.
+- I moved in with a roommate who told me, 'Stay with me until you can afford rent. Don't give up.' People who supported me were like, 'If you don't have money for food, I'll cook you dinner. You don't have money for acting class? Let's get together and read lines.'
+- I have no shame when it comes to making people laugh. I don't care what I look like.
+- I am of the thinking that everything happens as it should and when it should.
+- My parents divorced when I was eight; I never really knew my dad, and my mom raised my older sister and brother and me alone. It was challenging.
+- People don't realize how much money you have to spend: styling, publicity, a manager, and your agent. That's a chunk of change.
+- Our weights fluctuate: Some people gain or lose, even friends who are average size. If I would say 'I'm fat,' my friends would say, 'Don't say that!' And I'd think, 'Are you offended, you can't handle the word? Or do you think I am embarrassed?'
+- I try to not to overanalyze, not to watch myself too much, but to be present in life and in my art. I'm so glad it comes off in that way.
+- I want to wear something because I love it, not because it follows the rules.
+- If there was going to be a pioneer of the plus-size girl of my shape on TV, why not me?
+- I remember being a kid and always feeling a little different than all my friends.
+- If I ever end up on the worst-dressed list, it's not going to make me fall apart.
+- I was born in Homestead, Florida.
+- Sometimes I feel like I'm two people. I'm proud of who I am as a person, but I do want to be at a healthy weight.
+- So much of the mainstream media has taught us what beauty is, but everyone is beautiful.
+- When I'm not shooting, I'm a leggings and boots girl. I like cute and casual - for me, it's all about feeling good and being comfortable.
+- The way I stand up to bullies is with kindness and love. Because I think that's what they really need. They're misunderstood and probably really upset themselves.
+- You can't be hateful because you love yourself. And we're extensions of each other; we're all connected.
+- I wanted to entertain and make people laugh. I think it really hit in third grade, but once I was in high school, I joined chamber choir. I wanted to do musical theater, too, but they had rehearsals at the same time. That was a bit of 'Sophie's Choice.'
+- Why not have a motivation beyond me to get to a healthy weight? Every actor does that. We're chameleons. We change; we grow as an actor. You lose weight, you gain weight, you change your hair or whatever.
+- I do want to lose weight. But not because anyone is telling me to do it.
+- I kept auditioning, with no savings and no money, credit card debt gaining interest. I went on unemployment. I bought ramen noodles at dollar stores. I never had to - God forbid - live on the streets.
+- I just feel really grateful that I can pursue my dreams and also reach people in ways that I never expected.
+- I have been in Los Angeles for a long time, and I have wanted to be a series lead for a long time. It's literally on my bucket list.
+- I think that my whole journey had been getting to the place where I can accept myself for who I am, to be the woman that I'm meant to be, but you have to get there first.
+- You don't realize that somebody who's average or even very fit could relate to someone who's overweight, but it's not about our size - it's how we look at ourselves and how we feel about ourselves.
+- There were times I'd be nervous walking home from elementary school, thinking, 'If that red tag from the power company saying our lights are turned off is on the door handle, I don't know what I'll do.'
+- I know that sounds corny. And I know you've heard it before. But it's really true: We're so much more than our bodies.
+- It's impossible to accept love from anyone else if you don't love yourself. It's a big issue, particularly for us plus-size ladies and for anyone dealing with weight, because we're not taught to love ourselves or be our own cheerleaders.
+- If you can't love who you are now, you can't get to the place you want to be.
+- I don't have to have a man in my life, and I think men are attracted to that.
+- There are plus-size women who've paved the way - Rebel Wilson, Gabby Sidibe, Melissa McCarthy. I can't wait for the day when I can have a conversation, and it's not about the size of my pants but how I prepared for the role.
+- I'm just kind of in love with Kathy Bates. And Sarah Paulson.
+- I was always the class clown, and I think I gravitated toward performing for the attention I didn't always think I was getting at home.
+- I just have to be very clear. Whether or not I lose weight or stay the same, it's purely a choice of mine for health. Not because I think that plus size, curvy, voluptuous, big bodies aren't attractive - because I think they're awesome and sexy.
+- Just because we're a bit curvier doesn't mean we don't want to look great.
+- I taught preschool previously, so I was like, 'Oh, I can teach little kids to act, and I can go back home.'
+- The truth is, I don't find my value in my body or my weight. It's really more about who I am and what I can offer as a human being to the people in my life and the people in the world.
+- Size doesn't equate to beauty. I don't understand why that's a thing. Well, I do, because the media has told us thin is beautiful. But is it?
+- Most of my stuff comes from Eloquii, Torrid, Lane Bryant - even Target!
+- I look in the mirror, and I'm a plus-size girl, but I got it going on.
+- Until you love yourself, until you really believe that, you're stopped in your tracks. That's why it's so important to wear what you want to wear and be who you want to be.
+- If I find a cute skirt, I'm not fixated on a brand.
+- My father is a big guy; he's had a quadruple bypass surgery, and that's scary. Those are real things that happen in families with overweight people, and I don't want that.
+- I, as Chrissy, want to do things that mentally, emotionally and physically make me the best that I can be.
+- Being a plus-size actress, it is slim pickings, so anytime any role comes up for a plus-size actress, my agents are all over it, and they were like, 'You have to book this job. It's 'American Horror Story.' It's a big deal.' No pressure, right?
+- I carry a lot of my weight in my stomach. I just want to have... not even a number, but to have my body in a different shape.
+- I started coming into my own at 30, discovering what's important to me, not caring what other people think.
+- When you listen, as a human being and an actor, you can react authentically.
+- I'm paving the road for other women and men who know they're destined for greatness, but they don't believe it yet.
+- I have revered Mandy Moore for so long, and I just love her, and she's just, like, a perfect human.
+- I eat my feelings - when I'm happy, when I'm sad.
+- It can be very hard to find clothing for different body shapes. After all, there are only, what, five companies for plus-size women?
+- There have been so many discussions about my weight: How is she going to lose weight? Is she going to lose weight? When is she going to lose weight? It's kind of it's funny.
+- I'm on this journey to inspire people and to encourage them.
+- When I first heard 'Harper's Bazaar' wanted me to be sexy, I was like, 'Who, me?' I knew y'all were edgy, but this is incredible - it's validation.
+- I'm ready to encourage and support people on their journey because I've been encouraged and supported. I just hope I make people proud.
+- I have been able to help my friends and people that I believe in pay their bills and stay afloat in L.A. while following their dreams.
+- I think everyone has shame about something, whether it's a lack of a relationship with a child or maybe their weight or a lack of communication within their marriage. Everyone can relate to that because we all have something that we're like, 'God, I can work on that,' or, 'I wish I was better at doing this.'
+- When I turned 30, I had this epiphany that my life is my own and my choices are my own.

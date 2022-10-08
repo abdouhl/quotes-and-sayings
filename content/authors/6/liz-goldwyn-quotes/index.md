@@ -1,0 +1,38 @@
++++
+author = "Liz Goldwyn"
+title = "Liz Goldwyn Quotes"
+quotes_len = "32"
+description = "the best 32 Liz Goldwyn Quotes"
++++
+- I mix all different oils - my bathroom at home is littered with oils; I'm really into natural beauty and natural healing. Peppermint is really good if you put it on your stomach for a tummy ache; lavender is kind of all-purpose - I think everyone should carry it.
+- Red lipstick is my armour - I feel it distracts from my hereditary dark circles and gives me an instant psychological lift, no matter what my mood is.
+- For me, clothing has always been connected to history. That's what draws me in.
+- Fashion can often be dictated. It's what people think we should do or wear. Style is totally personal.
+- I want to say, embrace your sexuality, own it, be confident, but you don't have to show everything. Respect yourself, and make others respect you.
+- I don't label myself a feminist. I love men, but I am all about promoting a better, healthier relationship between the sexes.
+- I had a very feminist mother who exposed me not only to Planned Parenthood - my first job - but also to Betty Friedan and Colette and Naomi Wolf.
+- Red lipstick has been my beauty staple for years. I show up to Pilates or yoga at 8 A.M. wearing my red lipstick.
+- I don't like the sun, but I live in California.
+- I don't just buy a dress because it's pretty - it has to be evocative of a mood, a character I want to take on.
+- If fashion has a political significance, it is probably culturally, as a camouflage.
+- When I think about fashion and elegance, I imagine a woman from the 1950s, on an airplane, with seamed stockings and a garment belt underneath, a skirt, high heels, and her hair that she's done the night before, perfectly done eyeliner, lipstick, gloves, perhaps, and all this just to sit on an airplane for a transcontinental flight.
+- Fashion is not interesting unless it has some connection to something outside of that world. It's the same thing with any part of the arts: you can't just take pictures - you have to look at science, to listen to music; you have to be aware of the connections within the world. If you take something in an isolated box, it loses all significance.
+- Los Angeles is a true postmodern city. Here, we celebrate with equal aplomb the high and the low. I am just as influenced by the punk rock attitude of local skate and surf cultures as I am by old-school glamour and stardust.
+- In L.A., retro culture is just part of the thing you do. When we were kids, we didn't have allowances, and it was not cool to wear designer clothes. So it meant that we were into 1920s dresses when we were 13.
+- I spend a lot more time on my wardrobe than my makeup routine and usually have to be told to brush my hair!
+- I can't write about people I don't feel some sort of connection to.
+- From an early age, my father stressed the power of the image, and he encouraged me to carefully control my own. He advised me, for example, never to be photographed from below, an often unflattering angle for women.
+- In general, I'm fascinated by women who exist outside of society's mores and values.
+- My new dressing goal is to make little kids and babies smile at all the bright, clashing colours I can wear at once. It makes me laugh when I catch sight of my own reflection - life is too short not have fun!
+- Even though we look at the past through the lens of distance and think that because people are wearing different clothes or have different technology, their experiences are different, it's all the same, right? Our experience of love and sex and death are the same in any time period.
+- I think people sometimes have a hard time placing me because I don't fit into a box. When they ask what I do at a cocktail party, I either say I'm a Renaissance woman or I'm a high-level madam. Lately I've been more comfortable saying I'm an artist, because that can cover a lot of different things.
+- I totally don't believe that things have to be expensive for beauty. In fact, I'm always a little bit wary if they are... because I'm like, 'What kind of chemicals are in there? What's going to happen in ten years, when we find out what the side effects are?'
+- A 1920s dress I wore on my 21st birthday... literally disintegrated on me. I had the most wild debauched night. And that disintegrated dress sits in my closet - such a great memory.
+- Sunscreen is my number one beauty product that goes on even when I am indoors.
+- I've worked with a lot of beauty companies over the years, but I really have to say that my own routine is very natural; like, I really try to be careful about the stuff I'm putting into my body, onto my body. I do believe in beauty foods - like, a lot of blueberries, salmon, kale, quinoa, avocado.
+- What I always loved about vintage clothes is that you let the woman who wore it before you live on in some way.
+- My favorite thing to do in L.A. is to be in a car with friends listening to music. The perfect time is twilight, when the setting sun is filtering through the palm trees. Back in the day, we'd be listening to the Vandals, X, or Farside. Now it would be L.A.-based bands like Dum Dum Girls, Foxygen, or Ty Segall.
+- I feel like there's something interesting to learn from anyone's story, no matter their place in society. I think we've gotten really far away from that - we're in such a celebrity-obsessed culture.
+- I never had a clique. If I throw a party, the only thing connecting people is me. Maybe I just don't believe in fear. I bulldoze right in.
+- When someone hears that I've written a book about 1897, I'm usually met with blank stares. And the first thing they say is, 'Was there even an L.A. back then?' A lot of people don't even think there was a city before the movies appeared. That concept of Los Angeles is so strong in the popular imagination that celebrity overrides everything.
+- Every winter, I'm a sexy academic deconstructionist. And in the summer, it's normally Brigitte Bardot on holiday in the 1950s.

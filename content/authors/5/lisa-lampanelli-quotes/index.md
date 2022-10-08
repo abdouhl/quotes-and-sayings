@@ -1,0 +1,99 @@
++++
+author = "Lisa Lampanelli"
+title = "Lisa Lampanelli Quotes"
+quotes_len = "93"
+description = "the best 93 Lisa Lampanelli Quotes"
++++
+- Until I got the weight off, there was something inside of me that said, 'You hate yourself.' You get too depressed over the weight to really work on this. For whatever reason, I had to take the weight off to do this work.
+- The thing is, in the dating profiles it says 'spiritual,' but not with a specific religion. And so I pretty much try to meditate, but I have a very hard time concentrating on things other than me.
+- If they hate you, they hate you, but I've always been polarizing, and I love that.
+- My thing has always been, I've never been very open and vulnerable with people, so the minute I got this dog, everything changed. It just opened me up and made me more loving... It's all because of him... He's made me a better person... I can tell people what I feel now. I can cry in front of people sometimes.
+- I've gone through literally over 30 years of struggle with weight and food and body image... and I'm like, 'Wait a minute.'
+- I can really serve the audience instead of making this about me and about serving myself and my pocketbook.
+- I thought I had to work at someplace everybody's heard of. It was never, 'I'm interested in such and such. I want to work in such and such magazine.' It was like, 'Oh, my G-d, I really need to work for somebody so people will think I'm OK.' So I got a job at 'Popular Mechanics'.
+- Betty White is so old that on her first game show ever, the prize was fire.
+- If Flavor Flav was any smaller and darker, Brad and Angelina would try to adopt him.
+- I do a big roast of Trump during my set now - which I clearly expanded on - because there's so much to make fun of him about now.
+- When you're dealing with a sick person, you're not important at all. You're just a nobody.
+- I usually get so warned when I go to Detroit, like, 'Oh my God, don't go to this section, don't go to that section.' I've never had any issues in Detroit. I love that there's enough of a racial mix of people to make fun of. I've always had a good time there.
+- I've really been working on the emotional and internal issues that made me eat in the first place. It's been a real journey.
+- You have to really be on your own side.
+- What we do as comics can be a service to people. It can make them laugh and take their mind off their problems for a few minutes.
+- Comedy is like music - there are genres and styles for every taste. Katy Perry is there for people who like frothy pop music. Metallica is there for people who like head-banging metal. And Susan Boyle is there for... well, I don't who the hell is listening to that freak of nature, but that's not the point. In art, there's something for everybody.
+- I keep getting asked out by really young, good looking boys and really ugly lesbians. So, even if I wanted to jump onto the tuna boat, I wouldn't because I'm not getting high-class babes that I should get at this level of my career. And I always know the ugly ones are serious and that the good-looking ones are goofing on me.
+- Howard Stern gave me the best advice about Twitter and the N word. He said maybe onstage people get the intention behind the joke, but a tweet is 140 characters or less, and maybe that's why people overreact. I don't need to rustle any more feathers and lose any investors.
+- I wasn't ready to be a dog's mother! Trust me, I'm completely unfit and irresponsible. I'm a comic that travels 48 weeks a year, but I make it work, so you can, too.
+- I'm not a political comic at all, so it would be weird if I just turned into a preachy, sort-of political commentator.
+- I know Bea Arthur left the Pam Anderson roast really early, but it could have been because she was half dead; I don't know.
+- Donald is very happy with his lovely wife, insert name here.
+- In the end, censoring a comedian's jokes is on par with censoring 'Huckleberry Finn.' Now, I'm not comparing myself to Mark Twain - he had much wavier hair and a slightly thicker mustache. But when you deny an artist the chance to explore his art, you're forcing your beliefs on him.
+- Basically, I think some of the weight helped take some of the walls down in reality, so basically I got a little more confident. I'm definitely not super confident, but I am confident that I don't have to hide behind those layers of fat and that I can actually open up to people a little more.
+- I honestly feel like 99 percent of people have some kind of self-hate about their looks, and if I can joke about mine, maybe they can feel better about theirs.
+- I would make a few jabs at myself and go for the audience - they are still as flawed as ever.
+- I hate comics who look at comedy as therapy. But at least it gets things out of my system in a funny way.
+- What you bring to the stage is what you are in real life... people sense that.
+- Mr. Trump, I really can't comment, because he was my boss on 'Celebrity Apprentice,' and I just don't think we should let him be president until he produces evidence that the thing on his head is real. Because he wanted to see Obama's birth certificate, we should ask for a certificate of real hair.
+- I looked around and couldn't believe no one has written a show about women and eating. It's the biggest issue women have.
+- The dog lasted. The marriage didn't. So it shows which relationship was meant to be.
+- I'm obsessed with reality TV anyway - I use my knowledge of that stuff to make jokes on Twitter and Facebook to get more people to sign up to be fans.
+- Don't laugh at a hair joke, Trump.
+- It used to be that in media, Johnny Carson used to be the most important person when he would invite you over to sit on the couch after your comedy skit. Now it's whatever Howard Stern says goes.
+- I'm a take-no-prisoners type of comic, and I'm lucky because my fans get me and never have a problem with the politically incorrect themes of my act. But I am continually amazed by how a certain section of our society seems to be so freakin' sensitive about jokes.
+- I lasted seven years as a journalist, and I've been doing comedy for twenty years.
+- The only reason I was allowed to have a career for a quarter century as an insult comic is because it's all in jest and all for fun.
+- I heard Cher say, 'I answer to two people: Myself and God.' I say, 'I only answer to me. I'm not sure I appreciate God's opinion.'
+- Shortly after college, I was working in New York City at 'Rolling Stone' magazine.
+- I think people were just seriously happy to find a funny woman who does comedy like a man. Because I learned how to do comedy from guys, from watching those Dean Martin roasts years ago.
+- I order food like a normal human being. If I'm out to lunch, I'm going to order three courses like everybody else. I'm not going to feel like some kind of freak.
+- I say every slur on the planet - racial, homosexual, everything to do with every ethnic group on the planet - and guess what? I will never apologize for that because I know why I do it, and it is to make a valid point about ignorance in this society.
+- By being politically correct, you're closing your mind to a different point of view. Which sounds a lot like prejudice. Which is definitely not politically correct. See what I just did there?
+- I gained weight, and that started a 32-year struggle with weight and exercise and body image problems.
+- When I say I'm going gangster, I'm working really hard at something.
+- I kind of knew inside that I wanted to try comedy, but it was a mystery. How do you start? So when I hit 30 and I had done everything I wanted to do in journalism, so I went to a comedy class. I figured I'd learn how to do five minutes and see how it feels.
+- I'm not looking for 'outer esteem' anymore, what they call 'other esteem.' I'm looking for self-esteem. And people think that self-esteem is built with accomplishments. And, 'Hey, look what I did in my life.'
+- I got sick of trying everything. I tried every single thing imaginable - diet, exercise. I even bought a house on the health spa property, and I still gained weight.
+- None of my comedy depended on looks. I never did tons of fat jokes.
+- That's the whole thing: You only roast the ones you love. That's why I never make fun of the French.
+- I'm not gonna ruin my reputation with the blacks no more.
+- I always wrote about myself in the third person. I knew how to promote myself so it sounded intelligent. I know how to package myself.
+- I've never wanted to be a person where somebody would be like, 'I like her; she's okay.' Love or hate is fine, because it sells tickets.
+- Insult comedy has been around forever. I can make fun of people, and they won't get mad at me.
+- Before, I didn't do celebrity stuff, 'cause Kathy Griffin did that, but now, if you're going to make jokes on Twitter, you have to stay current.
+- I'm not saying the N word anymore.
+- I didn't feel ready to leave home, because it went from no freedom to all freedom. And I was like, 'Oh, my God, I don't know what I'm doing in college.' There seemed to be no like-minded people where I was... I didn't have a clan. I didn't have a choir... There was no safety net.
+- Make a list of the people in your 'choir'... If you're not on your own list, then you're doing something wrong.
+- People with HIV and AIDS are nothing to be afraid of. They are people just like every single one of us, and each has a story to tell. These people should be helped, embraced, and not dismissed. We need to open our hearts and our minds to them, and we just may learn we're pretty much all the same.
+- I remember, after the Pamela Anderson roast, being told, 'You're sold out - you can add two more shows.'
+- The more conservative you dress, the more you can get away with.
+- I'm not a private person. I like hanging out and talking to fans. But my life isn't so interesting that you want to see the inside of it.
+- We usually let our husbands negotiate the house and the cars. But I never had a husband, so I was always buying my own houses and cars, so I knew how to negotiate.
+- When doing comedy, I do what makes me laugh. The first person I learned from said I should talk about things I am passionate about - that I love or hate - because the audience likes to see passion. The stuff I rant and rave about stems from a place that really pisses me off.
+- Ticket sales will get higher the day after roasts.
+- I really think the biggest honor, as a comic, is to get roasted by either the Friars Club or the Comedy Central or someone like that. Because it really shows, you know, that you've arrived.
+- With Don Rickles and me, we're just telling the truth. We're not terrific people, and we're not gonna win the beauty contest. We're just average Joes. We're just being who we are, and I think people like that.
+- I just really work hard on myself every day.
+- I've played every comedy club and every theatre across the country for the last 25 years and seen a lot of audience members from different ethnic persuasions.
+- I always order soup, dessert, and a sandwich or whatever main course. But then the idea is you have to eat such a small portion of it and bring the rest home.
+- 'Baywatch' sucks so bad. I didn't watch it the first time around; I'm sure not going to buy a DVD. But really, you just kind of find out the categories of what's most foolish about these people. With Hasselhoff, it's obviously the huge man-tits with chest hair, probably a lot about his crappy acting, obviously the hamburger video - that's huge.
+- William Shatner is living proof that if you are talented and nice, you can work in this industry forever.
+- I feel that if I retire today, I've done enough. I've achieved everything in comedy... I feel I don't need anything else. It's already built.
+- Crazy diets, good diets, you can't name one I didn't do.
+- I'm not ready to die yet. I have, like, 40 years left that I have to make up for all of the trouble I caused in my first 50 years.
+- I'm way too famous and rich to be on a dating app, but if I get very desperate by the time I'm 60, I'll go on Tinder. Or I'll go on 'Millionaire Matchmaker'; I'll call Patti Stanger.
+- Every day, I wake up and ask, 'Am I hungry?' If I'm physically hungry, I eat something that's hopefully good for me, and then do it again in a few hours. If I get a phone call I don't like, I'll say to myself, 'Is that the reason I want to eat something?' If it is, I try not to do it. It's literally a lifestyle.
+- I was 25 myself once. I also thought I knew everything. I also thought that I could give singers singing advice and comics comedy advice. When you're that age, you know it all, so I understand it. But when you're tired and you don't have patience for it, you definitely snap.
+- Interesting-looking people have always been comedians, and it's rare that someone who has the choice to model ends up being a comic. Except for maybe Whitney Cummings, but that's about it. That's why she's special: because she can combine it.
+- A roast is really an honor. If they picked me to be roasted, I'd be the most flattered I'd be in my life. If I could pick some people to roast, I'd pick my heroes, Don Rickles and Howard Stern. Those are the people I'd like to give some honor to.
+- I don't like any of it. I'm sick and tired of menopause.
+- This thing happened where I noticed anytime I got together with four friends or more, the conversation goes to food.
+- By Hollywood standards I'm still fat: until you are zero, you are big. I do get cold a lot now. I used to have a lot of layers - now I got to get a fur coat.
+- I remember once doing a benefit for a Jewish charity and wearing an enormous cross. I kind of don't let the audience dictate anything to me. I sort of dictate to them, and they better be on board.
+- Nobody escapes during Lisa Lampanelli's show.
+- I don't sell myself. I've never explained my comedy to people who don't get it. Never complain. Never explain.
+- Too many people have already lost their lives to HIV and AIDS, and the more celebrities who can bring attention to the issue, the better.
+- When I decided to do 'The Celebrity Apprentice,' there was absolutely no question that I would play the game for GMHC.
+- I lost over 100 pounds, so I'm even angrier than ever. I don't stuff my feelings anymore with food. Skinny girls are funny.
+- Andy Dick is so gay, he thinks Margaret Cho is funny.
+- I have a shrink in New York and a shrink in Arizona, just in case. You never know when you will have a breakdown.
+- I have rage and anger issues. So I get mad about stuff in real life, and then I yell about it onstage, and luckily, something funny ends up coming out. What I'll do is tape-record it, and it will end up coming out even funnier. And I add more punch lines.
+- I'm always proud of what I've done and what I continue to do.

@@ -1,0 +1,104 @@
++++
+author = "Chael Sonnen"
+title = "Chael Sonnen Quotes"
+quotes_len = "98"
+description = "the best 98 Chael Sonnen Quotes"
++++
+- Cain Velasquez, for my money, is the most intimidating force ever in heavyweight combat.
+- I've suffered rib injuries, but I've never had a broken one. I've dislocated it and popped it, and even that, a big step down from broken, it hurts so bad. But you can't really move. You can't even fully breathe and take a deep breath of air.
+- I will not pretend to be something that I'm not. I certainly won't do it to win the audience over.
+- I've competitively boxed. It's definitely Plan B for me, but I know how to box.
+- For me, I prefer to be the heel.
+- I love the U.S.A.
+- There's a camaraderie that comes with this sport, but fighting Anderson Silva is a lot like eating Chinese food: twenty minutes after I do it, I'm going to want to do it again.
+- Brian Stann is a great guy. I voted him in for the President of the United States in 2008, and I will write him in again in 2012.
+- We start to decline as humans and, particularly, as athletes right around 25 years old. If you're real lucky, you might push that to 27 or 28.
+- Jealousy is a hell of a thing. There's a reason it's one of the deadly sins.
+- When I was young, they used to call me 'foreman,' not because I was in charge, but because I did the work of four men.
+- When I was a kid, I was a big fan of the regional scene. I read 'Pro Wrestling Illustrated,' and I watched Portland Wrestling and everything I could.
+- I want to make the UFC money.
+- I've got two 10-8 rounds against Anderson Silva. That's just the truth. I have no equal at middleweight.
+- I'm a Republican.
+- As a fighter, that's not something that ever factors in, whether you go first or last or you walk out first or you walk out second. It's not something that ever factors in or you feel slighted about. I don't think that anybody would care. The job is the same.
+- My dad was a plumber. That's hard work. He never missed a day of work. I will never disrespect him by not showing up for an athletic competition that has a maximum duration of 25 minutes. There should be forfeiture if you have to pull out of a fight. If you don't show up, it should be a loss on your record.
+- Jose Aldo, this guy's a chicken. I can't even tell you how good Jose Aldo is, but he doesn't think it.
+- Accosting somebody in public can be regrettable. Accosting a gangster can be hazardous.
+- I never receive backlash for my comments. I receive praise.
+- When you go, 'Listen, I didn't know. I didn't know the rules.' That works. That's a good, solid defense. One time.
+- I'm candy-coated poison, and you should not believe anything else.
+- Every time you win, you get another fight. Every time you get a fight, you get promotion, marketing, and media. Those things are what makes stars.
+- I don't think I've ever had a better experience in the sport than coaching 'The Ultimate Fighter.' I got to do it twice, but I got to really build relationships there that will last forever.
+- All our careers end the same: Face down and embarrassed.
+- I'm OK with being booed.
+- Every fight day, I just stay in my room the entire day, and I just stay in bed. I sleep as late as I can, which usually isn't very late; I'm kind of an early riser. But I try to just stay there in bed. I don't usually eat the day of the fight. I don't eat until after the fight.
+- The only thing more embellished than Floyd Mayweather's pay-per-view buys is Floyd Mayweather's net worth. But his spending habits are real.
+- I'm a huge supporter of Trump.
+- I was in Las Vegas when the Nogueira brothers first touched down in America. There was a bus - this is a true story. There was a bus that pulled up to a red light, and Little Nog tried to feed it a carrot while Big Nog was petting it. He thought it was a horse. This really happened.
+- Very normal trajectory of a fighter's career - you start out fighting at the YMCA. You move on to the dog park. You get into a coliseum. On your way out, you go back to the YMCA, and then you finish up at the dog park.
+- When Georges St-Pierre retired and Jon Jones was absent, I had Jose Aldo, the No. 1 pound-for-pound fighter in the world. That's how highly I think of him.
+- I will never hope to walk into a room and be cheered.
+- I think I can beat any man.
+- Nobody breaks in a fight and comes back in the same fight. Once you break, you're done for the night. You've gotta go back. You've gotta shower up. You've gotta fly home. You've got to reassess, take three or four months, and try it again. But that Anderson Silva breaks in that fight, and still finds a way to win, is remarkable.
+- If you call a Brazilian out publicly, you're going to be fighting that Brazilian. That's in their culture.
+- Guys always get jealous or envious of an opportunity, but they never wanna walk out to the mound and point to the crowd and tell them where they're going to hit the ball. I will. I'll call my shots.
+- I'm not going to sidestep anybody, I'm not going to back down from anybody at any weight, and most importantly, I'm not going to pick on a guy who is weaker.
+- Werdum's open to being knocked out in any fight because he's so reckless, but that's also what makes him so damn dynamic.
+- Because of both hipster culture and Facebook culture, the human race is starting to resemble a school of hairy piranhas.
+- I would never discredit the sport or my opponent by reading my injury list before or after the fight. I've always thought it's a very underhanded thing to do, and it's a very cowardly thing to do, to come out and say, 'I'm hurt,' particularly if you win a fight.
+- What you don't want is for somebody to not care. Whenever they have no feeling at all, that's bad. Even if they kind of like you or they kind of don't, that's also bad. It's got to be a strong emotion one way or the other.
+- All sin and all crime comes from the same thing: 'I decided. I decided this was okay.'
+- I'm better than Jon Jones. I'm better than Sean Combs. I am even better than John Holmes.
+- The greatest form of expression - or, at least, the most common that we have as human beings, what separates us from the animals - is speaking: the ability to communicate.
+- Georges St-Pierre is the greatest fighter to have ever done it.
+- I go to a wrestling match, and I love it. But at a wrestling match, on every level - that includes Division I - you go into an empty and cold gym, you roll out a mat, and you set 10 chairs up on each side. That's a dual meet, and it's very hard to act like it's a big event.
+- Sports are something that, for the most part, are for kids, and if you're able to extend your career, you're very lucky.
+- Brock Lesnar made a career out of refusing to do media and not being accessible.
+- Fans don't even know what they want at times.
+- Ronda's a very basic and straightforward fighter. However, she's a masterful competitor.
+- I like Bryan Caraway a lot; I used to train with him. I consider him a friend.
+- When I'm a fan, I show up to boo. I don't show up to cheer; I show up to heckle.
+- I didn't get to go to school functions growing up. I didn't get to go to dances. I was never invited to a party ever. Until I got to college and threw a party, I had never even been to one.
+- Whenever you can evoke a strong emotion and want somebody to tune in, whether it's to see you win or get beat up - and I've been on both sides of that - it's a win.
+- I'm not going to be one of the guys who hangs around if he doesn't have a road to the title.
+- I'm competitive.
+- I had dreams in 2000 of being an Olympian for boxing. I never talk about it.
+- It doesn't matter if I'm a rival of Anderson Silva's or not; I'm also very objective. And I'm not going to take something from a guy that he earned. Anderson Silva earned the right to be called the greatest of all time. And those are just the facts.
+- I don't want to be an also-ran.
+- The soreness you feel after a fight or after a good battle, it's the best feeling in the world. You might sit and complain about it, but you feel so accomplished.
+- Every time you have a huge fight in wrestling, in boxing, in MMA, both guys are sure they're going to win. They really believe it.
+- A double leg in MMA is completely different than what you would do in wrestling because the posture's different. You're standing upright as opposed to bent over; you're slipping a punch as a opposed to grabbing a guy's elbow and doing a traditional elbow pull or slide-by in wrestling.
+- I don't walk around looking into cameras and telling people I'm the best fighter in the world just to hear myself talk. I say it for the same reason they put warnings on packages of cigarettes, and fighting Chael Sonnen may be hazardous to one's health.
+- I see a lot of people try to come out and copy me, duplicate me, and give it the old college try, but at the end of the day, there's only one Chael Sonnen.
+- I was never a bully; I would take on everybody at any time. Whether that was the No. 1 guy in the world or whether that was the No. 100 guy in the world, it didn't make any bit of difference. If somebody wanted to fight, I would show up and fight.
+- You can never have the comeback if you don't have the retirement.
+- If your body produces testosterone naturally, fine. Mine doesn't.
+- I'm a God-fearing man, go to church every Sunday, and have since I was a boy. But if I ever found out that God cared one way or another about a borderline illegal fist-fight on Saturday night, I would be so greatly disappointed that it would make rethink my entire belief system.
+- Nobody wants to fight Brian Stann. I'm not the only guy, and that's not a big secret.
+- I'm not after the money or the fame. I'm after the world championship, and that's it.
+- I've had a lot of fights, and they haven't all gone my way.
+- I listen to these pundits all the time breaking down Trump - 'He's brash, and he's bold, and he's successful' - and none of those are what it is. There's one word to sum it up, and it's courage. He has courage.
+- There was years when my father didn't even make a hundred grand - or barely made a hundred grand - and sure, we had a maid, but she only came twice a week. What do you think happened the other five days? You think those dishes washed themselves? You think those clothes got themselves in the hamper?
+- I'm a wrestler, so I'm used to not being paid, and I'm used to doing five or six competitions a day and paying someone else to allow me into the event.
+- There are rules that say 'If a fighter gets old, when a fighter slows down, when a fighter stops looking the same, then he can never come back.' I don't like that.
+- I'm a tournament guy; that's what I grew up doing.
+- I thought if you tapped out, you lost the round. Come to find out, you actually lose the fight.
+- All medicine is made to make you better. If it did the opposite, it would be malpractice.
+- I have never asked the crowd for their approval, and I will never start.
+- I'm a Catholic, and not because I just happened to wake up as a Catholic. I'm not going to be persuaded on any topic, especially not that.
+- Triangle chokes are the refuge for cowards. I would never stoop to that level of locking my legs around a man and squeezing.
+- The UFC does not owe me a thing. Nothing. I am in debt to them.
+- The fight takes 15 minutes. The build-up takes 90 days. It takes that for a reason.
+- My ideal fight would be against the smallest guy with the most atrocious record in the largest venue for the most insane paycheck. I love easy fights.
+- I don't really know what 'respect' means. That sounds like something a kid in the street says after he's getting ready to take your coat and your shoes.
+- Jon Jones' skill set is unique. Jon Jones goes out there and does video game moves that the announcers can't even call because they've never seen them before.
+- Fighting is an expression. It's a form of speech, and that's why they call it martial arts. It's an art.
+- As fighters, the stark reality is, there's times in that cage when we want out. There's times when we've had enough and we want out, and we're able to recognize defeat.
+- Wrestlers tend to do good in MMA because they tend to be just some tough guys. It's not a karate situation where they grew up their whole life punching the air; in a wrestling situation, you grab a hold of another human being every day.
+- I wouldn't poke fun at someone if they were weak. I wouldn't bully somebody.
+- People bring it up to me: 'Well, you're only in your spot because you can talk well.' Okay, first off, you could be right. But second, what - am I supposed to apologize for this? No.
+- One element of wrestling that I know what I grew up with we put a lot of emphasis towards was the takedown. But, you could win an Olympic championship and never score a takedown, and I don't know if MMA fans are even aware of that.
+- I love going to the ring hurt or sick or tired and trying to figure out how to win anyway.
+- Lance Armstrong did a number of things, and he gave himself cancer.
+- I train every day but Christmas. I'm not the guy who gets a contract signed and then trains for a fight. I'm at practice every single day, whether I've got a match or not.
+- The kind of wrestler that's going to do well in a combat style event like MMA is one that can explode through - doesn't need to spend time on the mat - hit his opponent, get him off his feet, and get on top quickly.
+- I've been in a position where I've been barely doing any damage, and the ref stopped it. It's just sport.

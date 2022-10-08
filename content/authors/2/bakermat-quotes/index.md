@@ -1,0 +1,16 @@
++++
+author = "Bakermat"
+title = "Bakermat Quotes"
+quotes_len = "10"
+description = "the best 10 Bakermat Quotes"
++++
+- I did psychology at university, but I wouldn't say that my music is too influenced by it. The way I make music is a little more to do with an emotional connection. When I compose the melodies for my tracks, it always comes from the heart.
+- If someone wants to make very, very original music that no one has ever heard before, you shouldn't know anything about music. It just narrows you down, you know?
+- I started my whole career on Soundcloud and YouTube and was always looking for recourses to make music.
+- The first record I heard as a kid? My dad is a great soul and blues fan, so he showed me James Brown. That was my first stuff, and I loved it.
+- To play vinyl onstage is not my thing. For me, vinyl is for home listening.
+- My mom was an opera singer. She did all the classical music, and I heard it. I know every opera. I know every classical piece of music.
+- I think every Dutch person has a connection with dance music.
+- I personally love electronic music specifically because it has the rhythm, the kick, the thump - it has energy.
+- I don't really have a favorite genre. I could listen to a rock song, a metal song, jazz, pop music, whatever. For me, whatever style it is, it always depends on the chord progression, the lyrics, and the melody used.
+- Touring is not easy, as you always have a certain yearning for home no matter how beautiful the location you are in, but I have pushed myself to the limits and am certainly more aware of myself as a result.

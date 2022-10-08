@@ -1,0 +1,22 @@
++++
+author = "Cory Michael Smith"
+title = "Cory Michael Smith Quotes"
+quotes_len = "16"
+description = "the best 16 Cory Michael Smith Quotes"
++++
+- I like very confused people. The more confused, the more fun for me.
+- You work on a play or movie, you have the whole script, so you're constructing a performance based on the bible that you have. In TV, you don't, so to actually invest in that and let that be the exciting part is terrifying and certainly leaves room for mistakes, looking back.
+- I went through a lot of occupations. I was questioning my contribution to the world.
+- I take things a little too seriously sometimes.
+- I wasn't planning on doing musicals, but that's how I started.
+- I am not interested in entertaining people. I think being an actor provides an opportunity to give people an experience they can connect to, reflect on, learn from, laugh at.
+- In theater, you're allowed to take your time and sit in a role for a month before you have to share it with anybody. In film and TV, you have to just kind of show up and be ready to do that, which, to me, is very strange and crazy.
+- 'Forensic Files' is amazing! I love it! There were marathons happening all the time in college. That show, because it's always on at night, was always better than any scary movie I could put on, because it was 'real.'
+- 'Olive Kitteridge' is the only thing that I've done on camera where we had a day of rehearsal before we shot, and I'm so glad that that happened, because I was so nervous.
+- You see a comic, and you're like, 'Oh wow: the Riddler has been drawn this way, and he's been drawn that way.' There are tons of looks, and his personality changes based on who's writing them.
+- I'm a pianist - I studied jazz piano in college.
+- I grew up in a suburb of Columbus, Ohio, in the early '90s, and hospitals and doctor's offices offered to x-ray candy. I was 7 or 8. The day after Halloween, my brother and I were sorting all of our candy, and my mom asked if she could have a piece of my gum. She put the gum in her mouth, bit down, and there was a shard of metal in it!
+- I collect pictures of adorable puppies on my phone. I have little room for anything else.
+- I just love dialects; they're really fun.
+- When I was auditioning for 'Gotham,' I got a handful of comics from different decades, so I had a perspective - it's been around for 75 years, which is a long time.
+- One of the coolest ways to start building a character is the way he moves his mouth, what part of the mouth he puts his words into, how he expresses himself, and there's a certain flavor you get with a dialect.

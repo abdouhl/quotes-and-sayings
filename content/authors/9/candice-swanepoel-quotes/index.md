@@ -1,0 +1,37 @@
++++
+author = "Candice Swanepoel"
+title = "Candice Swanepoel Quotes"
+quotes_len = "31"
+description = "the best 31 Candice Swanepoel Quotes"
++++
+- I'm crazy about jewelry; swimwear and jewelry.
+- It's been amazing how this crazy career has been created. I feel that it's been given to me. I wouldn't be anywhere without Victoria's Secret.
+- I was a ballet dancer growing up and that's what I was convinced I would be.
+- Whenever you feel down, you can check on Twitter and feel better about yourself, because it's only people who like you.
+- I'm usually bikini-ready all year round.
+- Your body is a machine. Learn the right way to take care of it.
+- I try to train as much as I can, as much as my schedule allows it.
+- The best V-Day gift I've ever received was a personalized photo collage.
+- Victoria's Secret is like a big family.
+- If I'm on holiday, I'm active on the beach, I play tennis, I run, I swim a lot. It's just about making the workouts fun, I think, and then it doesn't really feel that bad.
+- I'd love to be a pop star - at heart.
+- I want to live my life naked, with all my little naked kids naked in the garden.
+- I grew up on a dairy and beef farm.
+- I have always been very comfortable in little clothing; its part of my job.
+- Women are complicated. We all know that.
+- A relationship is like another job, you know, you have to work at it all the time.
+- I get skinnier if I'm very busy.
+- At school, I got teased because I was so thin and awkward-looking.
+- Brazil, I'm totally obsessed. I've been going since I was 17, and the first time I went, I fell in love with it.
+- I am healthy and happy.
+- I was always interested in fashion and beauty. I was fifteen when I was scouted in a flea market. Two years later, I arrived in New York. I was in awe because it was like another planet.
+- Being confident in your own skin is very sexy. I think when you have fun and are yourself that is sexy too.
+- I grew up in a farm in South Africa and I was scouted there and they sent me to Europe. It's kind of been blessed, since then it happened all so fast.
+- At school I got teased because I was so thin and awkward-looking. But the girls on TV looked similar to me. I would say to my mum, 'The girls at school are teasing me, but I look like those girls on TV.'
+- I'd like to one day be featured on a list of inspirational people who have made a difference in the world, whether it be helping underprivileged people or putting an end to the poaching of wildlife in Africa.
+- My ideal Valentine's Day is spending it with someone you are in love with and for that someone to make you feel loved and appreciated.
+- I feel if I'm healthy and happy, I look good. With a good mixture of fitness and healthy food I always feel great!
+- Most women find a man with good manners sexy.
+- I was very skinny, braces; so I never thought I would be a model.
+- No one knows anything about the fashion industry in Brazil. They don't care what you do. They just want the beach and the sun and the fun. I feel the freest and the happiest there.
+- I like a man who looks like a bad boy but knows how to treat a woman like a queen.

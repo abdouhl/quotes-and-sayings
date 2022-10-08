@@ -1,0 +1,90 @@
++++
+author = "Cam'Ron"
+title = "Cam'Ron Quotes"
+quotes_len = "84"
+description = "the best 84 Cam'Ron Quotes"
++++
+- You know what's dope about social media, the Internet, and stuff in general? It's that you never really realized before how much love you get, and now you can see people around the country wearing your stuff or wearing your face.
+- When you constantly working, working, you don't really get to appreciate the fans and people loving your stuff.
+- Jay Z and Nas is probably my favorite rap beef because Nas was kinda quiet for a while.
+- I'm happy to see somebody from the urban community that could go out and make a half-a-billion dollars.
+- They treat my stuff like wine. It just gets better with time.
+- There was a time when only athletes had sneakers. Entertainers having sneakers, on any level, is a blessing.
+- There is nothing that will be bigger than a Michael Jordan tribute.
+- No record company in the world would say, 'We're not promoting if you keep calling somebody a snitch.' They know what makes money. A record company would never be that stupid. Ever.
+- People are foolish if they think I'm going to lose my head and give up anything to anyone just because someone threatens me.
+- I listen to 'Purple Haze' a lot. If I'm in the gym, I listen to that album the whole way through sometimes.
+- If somebody says or does something to me first, then I'll respond, and I go overboard with it, and it seems like I'm the one that has beef with somebody.
+- I'm Mr. Romance.
+- When we did Diplomats music, it was all genuine, and I think that's why people love it so much, because they seen a group of kids from Harlem that had almost nothing come up to be platinum-selling artists, and people rode that wave with us.
+- Just growing up in Harlem, it didn't matter what you had to do to get fresh - you would do it.
+- Go to school and get your education and follow your dreams.
+- To be honest, sometimes I get in my shell, and I don't want to do stuff, and sometimes I'm real active.
+- I just do hip-hop because I love to do it.
+- I think I'm the best at everything that I do. I may be biased because it's me. But if you ask me that, that's what I'm going to tell you.
+- It just feels good when I give people sneakers.
+- I wanted to stand out and look different. It wasn't nothing that was done purposely, or I was going to be the guy who wears pink forever. It was something for me to stand out.
+- I'm a caterer, interior decorator - a lot of hobbies people don't know I do.
+- Basically, I want to prove to everybody that I can write music - good music.
+- If you just freestyle, everybody is gonna go, 'Freestyle.'
+- To be honest, the real money is in merchandising and performances.
+- There's nothing really to talk about with the police. I mean, for what?
+- I've never really dissed Ma$e - I just tell you the truth, and if you think he's a sucker for that, it ain't my fault.
+- Where I come from, once word gets out that you've cooperated with the police, that only makes you a bigger target of criminal violence. That is a dark reality in so many neighborhoods like mine across America. I'm not saying its right, but it's reality.
+- I'm from the building where the wave was invented. Downstairs, under me. Ask Bigavel. Y'all call him Bigavel, Max B. I know him as Charlie Rambo. I'm from the building where the wave was invented, and it was invented after I was born.
+- You got people that come in, one album, two albums, and they're gone. A lot of people couldn't take the break I took and come back into the game, and people be checking for them.
+- I stay dapper.
+- If you rocking Steve Madden, we won't go anywhere.
+- What people have to realize is this: You have rappers who are popular or whatever for the time being, but that don't mean you necessarily want to dress like them. You may have a guy who sells five million records; do you want to dress like him? When you see me, you think you may want to dress like that guy because that guy is fly.
+- I'm looking into making toilet paper. It's not an option unless you a bum and gotta use newspaper. It's not an option. Like, it's an option if you wanna drive a car. It's an option if you wanna use a straw. It's an option if you wanna wear a pair of Nikes or Reeboks.
+- Me, I don't really have time to do nothing with Mase.
+- Everything is a catwalk for me. I walk to the store, and that's a catwalk.
+- I loved Muggsy Bogues when he was in the league.
+- They didn't know what to do with rap music. You walk into Epic, and they're wearing straight-leg khakis with creases, Prada shoes with tassels. They couldn't comprehend where I was coming from.
+- I went to Manhattan Center High School.
+- When I do a song, it is more or less for the radio because I've got to do it - that's what I have got to do to win - I always go home and write two street songs.
+- I'm a fashion icon.
+- I won't just give up anything to anybody because they're waving a gun around.
+- To me, any publicity is good publicity.
+- You always gotta take advantage when you can spend time with your kids.
+- The movies that I've done in the past, everybody's been like, 'Cam always gets away in a movie playing Cam.' So, like, I'm trying to step outside the box a little bit just to show my range in acting.
+- When I first started wearing pink, it wasn't nothing I planned on doing or strategized. But people showed me so much love for the pink mink I wore, I had to go out to Pantone and create my own color, which is called Killa Pink.
+- I love having my son in my life. That's why it's more fathers in the hip-hop community, because they probably went through a fatherless childhood like I did.
+- All-Star Weekend always treats me great. I love the atmosphere that comes with it.
+- I roll with the punches.
+- You can get away with black sweatpants for a day or two, but pink is something you wear for one day: the day before you go to the washer or cleaners. When people wear pink t-shirts for three straight days, it disturbs me. It aggravates me.
+- I just think that rap takes way more slack than the video games and the movies. We don't make guns. Smith and Wesson makes guns. Like, white people make guns and bullets, and all we're doing is rhyming and putting words together.
+- That's what I love about the Internet - instead of having to wait on radio to play your song or TV to play your video, I can use the Internet as a tool to get my music out earlier.
+- I work with any producer that brings me a hot beat, but you don't always know if it's a sample.
+- Certain songs bring me back to certain places I've been in my life. So definitely, I listen to my stuff.
+- If you don't stay up with technology, you're gonna fall out of the loop and not make any money.
+- I'm just a Harlem dude that can rap, and people dig my style and persona.
+- Seeing Jay Z's just a great example of somebody who comes from a ghetto to rise to where he's at. I think... he done a great job.
+- I'm the gorgeous gangster.
+- I've never started beef with anybody that didn't start with me first.
+- I didn't want to be a rapper full time. You know, Big L kinda - God bless the dead - influenced me to do that.
+- You want to stay grounded, but you need to keep the music growing.
+- It's hard to find good business partners and people who do good business the right way.
+- I won't talk to the D.C. police.
+- I always grow, every album.
+- It doesn't matter where I'm at - if I'm somewhere sitting still for more than an hour, rhymes start popping in my head... It's just kinda instilled in me.
+- I don't care if I am doing music: my son comes with me every weekend. If I'm on the West Coast, he'll come fly and be with me. If I'm on the East Coast, I get my son every weekend. It doesn't matter where I'm at - show, no show, whatever. Break or no break. I have my son every summer and every weekend while he's in school.
+- When I was young, I wanted to be like the rappers. I remember being in junior high and wanting a fisherman hat and a link because EPMD had one. I wanted to wear Adidas because Run-DMC wore Adidas. As I came into my own, I just wanted to do me.
+- The thing is, with me, my life is a catwalk.
+- I never dissed Mase.
+- When I did pink, I did it so I wouldn't be dressing like everybody else.
+- You can't be going through life expecting everything. You gotta have discipline.
+- I'm not gonna sit back and listen to somebody who listens to 3LW all day.
+- With music, you've got to find ways to get paid again, 'cause all the cool kids in junior high school and high school, they think you're wack if you pay for music.
+- I wear pink whether the public sees it or not. Whether I had a sneaker or not, I'd still be wearing pink.
+- I grew up in New York City: Harlem, New York. I played ball for probably two of the biggest amateur basketball organizations in the city.
+- I don't mess with Mase no more, because me, personally, I just go by a different standard than people.
+- Dipset is Dipset, but it's over.
+- Me and 50 had a conversation. We good.
+- You like me, or you hate me. There's really no in between.
+- I sell bikinis. I sell comforters. I sell Cam'ron pillows. I sell a bunch of things off my likeness, and it all came from music, so it's definitely a blessing.
+- Maybe I beef with people, but it was never random. Anybody you name, I could give you the reason why it happened or whatever led to the beef.
+- Music is always gonna change; it's just a matter of keeping up with the times.
+- You gonna ask me who I compare myself to? Nobody. I don't think nobody can really mess with me as far as flyness or anything that I'm doing.
+- It takes more than a botched carjacking to keep me down.
+- They've got a great tool in the Internet. If you've really got a good movement, you can see who likes you.

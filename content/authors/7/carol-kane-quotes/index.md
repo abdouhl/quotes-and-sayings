@@ -1,0 +1,82 @@
++++
+author = "Carol Kane"
+title = "Carol Kane Quotes"
+quotes_len = "76"
+description = "the best 76 Carol Kane Quotes"
++++
+- In high school, I did the 'The Tempest' at Lincoln Center for Joe Papp.
+- You can fake a lot of stuff, but you can't fake if the story isn't there and if the writing isn't good.
+- It's very hard to remain a student in life.
+- I don't feel that I have any great grasp of technique that I should pass along to people.
+- All of my films have changed my life. I've met so many people and broadened my world view.
+- 'Hester Street' was an incredible opportunity for me. That script was such an incredible script.
+- When you're doing a legitimate play, if you have a company of 12, it's considered a big cast.
+- There are directors who don't cast you for the way you act but for the way you are, the way you behave around the dinner table.
+- I think it's nourishing to do both comedy and drama.
+- Life is very cyclical. And my career has been very-high-very-low, very-high-very-low, and I think it'll probably keep on rolling that way.
+- I don't regret what I've done but some of the things I didn't do.
+- I know that I'm in the minority to be able to keep working all these years. But I want more!
+- I'm one of those people that if I go to a party, I can't remember my mother's name because I'm so nervous in a social situation.
+- For me, the most important thing is the writing - and certainly the director. But if the writing isn't there, it doesn't matter who the director is!
+- I guess I'm lucky in that I started working very young in all three of the mediums. I started in stage first, and then I moved into film, also very young, and when I did 'Taxi,' for instance, it was live in front of an audience but also filmed; that was a fun combination.
+- I don't like to discuss my work in a lot of detail; I'm afraid of dissecting it in a way that is not good for me.
+- I try to construct some kind of backstory for my character so that I have an idea of the life of that character - not just from the moment when the scene starts, but from before.
+- And my first film was Carnal Knowledge, another amazing experience, largely because of Mike Nichols, who would tell me you can't do anything wrong because you're doing everything right.
+- The Oscar nomination made me a recognizable name to other actors and people in general.
+- I didn't decide to be a character actress.
+- New York, to me, even though I grew up here, there's something magical about it. I remember, every time I used to go to L.A. for work, when I'd come back and get off the plane and be driving towards the landscape of the city, I'd be beside myself with joy. It doesn't matter how many times!
+- It's like life: you have both comedy and drama. There's a balance, and I'm lucky enough to have it in my work.
+- If they give you good words to say, and you don't get in the way of them, you'll be OK.
+- My preference is for really good writing, and I just really don't care where it is.
+- While filming 'Annie Hall,' I never really hung out with Woody Allen.
+- That's when the great stuff happens, when you're not checking yourself all the time, being critical of yourself and what other people are doing.
+- I've been lucky in my career. I've worked with some of the greatest filmmakers and actors around. I'm so proud of some of my work.
+- I don't think, 'Oh, you know, I'm crazy and zany.'
+- I always wanted to be a good actress and a serious actress. I wasn't in the profession to, quote-unquote, meet the stars.
+- This profession has no rhythm to it - you're either busy enough to fall down, or nothing's happening!
+- I just love the black and white movies.
+- It's hard to regulate the speed at which you can achieve something creative and emotional.
+- I happen to think I look best in black.
+- I am a very simple cook, I just do the minimum amount. I'm mostly a vegetarian, so I just steam a lot of vegetables.
+- I only eat things that you don't have to kill.
+- People who are interested in the arts and theater are such a minority.
+- It's totally mystifying to me how anyone could have canceled 'Taxi.' I don't understand it because that stuff is rare.
+- Sometimes every single element of a character is a torturous discovery.
+- My first movie was with Mike Nichols.
+- If I had not made strategic choices, I would have had far more access to dramatic roles. But the one thing I don't regret, even about bad choices, is that there's always something you can get out of it.
+- I have fun at work.
+- I was this extremely dramatic actress. And then, suddenly, I was doing comedy.
+- I think most actors are very impressionable, and that's part of what we do is soak up other's behavior.
+- If I had the science and math capabilities, I would have liked to be a vet, but I don't! I don't have those capabilities.
+- There is no restaurant anywhere in the world where I have been that I haven't been able to find something to eat.
+- A goal of mine is to try and be as real as possible. To try and not comment on the work I'm doing but just do it.
+- I didn't know I wanted to go into entertainment, but I knew I wanted to be on stage when I was about seven. I saw a play, like most kids do, at a children's theater in Cleveland, and I just saw them up there, and I thought, 'that's where I want to be.'
+- I make my relationships at work.
+- I don't like somebody saying to me in their performance, 'Look at this. Isn't this funny?' I pray that I don't do that. I'm sure I fall off the horse every once in a while, but I try not to.
+- I don't like to objectify the people I play. I always try to go for the truth in any part.
+- In my job, I worry a lot and try and stay calm and open. It sometimes works.
+- I know I'll work, but not when or where. I never know what to pack.
+- For very few people is there a time when you, quote unquote, make it.
+- I don't like that I'm my own commodity, that I am what I sell.
+- I started acting young, and I was a dramatic actress.
+- Acting is pretty much my whole life.
+- All of our ancestors came from somewhere.
+- As I get older, I start to look back at the field that I've crossed and realize that it was a mine field.
+- There's nothing obvious or predictable in acting. That's what it means to be in this profession.
+- The thing about the four-camera shows is that it's kind of a great combo of theater and film. You have an audience, but you have a camera to capture things, so that's a great thing, too.
+- In my experience, each project is what it is, and nothing is necessarily a turning point.
+- My face is my career.
+- When I had my dogs, I used to spend a lot of time in Central Park, which is a great place to be alone among a lot of people.
+- I think therapy can be very revealing and useful for actors. You start to dig deep and understand certain mechanisms that you hadn't been aware of before and, you know, meanings behind things.
+- This is a grueling profession. Either you can't get work, or you can't get certain kinds of parts, or you get a part, and it kills you because it's not good enough, or you get successful and feel guilty about it.
+- 'Hester Street' was my most complete character study, but 'Annie Hall' and 'The Last Detail' were also great.
+- I took parts that either I was offered or felt I could do a good job with.
+- 'Taxi' made a big difference because it got me into comedy.
+- You just can't make bad writing look good. But if you have good writing, you just say it, and it's almost done.
+- Work is the most nourishing thing so far in my life.
+- I want to be Geraldine Page; I want to be one of the greats.
+- I like the full spectrum of roles.
+- I was taught by a lot of great comedy writers to go for the reality in a role, and the comedy will come through.
+- An actor really suffers when the director isn't prepared because you start running out of time for the shoot and then have to do it fast.
+- Buses and subways are this remarkable social club. You talk to people you wouldn't normally talk to.
+- I don't put together cars, I put together people.

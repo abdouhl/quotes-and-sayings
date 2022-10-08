@@ -1,0 +1,106 @@
++++
+author = "Francois Nars"
+title = "Francois Nars Quotes"
+quotes_len = "100"
+description = "the best 100 Francois Nars Quotes"
++++
+- I would find myself in these photo shoots with models and makeup, and I got swept up in it all.
+- We love those under-eye circles. It's real life.
+- A fresh face with a red lip is timeless. It's supermodern and relaxed but very chic.
+- The '80s and '90s were the greatest time to be a makeup artist.
+- I launched NARS with 12 shades of lipsticks, and many, many launches later, I'm still most proud of our lipsticks.
+- It's very hard for me to photograph someone when I'm not attracted by who they are.
+- I love the architecture magazines and all of the French magazines for decoration or whatever. I end up enjoying them more sometimes than the fashion magazines.
+- You are born with this love; fashion and beauty are a part of who I am.
+- Makeup can make a woman look more beautiful at every age.
+- There is a tendency to feature more actresses on covers, but I'm a big model lover. I grew up watching these models, and they gave me the wish, the need, to work in the fashion industry. I loved watching them - their beauty, the way they worked in front of the camera and that power of transformation, especially in the Seventies.
+- It's very refreshing to go away and take a break, to clear your head, and just get into something else.
+- Transparency is more sexy than a full, pancake finish.
+- Sometimes people are very not sure of themselves, so you really have to give them that confidence. Even models - they need to warm up sometimes on photo shoots.
+- My mother never wore much make-up, and she was a kind of natural beauty; she knew just how to enhance what she had.
+- I was spoiled growing up in the 1970s because magazines were publishing the photographs of Helmut Newton and Guy Bourdin without compromise. You really felt that sense of freedom through their images.
+- I'm always scared of trends. The runways are always so trend-oriented, but I always feel for the women. The real women that buy cosmetics want to see the trends, but they don't necessarily go for them. And I always encourage women to find what looks best on them.
+- I don't think there's a major change between runway and real life anymore.
+- It was the early Seventies, and I discovered makeup by going through my mother's fashion magazines. I fell in love with the photos, the models, the fashion.
+- I didn't want to create a makeup line for one ethnic group; it had to be multi-ethnic. To me, beauty is beauty. It doesn't matter to me what colour the skin is.
+- I never thought make-up was like brain surgery.
+- Having worked with so many of the geniuses, I'd learned so much. It's the best sort of photography school, to work with people like Penn or Avedon or Meisel.
+- My mother and my two grandmothers, I was lucky to have three women around me growing up that were very special, very elegant women, very beautiful women. They were my first step into the beauty world, let's say, and then the fashion world, of course.
+- It was never in my mind to be famous.
+- I think Edie Sedgwick comes back, too. Every five or six years, there is always something about Edie, because she was so modern and stylish and elegant and hippie-ish, all at the same time. So I think that people will always love her.
+- Being a studio make-up artist and working on magazines was the only thing I wanted to do.
+- Was I a businessman to start with? I'm not sure. I mean, that comes slowly, when you start having the products out. But at the same time, I was very determined. I knew that I had to make it work. I had no choice.
+- In America, when I first came here, they were used to wearing more make-up - thicker foundation, more Max Factor, that sort of thing. But you have to know who you are and what you look like: if you know yourself a little bit, you don't need to follow trends.
+- It's not that I'm easily shocked. It takes a lot to shock me. And wildness I like. But vulgarity shocks me.
+- My interpretation of the word 'ugly'... I like ugly beauty. That can happen. In France, we have phrase 'jolie laide.' We like certain women who are not pretty or cute - it's the opposite in France of pretty. It's more strange and interesting.
+- As a make-up artist, you always want to be in a good light, whether you're walking down the street or in a restaurant. It is a very key element to me; you can't apply good make-up in a bad light.
+- You create the color first, and then the name that fits. It depends - there are no rules. You watch a fabulous old movie, and you suddenly get inspired by it to create a lipstick shade, or you walk through a gorgeous garden and find the most beautiful flower shade for an eye shadow, and then you name it.
+- Sometimes I'm attracted to more odd girls with stronger faces and features or a softer beauty with a lot of character.
+- I think less is more when it comes to make-up; this really helps achieve a lighter complexion. Heavy make-up creates a canvas and can dull the skin.
+- I love the dramatic idea of having nothing on.
+- I fell in love with New York. I moved here 25 years ago in 1984 after I lived in Paris for six years. In the 1980s, it was the place to be. Here I was able to create NARS, which I would not have been able to create if I stayed in France.
+- I remember this time I worked with Linda Evangelista on a shoot for Richard Avedon. I just put grease on her face, and it was beautiful.
+- I loved working with Avedon.
+- In this world, you do your job, a good job, and that's what counts.
+- I thought make-up was a very sensual thing.
+- Wearing colourful eyeliner in a graphic shape is the epitome of make-up as an accessory.
+- I was a very lucky child because at the age of 16, 17 years old, my parents would buy me clothes from Yves Saint Laurent, which was an incredible luxury at the time, but I was attracted to that whole world. I had a pretty nice little wardrobe by the age of 17.
+- I like beauty to be a bit edgy, not typical. For me, the only rule is looking good.
+- I can't remember the first time, but I've worked with supermodels almost from day one.
+- In a lot of cases, makeup is a fantastic help, and that's why women love makeup in general. It's a fantastic way to help somebody look great. It's not the only way, of course, but it's a major accessory, along with hair, clothes, lighting, all those things.
+- Some people put a lot of fuss around them. I'm not an entertainer. Let's not get things confused.
+- Makeup is very important for a show. It's really an accessory on the runway. You have to be sure that it fits the clothes.
+- I'm very nostalgic - and I don't care.
+- Looking at flowers, simple things in life. I don't need to look at gold and a castle; sometimes its very simple things that are very beautiful. I am keeping my eyes fresh to find beauty in many places, and in gold, too, sometimes!
+- I think if you take good care of your skin, you can achieve better make-up.
+- I really wanted to have a different approach of beauty because when I came to America, they were still heavily, heavily plastic. The ads were so heavily retouched.
+- I made contours and all that, but in real life, you have to be very careful with that because you can go out in the street and look terrible. All those girls who show how to do contour, they do it quite well, but they're like makeup artists. They're in artificial light.
+- When you photograph someone, you have to make them feel good, and you know that they want to look good. It's the same relationship that you have when you apply makeup on somebody. We're almost like shrinks.
+- I love strong looks, so to me, no makeup is strong. As long as it makes a statement, that's what I like. The girls look very real, and I'm probably the only makeup artist who will say that I love a woman without makeup.
+- I love to collaborate with artists, like Guy Bourdin and Steven Klein, who don't have any boundaries.
+- I'm always looking to the lightweight superproduct that you apply and almost don't see. That's the ultimate, at least for me.
+- It's one thing to read about how makeup is applied. It's another thing altogether to watch it being put on.
+- From the start, I used a different kind of girl in Nars campaign images. My choice to use models of colour such as Alek Wek, Naomi Campbell and Karen Park Goude was absolutely a deliberate one. I felt that makeup was universal and should apply to everybody.
+- I like shocking, but I don't like to shock as an automatic process. Sometimes it happens, but it's not my main drive.
+- My mother hated foundation; she hated having a mask on her face - and she pushed me to build my own vision and concept of beauty for women.
+- I have always been attracted to faces that are different.
+- Go with what you're attracted to.
+- It's more fun to have a name rather than a number. I think this gives our products a personality. I get the names from literature, movies, opera, traveling, nature, poetry, sometimes even the street. I keep a small book that I write in. I wake up in the middle of the night and jot down a name for a lipstick or an eyeshadow.
+- Makeup is about balance. When the eye makes a statement, the lips should be quiet.
+- Makeup is an accessory to fashion. You buy a bag, you buy shoes, you put on eyeliner, you buy a lipstick, makeup compliments the clothes.
+- When I was a kid, I loved photography, and I loved makeup.
+- Find your own way, have an open spirit, and believe in your own beauty.
+- Even with - the best make-up in the world won't look good if you don't cleanse and exfoliate and have a good basic regime. This is why one of my goals has always been to create a skincare line.
+- We don't tell women how to look but give them the products and inspiration they need to feel and look beautiful.
+- I'll keep creating modern, deep, rich and adventurous colors and products that inspire creative expression every day.
+- I never stop thinking about names of products. It's a process that happens 24 hours a day.
+- Women are very unpredictable.
+- Kate Moss makes you dream. She has such a passion for art and the creative process.
+- Women are being more experimental with eye color.
+- I think it's important that you know every detail when you open a store, that you pay attention to everything.
+- A woman who hides behind a mask of makeup is still going to have to take it off at some point... and deal with reality.
+- I love so much the models from the '60s and the '70s. They were extremely professional, great models who knew how to work the camera so well and loved fashion and had a great sense of style.
+- I've always loved the way movie stars in the Forties looked when they were off set. Shot poolside or at their home, they always wore a matte red lipstick with practically no foundation - it was how they wore makeup in real life.
+- I photographed Alek Wek. She was amazing, and nobody knew about her then. It was a really strong photograph of her.
+- True icons are larger than life, unforgettable with an elegance that's mesmerizingly timeless.
+- I think there was a freedom in the 1920s and 1930s: a certain liberty and evolution of women.
+- It really has stayed practically the same. It wasn't like I used to do wild punk make-up: no, I always had the same vision.
+- I had no connections, and the fashion world was a closed elite. So my mother made appointments for herself with three top Parisian makeup artists and spoke highly about me... she was my first publicist!
+- People have to learn that everybody is the same. If you wake up in the morning, even if you're a movie star, you look like everybody else. The reality is that makeup is there to help. That's what it's for.
+- My goal was always to make the girl look real and look beautiful. It didn't matter how much makeup. Sometimes it was none at all.
+- My vision was to create makeup that was more transparent but with formulas that last. I follow my instincts - it's all very spontaneous!
+- Working on fashion shows, you work with the designer and try to read his brain - what was in the creative process, what images did he have in his head?
+- I hate knowing where people go to the bathroom. You follow them going to pee, to eat - I hate everything when it comes to reality shows!
+- Women don't want to feel like they're wearing makeup. I hope I was partly responsible for that.
+- I chose makeup over photography because there was something very sensual about makeup that I loved. But photography was always in the back of my mind. That was always something that I was very connected with: looking at magazines, enjoying photography, and then taking pictures myself when I was a kid.
+- I met Iman and Jerry Hall and all those girls in the late Seventies right when I started working at the fashion shows in Paris as an assistant.
+- I think everyone deserves to look better and to look good.
+- You can look glamorous even if you're a housewife, any job you have.
+- We are not afraid to be a bit different, to make shades that are bold.
+- There was a time when you would dream about, say, movie stars. Now, you virtually follow them into their bathroom when they're going to the loo.
+- I wanted to be a make up artist. I did it, and the road that I took was quite good.
+- I'm not an easily depressed person.
+- I always had a vision about beauty in general, so probably that's what really drove me into that direction of creating a makeup brand.
+- I'm not so interested in perfect, plastic beauty, and I think it translates in the girls I've shot over the years for Nars, from Guinevere to Iris to Mariacarla. I love those girls. I love the more interesting faces, with maybe a strange nose, not just the Texan blonde. By picking those girls, I think it's changed what I've seen in other campaigns.
+- Women have to find their own personality, their own style, and what suits them the best.
+- I've seen makeup destroy people and make them look bad if it's badly done.

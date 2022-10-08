@@ -1,0 +1,41 @@
++++
+author = "Lauren Bush"
+title = "Lauren Bush Quotes"
+quotes_len = "35"
+description = "the best 35 Lauren Bush Quotes"
++++
+- My first big job was an Abercrombie &Fitch campaign. But my mom wouldn't let me skip school for it, so I missed half of the shoot. When we got there, we realized Bruce Weber was the photographer; we knew we had made a mistake!
+- If I could wave a magic wand, I would love for all children around the world to have good, nutritious meals every day.
+- I simply believe that food is a human right.
+- Obviously, I've seen what the press has done to my cousins. I would never let that rule my life, but I'm not the kind of person to rebel or do things. I don't know. I don't let the potential for bad press dictate who I am, but I keep that in mind. How can you not?
+- The most important thing you can do when starting a business is surround yourself with smart people who know a lot more than you do in certain realms.
+- Any experience of a girl picking out her wedding dress is amazing, but I have to say it was really special to work with David's dad, to see him in action with his team.
+- I mean, I would never want to do anything to hurt my family, but then again I would never want to do anything to hurt myself. And I think they go hand in hand.
+- Being a social entrepreneur is a balancing act between growing and sustaining a business while also growing the company's ability to give back.
+- As an anthropology major, I wanted to understand the cultural significance of poverty - why it exists and why some countries can rise above it while others can't.
+- I think politicians do great things in the world, but I don't think they're the only ones who can. I don't like all the rhetoric and the finger pointing.
+- Maybe I've had a sheltered life and career, but I have so many role models to look up to. It's normal that I would strive to build my own career.
+- The business aspect and the social aspect of FEED go hand in hand. The more we can strengthen our business, the more we are able to give. And the more we can focus on giving back, the more customers will want to buy our products, thus strengthening our business.
+- It's not what my job is about. I'm not out to make a political statement. I want to stand for something, but more by example.
+- College was a wonderful time to really explore my interests. I ended up writing my senior thesis about gender inequality in the developing world.
+- I think age is neither an asset nor challenge; it all depends on how you present yourself. Age is sort of irrelevant.
+- There are many people I admire and seek advice from, but for the most part, I just follow my gut instead of trying to mimic someone else's leadership style.
+- I am a big believer that you can have a successful business and give back; it's just about the intention behind starting your business.
+- That was kind of scary. You got the sense as a little kid that you might be at risk now, and then you're like, 'Why are we at risk? It's because my grandfather is in charge of all of this.' You can't really realize the magnitude of a job like that when you are eight.
+- My belief is that people are innately good and innately do want to help their fellow man.
+- I certainly didn't grow up ever having to worry about where my next meal was coming from. The fact that so many people, even in our own country, worry about something so basic, it's something I really wanted to help to do something about.
+- True success for FEED would be the day we close our doors because world hunger is no more. Until that day, we measure our success through the number of products we are able to sell on our website and through stores, which translates into the number of meals we are able to donate.
+- What interests me is seeing a problem and doing something about it, not all of the stuff around it.
+- I did grow up in a household where the narrative was about public service and how are you going to effect change and help people. I'm so glad I grew up around that narrative, but I never had the calling to go out and shake hands and try to get elected.
+- In contemplating what to do with my life, I felt like I had two possible paths: one was to move to New York and work in a design house; the other was to move to Africa and deliver food aid. That's when the idea of the FEED bag came to me. It's for those who want to put their consumer dollars to good use.
+- There are new challenges every day when starting a business and growing a brand, but I'm fortunate to have an amazing team that is always willing to work hard and navigate through whatever obstacle comes our way.
+- I created FEED as a way to provide people with a tangible way to make an impact in the fight against hunger, with each purchase of a FEED product donating meals directly to children in need.
+- I'm a vegetarian and like to throw together easy, healthy meals like veggie tofu stir-fries or a quinoa or lentil pasta.
+- My weekday wake-up time is 7:30, but I love staying in bed longer.
+- I think most people realize that Barbara and Jenna are college kids, and to make such a big deal out of it is a bit ridiculous. At least now, the press has stopped.
+- David and I enjoy a relaxed meal around 8. We like to eat on the couch while we watch TV. Sometimes we channel-flip, but we also watch shows like 'House of Cards,' 'The Crown,' or 'Game of Thrones.'
+- To be successful, you don't have to have all this crazy start-up capital or a ton of knowledge. I think it's actually helpful sometimes to not know all the rules because that way it's easier to break them.
+- My friends and I are collecting prom dresses to give to girls who can't afford them for their proms.
+- I was eight when he left office. Like, he had an awesome house, you know, and my cousins and I had awesome trips to Camp David and Washington. It was just all like a good time for me.
+- It's so important to seek out mentors and knowledge from those who have come before you, and I don't think I would be where I am today, both professionally and personally, without each and every mentor who helped me along the way.
+- We don't need to cure hunger - we know how to solve hunger - it's food, it's nutrition, and it's really a question of access.

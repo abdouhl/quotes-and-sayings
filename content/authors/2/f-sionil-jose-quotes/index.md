@@ -1,0 +1,81 @@
++++
+author = "F. Sionil Jose"
+title = "F. Sionil Jose Quotes"
+quotes_len = "75"
+description = "the best 75 F. Sionil Jose Quotes"
++++
+- I am for poetry that is admired by peasant and aristocrat alike.
+- The Japanese bureaucracy is unique. It is also very powerful, although it is now the object of so much criticism. Many of Japan's brightest made it a pillar of strength and continuity.
+- I was born in an Ilokano village called Cabugawan. Most of the houses in it were roofed with thatch, pan-aw, a species of wild grass.
+- We are shallow because we have become enslaved by gross materialism, the glitter of gold and its equivalents, for which reason we think that only the material goods of this earth can satisfy us and we must therefore grab as much as can while we are able.
+- In a much larger sense, the problem of Sabah is directly influenced by the duplicity of imperial Britain. For whatever devious reason, the dismantling of the British empire created divisions and violence due to ethnic and religious differences.
+- I write entirely in English; Tagalog chauvinists chide me for this. I feel no guilt in doing so. But I am sad that I cannot write in my native Ilokano. History demanded this; if it isn't English I am using now, I would most probably be writing in Spanish like Rizal, or even German or Japanese.
+- November is auspicious in so many parts of the country: the rice harvest is already in, the weather starts to cool, and the festive glow which precedes Christmas has began to brighten the landscape.
+- We are shallow because we are 'mayabang,' ego driven, and do not have the humility to understand that we are only human, much too human to mistake knowledge for wisdom.
+- Poetry is emotion, passion, love, grief - everything that is human. It is not for zombies by zombies.
+- To fund major cultural efforts, we must not rely alone on government and foundation patronage; if the farmer can spend for beer, he can pay for good entertainment which he can understand, which he can identify with and which will fortify his spirit.
+- Poetry, fiction as novels or short stories - these are autonomous as created by their authors. They should stand on their own, like pieces of furniture that should be judged as to their usefulness, elegance.
+- The past could liberate or imprison - it creates a nation's character, provides the nourishment or the poison a people imbibe in their very marrow.
+- In the visual arts, particularly painting, I distrust all those abstractions, those artificial constructions. I have a very simple way of judging them: if I can do them, they are not art.
+- I regret that I have not written more, shouted louder, and acted out my beliefs.
+- In the '50s, I was traveling alone all over Mindanao, Basilan, all the way to Tawi-Tawi with just a camera and a notebook. I always stayed in the houses of Moros.
+- We are shallow because our media are so horribly shallow. Every morning, I peruse the papers, and there is so little to read in them. It is the same with radio - all that noise, that artifice.
+- Contemplation is a luxury of the middle class, the very rich.
+- The influence of teachers extends beyond the classroom, well into the future. It is they who shape and enrich the minds of the young, who touch their hearts and souls. It is they who shape a nation's future.
+- Ninoy Aquino was a friend; I knew his faults, which were outweighed by his virtues.
+- I envy those Hindus and Buddhists who have in their religion philosophy and ancestor worship which build in the believer a continuity with the past, and that most important ingredient in the building of a nation - memory.
+- I can't understand Urdu, Bahasa or Russian, but when the Pakistani Faiz, the Indonesian Rendra and the Russian Rosdentvensky declaim, I can feel the living throb of rhythm and music, the warmth and passion of their poetry, as do the hundreds, not a mere roomful, of poetry lovers in the audience.
+- My reading of philosophy and history is desultory; I know so much and yet so little.
+- We recognize the distinctness of Asian art when we turn to its traditional forms, recognize it as Japanese, Chinese and Indian, even Balinese or Thai.
+- Industrialization starts with the formation of capital - it does not matter how. It can be created by saving, by the state enforcing its will on the people, by the very rich themselves.
+- This is the harsh truth about us: not only do Filipinos ignore books, literature - we do not understand how important the arts are - not just to those of us who work at it, but to the nation as a whole.
+- When I wake up every morning, I thank God for the new day.
+- You should live in a manner that should enable you to devote time to writing and contemplation. As is often said, the writer is at work even when he is simply looking out the window.
+- Past middle age, some friends suggested that I should have my eyebags removed, the deepening creases on my face stretched. I often examined my face in the mirror, imagining how I'd look if I followed the suggestion. I decided to retain the old mug. I was too familiar and comfortable with it. And the final hindrance: the cost.
+- Like so many poor Ilokanos, my grandparents left their village, for it could no longer sustain them. The Ilocos is a narrow coastal plain where, so often, the mountain drops to the sea. Land hunger had always afflicted the Ilokanos and made them migratory.
+- I find it always pleasurable talking with young people, particularly those aspiring to be writers, out of nostalgia, and because I've always felt that we oldies can learn so much from them and draw from them inspiration in our flagging and rickety years.
+- Of course, we are all egoists. Egoism is so much a part of our humanity.
+- Language as a communication tool is the primary element from which literature is created. Even in pre-literate societies, it exists as songs, riddles, or epics that are chanted.
+- The literary depiction of life and its moral dilemmas compel us to use our conscience, to make those infallible distinctions between right and wrong.
+- You can't have integrity for breakfast, but try and keep it because it is perhaps the single most important word that defines not just writers but all human beings.
+- Class - or the economic status of individuals - is evident in all societies, some very well stratified by a rigid caste system determined by birth.
+- I said that if I were an industrialist or entrepreneur, I would invest in agriculture-based enterprises, for there is so much that can be done in manufacturing, in food preservation.
+- Always remember: the alleviation of poverty is never a political or economic issue - it is moral.
+- Cultural values are, in themselves, neutral as well as universal, and so much depends on how individuals or ethnic groups use them. Values are influenced by so many factors such as geography, climate, religion, the economy and technology.
+- What is needed in the theater, in fact for all our art forms, is a vibrant critical tradition.
+- Professional societies are sooner or later fractured by the ego of their leaders. Everyone wants to be president, chairman, CEO; no one wants to be a mere follower.
+- At 86, I can easily look back to the last eight decades. Though memory often fails me now, so many images of the past are still clearly polished, and I can yet recall not just an abiding sense of place, but the keen smells, the sensory responses to the events of that past.
+- You perhaps know me as a novelist. Literature is one of the arts - in fact, the noblest of the arts. That is not my opinion; it was first expressed by the ancients. As art, literature has many similarities with the other art forms.
+- My wife and I often visit Rosales and the Ilokos as a matter of habit or whim induced by nostalgia, homesickness - whatever draws pilgrims to worshipped sanctuaries. Or, perhaps, what compels moths to seek the votive flame.
+- Literature - Eastern and Western - abounds with stories, myths, legends about the search for youth, for eternal life.
+- It was in the sugar hacienda in Negros, Panay and in Central Luzon where I saw the injustices heaped upon the sugar workers, particularly the sacadas, or seasonal workers.
+- Colonialism subdues in many dulcet guises. It conquered under the pretext of spreading Christianity, civilization, law and order, to make the world safe for democracy.
+- Art, whatever form it takes, requires hard work, craftsmanship and creativity. As a writer, I know my grammar, cadence, the music of prose, and the art of the narrative.
+- A weak people and its equally debilitated leaders are bludgeoned by history. It maims them into the cripples that they are meant to be.
+- I do not want to be bored listening to music that is muffled and known only to the poet himself.
+- I was a senior high school student at the Far Eastern University when the war with Japan broke out in 1941.
+- For them who delay aging, who infuse decrepit bodies with youth and beauty - they must rejoice in the fullness of their deeds.
+- As artists, we must not go down to the level of the masa; we should bring them up, intellectualize our languages, create classics out of our folk arts. We can do this if we are true to our roots and strive for excellence.
+- Japan is very cosmopolitan - it values its origins, but a world view hovers above this narrow perspective. The interest of the Japanese in their folk culture is transcendental.
+- For decades, as literary editor, I have followed the growth of our creative writing in English. In my Solidaridad Bookshop, half of my stock consists of Filipino books written in English and in the native languages.
+- The Japanese covet important symbols - their heroic past as enshrined in Yasukuni, the Imperial family which has never been sullied by scandal.
+- All dictators, the rich and famous, to the lowest security guard who holds a gun, easily forget that power is transitory.
+- Our appreciation of folk art will strengthen our identities, our pride in belonging to a community. People trained in the creative use of their hands soon acquire skills, excellent craftsmanship which will be the most important measure of how well we can industrialize.
+- What most readers do not realize is that it takes a particular genius to write funny, to satirize.
+- We must know our own roles. We should also know the roles that others play, and the rules such roles follow. In this manner, social harmony is maintained. It is when we overstep our roles, or act without knowing them, that social anarchy ensues.
+- From antiquity, Latin died but is still studied in seminaries and elite universities. So did Sanskrit in Asia. iI was replaced by Pali, but even Pali died, too. Linguists say the only ancient language which was resuscitated from the grave was Hebrew of Israel.
+- I can imagine the writers of China, England and France, crippled and unsure of themselves when they feel that the ghosts of Confucius, Mencius, Chaucer and Shakespeare and Victor Hugo are looking over their shoulders.
+- I tell young people who ask me about a future in writing not to go into it unless they get married to someone rich.
+- I have always admired teachers because teaching, like the priesthood, medicine and writing, is a vocation. You don't become a teacher because you want wealth. It is the same with writing.
+- Self-respect, the value of 'face,' is universal but is most pronounced in China, then in Japan where the Confucian ethic is most influential.
+- Writers are historians, too. It is in literature that the greater truths about a people and their past are found.
+- The ethnic differences among Filipinos are very real. The paucity of arable land, for instance, explains the industry of the Ilokanos and the Cebuanos.
+- Christianity doesn't demand that we worship our ancestors. If we don't remember our ancestors, then, in all likelihood, we cannot also recall the distant past.
+- The heart of the theater is the play itself, how it dramatizes life to make it meaningful entertainment. To achieve depth and universality, the playwright must subject himself to intense critique, to know human character and behavior, and finally to construct art from the most mundane of human experience.
+- In the end, religion teaches us to value truth, justice and freedom.
+- Indeed, the existence of class, of social hierarchy, is as old as man himself. It prevails in the jungle where strength determines hierarchy; among men, it has also been savagely the same, whereby rulers vested with power through personal combat, or through lineal heritage as in the case of royalty, ravage their subjects.
+- Some lucky people can be funny without half trying because they actually look funny, because acting funny is in their bones - fun as funny, not funny as crude slapstick.
+- Writing is a solitary profession; you are really alone when you write. Then the emotions become well shaped and distinct. But their transition into words must be done deliberately and with rigid artistry.
+- In the Western tradition, the first writers were teachers and historians, vastly traveled, who spiced their reports with fantasies. They were also poets who sang and entertained prince and pauper.
+- Tourists as well as natives want to see cultural achievements - whether it's the Banaue Terraces, the old churches or museums.
+- All through history, a nation or a civilization's enduring glory is articulated by its mega constructions - the pyramids, the lofty cathedrals of the Christian world.

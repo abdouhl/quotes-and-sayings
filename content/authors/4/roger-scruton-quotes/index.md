@@ -1,0 +1,106 @@
++++
+author = "Roger Scruton"
+title = "Roger Scruton Quotes"
+quotes_len = "100"
+description = "the best 100 Roger Scruton Quotes"
++++
+- For many artists and critics, beauty is a discredited idea. It denotes the saccharine sylvan scenes and cheesy melodies that appealed to Granny.
+- Life at home wasn't very good and I had really left by the time I was 16 and didn't go back until after Cambridge when I went to look after my mother when she was dying.
+- One of the questions that has most bothered me in my reflections on culture is the question of kitsch. Just what is it? When did it begin? And why?
+- We live in an extremely anxious age in which the core of our beliefs has been undermined to a great extent by scientific thinking.
+- I've never been an optimist, but that's fine because pessimists have the possibility of being agreeably surprised.
+- Wonder and awe are the diet of the artist and without them the world would be far less meaningful to us than it is.
+- You cannot own a symphony or a novel in the way you can own a Damien Hirst. As a result there are far fewer fake symphonies or fake novels than there are fake works of visual art.
+- What makes us human is that we ask questions. All the animals have interests, instincts and conceptions. All the animals frame for themselves an idea of the world in which they live. But we alone question our surroundings.
+- When I say there is no such crime as date rape I am saying what is true. There isn't a specific legal category of date rape and I wanted to make that point in order to ensure that people don't use this to obscure the difference between real sexual violence and, you know, things that have gone wrong.
+- Conservative voters tend to believe that the 'climate change' agenda has been foisted upon us by an unaccountable lobby of politicised intellectuals.
+- A high culture is the self-consciousness of a society. It contains the works of art, literature, scholarship and philosophy that establish a shared frame of reference among educated people.
+- For Conservatives, all disputes over law, liberty and justice are addressed to a historic and existing community. The root of politics, they believe, is attachment - the motive in human beings that binds them to the place, the customs, the history and the people who are theirs.
+- America has this wonderful ability to recover from its own mistakes, which is why it's so hugely superior to China.
+- Given the right to - given the opportunity to vote, I voted for Brexit because I've never approved really of the European Union, I never approved of it because of its attempts to confiscate national sovereignty in all the issues that matter.
+- No, I don't think I've ever really favoured English independence. My view is that if the Scots want to be independent then we should aim for the same thing.
+- Politics is a matter of day-to-day improvisation, and it often seems as though the major parties are guided only by the desire to stay in office and not by any philosophy that might justify their doing so.
+- Conservatism is about freedom, yes. But it is also about the institutions and attitudes that shape the responsible citizen, and ensure that freedom is a benefit to us all. Conservatism is therefore also about the limits to freedom.
+- If you're going to have a free economy, one in which the ordinary citizen can dispose of his own income, you're going to have people who dispose of it in an anti-social way.
+- Conservatives reveal themselves through their care for ordinary human things, and their recognition of the fragility of decency and the need to protect it.
+- When a woman cries date rape what she means is the whole thing went too quickly.
+- A lot of the Qur'an is, frankly, cantankerous, vitriolic, man-hating stuff.
+- Delia Smith is, actually, my bete noire. I consider her a most pernicious influence.
+- I've spent my life arguing for greater respect between men and women and anyone who takes the time to read my books or listen to my lectures will realise this.
+- To people like me, educated in post-war Britain, free speech has been a firm premise of the British way of life.
+- The rude, raw, 'let it all hang out' freedom of the Californian hippies was in fact the most censorious and oppressive of societies that I have encountered.
+- Cameron's resignation really was the death knell of the Conservative Party as we knew it because that's something a proper Conservative politician cannot do: renounce leadership at the moment when it's needed.
+- I do ask myself why I make people so enraged, because I only ever say what I think. And while I know it might not be everyone's point of view, that doesn't seem particularly intolerable to me.
+- Lives are destroyed by many things. They are destroyed by anti-racism too, as Ray Honeyford's was.
+- I know ideals aren't realities, but they do influence reality - social, legal, political, cultural.
+- Morality is like a field of flowers beneath which the corpses are piled in a thousand layers. It is an evolved mechanism whereby the human organism proceeds through life sustained on every side by bonds of mutual interest.
+- It is scarcely a mark of intellectual profundity to have noticed that our society is big.
+- I am hostile to the idea that collective solutions have to be made by committees and then imposed top-down. I very much prefer bottom-up solutions.
+- What makes a politician accountable is not that there are millions of people who vote, but that there are procedures of government that force him to account for himself.
+- Certainly the multicultural activists in the Labour party and the universities wanted to destroy the old white Anglo-Saxon education system as they saw it, and produce something completely different - with no conception of what that completely different thing would be, of course.
+- In mathematics and science we solve our problems as well as create them. But in art and philosophy things are not so simple.
+- There has been throughout this country and throughout Europe really an attempt silence the conservative voice. We get identified, caricatured and then demonised and made to look as though we are some kind of sinister, fascist, racist kind of people.
+- Great works of music speak to us from another realm even though they speak to us in ordinary physical sounds.
+- The great benefit of philosophy, which is also its great weakness, is that all its steps are taken in the spirit of doubt.
+- There is a chapter in 'Gentle Regrets' called 'Coming Home' which is really me expressing my later admiration for my father's public spirit.
+- My father was a man of principle who found his principles confirmed in the unremitting failure which they brought on him.
+- Buildings like Penn Station attract our protective instincts not only because of their beauty but because we fear what will come to replace them.
+- The language of politics is spoken in the first-person plural, and for Conservatives, the duty of the politician is to maintain that first-person plural in being.
+- I've always loved horses.
+- Leftwing people find it very hard to get on with rightwing people, because they believe that they are evil. Whereas I have no problem getting on with leftwing people, because I simply believe that they are mistaken.
+- Like every other viable environmental policy, the search for clean energy begins at home.
+- The world of art, I have suggested, is full of fakes. Fake originality, fake emotion and the fake expertise of the critics - these are all around us and in such abundance that we hardly know where to look for the real thing. Or perhaps there is no real thing?
+- I am a conservative thinker, well known as such, outspoken as such but reasonable in my view.
+- I think that, on the whole, risk-taking entrepreneurial characters regard nature as a sort of background that we can use for our own advantage.
+- My main argument is that environmental destruction comes when people externalise their costs and pass them on to future generations. That is obviously something that large enterprises do and they become large by doing it.
+- My little book of stories, 'Souls in the Twiligh,' may have to stand in for all the other things I have wanted to write in my retirement.
+- I love Viennese waltzes and polkas, and especially ceilidhs and old-fashioned formation dancing.
+- The robust English view used to be that the correct response to offensive words is to ignore them, or to answer them with a rebuke. If you invoke the law at all, it should be to protect the one who gives the offence, and not the one who takes it. Now, it seems, it is all the other way round.
+- Of course, it is the case that conservatism as I envisage it distances itself always from abstract conceptions and tries to find the concrete reality.
+- If there's a local reeling party, I might go to that.
+- The conservative is the one who understands his own society from within and loves and defends it.
+- In the traditional dances, physical contact was permitted in a way that it wasn't in everyday life. The electricity of physical contact has gone therefore from young people's lives.
+- If you say something in advance - if you describe a problem as it arises, people always turn on you because they don't want to hear about it. But when it's too late to do anything, they will then turn around and say that you were right. That's human nature.
+- Nothing upset me more than the award of Companion of Honour to Eric Hobsbawm in reward for a lifetime of unswerving loyalty to the Soviet Union.
+- The main aim of conservative politicians is to get through to the next election without being noticed. Nothing is more embarrassing to them than a person who claims not only to share their beliefs but also to be inclined to put them into practice.
+- The Marxist theory of ideology is extremely contentious, not least because it is tied to socio-economic hypotheses that are no longer believable.
+- Look at what left-wing movements were like in the 19th century - they were all about progress, the engineering of the world, the reshaping of nature, and so on. It's only postwar, really, that people on the left have come to see the environment as a critical issue.
+- My 2018 ended with a hate storm, in response to my appointment as chair of the government's Building Better, Building Beautiful Commission.
+- Ultimately, political order does not generate itself.
+- Perhaps the world of art is just one vast pretence, in which we all take part since, after all, there is no real cost to it, except to those like Charles Saatchi, rich enough to splash out on junk?
+- Conservatives hold on to things not only because they are attached to them, but also because they do not see the sense in radical change, until someone has told them what it will lead to.
+- Each Chinese person is a kind of replica of the next one and that is a very frightening thing.
+- Although homosexuality has been normalised, it is not normal.
+- A reactionary is fixed on the past and wanting to return to it; a conservative wishes to adapt what is best in the past to the changing circumstances of the present.
+- Faking is a social activity in which people act together to draw a veil over unwanted realities and encourage each other in the exercise of their illusory powers.
+- There are big questions science doesn't answer, such as why is there something rather than nothing? There can't be a scientific answer to that because it's the answer that precedes science.
+- 18th century opera is packed with emotion, but contains not a trace of kitsch. Only with the 'thees' and 'thous' of Victorian poetry does the disease begin to grow in our poetic tradition.
+- The real cure to immigration, obviously, is to make sure that there is prosperity around the world so that people don't have the motive. Not just prosperity, but freedom.
+- The sanctity of private property is so fundamental a part of the American settlement that the country's conservatives look with suspicion on any policy that seems to prevent people from doing what they will with what is theirs.
+- If, as many people believe, there is a God, and that God made us in his own image, then of course we are distinct from nature, just as He is.
+- On the whole, I rather disapprove of cookbooks, except for the literary ones, like Elizabeth David's.
+- All political order presupposes a pre-political order, a sense that people belong together. And then, of course, they might seek a contract that embodies their togetherness. But the togetherness has to be there.
+- I've always taken the view that works of art are not just things that we enjoy. They can convey truths about the world more vividly and to greater effect than ordinary philosophical prose can because they don't just deal in ideas but show the emotional reality of them.
+- Environmental degradation has one cause above all others: the propensity of human beings to take the benefit and leave the costs to someone else, preferably someone far away in space or time, whose protests can be safely ignored.
+- In art it is always as though the question is what the work of art is really about.
+- My own view is that left-wing positions largely come about from resentment - I agree with Nietzsche about this - a resentment about the surrounding social order. They have privileges, I don't. Or, I have them and I can't live up to them.
+- The true face of religion belongs to the re-enchantment of our injured civilization; faith is a way of filling all the spiritual spaces in our damaged world with the vision of a loving God, the God described in the Qur'an as al-Rahman al-Rahim.
+- Conservatism, for me, is the philosophy and the politics of attachment.
+- What the word conservative means is not putting things back but conserving them. There are things that are threatened and you love them, so you want to keep them.
+- Anyone can lie. One need only have the requisite intention - in other words, to say something with the intention to deceive. Faking, by contrast, is an achievement. To fake things you have to take people in, yourself included.
+- We should make the case for the things we love, even if we think that people will misunderstand them. That is why people defend the U.S. Constitution, even though so few really understand the subtle thinking embodied in that document.
+- The traditional family has an intrinsic as well as an instrumental value, and that is the real reason so many conservatives defend it.
+- One must recognise what all religious people know, which is that human beings are imperfect and fallen and there's no way in which they alone can surmount the problems which they create.
+- Abstract ideas like equality and liberty have a spurious transparency, and can be used to derive pleasing theorems in the manner of Jean-Jacques Rousseau or John Rawls.
+- But the European Union does not have a concept of national identity. It was set up to abolish that idea, not to abolish German national identity because that was trying to save itself.
+- My life divides into three parts. In the first I was wretched; in the second ill at ease; in the third hunting.
+- Under the Racial and Religious Hatred Act 2006, it is an offence to stir up hatred towards religious and racial groups. 'Stirring up hatred' is an expression both loaded and undefined. Do I stir up hatred towards a religious group by criticising its beliefs in outspoken terms?
+- The Scottish desire for independence is, to some extent, a fabrication. They want to identify themselves as Scots but still to be part of a, to enjoy the subsidy they get from being part of the kingdom.
+- Fashion makes me laugh.
+- It's right to flog a dead horse sometimes, when the previous flogging has not annihilated it.
+- For two centuries the English countryside has been an icon of national identity and the loved reminder of our island home. Yet the government is bent on littering the hills with wind turbines and the valleys with high speed railways.
+- To live with someone who likes you, and whose judgement you respect, because you love them, does make quite a difference, I find.
+- I'm a hate figure for a certain kind of half-educated politically correct person.
+- Coming close to death you begin to know what life means, and what it means is gratitude.
+- Whether it is a garden gnome, the sound of Bing Crosby launching into 'White Christmas', the blinking innocent eyes of Bambi or the words of Patience Strong, the kitsch phenomenon is there as strong and recognisable as your mother's face. You seldom if ever have the question, whether this is kitsch or not. If you think it might be, then it is.
+- America is the one place where you can talk of 'this nation' and everyone knows exactly what you think. People put a flag on their porch, and they do have a desire to localize everything and celebrate things locally.

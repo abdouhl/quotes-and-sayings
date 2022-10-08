@@ -1,0 +1,18 @@
++++
+author = "Chris Kilham"
+title = "Chris Kilham Quotes"
+quotes_len = "12"
+description = "the best 12 Chris Kilham Quotes"
++++
+- It is one thing to hear about the forest and the river, but an entirely other experience to go there, to see the environment, and to appreciate the natural riches there first-hand.
+- On a regular basis, I conduct work in the Amazon, establishing trade for medicinal plants, and working with small communities to improve their economies and to help protect forest acreage.
+- I feel badly for the people who suffer from the side effects and consequences of hazardous pharmaceuticals. It's antithetical to the Hippocratic oath.
+- I'm very much interested in having people take herbs that make them feel good because if they do that, they'll have an experience, and they'll say, 'Oh, this is real.' This is something you take, and you don't have to go on faith, but you can feel the difference.
+- It's been said that mistletoe extract enhances immune function, which increases the production of the immune cells. When administered as a form of therapy for cancer, the extracts are given by injection under the skin, into a vein or directly into a tumor.
+- Coffee, one of the most widely consumed beverages in the world, contains a plethora of naturally-occurring compounds, including several classes of antioxidants.
+- Espresso, made by steam expressing finely ground coffee, is rich in flavor and aroma and chlorogenic acids, but not very concentrated at all in caffeine.
+- Rainforest land is mistakenly valued solely for the worth of its timber, mining and oil resources by short-sighted corporations and governments.
+- Mistletoe, the same plant you kiss under at holiday time, may be an effective aid against certain types of cancer.
+- Cocoa boosts brain serotonin. Almost every single antidepressant aims at either enhancing serotonin or keeping it in the brain longer. Chocolate or cocoa does that very well.
+- Promoting the use of sustainable and renewable rainforest products can help to stop rainforest devastation. The rainforests are much more valuable alive than cut or burned, providing a steady supply of medicinal plants, fruits, nuts and oils.
+- Coffee is already known to be a preventive factor against mild depression, Parkinson's disease, and colon and rectal cancers.

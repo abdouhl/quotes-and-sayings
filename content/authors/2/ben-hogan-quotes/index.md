@@ -1,0 +1,20 @@
++++
+author = "Ben Hogan"
+title = "Ben Hogan Quotes"
+quotes_len = "14"
+description = "the best 14 Ben Hogan Quotes"
++++
+- Relax? How can anybody relax and play golf? You have to grip the club, don't you?
+- If we could have just screwed another head on his shoulders, he would have been the greatest golfer who ever lived.
+- I play golf with friends sometimes, but there are never friendly games.
+- The ultimate judge of your swing is the flight of the ball.
+- The only thing a golfer needs is more daylight.
+- I'm glad I brought this course, this monster, to its knees.
+- Golf is not a game of good shots. It's a game of bad shots.
+- There is no similarity between golf and putting; they are two different games, one played in the air, and the other on the ground.
+- Placing the ball in the right position for the next shot is eighty percent of winning golf.
+- As you walk down the fairway of life you must smell the roses, for you only get to play one round.
+- I learn something new about the game almost every time I step on the course.
+- Shoot a lower score than everybody else.
+- Reverse every natural instinct and do the opposite of what you are inclined to do, and you will probably come very close to having a perfect golf swing.
+- I couldn't wait for the sun to come up the next morning so that I could get out on the course again.

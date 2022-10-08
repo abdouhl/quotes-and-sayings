@@ -1,0 +1,102 @@
++++
+author = "Ryan Babel"
+title = "Ryan Babel Quotes"
+quotes_len = "96"
+description = "the best 96 Ryan Babel Quotes"
++++
+- Playing as a striker is a nice role because I spent all my youth there so that's why I like it.
+- I'm not really making decisions that people normally expect.
+- I tried to go to places I'd enjoy playing.
+- If you misuse the things you have been given, God has the ability to take your talent away. That's the way it is for me and that is why a lot of religious people are grateful to their God.
+- In Holland, you can step into the manager's office and ask him for clarity if you don't know why you're not playing and they are open with you.
+- It is clear I have enough qualities to be in the starting XI of Liverpool. But when you never get a real chance, it's difficult.
+- I have never been a difficult person.
+- For a player to really be at his best you have to give him a certain confidence, but I did not feel appreciated by some people at Liverpool.
+- I definitely made the wrong choices. I left Holland too early, I probably should've stayed one more year for my development, but these things happen.
+- It doesn't annoy me that I always get asked about my future.
+- I do think I have a thing or two to improve myself although it is difficult to reach your full potential at an average team.
+- My feeling about Al Ain was very positive, was very good, and if my feeling wasn't like that I would never have come.
+- If you don't believe you will end up as nothing. But if you believe a lot you can create a lot.
+- To be a supersub is mentally hard.
+- If there isn't a team that plays my type of game I don't think I could make a big difference. I have to be realistic.
+- I went to the UAE aged 28, which normally doesn't make sense to go at that age.
+- Not everybody is following every league in the world so the Champions League is a platform where everybody can see what you're still able to do.
+- I've tried to work as hard as possible.
+- Rafa Benitez promised me a certain development, but very quickly he took away that promise and it was a totally different situation.
+- I feel confident that I'm good enough to play a lot of games for Liverpool.
+- If the vision is not right and if the right group of players is not together, it doesn't come together.
+- I play for my country and I am an established international.
+- I think the 20-year-old me from that time, if I could have been managed under Jurgen Klopp, I'd have benefitted.
+- No, I never doubted my ability.
+- I liked mostly to play football on the ground and have a little bit of playing tactics rather than just up and down, long balls and second balls. That's not really my game.
+- I enjoyed my time in Germany, I definitely rate the league as it develops well and you have quite a lot of teams that play good football.
+- I was only used to 4-3-3. For me as a left-winger you have also a left midfielder and a left-back behind you. But in a 4-4-2 you are basically also the left midfielder so you have to help more in defence and I wasn't used to that.
+- If you are young and you don't get rewarded with game-time, or don't come into games, it is difficult to try to still be hungry in the training sessions.
+- Football players have to grow up very fast. It's a tough life sometimes.
+- I don't think people in England ever saw the best of me.
+- If you see my record I'm not a stereotype killer striker.
+- I suppose people lost interest in me when I left Liverpool; but it wasn't me who left, it was other people who left me. If people had continued to follow me, they would have seen my two good seasons in Turkey which caught the attention of Besiktas and Galatasaray.
+- English fans and the English atmospheres are special.
+- If it fits in with my career, it will be a challenge for me to play for a MLS team. If that would be Steven Gerrard's club, that would be very special.
+- I still believe I can be a striker but, if you want to be a striker, you have to think more about yourself and that's why you are a striker.
+- Everything I did on the left I had to learn in a 4-4-2 system, it wasn't natural. To collect the ball on my wrong foot.
+- Music has always been an important part of my life.
+- I came from Ajax where you play 4-3-3 and as a winger they didn't want you to defend.
+- I was 20 years old went I went to the Premier League. When you are 20, you need from other people, you need people to talk to you. But when I went over there, nobody helped me.
+- I came in on time, I was always a professional.
+- I have played for Ajax, Liverpool and Besiktas in Turkey - all massive clubs in Europe.
+- Some people think they do it all by themselves but I believe there is more to it. I believe it is God who has given me the talent and the opportunity to be successful.
+- During your career, you have to make decisions. Sometimes maybe you don't make such a good decision and at the end you have to try and recreate a position.
+- The striker role, together with someone else, is pretty good for me.
+- I have enough confidence at the moment to say that I have the potential to play at the same level as Arjen Robben or Franck Ribery.
+- They used to have selection days for all the local kids and I went to these trials three times and got turned down every time. On the third time I was so upset because I thought I was not good enough. I was eight years old and I had the feeling, 'That's it, I don't want to play for Ajax any more!'
+- I've said in earlier interviews maybe I should have stayed one or two more years in Holland.
+- America has always been a special place for me, since my youth.
+- Nobody likes me. I know that the Holland boss, Ronald Koeman, appreciates me. But for pundits, TV commentators and in the media, I don't even exist.
+- There are plenty of players who have a lot of talent. It's all about getting the best out of yourself and you'll have to work very hard to achieve that.
+- Yes, there is a lot of competition for places at Liverpool but that's the same at every top club. It was like that when I was at Ajax and that isn't a problem for me.
+- To be underestimated is my biggest motivation.
+- If you are 20 you don't have the same life experiences as at 25.
+- With Ajax and Liverpool, you win about 80 per cent of matches.
+- Turkish people are very emotional, very passionate about football, really want to see their team do well.
+- My career's been a bumpy road, but at the same time I think I am living proof that if you put enough work into things you decide more or less where you want to end up.
+- For every player it's nice to go to the World Cup and it's very important to do that in your career.
+- I was loved in Liverpool, I had good relationship with the fans and my team-mates but I felt I could do better.
+- Not everyone is Messi or Cristiano Ronaldo. Even Cristiano Ronaldo's first years at Manchester United were quite difficult.
+- I don't go to church every week.
+- Liverpool is my club. I try to follow every game. I still support them, I wish them all the best.
+- As far as I can judge, English football is not for everybody. You need to have the lungs for it, you need to have the strength for it.
+- Moving to Liverpool was a new world for me. I had been living with my parents in Holland, and all of a sudden I was living in a foreign country on my own.
+- It is a normal thing for a young player to want to prove himself in the Premiership.
+- A lot of people talked down about my career at some point, which makes sense.
+- I just have to try to be patient, keep working hard and doing my best.
+- I do have a weakness for Liverpool and I do want them to be champions.
+- When you can win with a couple of goals, it is always really good for confidence.
+- I used to play as a striker in Holland. I grew up as a striker. That's the position I want to play.
+- People try to warn you about certain things, but sometimes you have to experience those things yourself.
+- There were situations in my career where I played much better than another player in my position, but that player had a better name in terms of commercial appeal.
+- I'm not the type of player who gives up.
+- For a lot of different reasons I didn't fulfil my potential.
+- Scoring a goal is always wonderful and gives any player confidence.
+- I like to explore the world.
+- I've done so much in my career but a little part of me feels I still have unfinished business here in the Premier League.
+- From every little territory I've been, I've picked something up, things that I could use to better my game, to take with me, and the rest I left behind.
+- A return to the Eredivisie would be nice, but only if it's Ajax. I don't want to play for another team.
+- A lot of things that were written about me bothered me, like my mentality was not good.
+- Every footballer plays with the hope that people love to watch you. But, for me, there is no sympathy or interest. I don't seem to have any charm for fans.
+- My parents were very strict and had rules for me and, if ever I was playing outside, I always had a set time to come back in.
+- England is of course a great country to play in, and I'll always be open for a return. But it has to be a club I feel good about.
+- In the English 4-4-2 you have to change your mentality from a winger to a left midfielder, having to help your full-back.
+- The Premiership is maybe the best league, it's a very high level.
+- When I left Liverpool, I could have stayed in England but that would have meant joining clubs that didn't play football - just a long-ball game.
+- Liverpool are a very good team everybody knows that and I am proud to be part of Liverpool.
+- For a 20 year old the gap from Holland to England is massive. That's a fact. Not all players are able to settle in directly from day one. I remember even Van Persie needed two, three years but he became Van Persie.
+- I left Liverpool through the back door.
+- I know Robin van Persie very well and he is a great person and I have a lot of contact with him over the phone and text messages.
+- We can't all be Lionel Messi, even if we want to.
+- Those types of players are always necessary in a team, who are very creative and can break a game open.
+- England is the biggest league in the world. Of course, you have Barcelona and Real Madrid but, as a league, England is in my opinion the best in the world.
+- If you see the kids now they have attitude and a strong character. They play one or two games and demand they are involved. I didn't have that. I was too polite. It is not maybe always good to have fight, but gives a stamp - it shows directly that 'I am here. I mean business.'
+- Before I take an offer seriously, I do my own research.
+- I would be so proud to finish my career with a European medal.
+- The important thing, is to believe in a better future.

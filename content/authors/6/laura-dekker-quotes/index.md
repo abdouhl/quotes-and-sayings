@@ -1,0 +1,26 @@
++++
+author = "Laura Dekker"
+title = "Laura Dekker Quotes"
+quotes_len = "20"
+description = "the best 20 Laura Dekker Quotes"
++++
+- A house is kind of scary.
+- It was really weird dealing with the media. I had no idea how to handle it.
+- I grew up sailing in the North Sea.
+- I'm still not used to the idea of being the youngest circumnavigator.
+- When I'm not surfing or sailing, I am to be found at the harbour working on my boat.
+- I love my parents. But they have their life, and I have mine.
+- All the media are horrible.
+- Over a period of 11 months, I was constantly afraid that Youth Care would lock me up. It was all a frightening and traumatic experience. So often, these terrible memories come to me. I can't ignore them.
+- My parents have sailed around the world; they know what can happen and that it's not always fun, but because I want to do it so much, they agreed and supported me.
+- In England, I met a couple who run a children's home. They were very kind and showed me many nice spots in England.
+- I am not going to say much about the film 'Maidentrip,' but I won't be representing it, as I am not fully standing behind it.
+- As soon as I get on my boat, something inside me changes. Then I really feel what living is.
+- As a 13-year-old girl, it was never my intention to be the center of world news.
+- I was four when I first stood at the helm on my own.
+- I follow my own head. And if I'm determined to do something, then I'll make sure that I make it happen.
+- Since I was 10 years old, I knew I wanted to sail around the world.
+- I really like boats. If you want to go somewhere, you just take your house with you.
+- At sea, I feel comfortable and I come to rest.
+- I do not often get lonely, and I never get bored.
+- I want simply to learn about the world and live freely.

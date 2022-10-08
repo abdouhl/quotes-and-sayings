@@ -1,0 +1,44 @@
++++
+author = "Lincoln Steffens"
+title = "Lincoln Steffens Quotes"
+quotes_len = "38"
+description = "the best 38 Lincoln Steffens Quotes"
++++
+- Morality is only moral when it is voluntary.
+- Boston has carried the practice of hypocrisy to the n-th degree of refinement, grace, and failure.
+- I let my boy go and do and say pretty much as he likes, as, and perhaps because, my father kept no string on me.
+- My father made with me one serious mistake which I see parents about me making. He got himself somehow into the awkward position of an authority; I thought he knew and was right on everything - for a while.
+- Nothing fails like success.
+- The spirit of graft and of lawlessness is the American spirit.
+- If our political leaders are to be always a lot of political merchants, they will supply any demand we may create. All we have to do is to establish a steady demand for good government.
+- The commercial spirit is the spirit of profit, not patriotism; of credit, not honor; of individual gain, not national prosperity; of trade and dickering, not principle.
+- Power is what men seek and any group that gets it will abuse it.
+- If we would vote in mass on the more promising ticket, or, if the two are equally bad, would throw out the party that is in, and wait till the next election and then throw out the other party that is in - then, I say, the commercial politician would feel a demand for good government and he would supply it.
+- My mother would thump me sharply on the head with a thimble or a spoon if I became too noisy with the whistle when I was playing I was a steamboat captain. She had no sense of the dignity of command.
+- Revolt is not reform, and one revolutionary administration is not good government.
+- My father required me to honor my father and my mother too much to put up games on them. I did on occasion.
+- If we would leave parties to the politicians, and would vote not for the party, not even for men, but for the city, and the State, and the nation, we should rule parties, and cities, and States, and nation.
+- I never heard a Christian sermon preached in a church.
+- One improvement I have learned from my childhood experience with my father: I do not threaten punishment in the morning. That was awful. Late into the night I would lie awake tossing and wondering what he was going to do to me. Usually he did nothing. A quiet, impressive 'talking to' was all I got.
+- The Soviet government sprouted and grew out of the habits, the psychology, and the condition of the Russian people. It fitted them. They understand it.
+- You ask men in office to be honest; I ask them to serve the public.
+- Whenever anything extraordinary is done in American municipal politics, whether for good or for evil, you can trace it almost invariably to one man. The people do not do it. Neither do the 'gangs,' 'combines,' or political parties.
+- I have been over into the future, and it works.
+- My father would invite me sweetly to come and sit on a stool at his feet, and, as I let myself trustingly down, he would gently kick the seat from under me - and laugh.
+- The typical American citizen is the business man. The typical business man is a bad citizen; he is busy. If he is a 'big business man' and very busy, he does not neglect; he is busy with politics, oh, very busy and very businesslike.
+- Chicago will give you a chance. The sporting spirit is the spirit of Chicago.
+- The longer I live, the more I feel that the individual is not so much to blame - not even the worst individuals, not even the 'best' citizens - as the system of corruption which has grown up about us, and which rewards an honest man with a mere living and a crook with all the magnificence of our magnificent modern life.
+- The doctrine of Jesus is the most revolutionary propaganda that I have ever encountered.
+- I have been contending all my life, and always with God.
+- I am really puzzled to understand myself.
+- In all cities, the better classes - the business men - are the sources of corruption, but they are so rarely pursued and caught that we do not fully realize whence the trouble comes.
+- Most men think graft a sporadic evil, breaking out here and there, with no connection between outbreaks. I shared the same opinion, but very soon I discovered that the graft in the cities always leads to the graft in the State.
+- We need some great failures. Especially we ever-successful Americans - conscious, intelligent, illuminating failures.
+- If my father could watch my son for a while, he might realize his own immortality.
+- My father, the practical joker, did not care for practical jokes on himself; he did not encourage the practice in me.
+- The Russian people, sober, are said to be a gentle people.
+- My father seemed always to know not only what I was doing, but what I was being.
+- The misgovernment of the American people is misgovernment by the American people.
+- It is possible to get an education at a university. It has been done; not often.
+- Art is like a border of flowers along the course of civilization.
+- My father was slower, but he was severer than my mother, who was quick but light and irregular in discipline.

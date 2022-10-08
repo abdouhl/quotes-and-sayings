@@ -1,0 +1,36 @@
++++
+author = "Brooke Elliott"
+title = "Brooke Elliott Quotes"
+quotes_len = "30"
+description = "the best 30 Brooke Elliott Quotes"
++++
+- I haven't seen one second of any episode of 'Lost,' ever.
+- Sometimes someone that is the 'villain' in your life, when you look deeper and you think of what their issues are and why they behave like that and where they came from - they become less of a villain and more of someone that you can understand.
+- There are so few representations of women that look remotely real in scripted television.
+- I like the idea of love standing the test of time and circumstances.
+- I love... Eskimo Joe's. I have tons of Eskimo Joe's clothes and cups in my house, 'cause I love Eskimo Joe's.
+- I want to do voiceover for animation, so I am looking to do something along those lines. So, my agent is looking for something in that area, and I think that would be a lot of fun.
+- Georgia has some really tough allergies.
+- Honestly, my splurges happen at Target. I'll go and spend, like, $600, and I don't know why! And then I'm really happy about it, but then I'll be like, 'Why did I do that?!'
+- You put your heart and soul into something, and you really hope that people love it as much as you do.
+- I think a lot of times we're so told in our world that marriage is everything, and having a partner is everything. If you look at our movies and things, it's all directed around that love, and if you don't have that love, how sad you are.
+- Ty Burrell could be one of the funniest people on the planet. I'd love to meet him.
+- In 'Robin Hood,' I did quarterstaff fighting.
+- I majored in musical theatre performance at college, then went through years of waiting tables and temping while looking for acting work.
+- I started off singing when I was little. My parents have said I was singing at 3 years old. So I think it was just something I probably came into this world wanting to do and knowing I was going to do.
+- I'm supportive of anyone, male or female, feeling good about themselves.
+- Look at all the magazines: There's always 10 ways to be better at something.
+- I'd love to go back to Broadway; I'd love to do animation; I'd love to do hair and make-up campaigns because I love hair and makeup - and, I'd love to do film. I mean, there are a lot of doors I'd love to open up!
+- I support anyone finding their worth despite being told they can't do something.
+- I'd love to go back to Broadway if there was a place for me there. I would absolutely go back; it's just a part of me.
+- I try to get massages on Saturday. That's my only day off.
+- I don't have a permanent place where I live. I'm in Atlanta about six or seven months out of the year. I gave up on my place in New York. I don't have a place in L.A., but sometimes when I go there for the hiatus, I stay in temporary housing. It's all over the place, and I don't know where I live!
+- Friends confront each other sometimes, and sometimes the friendship lasts, and sometimes it doesn't.
+- I crocheted a blanket larger than a king-size bed. I just kept going.
+- I usually work 16-hour days.
+- I believe that all things are possible under God.
+- I'm still a big 'Grey's Anatomy' fan.
+- The majority of women in America look like me.
+- Whatever happened to a good pie-in-the-face joke?
+- I need to learn to be more assertive.
+- I love Delta Burke!

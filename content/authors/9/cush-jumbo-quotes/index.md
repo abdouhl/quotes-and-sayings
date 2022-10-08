@@ -1,0 +1,28 @@
++++
+author = "Cush Jumbo"
+title = "Cush Jumbo Quotes"
+quotes_len = "22"
+description = "the best 22 Cush Jumbo Quotes"
++++
+- I'm very grateful for the way things have panned out. If I hadn't had a struggle at the start, I wouldn't be able to appreciate every single day in this job. Whether you love or hate a job, you can't waste the chance to do something with it.
+- A lot of the stuff that I've done has been more drama and less comedy. I've had some opportunities to do some comedy, and I've often wanted to do that because it fits with me very comfortably because I talk too much, and I'm always saying the wrong thing all the time.
+- What's important with writing is that it comes from a place you absolutely love. I'm writing for film and TV. In America, they call people like me 'multi-hyphenators.'
+- You see actors who make family work, but it's difficult for any woman.
+- With a name like Cush Jumbo, you never get forgotten. The 'Jumbo' is from my father, who is Nigerian, and 'Cush' was a king in ancient Egypt. It's a name that took a few years to grow into, but now I feel it was meant to be. It's absolutely who I am, and I love it.
+- I started working on stage as a dancer when I was four; by 14 or 15, I knew I wanted to study the craft of acting.
+- I'd like to see someone try to make Cush Jumbo up. It's my real name.
+- 'The Good Wife' has actually been something, ironically, that I've watched since episode one, season one in the U.K. because it came up when I was in drama school. I always watched it. It was kind of like an actor's show.
+- I'd much rather play the psycho than the pretty girl in hot pants.
+- If your church is the theatre, New York means a lot - it's a pilgrimage you want to make.
+- My dad is the first to say that Mum deals with the mortgage payments, the bills, the rota, things like that, while my dad is the emotional one who keeps the home together. He's the nurturer, but together, they work perfectly.
+- I'm an adventurer. There are so many things I'd like to do. I'd love to do an Angelina Jolie and dress in lycra and kick the crap out of somebody in a movie. It doesn't matter how rubbish the script is.
+- I'm not interested in being in 'Heat Magazine.'
+- If you don't have a sense of adventure in this job, then you're not going to do very well. You have to be prepared for the unexpected, and that's one of the reasons why you really, really, really have to trust the people you're going to work with because you don't know what's on the other end.
+- I've learnt that you never know what is around the corner, so it's best to enjoy the ride.
+- When you're working with a big star, you always wonder what it's going to be like. Hugh Jackman puts you at ease within 10 minutes. He has such a wonderful energy and is so generous when you're doing a scene. He's just so funny and friendly and playful - he instantly becomes your friend.
+- I love London - its where I'm born and bred - but New York just has such an energy when you're walking around, and if you act or you write and you act like I do, its just such a good town for you because people here like people who can do more than one thing.
+- I didn't come out and roll from job to job - my first year was really tough. I had to work as a teaching assistant for an agency; I ran a pancake stall in Dulwich Market. I taught drama classes and ran my own workshops. I applied for every advert on Gumtree there possibly was.
+- I was really into old musicals. When I was seven or eight, my mum and dad would be like, 'How does she know who Ginger Rogers is?' Then, one weekend, Josephine Baker popped up in a French film called 'Zouzou,' and I was so stunned because she looked like me.
+- Most of my friends are not actors. Most people have an idea of what an actor's life is, and it's pure glamour and excitement: it's easy and free and everyone loves you. But with a certain level of fame, there's a real level of paranoia and depression that comes with what you do, that nobody talks about.
+- I loved all the other movies, and I loved all the other movie stars, but I was very aware of the fact that I didn't look like Marilyn Monroe - although I still wanted to be Marilyn Monroe. Then Josephine Baker popped up, and she wasn't the maid - she was the star of the show. To me, it was mind-blowing.
+- Playing Mark Antony in Julius Caesar was the most thrilling thing I've done. You get these speeches that were written for men, and you're running around like an action hero, climbing scaffolding and beating people up. It was very freeing.

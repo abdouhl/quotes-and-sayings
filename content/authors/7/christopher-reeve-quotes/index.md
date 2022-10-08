@@ -1,0 +1,37 @@
++++
+author = "Christopher Reeve"
+title = "Christopher Reeve Quotes"
+quotes_len = "31"
+description = "the best 31 Christopher Reeve Quotes"
++++
+- It's important to me to say what I really mean.
+- I never said I will stand, I said I hoped to stand. It wasn't a prediction.
+- I am optimistic. But I also know that, with time, I'm beginning to fight issues of aging as well as long-term paralysis.
+- I learned years ago to come to terms with having so much done for me by others.
+- To be able to feel the lightest touch really is a gift.
+- Either you decide to stay in the shallow end of the pool or you go out in the ocean.
+- My father is an intellectual and physical man, which is a rather unusual combination. He's great. As he brought up me and my brothers and sisters, he ingrained in us that your appearance is not your responsibility, other than that you should not be a slob.
+- Your body is not who you are. The mind and spirit transcend the body.
+- We have a government that, generally speaking, does not respond to the people.
+- Some people are walking around with full use of their bodies and they're more paralyzed than I am.
+- You've got to give more than you take.
+- Even though I don't personally believe in the Lord, I try to behave as though He was watching.
+- I think a hero is an ordinary individual who finds strength to persevere and endure in spite of overwhelming obstacles.
+- It's defeatist to harp on what might have been, and yet, it's hard to resist considering what might have been.
+- We live in a time when the words impossible and unsolvable are no longer part of the scientific community's vocabulary. Each day we move closer to trials that will not just minimize the symptoms of disease and injury but eliminate them.
+- I am a very lucky guy. I can testify before Congress. I can raise funds. I can raise awareness.
+- All the scientists who are working on solving the problem of curing paralysis say that it won't do you any good if you don't keep your body in shape.
+- It never occurred to me that I was a leading man until I was 19 years old. I had been acting since I was 10, so that's nine years and 30 or 40 plays, in school and summer stock, professional theater, too.
+- A hero is someone who, in spite of weakness, doubt or not always knowing the answers, goes ahead and overcomes anyway.
+- Don't give up. Don't lose hope. Don't sell out.
+- You should take some responsibility for the way you present yourself. But you should not be hung up on your looks, whether you are ugly or handsome, because it isn't an achievement.
+- Success is finding satisfaction in giving a little more than you take.
+- A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.
+- I did my first apprenticeship when I was 15, then joined the union when I was 17. I worked every summer in high school and college.
+- So many of our dreams at first seem impossible, then they seem improbable, and then, when we summon the will, they soon become inevitable.
+- You play the hand you're dealt. I think the game's worthwhile.
+- What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part.
+- I've still never had a dream that I'm disabled. Never.
+- Never accept ultimatums, conventional wisdom, or absolutes.
+- At first, dreams seem impossible, then improbable, and eventually inevitable.
+- I have more awareness of other people and, I hope, more sensitivity to their needs. I also find that I'm more direct and outspoken.

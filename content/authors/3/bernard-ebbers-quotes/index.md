@@ -1,0 +1,28 @@
++++
+author = "Bernard Ebbers"
+title = "Bernard Ebbers Quotes"
+quotes_len = "22"
+description = "the best 22 Bernard Ebbers Quotes"
++++
+- We very much regret that our merger with Sprint was not allowed to proceed.
+- We accelerated our capital spending in the fourth quarter, particularly in international and next-generation network deployment, which should not only sustain future revenue growth but also drive significant cost reductions across all communications services.
+- The strength in our third-quarter financial results is cause for excitement. I'm particularly pleased that we continue to demonstrate impressive growth at the same time we are engaged in important merger discussions.
+- Our investments in data, Internet and international have been particularly timely and have positioned the company to post industry-leading incremental revenue gains.
+- I never thought anything like that would have gone on.
+- Our communications services revenue growth is being driven by continued strong top-line performance in data, Internet and international - three of the fastest growing and most profitable areas within communications services.
+- We were a fast-growing company, and I was a demanding boss.
+- I have some assets that over time will be worth something. I've been in the process of selling others.
+- I was a pretty good coach and working with marketing was like coaching.
+- I know what I don't know. To this day, I don't know technology, and I don't know finance or accounting.
+- I wasn't ever advised by Scott Sullivan of anything ever being wrong.
+- The coach's job is to get the best players and get them to play together.
+- I expected results.
+- I just want you to know you aren't going to church with a crook.
+- I don't know technology and engineering. I don't know accounting.
+- I guess the one question I will not get today is: When are you going to do anything about cellular?
+- I put those people in place. I trusted them. I had no idea they would do anything like this.
+- I didn't have anything to apologize for.
+- I know I lost my temper, but I tried to be human along the way.
+- We have the right assets for a fast-growing digital business.
+- No one will find me to have knowingly committed fraud.
+- I used practically all the money I had available.

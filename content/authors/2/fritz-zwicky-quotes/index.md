@@ -1,0 +1,15 @@
++++
+author = "Fritz Zwicky"
+title = "Fritz Zwicky Quotes"
+quotes_len = "9"
+description = "the best 9 Fritz Zwicky Quotes"
++++
+- Every evening, I come home tired and have just enough energy to fill out the endless tax forms, to pay bills, not to let my house neglected and to hear the radio concert for an hour.
+- I have a good idea every two years. Give me a topic, I will give you the idea!
+- Mountains were once my big adventure but is is over since a long time; I still dream from the wonderful days sometimes, read also a few pages from a mountain book. But the thought of doing again active mountain climbing has faded.
+- If many things in the past have gone wrong in the lives of men and in the lives of their communities, it is because both small- and large-scale activities were blundered into without any thought or vision of universal planning.
+- Major actions by courageous and wise men will be necessary to avoid our continuing to blunder into the space age like unenlightened and selfish idiots.
+- The universe is so unique and perfect that it could not have originated by chance but was divined by flawless, creative design.
+- Jupiter is so big and its gravitational pull so strong that man would find it difficult to move about on the surface. The answer is to whittle it down to proper size with terrajets and nuclear power, using the debris to increase the size of Jupiter's moons so they, too, can be colonized.
+- Astronautics, strictly speaking, will be concerned with voyages to other stars. Remarkably enough, to achieve such feats, we might not even have to leave the earth. It would suffice to accelerate the sun itself to a very high speed and let it drag all its planets with it.
+- I soon became convinced... that all the theorizing would be empty brain exercise and therefore a waste of time unless one first ascertained what the population of the universe really consists of.

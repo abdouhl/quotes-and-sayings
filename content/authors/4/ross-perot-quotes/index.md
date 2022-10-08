@@ -1,0 +1,30 @@
++++
+author = "Ross Perot"
+title = "Ross Perot Quotes"
+quotes_len = "24"
+description = "the best 24 Ross Perot Quotes"
++++
+- War has rules, mud wrestling has rules - politics has no rules.
+- If you see a snake, just kill it - don't appoint a committee on snakes.
+- The activist is not the man who says the river is dirty. The activist is the man who cleans up the river.
+- There are but two things worth living for: to do what is worthy of being written; and to write what is worthy of being read.
+- In plain Texas talk, it's 'do the right thing'
+- If we did not have such a thing as an airplane today, we would probably create something the size of N.A.S.A. to make one.
+- Most people give up just when they're about to achieve success. They quit on the one yard line. They give up at the last minute of the game one foot from a winning touchdown.
+- Action is greater than writing. A good man is a nobler object of contemplation than a great author. There are but two things worth living for: to do what is worthy of being written; and to write what is worthy of being read.
+- Most new jobs won't come from our biggest employers. They will come from our smallest. We've got to do everything we can to make entrepreneurial dreams a reality.
+- Life is like a cobweb, not an organization chart.
+- Spend a lot of time talking to customers face to face. You'd be amazed how many companies don't listen to their customers.
+- Punishing honest mistakes stifles creativity. I want people moving and shaking the earth and they're going to make mistakes.
+- Which one of the three candidates would you want your daughter to marry?
+- Failures are like skinned knees, painful but superficial.
+- A weak currency is the sign of a weak economy, and a weak economy leads to a weak nation.
+- Anybody can cut prices, but it takes brains to produce a better article.
+- Written reports stifle creativity.
+- The budget should be balanced, the treasury should be refilled, the public debt should be reduced and the arrogance of public officials should be controlled.
+- Inventories can be managed, but people must be led.
+- If someone as blessed as I am is not willing to clean out the barn, who will?
+- If you can't stand a little sacrifice and you can't stand a trip across the desert with limited water, we're never going to straighten this country out.
+- Eagles don't flock, you have to find them one at a time.
+- You don't have to be the biggest to beat the biggest.
+- Business is not just doing deals; business is having great products, doing great engineering, and providing tremendous service to customers. Finally, business is a cobweb of human relationships.

@@ -1,0 +1,18 @@
++++
+author = "Chris Connelly"
+title = "Chris Connelly Quotes"
+quotes_len = "12"
+description = "the best 12 Chris Connelly Quotes"
++++
+- It's no secret that many tales of tween stardom have had unhappy endings.
+- For a celebrity with image challenges, kids can be game-changers. It's no accident that Clay Aiken came out of the closet cuddling his newborn.
+- My parents were both lawyers and were very active in social causes when I was young.
+- Given how majestically slim she always was, it's a little odd to admit that I can remember bellowing that Whitney Houston was The Heavyweight Champion of the World! on the MTV News floor back in the '90s.
+- In 2008, no images dominated Hollywood's viewfinders like theirs did. They're rich... they're gorgeous... sometimes, they get a little emotional. Also, they're each about three feet tall. They're the children of the famous, on newsstands and Web sites - the breakout stars of 2008.
+- I have enormous affection for Bill Simmons and not just in an abstract way but a very specific way.
+- Even in Hollywood, there are personal descents that evoke only sad shakes of the head, especially where there's sheer, unassailable talent in the mix.
+- In show business, everyone loves a comeback story.
+- I began my career as the switchboard operator at 'Rolling Stone.'
+- When you are doing a site that you understand is not making money, you kind of understand when times get challenging or there is a new economic climate, you will be scrutinized very closely.
+- I've been drawn to sports stories that have an emotional component to it. I'm happy to get a chance to tell a few.
+- Away from our cameras, I know Tim Tebow has done some terrific work with the Make-A-Wish Foundation... so I'm an admirer of his.

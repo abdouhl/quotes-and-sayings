@@ -1,0 +1,106 @@
++++
+author = "Bradley Beal"
+title = "Bradley Beal Quotes"
+quotes_len = "100"
+description = "the best 100 Bradley Beal Quotes"
++++
+- I'm humble, and guys always say I act older than what I am so I always keep that mentality and make sure everything is focused and serious.
+- As long as we are all incorporated within offense and everybody's eating, we're good.
+- We have to utilize our platforms as athletes to speak out.
+- As a two, you gotta see the guys I have to guard on a nightly basis, like Dwyane Wade, Kobe Bryant or J.R. Smith. I have to be mentally prepared and battle-tested.
+- Both the Wizards organization and the city of Washington have been committed to supporting me and my family since the day I was drafted and I feel blessed to be able to show my commitment back to them.
+- Barbecue chips, Lay's in particular are my favorite. If you have anything barbecue around me, I'm pretty much nibblin' on 'em.
+- I always tell myself, 'Nothing's perfect.'
+- I don't even know how tall I am. I'm hoping 6-4. I'm 6-4, 6-5 on a good day.
+- I would love to play with Kevin Durant.
+- That's what I love so much about my family and friends, man. They continue to support me at the same time they keep me grounded and talk to me like I'm with them.
+- I feel like team meetings should happen one time a year, and that should be it.
+- I feel like the impact that you leave on others and your teammates and everybody around you is what's most important.
+- I can always get better.
+- D.C., I love you. Mystics, I rock with you.
+- I don't necessarily see myself or consider myself an activist, but I feel like I have a platform, and I'm going to utilize it to the best of my ability.
+- I was kind of ignorant. Being naive - 'who cares, how many people in the world, okay, my vote won't count' - that's kind of ignorant thinking, and I totally migrated from that. I clearly took that for granted for eight to 10 years.
+- I'll never say a player doesn't deserve to be on the all-star team.
+- I want to get my degree and that's something I take pride in, especially being a man of color.
+- I trust my teammates and everybody to step up and carry the load.
+- I'm not the type of guy who tries to do everything by myself.
+- I was someone who thought my vote didn't count.
+- There is power in unity. There is power in strength.
+- It takes a long time for me to just say 'I'm going to get a tat.' I really do my homework on it and make sure that it's perfect and the way I want it and make sure there's always meaning because I never get anything without meaning.
+- My mom is the all-seeing eye in the sky. And she definitely doesn't lie. She knows exactly what I'm doing right or wrong, because she taught me everything I know.
+- It's always great to be playing against someone you looked up to growing up.
+- I'm very adaptable.
+- Deck of cards, I always have 'em with me. We love to play on the planes when we travel. If I'm bored, I play Spades, Tonk, I'm a huge Blackjack player. Stay out of the casino, though.
+- I've always been a quiet guy. I like to keep to myself.
+- He's a magnificent ball-handler, gets to the basket, manipulates defenses, so I definitely I admire Dame and what he does for sure.
+- I've been pulled over with four hoopers in the car before and we've all been taken out and searched because we were black riding in a white neighborhood.
+- If you're about to get a tat, make sure you're 110% sure it's what you want. If you're getting it in a different language make sure it is exactly what you want it to be because there is no going back.
+- It's a super city. It's a beautiful market. I love it. I love D.C.
+- With confidence, you feel like you can pretty much do anything on the floor.
+- I'm a pretty physical guy.
+- I'm never mad about All-Star. It's guys who get snubbed every year who've proven they could be All-Stars. This league, there's 450 guys, and you're trying to pick 24 out of the group who are having a good year.
+- I like to sketch and draw and a lot of people don't know is that I drew a lot of my tats.
+- I really don't even know how to take a compliment honestly.
+- I went to an all-white school in high school.
+- My ultimate goal is to win.
+- I just trust my teammates to be able to make the right play - I don't have to score every time I have the ball, or shoot the ball every time I have it.
+- I don't care about points.
+- I've always had to grow up faster than what I am.
+- Nobody can stop me. Plain and simple.
+- I've always admired like everybody's skill like to tattoo. Like I've actually tattooed my best friend before. This is an experience for sure. Like, if I will really like take drawing seriously, I would consider being a tattoo artist. Like I love to just watch guys perfect their craft.
+- We have to call out the lawmakers and law officials, the state and city reps, DAs, judges, politicians, police unions - everybody who deems themselves and enforcer of the law has to be held accountable. Justice is demanded. Sustainable change is necessary. But we know that we all have to continue to do our part in the community.
+- There's times I've played the 4. If that happens in the league, I'm used to it.
+- That's something I'm trying to be better at, fix my body language.
+- I can't sit here and try to do it all on my own because there's no way I'll be able to. It's a matter of trusting my teammates no matter what it looks like.
+- I'm a loyal guy.
+- My family has always been my circle. I know it might sound kind of weird, but if you know a little bit about me, you'd understand.
+- Making it to the league, that was my dream. But my mom saw to it that we watched our share of the WNBA too. Greatness is greatness, right?? And as much as I learned about that from seeing Kobe win his rings... I also learned about it from seeing Sheryl Swoopes and Lisa Leslie win theirs.
+- I think it'd be pretty cool if I just had like one side of your body tatted and the other side not.
+- Just been getting my faith life together, and I feel like that's honestly putting me at a place of peace to where I can play my game, have fun with it.
+- I always tell kids that I have four brothers. The thing that I have against them is that I'm in the NBA, but they all have degrees and I don't. That's something that challenges me in a way.
+- That's one thing I don't want to happen is a regret getting a tat because that bad boy not going away.
+- I'm a huge gamer, I love 'Madden,' love 'FIFA 2K,' anybody that knows me knows I love Xbox. I do play Playstation as well, though, so I'm not one-dimensional, so don't get it twisted, PS4 fans, I can do both. I do play online.
+- It just kind of puts you in awe a lot of times. To see fans, and especially kids, really want a bobblehead or really want your jersey, that's something you only dream of. Sometimes we take it for granted, don't understand the importance of it, how a little bobblehead can make somebody's day.
+- Football was probably my favorite sport growing up. But I didn't have the body.
+- My suit collection is very diverse. I love my suit collection. But yeah, my casual wear's more me. I actually pick out what I wear casually. My stylist does all of my suits, I need help in that category.
+- I play the game because I love it.
+- I never get into the game of playing GM.
+- I just want to go out there and play basketball, do it at a high level, put us in a position to win.
+- I hate change.
+- Tattoos are addictive.
+- Kobe's footwork I'm a huge fan of because he prides himself on that and I feel like that's an important piece to the game - having the proper footwork and the strength, and just knowing where you are on the floor by just looking at the floor.
+- Ultimately goal is to win, man. Whatever that looks like.
+- I didn't want to leave school early, honestly. I had just established relationships with my teammates and I knew people there and I didn't want to give that up and start something new.
+- I adjust to who is with me, who I'm playing, the new guys we add.
+- I mean, defending isolations is easy, but it's hard at the same time. I think I'm a pretty good defender, but when you go against guys that can make tough shots, it makes you feel so bad, like, 'Oh, man, these guys just made a tough shot on me.'
+- Basketball is basketball. And whether it's male, or female, or has any other label attached to it... that really doesn't matter to me. It really doesn't matter who's playing. Hoop is hoop. Game is game. If you have it, I'll recognize it. Period.
+- I'm comfortable with any pick-and-roll, honestly. I'm so used to it.
+- It would be great to play in one place forever. But at the same time, you want to win and make sure you're in a position to do so.
+- Hopefully, I'll be top-five, top-10 in my position to ever play.
+- I've grown into that more aggressive, more selfish basketball at times.
+- Besta Beal has no chill, and I love her for it.
+- That's what it's all about: being a team and being a family. I would love to go into a situation like that and just be a part of it.
+- You always have to prove yourself. I'm big on that.
+- When the season is on the line, it forces you to play your best basketball.
+- For me, coming up, the first I had ever heard of basketball? It was from my mom. She was a really good player back in her day, and even played college ball at Kentucky State. And then she went on to become a coach and an AD after that - so she always stayed real close to the game, and kept it a part of her life.
+- Do I want to be an All-Star? For sure.
+- My first tat, I was 14.
+- I don't care about stats.
+- I'm a silent assassin - I can say that.
+- I would say a guy I always respect and admire is Dame. I always liked Dame's game. I watch him, just his work ethic.
+- You need to have a short-term memory. That's a big thing that I learned a lot. Moving on from games, even good games that I have. Move on from them and be prepared for the next night.
+- Ultimately, I want to make the playoffs.
+- I'm not best friends with Giannis, and I'm not best friends with LeBron. I know them both, and I'm cordial with both.
+- U.S.A. and the NBA are two different brands of basketball.
+- My style is very laid back. Just wearing a t-shirt, jeans, and kicks.
+- I'm honored and humbled to be named the Seasonlong NBA Community Assist Award winner.
+- My small circle is really just my family. They're really close and dear to my heart and it's always great to have them watching my games, critiquing my games and making sure I'm alright at all times.
+- You never grow up thinking you'll have your own personal bobblehead. And then when you make it, it's like, 'Damn, here's a little mini statue.'
+- I get to play basketball for a living.
+- I'm kind of undersized for a two-guard, but I have a strong body. Not a lot of guys know that until I start moving them a bit, and they realize they actually can't post me up that easily.
+- I don't want anything given to me.
+- I just want to continue to be better and better and better.
+- I feel like if I have a ring, that's far better than being an All-Star. As an individual accolade, for sure, 100%, I want to be one.
+- I'm easy to adapt to. I'm not going to come in and say I need this shot, I need the ball here or there. Doesn't matter.
+- People make it seem like I'm trying to get hurt, you know what I'm saying? I'm not here, like: 'Oh, hit me in the head on this play!' Nah, it just happens.
+- Guys really do get better as the playoffs go along.

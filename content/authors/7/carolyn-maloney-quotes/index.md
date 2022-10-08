@@ -1,0 +1,17 @@
++++
+author = "Carolyn Maloney"
+title = "Carolyn Maloney Quotes"
+quotes_len = "11"
+description = "the best 11 Carolyn Maloney Quotes"
++++
+- Nine out of ten adult Americans have a checking account. It's the most widely used financial services product in the United States.
+- Women deserve the same permanent rights and explicit protections given men in the Constitution.
+- While men's rights are guaranteed by specific language in the Constitution, women's equal rights aren't mentioned.
+- I was proud to be an original cosponsor of the Violence Against Women Act when Congress passed it in 1994, and was proud to support the previous renewals in 2000 and 2005. These bills always enjoyed large, bipartisan support.
+- The proposal that men and women should be treated equally under the law is hardly a controversial concept.
+- I believe very strongly in paid sick leave.
+- If you ask around, it's pretty easy to find someone who has a bank account overdraft horror story to tell.
+- The only way to ensure equality for women is to clearly declare it in our Constitution.
+- In America, we have long stood by the principle that the protections of the law are not meant just for some.
+- We need a mayor who knows how to balance a budget, who understands the urgency of delivering all the services that a great city needs, who understand the need of working families.
+- We cannot ensure that women will be free of discrimination in the workplace and everywhere as long as women are not universally defended under our Constitution. As it stands now, the equal rights of women are subject to interpretation of law. That is a risk our mothers, sisters and daughters cannot afford.

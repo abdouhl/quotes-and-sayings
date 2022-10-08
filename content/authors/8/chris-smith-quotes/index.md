@@ -1,0 +1,23 @@
++++
+author = "Chris Smith"
+title = "Chris Smith Quotes"
+quotes_len = "17"
+description = "the best 17 Chris Smith Quotes"
++++
+- I don't just write letters. I write laws.
+- My favorite is Matthew 25: 'The Lord said, 'Whatever you do to the least of my brethren, you do to me.' I truly believe that.
+- What my Republican colleagues often don't understand is that labor is a human-rights issue. I have to remind them Lech Walesa and the Solidarity movement brought down the Communist bloc.
+- The passage of time hasn't changed the fact that abortion is a serious, lethal violation of fundamental human rights, and that women and children deserve better, and that the demands of justice, generosity, and compassion require that the right to life be guaranteed to everyone.
+- Abortion is child mortality.
+- Rather than dull our consciences to the unmitigated violence of abortion, the passage of time has only enabled us to see and, frankly, better understand the innate cruelty of abortion and its horrific legacy - victims - while making us more determined than ever to protect the weakest and the most vulnerable.
+- We've had a tone-deaf White House that does not want to be reasonable. President Obama won't meet with the Republicans. It's all his way.
+- I believe evidence is overwhelming that chronic Lyme is a terrible, overwhelming disease, and we need to find ways to treat this. To say otherwise is an inaccurate and unscientific opinion.
+- Life is the ultimate right.
+- The world is a challenging place in terms of wars and peace, basic human rights and freedoms. The Holy Father has a major role to play in global affairs. The pope is more than a spiritual leader. For the world's 1.2 billion Catholics, he is an inspiration of holiness and goodness and, above all, the faithful proclamation of the Gospel.
+- Society and government at all levels - the state level, the local level and, of course, the federal level - really needs to redouble its efforts if we're really going to make a difference in combating autism.
+- Pregnancy is not a disease. The child in the womb is neither a tumor nor a parasite to be destroyed.
+- China's one-child policy punishes families for having 'out-of-plan' children, resulting in sex-selective abortion and tens of millions of 'missing girls' as well as forced abortion and sterilization campaigns.
+- I believe in the sanctity of human life, from the womb to the tomb.
+- When political leaders fail to denounce anti-Semitic violence and slurs, the void is not only demoralizing to the victims, but silence actually enables the wrongdoing. Silence by elected officials in particular conveys approval - or at least acquiescence - and can contribute to a climate of fear and a sense of vulnerability.
+- Who provides the love and a path to reconciliation? It's not Planned Parenthood; it's the Catholic Church, the other Christian churches, and the ministries they have created.
+- Parental child abduction is child abuse.

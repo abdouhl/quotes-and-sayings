@@ -1,0 +1,106 @@
++++
+author = "Rhiannon Giddens"
+title = "Rhiannon Giddens Quotes"
+quotes_len = "100"
+description = "the best 100 Rhiannon Giddens Quotes"
++++
+- Each song has its own way that it likes to be done, but it can be more than one way. If you tap into it, you can feel it.
+- It's really funny how I've come round to classical music around the back door with my banjo in my hand, and I love it.
+- My life used to be record, tour, record, tour. You can never say no as a freelance musician. I was on the road 200 days a year.
+- Anybody who thinks the lute just came out of a vacuum doesn't know the history.
+- There is a black folk music audience. They're just very small.
+- Well, you know, the original banjos were all handmade instruments. Gourd - it would be made with gourds and whatever, you know, materials would have been around. And, you know, first hundred years of its existence, the banjo's known as a plantation instrument, as a black instrument, you know?
+- I love being on the road and I love my band, but also need to be with my kids more and I need to be creating more.
+- Ibn Said's autobiography is an extraordinary work, and his story is one that's absolutely crucial to tell.
+- The question is not how do we get diversity into bluegrass, but how do we get diversity back into bluegrass?
+- I don't consider myself at the kind of stature of somebody who can play five cities on a tour, and that's it. I go where I'm wanted, and I've always had the rural areas of the country. We've always gone there, since the Carolina Chocolate Drops. There's a fan base that's there, and if I can afford to do it, I do it.
+- History is my biggest teacher.
+- I kind of have found my identity through the music, through the roots music of North Carolina, and kind of realized that that's my identity as a North Carolinian.
+- I'm so interested in the feminism of women in American music. These ladies, going out on the road, way before the opportunities and advantages that I have - it was absolutely rough out there. The fact that they were still able to get their art out there and do what they're doing is really impressive to me.
+- My dad's white, my mom's black, and I've struggled with being mixed race.
+- When I first got into string-band music I felt like such an interloper. It was like I was sneaking into this music that wasn't my own... I constantly felt the awkwardness of being the raisin in the oatmeal.
+- I really got into Gaelic music and the whole sound of it, and I got to go to Scotland.
+- That was the special thing about the Carolina Chocolate Drops. We didn't want to do music full-time. We weren't looking to get rich, which is good, because we didn't. But we went further than we thought we would go. We started that band to celebrate Joe Thompson and the black string band music. That's not really a recipe for commercial success.
+- To sit in my concert and be uncomfortable is brave. Because you could always leave, you know?
+- Separation in culture and arts does nobody any favors except for the people in power. That's just it... So I feel like I'm in the business of challenging that narrative.
+- My work as a whole is about excavating and shining a light on pieces of history that not only need to be seen and heard, but that can also add to the conversation about what's going on now.
+- In order to understand the history of the banjo, and the history of bluegrass music, we need to move beyond the narrative we've inherited, beyond generalizations that bluegrass is mostly derived from a Scotch-Irish tradition with influences from Africa. It is actually a complex Creole music that comes from multiple cultures.
+- Nobody can know what their legacy is going to be, you know?
+- I used to subscribe to Nintendo Power. The first issue had 'Mario 2,' and it had all the characters rendered in clay. So I started making all of these characters out of clay.
+- My stuff lives in Nashville but I live wherever my children are.
+- I wouldn't be out here touring constantly if I didn't hope that my music was going to do something to somebody.
+- When you are a commercial music artist, your music depends on your popularity.
+- Being mixed in the South, that's a struggle that everybody deals with differently. Some people go careening to one side or the other, and some people try to walk a tightrope between the two. I grew up spending equal time with both sides of my family.
+- I don't have a genre because I play lots of different music that people would say are different genres.
+- I think that we definitely want to experiment, and if there's a hip-hop song that we like, we'll cover it. We don't want to be one of those bands that's like, you know, you know - Carolina Chocolate Drops does hip-hop. I mean, just know - you know, if it naturally works itself in, you know, cool.
+- You know, I really feel a responsibility to the music, and I teach workshops in music sometimes. And folks do come to me and they go, 'How do I make this blues song my own? How do I feel like I'm not an impostor doing this?' And I'm like, 'That's an excellent question.' That's where you should start, where you go, 'How does this speak to me?'
+- It's kind of remarkable, everything that's happened to me. It's been such a whirlwind, but in a good way.
+- It's not about me, it's about the music. I don't do this because I want to be a star. I don't do this because I want to make a lot of money.
+- I don't want to go on a talk show and talk about stuff I don't know about.
+- I hate genres. I think they're just marketing labels.
+- When I got into college, I got into operatic vocalists, like Leontyne Price.
+- We have been fed so many false narratives, many of them racialized to deliberately feed a racist agenda. It's important to address and dig into that wherever you can.
+- I'm a North Carolina native. Grew up in North Carolina.
+- I'm still black in the eyes of America.
+- I'm discovering so much about how invisible, othered and dismissed the Islamic world is, in terms of the massive effects it had on European music and culture.
+- There is music out there that is commercially driven, whether you like it or not. That's a peculiarly American innovation. We innovated the commercial music business.
+- I'll talk about the banjo all day long and the history of minstrel shows.
+- To learn the history of the banjo is to recover the actual history of America.
+- The banjo is my chosen instrument - it's what I write my music on.
+- I think songs can have different lives.
+- I've always liked women singers and appreciate a good story being told. That's what country music used to do on the radio.
+- Getting into the banjo and discovering that it was an African-American instrument, it totally turned on its head my idea of American music - and then, through that, American history.
+- We're not here as a black band playing white string band music. You know, we play stuff in the Appalachians, we play stuff in the white community, but we really highlight the black community's music.
+- I always felt culturally adrift as a child because I'm mixed race. I've had to deal with that since I was little. Who am I? What makeup do I have? What are the black and the white?
+- I don't watch 'Game of Thrones.' I don't watch TV. I don't watch Hulu.
+- I would be thrilled with anybody who cites my work as something that inspired them.
+- I keep starting supergroups, writing ballets and things like that.
+- If I want to support my family and my crew, we have to be on the road, and that's really tiring.
+- The best part of a MacArthur is having some pressure taken off from touring relentlessly.
+- I love the U.K. folk scene. In the States, nobody knows what to do with me. There's still a very narrow definition of Americana.
+- If I wasn't touring, I wasn't making money. When I got the MacArthur, I could get off that hamster wheel. It meant I didn't have to do anything.
+- Music affects people in a way that bare facts can't.
+- I grew up listening to country music. I got into traditional stuff later, but I listened to the commercial stuff of the '90s, especially the women who were so strong, like Mary Chapin Carpenter and Kathy Mattea. It's a great art form.
+- When I first heard the minstrel banjo - I played a gourd first - I almost lost my mind. I was like, Oh, my god. And then I went to Africa, to the Gambia, and studied the akonting, which is an ancestor of the banjo, and just that connection to me was just immense.
+- I like Queen Latifah.
+- In the commercial music world, the folk world, we sell records and concert tickets - this is the way I make a living. You go out, you make your art and hopefully people will put their money down for it. But it's getting hard. I have to be on the road so much to keep the lights on.
+- American music is always best when it comes from a mixture of things.
+- I've been getting interested in reimagining folk songs and writing songs that should have existed but didn't, particularly around the Civil War when black voices were muted and only allowed particular channels.
+- People seem ready for a more in-depth idea of folk music, culture and history.
+- We have to talk about the negativity, but we have to enjoy the beauty of what this country, culturally, has done.
+- I play a replica of a banjo from the 1950s. It was the first commercial-style banjo in the United States so it's the first one that white people played.
+- You have to find the balance of figuring out how can I be effective? How can I use my platform for good, you know, without jeopardizing everything so that I don't have that platform anymore.
+- I'm not an urban black person. I'm a country black person.
+- I'm really taken with 'Calling Me Home' by Alice Gerrard.
+- I have to continue to work, and I have to be touring, because that's how I earn a living.
+- Know thy history. Let it horrify you; let it inspire you.
+- There are people who have incredible stories that we don't talk about. People who did amazing things, men and women who faced incredible odds, and there's nothing wrong with them being heroes for once, you know?
+- People think art comes out of strife. No, art comes out of love, and it comes out of freedom, and it comes out of feeling safe, and it comes out of feeling embraced by the vibe and by the energy. That's when you can make your best stuff.
+- When I do Gaelic music, I've learned about Gaelic culture; I've tried to learn the language. Whenever I do mouth music and there's Gaelic speakers in the audience, and they come up and go, 'Good job,' I'm always like, 'Phew.'
+- I love singing opera, but the world surrounding it is not me. I want to be barefoot. I want to be in control of my own career. I want to put on a show. In the opera world, you wait for people to call you until you get to a certain level. In the folk world, it's a lot easier to have control from the beginning.
+- I remember so vividly the first time I saw one of Marshall Wyatt's superb compilations called 'Folks He Sure Do Pull Some Bow' and seeing a picture of a black fiddler and freaking out. I had stumbled upon the hidden legacy of the black string band and I wanted to know more.
+- So my mom's folks are from one side of Greensboro - and, you know, outside of Greensboro. And my dad's folks, the white side, is from another very small town outside of Greensboro. So both sides are coming from the country.
+- There was such hostility to the idea of a banjo being a black instrument. It was co-opted by this white supremacist notion that old-time music was the inheritance of white America.
+- I think it's important that everybody has access to music, and not just people who live in cities or who can afford to drive to the nearest city.
+- People who put Europe in the center of the universe, they're very fragile.
+- I'm not gonna force something or fake something to try to get more black people at my shows. I'm not gonna do some big hip-hop crossover.
+- I mean, my training at Oberlin has been absolutely valuable.
+- When you sit at the feet of an elder, it changes you.
+- The truth, the real history, is way more interesting and representative of what America actually is.
+- When you hear composer, you think, like, Beethoven: guy in a powdered wig, at a piano, furiously scribbling on manuscript paper. That's not the only image that a composer should bring up, you know. But that's kind of what we've said it is.
+- I couldn't stand the politics in opera.
+- White people are so fragile, God bless 'em. 'Well, I didn't own slaves.' No you didn't. Nobody is asking you to take personal responsibility for this. But you're a beneficiary of a system that did. Just own that and move on.
+- People say, 'I'm tired of thinking about race, it's a drag.' Yeah, well, welcome to my life! I don't care who you are. We have the time and the headspace for this stuff. The least you can do is take a moment.
+- The first band I was in out of college was a Celtic band, and I had to learn to sing with a microphone, because I'd never done that before. At Oberlin, I never used a mic for any kind of singing.
+- Every song has a heart, and I just go for that.
+- For me the bare feet are grounding. I'm connected to the Earth in a way that I cannot be any other way.
+- Othering people is something that humans have done for ever.
+- African-American history is American history.
+- What's really interesting to me is to have a connection to what was going on in the past, but to make it a living thing.
+- I'm really interested in history and when I looked into the settlers who came to my home state, North Carolina, I found that the largest settlement of Hebridean islanders outside of Scotland was right there in North Carolina.
+- Black women have historically had the most to lose and have therefore been the fiercest fighters for justice.
+- I had this dream like years ago. I had this dream - I wanted to be in an all-black string band.
+- I stood on people's shoulders, so I want to be there for somebody else to take it even further.
+- I'm not good at planning ahead because it's just too much. I plan, set it up and then don't think about it again until it's almost time. That's just how it goes.
+- At some point you have to take responsibility for who you are and where you are and being able to listen to other points of view, whichever side of the tracks you're on.
+- I decided to study music my last year in high school.

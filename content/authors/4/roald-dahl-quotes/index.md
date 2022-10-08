@@ -1,0 +1,42 @@
++++
+author = "Roald Dahl"
+title = "Roald Dahl Quotes"
+quotes_len = "36"
+description = "the best 36 Roald Dahl Quotes"
++++
+- Two hours of writing fiction leaves this writer completely drained. For those two hours he has been in a different place with totally different people.
+- Prayers were held in Assembly Hall. We all perched in rows on wooden benches while teachers sat up on the platform in armchairs, facing us.
+- I never get any protests from children. All you get are giggles of mirth and squirms of delight. I know what children like.
+- The writer has to force himself to work. He has to make his own hours and if he doesn't go to his desk at all there is nobody to scold him.
+- A person is a fool to become a writer. His only compensation is absolute freedom.
+- All Norwegian children learn to swim when they are very young because if you can't swim it is difficult to find a place to bathe.
+- Did they preach one thing and practice another, these men of God?
+- My father was a Norwegian who came from a small town near Oslo. He broke his arm at the elbow when he was 14, and they amputated it.
+- I find that the only way to make my characters really interesting to children is to exaggerate all their good or bad qualities, and so if a person is nasty or bad or cruel, you make them very nasty, very bad, very cruel. If they are ugly, you make them extremely ugly. That, I think, is fun and makes an impact.
+- A writer of fiction lives in fear. Each new day demands new ideas and he can never be sure whether he is going to come up with them or not.
+- When you're writing a book, with people in it as opposed to animals, it is no good having people who are ordinary, because they are not going to interest your readers at all. Every writer in the world has to use the characters that have something interesting about them, and this is even more true in children's books.
+- Had I not had children of my own, I would have never written books for children, nor would I have been capable of doing so.
+- All through my school life I was appalled by the fact that masters and senior boys were allowed quite literally to wound other boys, and sometimes very severely.
+- Pear Drops were exciting because they had a dangerous taste. All of us were warned against eating them, and the result was that we ate them more than ever.
+- To shipbrokers, coal was black gold.
+- Though my father was Norwegian, he always wrote his diaries in perfect English.
+- The adult is the enemy of the child because of the awful process of civilizing this thing that, when it is born, is an animal with no manners, no moral sense at all.
+- Unless you have been to boarding-school when you are very young, it is absolutely impossible to appreciate the delights of living at home.
+- I shot down some German planes and I got shot down myself, crashing in a burst of flames and crawling out, getting rescued by brave soldiers.
+- 'Dexter' is a very well-oiled machine; it's just a great show and great to be part of.
+- A little nonsense now and then is relished by the wisest men.
+- The writer walks out of his workroom in a daze. He wants a drink. He needs it.
+- I was a fighter pilot, flying Hurricanes all round the Mediterranean. I flew in the Western Desert of Libya, in Greece, in Syria, in Iraq and in Egypt.
+- I am only 8 years old, I told myself. No little boy of 8 has ever murdered anyone. It's not possible.
+- Pain was something we were expected to endure. But I doubt very much if you would be entirely happy today if a doctor threw a towel in your face and jumped on you with a knife.
+- Nowadays you can go anywhere in the world in a few hours, and nothing is fabulous any more.
+- The Bristol Channel was always my guide, and I was always able to draw an imaginary line from my bed to our house over in Wales. It was a great comfort.
+- When I walked to school in the mornings I would start out alone but would pick up four other boys along the way. We would set out together after school across the village green.
+- I do have a blurred memory of sitting on the stairs and trying over and over again to tie one of my shoelaces, but that is all that comes back to me of school itself.
+- An autobiography is a book a person writes about his own life and it is usually full of all sorts of boring details.
+- If my books can help children become readers, then I feel I have accomplished something important.
+- I go down to my little hut, where it's tight and dark and warm, and within minutes I can go back to being six or seven or eight again.
+- The fine line between roaring with laughter and crying because it's a disaster is a very, very fine line. You see a chap slip on a banana skin in the street and you roar with laughter when he falls slap on his backside. If in doing so you suddenly see he's broken a leg, you very quickly stop laughing and it's not a joke anymore.
+- I began to realize how simple life could be if one had a regular routine to follow with fixed hours, a fixed salary, and very little original thinking to do.
+- When I was 2, we moved into an imposing country mansion 8 miles west of Cardiff, Wales.
+- Nobody gets a nervous breakdown or a heart attack from selling kerosene to gentle country folk from the back of a tanker in Somerset.

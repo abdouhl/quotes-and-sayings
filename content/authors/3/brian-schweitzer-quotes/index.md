@@ -1,0 +1,19 @@
++++
+author = "Brian Schweitzer"
+title = "Brian Schweitzer Quotes"
+quotes_len = "13"
+description = "the best 13 Brian Schweitzer Quotes"
++++
+- We can push Montana forward and we can do it with out raising taxes.
+- I know that Montana is the greatest place in the world to raise a family, to start and grow a business. You know it, and I know it and now we will tell the world.
+- You can't pay for healthcare if we're sending a trillion dollars a year to dictators.
+- I do feel a lot more comfortable when my dog is with me.
+- The big guys, the big dogs, are going to own everything from the White House to the courthouse.
+- And yes, the Homesteaders, including my grandparents who left behind almost nothing, and arrived in Montana with nothing but the clothes on their back, high hopes, faith in God and dreaming of the future.
+- I challenge you to be dreamers; I challenge you to be doers and let us make the greatest place in the world even better.
+- No, money is power.
+- We have always been dreamers in Montana.
+- We need to work our level best in this legislative session to help grow Montana's economy, so that grandchildren can stay in Montana, grandchildren can visit their grandmother and grandfather by driving across town, not flying across the country.
+- Good ideas are the backbone of good government.
+- I don't know a single Republican in Montana who would get in a fight in a bowling alley for John McCain.
+- We work for the families back home, we do not work for the lobbyists that prowl the halls of the capital building, do not forget who we work for.

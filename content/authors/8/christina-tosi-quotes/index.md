@@ -1,0 +1,106 @@
++++
+author = "Christina Tosi"
+title = "Christina Tosi Quotes"
+quotes_len = "100"
+description = "the best 100 Christina Tosi Quotes"
++++
+- Any team member, any community member wants and needs to know they count, that they're welcome, and that they're important.
+- I guess technically I am a female chef, but I don't really think of myself as such.
+- My family, as you can probably guess, was more into Christmas cookies and not so much the fruitcake.
+- As a chef, I got into this because I love the creative energy and I love the science, but I also love to feed people and make them happy.
+- I make a huge batch of cinnamon buns on Christmas Eve and bake them off early Christmas morning.
+- Why not question what can or can't be a layer in layer cake?
+- My first season of 'MasterChef' was tricky. I took a risk going into TV. I was confident it was the right risk and confident I'd break down barriers as the first female judge - and one that was previously only known for the sweeter side of the kitchen.
+- Nike Air Zooms are what I usually run in. In the kitchen, I wear a beaten-up pair of Converse All-Stars in winter and Keds in summer.
+- I approach life with a 'jump' sort of mentality, although I wasn't raised to take crazy risks. I was raised to be a crazy hard worker. It seems to be a pretty good match of qualities.
+- Every time I baked cookies for people as a kid, it made me so happy. But when I was in culinary school and working in fine-dining restaurants, that was not a thing.
+- Good food is good food. It doesn't have to come with pretense.
+- When I'm menu-developing at Milk Bar, I'll go for weeks at a time where all I'm doing is testing out layer cakes or different cookies and testing out changes.
+- The hardest thing to do is dig deep and be patient about the things you're going to learn month to month and quarter to quarter.
+- When I opened Milk Bar in November 2008, I was quite adamant about making sure the bakery was an honest reflection of life and food through my eyes. I had no intention beyond that.
+- Being a great baker and pastry chef requires the upmost open mind. I try every dessert that comes my way!
+- There's something about fall that very much translates into those nurturing, nostalgic food flavors. It's the season where you can really make the marriage of fresh produce with spices and aromatics.
+- When you taste something delicious, ask for the recipe! Or offer to trade a recipe!
+- I like trying to keep as honest and straightforward of a point of view in our kitchen as possible.
+- The secret to having an epically beloved bakery is consistency.
+- It's that strength of the human spirit, the strength of what's deep down in you, that's really going to get you anywhere and everywhere.
+- Baking without gluten is an awesome challenge in terms of the opportunity to learn so much more about what you can create.
+- I have worked my way up in the food industry being strong and steady about who I am as a person, first and foremost, as a chef and professional, and certainly as a woman.
+- Inspiration is one thing. Stealing is another.
+- Most of my memories are of softball games in Falls Church with my sister, yard sales across town on the weekends with my grandma, grocery-shopping and errand-running with my mom, learning to drive an old Volkswagen bug down Old Keene Mill Road with my dad.
+- My curiosity and love for food started at an early age. My mother was a working mom, so I learned to whip up sweet and savory food using everyday pantry and grocery store ingredients that required little supervision.
+- I was always taught to be myself, be honest, and be true to my roots.
+- I was raised by a gaggle of women who all loved to bake. Dessert always existed after any savory meal. I was raised with cookies on the plate, brownies in a Tupperware container, and so on.
+- Whenever I get in a car and I'm going to or from the airport or the train station, I put on a TED Talk using the TED app. It makes the trip go by super fast, and it fills my sails.
+- Simple jewelry is best - bigger pieces get in the way when I'm baking.
+- When I get up early, I appreciate the quiet time to enjoy a coffee or water my plants.
+- As a boss, as a CEO, as a creative director, as a chef, I've learned that failure will always come. I've learned to give it a big squeeze, smile at it, humble myself to it and then use it as a springboard to send me on my way to strength, success, and fulfillment.
+- I love feeling exhausted after a good, hard, honest day's work.
+- I worked in a bunch of really tough kitchens, but when I got yelled at and screamed at, it wasn't really for being a woman. It was just for making a bonehead mistake.
+- There's nothing worse than not being excited about a trip.
+- You can't do a good deal with bad people, and you can't do a bad deal with good people. I often use that as my compass.
+- I feel like a million bucks when I get to work and I've already exercised.
+- I was raised by my Depression-era grandma who taught me to use what you've got: Waste not, want not!
+- Out of culinary school, I worked as a pastry cook in amazing restaurants for years. I ended up leaving the pastry cook scene because, though I loved the industry, the restaurants and the chefs I worked for so much, I had to be honest with myself. I was never going to be them.
+- I love a good challenge of looking with new eyes at a tried and true recipe in my recipe Rolodex.
+- I think the cereal milk is my most proud achievement.
+- If you're coming to dinner at our house, you know you're gonna be well-fed.
+- I took a Chinatown bus to New York to enroll in the International Culinary Center's pastry program.
+- Being humble is one of the most important things, and not being afraid to put yourself out there is important. I think really successful chefs put themselves out there on a daily basis.
+- I like to move around a lot - I'm a big runner, and I often get on a bike and ride from meeting to meeting.
+- I went to culinary school to eat.
+- I have this nook at Milk Bar that's my office, and my desk was just full of every box of Kellogg's cereal, and at different times during the day, I would open up a box, eat a bowl of cereal, and I live in a world of Post-it notes, so I would leave tasting notes on all the cereal.
+- When I'm going to do something, I go all in.
+- I think my biggest heartbreak was when I just couldn't get an American cheese cake/pie with a saltine cracker crust and green tomato sorbet to work out in my favor.
+- There are so many messages out there about what you should be eating and drinking and what you should be putting in your body at the beginning of the day. It's confusing, and people get very overwhelmed. Really, one of the greatest options is just a bowl of cereal and milk.
+- I went to college, and I didn't want to be in a sorority, so I started working in restaurants. In my mind, that was my social outlet.
+- I love the challenge of thinking about how we might approach a bowl of cereal. People are getting so involved in foodie culture and becoming more educated about their food, and yet it can be really simple to do something that's so good for you.
+- People underestimate the power of the root vegetable.
+- I love cookbooks. I certainly have my fair share at home, but I'm a really funny cookbook person: I don't really ever cook out of cookbooks. I like cookbooks for the commentary or the pictures or the history.
+- I really didn't have a big relationship with Vegas until I was in my 20s, and now I probably come out four or five times a year. I love it.
+- Both of my parents worked incredibly hard, and eating out was a treat.
+- Eating together was a big part of my upbringing and a tradition we keep daily amongst the amazing team at Milk Bar.
+- There are other things that set me off a lot more than what it's like to be a woman in the kitchen.
+- Running shouldn't feel like a punishment or an obligation. It should be a treat.
+- I love roasted pecans. I'll make a sort of granola with the roasted pecans, turn that into a super nutty pie crust, and top that with apple-syrup pudding and top that with cooked custard and maple syrup.
+- I love to jump around, bounce around, and be active, which is one of the other reasons I decided to pursue a career in the kitchen. I work 12-18 hours a day, and most of it is spent doing just that - jumping, bouncing, and baking.
+- I need healthy options around, or else if I get hungry, I'll go straight for a cookie.
+- I think sharing recipes is such an important part of baking and the baking world.
+- There is no right or wrong way to pair or prepare a dessert. Follow your instincts, edit, and taste-tweak-taste until you get it just right!
+- I never saw the light of day at Bouley. I remember I would bring home a roll of toilet paper a week because we got paid so little, if at all.
+- Failure gets a bad rap, but I'd like to change that. Failure is necessary. Let it in. Chew it up, and use it as fuel for your soul.
+- The matriarchs of my family loved to bake, and the apple didn't fall far from the tree. Baking became something I did every day; it became a time where my creative and nurturing side took stage.
+- The thing I love about Vegas is there's something for any type of mood you're in and something for any kind of adventure you seek out.
+- Know who you are and stay true to it. Have a point of view, keep your head down when noise tries to drown out your inner voice, and whatever you do, keep pushing.
+- I could never really decide what I wanted to be when I grew up, and for a while, I thought that maybe I wanted to be a writer... I've always loved to write, that form of expression.
+- When you open any kind of food service establishment, you do all this planning, but it's not until you've opened the door and people are inside that you learn what people want you to be to them.
+- I love the warmth of apple pie.
+- I live and die by my SodaStream. I love sparkling water. When you're eating all the time, the bubbles are nice to help settle your stomach.
+- Baking's meant to be done at home. It's meant to be a good time. It's not about, like, hoarding secrets. It's about sharing them.
+- I didn't want a desk job; I knew I'd get bored.
+- I chose a career in the kitchen because the thought of sitting and doing the same thing every day and being stationary was not something that I could get my head around.
+- I feel like a lot of the pastry chefs and chefs I worked for and worked under were always really, really big on the philosophy of 'everyone's in it together in the food world.'
+- Nothing feels better then to sit down on a six-hour flight with tired muscles from a workout.
+- I used to exist on just two or three hours of sleep, no problem, like sleep wasn't even a thought. Sleep was just like a chore that you had to do late at night.
+- I love checking out aspiring bakers' offerings at local farmers' markets when the weather is nice.
+- I'm a fan of the hand-me-down recipes - friends, family, bake sales, community cookbooks - those are the recipes that have withstood the test of time and fed many hungry fans.
+- No matter how bad your day is, when you start talking about cookies or cakes or pies, or you bring someone cookies, there's just not bad news. The worst news is, 'Hey, there's sugar in that.'
+- When I first opened Milk Bar, I was also making desserts for the Momofuku restaurants. I will say that by day three or day four, I realized that operating a bakery was so different from operating a restaurant.
+- I'm not a normal person with normal tastebuds, so I'll save you all from cringing/dissing on my late night flavour pairings, but I will say when I was a kid, with little to no access to anything but my mother's pantry, I'd dip everything in ranch dressing, Miracle Whip, katsup, barbecue sauce, honey, mustard, etc.
+- Simple syrup doesn't taste like anything.
+- Whether I'm making a gluten-free cookie or a lactose-free milkshake, my end goal is always to make it so awesome, clever, and creative that you'll want to indulge whether you have a sensitivity, dietary nuance, or don't.
+- Nothing could be lovelier than running across the Golden Gate Bridge in the middle of the fog.
+- At first, learning to bake was purely selfish, but I quickly learned I can't eat every batch of cookies myself, so I would bake and eat what I wanted and give the rest away. I fell in love with feeding others as much as I loved eating sweets myself.
+- I was an infamously picky eater as a child but also had an infamous sweet tooth. All I wanted was dessert for every meal of the day.
+- When I was about to graduate, I asked myself, 'What could you do every day and never get sick of?' My answer was really simple: Make cookies.
+- I can't think of a community that couldn't benefit from communal thinking.
+- The 'Momofuku Milk Bar' cookbook is rather technical. I wanted it to feel like you were walking into the doors of our kitchen, it was your first day at work, and we were going to teach you everything.
+- I don't watch what I eat, because the concept seems exhausting to me.
+- Milk Bar is a quirky American bakery, where the original inspiration is the humble beginnings of American-style baked goods and loving trips to Dairy Queen.
+- For me, I love Portland. I love the food scene, I love the vibe, the environment.
+- I originally went to school for engineering because I loved math and thought I liked science.
+- Fruitcakes have a bad rap.
+- A bright lipstick is a quick way to glam up my look.
+- Be your own biggest critic. Don't let someone else beat you to constructive criticism.
+- I like to be in over my head always, at all times.
+- I think a lot of people think being in the kitchen is being really serious, and especially that baking is very serious, very straitlaced. For me, it's about figuring out your voice, finding your personality, and getting in the kitchen to explore.

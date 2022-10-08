@@ -1,0 +1,26 @@
++++
+author = "Burt Ward"
+title = "Burt Ward Quotes"
+quotes_len = "20"
+description = "the best 20 Burt Ward Quotes"
++++
+- Why would they have gone to the trouble to hire the best comedy writers in the business to write funny material for us to play straight, if the children in our audience were the only audience.
+- Now, we used to say we put on our tights to put on the world. So I don't think it tarnishes the image at all.
+- You know honestly, I enjoy working with everyone because remember, these were all real pros that had been around the business a long time.
+- I'm hoping that I'll be able to find a distributor to come into Canada with it, because I think it is a wild and crazy romp that really tells things like it is.
+- My book is very wild. But you know during the period of BATMAN, that there were thousands of Batman and Robin costumes sold and these weren't just for kids.
+- In fact I have a full page warning, right in the front of the book, that no one under the age of eighteen should read this book and no one should even turn the pages if they are sexually conservative or erotically deprived.
+- You know, it's a different world now, but to skip ahead and really answer your question, only in the last five years did I find what I call holy maturity, finding the balance, finding the right person in my life so that I could live a normal life.
+- We found that just by the way we stood, affected women dramatically, and if you look at our show, you'll see that we always stood with our legs open our fists on hips and our bat bulges forward, which had a profound effect on women!
+- I mean when you come into the set at 7:30 in the morning and you come out of make-up and the first thing you know, the ladies start coming into our dressing rooms at 7:45.
+- On our show, I must tell you, it was... the 60s was a period of time when everything was free love. People made love to each other. It was a very open life, you know?
+- Maybe it was all those wild times that kept me young.
+- Our characters were antiseptic but we weren't. And if you remember what we did on BATMAN, as the scripts were written very funny, we played them very straight.
+- I was studying acting, going to UCLA, selling real estate on the weekends.
+- I don't see on television the kind of blood and guts and body parts blown apart that maybe you're referring to, but it certainly is in that BATMAN feature and I found it very offensive.
+- I like to protect children. I mean, there's nothing wrong with having adult programming for mature adults that can selectively decide what they want to watch and what they don't want to watch.
+- Even in Los Angeles, where we lived, when we would date somebody or go out with them, if we went out with somebody else the next night, we often found that women were banging on our windows while we were bedded down with other women!
+- No kids should see that kind of violence where Batman is killing as many people as the bad guys.
+- I make personal appearances around the country. I'm starting a book tour now, and I may be coming to Toronto with the Learning Annex, which I'm doing all through the United States, so that may come up just before Christmas.
+- 49 and holding. Holding tight! Fighting that heinous age every step of the way.
+- I have two children. I have a daughter 29, and a daughter four. They are 25 years apart, so you speak about generations and I must tell you, I have a philosophy and that is every 25 years I'm going to sire another child.

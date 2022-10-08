@@ -1,0 +1,106 @@
++++
+author = "Cole Swindell"
+title = "Cole Swindell Quotes"
+quotes_len = "100"
+description = "the best 100 Cole Swindell Quotes"
++++
+- When you find what you love, and you find people that will support you, you're living the dream whatever you do.
+- The power of music is real.
+- Taking care of the people who take care of you - that's how I was raised and how I like to do things.
+- I've always been a huge Eric Church fan. I'll never forget being in college listening to his first album and how much it inspired to write my own music.
+- As an artist, as a person, I don't want to be here for just a little while.
+- For me, that first album, there was a lot of fun stuff.
+- I want people to know that I appreciate every piece of music they buy and every concert ticket because that's what keeps this going. Knowing that people are coming to the shows and enjoying my music makes every long day worth it.
+- We titled it, 'You Should Be Here,' for one, because just how special that song is, and I think it kind of sets the tone for this album. I've established that I like to have fun, but this is a little more than that - this album has got some fun stuff, but it's also got topics that I haven't gotten a chance to touch, and I'm so excited about it.
+- My first album, I had to write everything. Nobody was going to send me stuff just because I had a little success.
+- Sometimes, you want to write how you feel, but making people have fun, that's part of it, too.
+- I wanted to get better at writing, so I knew I needed to move to Nashville.
+- I'm getting to do, like, 11 stadium shows with Kenny Chesney... seriously - that's bucket list.
+- Every single day I wrote a song, I was hoping somebody like Luke Bryan, Jason Aldean or whoever would record the song. It's tough to do because there are so many great songwriters in Nashville, and I was lucky enough to get some songs recorded before I got my record deal.
+- Whenever it was spring break, someone would always have a guitar down at the beach, and they'd play a random song, and I'd sing. Eventually, hearing compliments from people saying I sounded pretty good stuck with me.
+- I get plenty of credit out on the road.
+- We wouldn't be where we are without people loving our music.
+- I just kind of go with what I am feeling and don't think I have any kind of recipe for it... I mean, that's what drew me into writing. It's fun, and sometimes you don't get a great song. Sometimes you do.
+- The fans are always wanting new music, and with as much as I love to write, I might as well give them the music while I've got it.
+- Growing up, all I did was play sports. I always loved music, but I never even thought I'd be on stage one day.
+- If I start putting too much pressure on myself, that's something my mama is there to help with.
+- You don't have a voice yet when you first come out. So even though I knew I had some deeper songs, my first album had to be about the tempo and the fun.
+- Diamond Resorts delivers world-class events and high-caliber hospitality; I look forward to representing Diamond and performing in the 2017 Diamond Resorts Concert Series to help make vacations unforgettable for their members.
+- I want people to know that I am having fun. That's the biggest compliment I can get is when people tell me I'm having a blast out there - if they only knew. I'm having the time of my life every night.
+- I've always wanted to release a song that could actually touch someone and help them through a tough time.
+- Having Dierks Bentley on a song is one of the coolest things I've ever gotten to experience. For one, him agreeing to do a song with me but two, getting to share that moment in the studio.
+- My dad always believed in me. He was always kind of, 'All right, buddy, if that's what you want to do...' My mom was always more of a realist.
+- Georgia Southern was such a big part of me getting my start.
+- I wrote 'Flatliner' with Dierks Bentley in mind in 2013.
+- When I'm getting a chance to do my job or make somebody's day, and be on stage where I love, and see all the fans having fun, you can't help but smile.
+- I was the kid jamming out to the songs on the radio, and now there's hopefully kids out there jamming out to my music.
+- I'm a Georgia Southern boy.
+- I had a publishing deal way before I had a record deal.
+- I always say I broke my mom's heart when I left. I don't know if that's what any mom wants for her kid, just thinking about how hard it is trying to make it in this business.
+- I'm just glad to be singing songs that touch people.
+- Just being from where I'm from, a little small town, I feel like I'm a good judge of character.
+- I am so happy to be able to do what I love. To have the songs I've written for other artists go No. 1 and my songs go to No. 1 has been amazing.
+- When I left college, it broke my mom's heart, but I knew I had to be in Nashville. I knew that was the place you had to be in to become a better songwriter, and that's what I wanted to move there for and to ultimately get a record deal.
+- I'm never the best singer in the world.
+- I always said, if I got a record deal, I'd want to record the best songs I could, whether I wrote them or not.
+- Country's more than about what the music sounds like. It's what you're saying and who you are as a person.
+- I was a business major, but the more I played music and the more I got into songwriting, I realized this is what I loved, but I kept asking myself, 'Is this what I'm supposed to do - move to Nashville?'
+- To do what I love every day and have the support of the fans, it does not happen like this all the time, so it is important to be thankful... I know it doesn't last forever, and we have to get it while we can.
+- Me and Luke are fraternity brothers. Luke Bryan was already in Nashville when I got to college. He had come back to his old fraternity house, which was my new fraternity house. We met there and just kinda stayed in touch.
+- If one person feels the way I felt when I first fell in love with country music, then I'm doing my job.
+- Being a big Braves fan, Turner Field would be cool to play a show at.
+- That's why I fell in love with country music: it made me feel something.
+- Life ain't about just 'Chillin' It.' I've learned that.
+- Before I ever had my record deal, I just had a publishing deal over at Sony ATV. I had that title, 'Flatliner,' and just the idea of a girl stopping everybody's heart - just kind of a fun idea.
+- It's just crazy to have a dream - have a plan - and then it all just kind of comes true. To me, that proves that you have to have a vision first.
+- The older I get, the more special time with family gets.
+- I went to a small high school in - down in south Georgia. Terrell Academy is the name of it.
+- I've been able to experience so many things since I've had my record deal.
+- I wanna have the coolest merch.
+- When something hits you, you better go with it.
+- We need to take care of people that are out there busting their butts trying to make it; that's what everyone's done for me.
+- It was an incredible experience performing for the members and attendees at the Diamond Resorts Invitational; it was such an impressive event, and I was honored to be a part of it.
+- 'You Should Be Here' came from a real place. I lost my father... it was right when I was getting my record deal. There's just been so many moments that he hasn't been here for. It's kind of the reason I wrote the song.
+- I've stopped questioning things and how things work.
+- I like the songs that are fun, that aren't gonna change the world - I've some of those - but even something like, 'You Should Be Here,' that was my chance to say, 'Look, this is me, too. I'm just a normal person.'
+- I know that a lot of our troops like country music. I would love to do anything I could to just help them out.
+- It matters if people believe you or not.
+- I'm not the only one who has ever lost somebody; I'm not the only one who was missing somebody. That's what I love about country music, that's what I love about songwriters, is being able to put out those words, those feelings.
+- That's why I've always loved country music. Whether it's sad, pumps you up, or it's breakup songs, it's all real-life things.
+- I always loved country music. But I didn't even know I could sing. I just knew I loved the music.
+- All I've ever wanted is a nice truck, and that's what I got.
+- Sometimes I get all the credit, and it makes me feel bad because I'm not the only one out here sacrificing everything. There are people out here on the road with me with kids and families, and they're out here busting their backs for me.
+- I like my buddies to come out to shows on weekends, but they hardly ever get to any.
+- On my tour, either they're coming to see me, or they're not.
+- When I say I'm living the dream, I honestly don't know how it can get any better.
+- I know how fortunate I am and my family are to be healthy.
+- No matter how the day's going, when I get out there on that stage, it makes it all all right.
+- I've always wanted to treat people the way I want to be treated.
+- I try to live every day and realize that there are so many folks working hard to try to get to where I am and how fortunate that I am.
+- I've had the chance to meet families with children who are sick, and it's heartbreaking.
+- I'm hands-on with everything. I approve the designs of everything we do because that's my brand that people are buying. I want it to look good.
+- I always say, 'If it looks good on a T-shirt, it would probably be a pretty cool title or cool song.'
+- I graduated with about 23 people, so if you were the least bit athletic, you kind of had to play everything. So I played baseball, basketball, football, ran track, and played golf.
+- I'm blessed to have the platform I have, and I'm going to spread the word. There's a lot of great causes, but I don't know anything that hits you harder than a child being sick. It's not fair; they don't deserve it. I'm ready to know what I can do to help.
+- The fact that I have the chance to learn from the names I've been on tour with, I don't think you can ask for any more than that.
+- You play shows all over the country and hope that radio gets a chance to get out to see you, but that doesn't always happen like that.
+- You get to tell your story through your music if you choose to.
+- After I went to college, I realized that no matter how much I loved sports, I was ready to have fun, and that was right when I started to sing.
+- All I ever wanted to do was write songs, and I just dreamed of putting out an album and having a single that maybe did alright.
+- I want people to know that I'm not just 'Chillin' It.' I'm a real person. There's heartbreak and trials, and I hope I put that in my music.
+- I started to sing after high school, and I may have dreamed about being Randy Travis a time or two.
+- Every year since we got started, I think that it's going to get harder to top it, but with all the support, somehow things keep getting better. That must mean we are doing something right, so we're just going to try to keep doing what we're doing.
+- That's where it all started for me, in clubs and bars, and I don't ever wanna outgrow that.
+- 'You Should Be Here' set the tone that, 'Alright everybody, I want you to listen to this album.
+- I want to be somebody, a person, first that people remember, but also, I want music that I release to still be around. I don't want it to just be cool for a second and be gone.
+- I know how music makes me feel; I know how it affects my life.
+- I just don't want any songs to go unheard.
+- Even though I lost my dad in just a tragic, sudden way, there are so many more stories that are so much worse.
+- This album means a lot to me, and partnering with Cracker Barrel to have it in their stores is very exciting. I am a big fan of the brand, so it was a natural fit to team up with them to have 'You Should Be Here' in its stores nationwide.
+- I remember this song by Clay Walker that came out in the '90s called 'This Woman and This Man,' and it was about breaking up, loss, the pain of moving on, and my parents were just getting divorced at the time, so I listened to it over and over again.
+- If an artist can take two minutes to tweet a fan and make his or her day, why wouldn't they take advantage of that?
+- I started performing in college, but I wasn't writing a lot.
+- I want to do this for a long time; I want people to be saying, 'What is he doing still playing in clubs?'
+- I'm not very patient.
+- There's families all across the country that miss people, but there's nothing like military families.
+- Whether it's a show or an interview, the way I look at it is that one day people might not want to interview me. So I want to enjoy this ride while I can.

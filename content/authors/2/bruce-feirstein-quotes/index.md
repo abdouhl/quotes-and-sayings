@@ -1,0 +1,20 @@
++++
+author = "Bruce Feirstein"
+title = "Bruce Feirstein Quotes"
+quotes_len = "14"
+description = "the best 14 Bruce Feirstein Quotes"
++++
+- In the case of 'Blood Stone,' the producers, EON, Michael Wilson, Barbara Broccoli, David Wilson and Gregg Wilson, had an idea for a story and had a lot of it done. And I came in, worked with them, fleshed it out.
+- The distance between insanity and genius is measured only by success.
+- I would say I'm a casual gamer. I'm not hardcore.
+- I had grown up loving movies and had always wanted to write them.
+- Whenever you do anything with Bond, you've got Cubby Broccoli and Sean Connery looking over your shoulder.
+- I started as a journalist for magazines in New York City, so it was always storytelling. And moving into movies was a natural transition.
+- Our enemies are real. But so are the moral questions and long-term political implications of drone strikes.
+- To paraphrase Jane Austen, it is a truth universally acknowledged that a married man in possession of a vast fortune must be in want of a newer, younger wife.
+- Bond is a classic archetype character, a character that's embedded in our heads forever, one of a lone warrior setting out to avenge a nation - and you find that character across cultures.
+- The great thing about games is that it's tremendously collaborative, and it opens you up to this other world of thinking and storytelling and how you construct those stories.
+- Never settle with words what you can accomplish with a flamethrower.
+- I think you need to understand games to write them. There's a learning curve, just like there's a learning curve in anything. It's not precisely the same as film or television, but you're using the same muscles.
+- Yes, I play computer games. I think you've got to embrace the latest technology. For someone to dismiss games as not important would be the same as saying the Internet is not important.
+- Games have has as much an impact on Hollywood filmmaking as MTV music videos did.

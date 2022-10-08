@@ -1,0 +1,106 @@
++++
+author = "Chris Grayling"
+title = "Chris Grayling Quotes"
+quotes_len = "100"
+description = "the best 100 Chris Grayling Quotes"
++++
+- When you talk to unemployed young people you hear one thing above all others - if you haven't got experience how can you get a job? But if you don't have a job, how can you get experience?
+- We need to be self-confident, ambitious, and relentlessly internationalist in our outlook.
+- Britain is a country of glass ceilings.
+- If we have unlimited migration in perpetuity, the pressure that will put on the lives of those in and around London and the South-East, in terms of housing and pressure on public services, will be something that all of us come to understand, in my view, is simply not copable with.
+- I'm a lightning rod for the anti-Brexit brigade.
+- It was never the case that prisoners were simply allowed unlimited parcels - books or otherwise... It would be a logistical impossibility to search them all, and they would provide an easy route for illegal materials.
+- We need society, and particularly the victims of crime, to believe justice is being done.
+- All too often, ambulance-chasing has been simple fraud. People are encouraged to launch a claim for whiplash when no one has been injured. Phone calls ask you to claim for accidents that never happened.
+- Britain cannot afford to allow a culture of Left-wing-dominated, single-issue activism to hold back our country from investing in infrastructure and new sources of energy and from bringing down the cost of our welfare state.
+- The problems of gang crime you find in some parts of the north are little different to the problems you find on the streets of south London.
+- I do not believe that as a country we are completely ill-prepared for no-deal Brexit. It is not the optimal solution it is not the best outcome for Britain, we will do much better than people expect.
+- Good health and safety really matters - we need to protect people against death and serious injury in the workplace.
+- The arrival of DNA testing has brought new dimensions to the investigation of crime. It has brought resolution to old cases where past investigators were unable to uncover the truth. It has brought justice in new cases where once the truth might never have been known.
+- Are we really going to accept the situation where the government of Lithuania has more power over our trading relationship with the Commonwealth than our government does? That is the reality of the customs union.
+- The growth of cycling is a good thing. But good cycling is responsible cycling.
+- The SNP talks a lot - but they have proved that they cannot deliver.
+- We've got a very poor record on unnecessary red tape; extra cost to business; people being asked to do things they don't need to; over the top regulation, misinterpreted regulation, poor guidelines.
+- We need to scrap the Human Rights Act and need a balance between rights and responsibilities.
+- Scotland is a great country. It's integral to the U.K.
+- Police on the street need the discretion to deal quickly and easily with routine misdemeanours which need to be recorded but need not take up court time - and where there is no doubt about guilt.
+- Whether it is kids carrying knives because they are in gangs or kids carrying knives because they are afraid of gangs, it is the gang culture that underpins the problem.
+- The railways should be run in the best interest of passengers and, overall, taxpayer's money should be spent improving the network, not subsiding it.
+- This is not rocket science. If you mentor and support people when they leave prison they're less likely to reoffend.
+- It is already tough to buy a house. But if we are bringing a population the size of Newcastle upon Tyne into the country every single year, if we cannot set limits on the number of people that come and work in Britain, then simple maths says it is going to be even more difficult to get on to the housing ladder.
+- I think that far too often we let those who commit crimes in our society off far too lightly.
+- To survive in the future, we will need our economy to be dynamic, entrepreneurial, innovative and flexible.
+- Family breakdown is blighting the lives of far too many children.
+- A short distance away from thriving city centres in virtually all of our cities, you will find areas of endemic worklessness, alienation, crime and antisocial behaviour.
+- A something-for-nothing culture does no one any favours. It makes those who are doing the right thing cynical.
+- I personally always took the view that, if you look at the case of should a Christian hotel owner have the right to exclude a gay couple from a hotel, I took the view that if it's a question of somebody who's doing a B&B in their own home, that individual should have the right to decide who does and who doesn't come into their own home.
+- Back in the late 1980s I was programme editor of Channel Four's Business Daily. Day after day we broadcast the latest news, views and analysis for the City in a period when its visibility was as high as it has ever been.
+- No one would normally accuse me of being soft on crime.
+- Social immobility is driven by family background, instability in childhood and often by parents who don't know how to give children the right start in life.
+- Unlike Jeremy Corbyn's Labour Party, I am not ideologically obsessed with the structure of our rail network; for me it is a matter of practicality.
+- We must give individuals the opportunity to show what they are capable of.
+- People are innocent until they are proven guilty, and we will make sure that stays the case.
+- We need a proper balance between rights and responsibilities in our laws.
+- University research is crucial to our future as a nation.
+- We need to curtail the role of the European Court of Human Rights in the U.K.
+- We remain fully committed to introducing a cap on social care costs.
+- Travel costs should not be a barrier to opportunity for our young people.
+- No longer can a bailiff come crashing through someone's door in the dead of night. We have banned them from visiting between 9 P.M. and 6 A.M.
+- If the law is wrong, it is for politicians to sort it out.
+- I think it's fair to set limits, so that people cannot receive more than the equivalent of the national average wage while living on benefits.
+- Whatever your race, colour or creed in London, you still want your children to get on the housing ladder. You still want spaces in hospitals or GP surgeries, you want school places and you want space on the trains in the mornings.
+- It is free enterprise and the determination to succeed which generates opportunity and wealth for our society, and in doing so provides the money we need to deliver the high quality public services that we all want.
+- It's not good enough to announce 'I know my rights' if you aren't prepared to accept that you have responsibilities to society and your fellow citizens as well. And if people don't live up to those responsibilities to our society, they will not be able to hide behind their rights.
+- We are a humane society, and one which believes that we have to help rehabilitate offenders so they turn away from crime.
+- Leaving school or college and heading out into the world of work is never easy, even in good times. It's a huge transition as well as a practical challenge.
+- It was in that uncertain world that the European Convention on Human Rights was shaped. Written by Conservatives, it set out the principles which should lie behind a modern democratic state, where human rights were respected.
+- On our toughest estates, generations pass with the same experience of worklessness and educational failure.
+- If you stop investing in a modern road system to give an unaffordable electoral bung to new voters, then the investors who could create great jobs for them will be doing so for the younger generation in another country instead.
+- Take a walk around many of our cities and you will find areas of deprivation, high worklessness and educational failure only yards from areas of prosperity and employment.
+- The trouble with the SNP is they want power without responsibility. They do not want to take difficult decisions.
+- I want prisons to be spartan, but humane, a place people don't have a particular desire to come back to.
+- Britain has always been a good citizen in the world. We rightly provide a safe haven for people fleeing political persecution by brutal regimes. Our legal system is often seen as a beacon for the rest of the world, with people coming from all over to study it and embed its principles into their own systems.
+- I'm not afraid of making big and sometimes unpopular calls if they're the right thing to do.
+- I have met virtually no one in the policing and security world who thinks ID cards are an essential part of what they need to do in the future.
+- Government is about priorities.
+- I want to see prisoners getting support that is every bit as good as that which they would receive from the NHS in the community.
+- Visit any of the fastest growing parts of the world and you will find investment in infrastructure.
+- In an ideal world, no one should get something for nothing.
+- People who end up in our prisons tend to come from the most difficult backgrounds. They did not have the parental support as they grew up, as many of us enjoyed, and they struggle when they leave prison.
+- You can't be allowed to take away the rights of others, and then use your own rights to avoid facing the consequences.
+- During the late 1940s, Europe was a pretty bleak place.
+- We cannot afford to let Brexit slip away - the political price, the reputational damage to the country is too great.
+- Few escape our most deprived estates. Few young people with potential escape difficult upbringings. Fewer cross the social divides.
+- I don't think all the cycle lanes in London have been designed as well as they should have been.
+- Generational disinterest in education means that too many young children lack the push from their parents in early years which can make the difference between success and failure in schools.
+- I want to be the Tough Justice Secretary.
+- Judicial review has developed since the 1970s as a way for individuals to challenge decisions taken by the State.
+- I'm not suggesting we suddenly become a jingoistic, closed-door society that erects barricades at Dover. That would not be in the interests of London. But we can't, in my view, go on for ever accepting an unlimited number of people.
+- The typical prisoner has numerous brushes with the law before finally being sent behind bars. Each year thousands of cautions are issued to people who will come back to crime again.
+- I think it's fair to set limits on housing benefit, so that people on welfare do not end up able to live in better areas than those doing the right thing by finding work.
+- We are concerned about benefit tourism.
+- The root causes of the gang culture lie right across the policy spectrum - but they can all be found in the same areas geographically: worklessness; family breakdown; educational failure and addiction.
+- We have to take real steps to break down the culture of benefit dependency and failure which blights too many urban areas.
+- We are world leaders in open and transparent government.
+- Turkey has a customs union with the E.U. - it still means there are checks on the border between Turkey and the E.U.
+- The Human Rights Convention was written by Conservatives in the aftermath of the Second World War. It was designed to combat the risk of another Holocaust, and to try to stop people being sent to prison camps without trial.
+- Prison is not meant to be comfortable. It's not meant to be somewhere anyone would ever want to go back to.
+- Universities which deliver high quality research and innovation will be an essential part of that future.
+- The vast majority of young people in Britain are law-abiding citizens making important contributions to their communities.
+- Introducing ID cards isn't a matter of great national security importance.
+- Some bailiffs were tacking on extra charges left, right and centre - a fee for every letter they sent, extra fees for visiting your house, for clamping your car, seizing it, towing it and selling it. It all stacked up and people in debt had no choice but to pay. We have put an end to this.
+- All too often politicians sign treaties in a hurry, without reading them properly, and without understanding where they will lead.
+- An economic strategy built around hiking taxes for business means one thing: fewer jobs.
+- We take back control of our laws and Britain will be a proud independent nation again.
+- One thing really important is that we set out an agenda of compassionate Conservativism. That's what I've been trying to do in the Justice Department.
+- The gang culture - tragically - has for some young people become the only source of stability in their lives.
+- Liverpool, Manchester, Newcastle and Leeds have successful financial services sectors. There are good universities there which provide great opportunities for local technological innovation. And there are strong multinational and family businesses.
+- I'm very mindful of the need to ensure we have a criminal justice system in which people have confidence.
+- We cannot do anything that exposes the country to the risk of Jeremy Corbyn.
+- The truth is that those who join gangs - more often than not they are young men in their later teens - often do come from the most difficult family backgrounds, from an environment where they feel neglected and unwanted. Gang membership can bring a perverse sense of belonging which they may not have ever got at home.
+- You chastise children when they are bad, as my parents did me. I'm not opposed to smacking. It is to be used occasionally.
+- Britain has always been a nation with a strong global focus. We have influenced change and built strong ties all round the world.
+- Motorists in London have got to be immensely careful of cyclists. At the same time, cyclists in London are too often unwilling to obey the road signs. I've seen regular examples of people who just bolt through red lights.
+- The state has no right to cast people aside because they are sick or disabled.
+- We're ending the situation where any old thug can turn up and work as a bailiff.
+- European businesses will want to retain free-trade access to the U.K. - their biggest export market.

@@ -1,0 +1,88 @@
++++
+author = "Ruth Negga"
+title = "Ruth Negga Quotes"
+quotes_len = "82"
+description = "the best 82 Ruth Negga Quotes"
++++
+- I've always been very talkative, very chatty, quite hyperactive. I grew up with a lot of cousins, and most of them were boys. Four in particular and I were the demolition squad. Havoc.
+- I'm all for philosophical debates about race, but if you look at history, you see that the status quo has power when it's unchallenged. So these conversations about inequality are crucial.
+- I think that is important, to not make people feel alien.
+- I don't know why women aren't allowed to have the same sort of breadth and scope and flaws of men.
+- When I was a kid in Ireland, there were not very many black people. I was very much like the strange brown thing, intriguing and cute. I didn't experience racism there. The first time I did was in London. It was that moment that you realize you're black. A kind of lifting of the veil.
+- I love the Greeks. There's no messing around - it's all do or die with them.
+- I've met loads of black and brown and various people who are well into comics.
+- Violence in film and television is an ongoing conversation, and I like eavesdropping on it, but I'm never sure what my opinion is. I like watching creative violence, but I don't know.
+- I don't believe that directors need to essentially manipulate actors into doing things. You can suffer for your art, and you can make your own self suffer for your art. You don't need anyone else to do it for you. I work best when there's a safety trampoline of kindness.
+- Diversity needs to operate on every level. It's great that the Oscars have highlighted it, but black actors getting nominated shouldn't be the only result. There's so much more that needs to be done.
+- Sometimes, people know me from Marvel's 'Agents of S.H.I.E.L.D.' But that usually only happens in America.
+- I was an attention seeker, always in trouble.
+- Bette Davis is my hero. I'm obsessed with her. I base everything I do on her.
+- You don't come to see a Greek play and not want blood and gore and depth of feeling from your boots up.
+- I think it's a good thing for everybody that we see the entire world reflected back at us on our screens.
+- The idea that you must treat actors a certain way in order to get a performance out of them kind of disturbs me, and it's disregarding what we do. Our job is to do our job.
+- History is written by the winners. My job as an artist is to speak up for those who might be perceived as the losers. Or those who can't shout.
+- I didn't have that many black people in my life, so I had to sort of search them out. And I didn't grow up in America, but I identified as much with their writing about the black experience as I did with their writing about the human experience.
+- I use the term 'spine' for people when I think that they may seem on the surface sort of reticent, shy, self-deprecating, shying away from the spotlight. Quiet.
+- I've always had sort of an interest in American history, full stop, and especially people who contributed to the civil rights struggle.
+- I auditioned for 'Loving' two years before we started shooting, so in the hopes that I would be playing Mildred, I watched it again. Also it's one of the best documentaries I've seen. I found this couple interminably fascinating; even if I didn't get the part, I just wanted to know more about them and their story.
+- I don't like hobbies. I read and travel and see my friends before they disown me.
+- My family very much adored me, and at school, I was an object of fascination.
+- In many ways, playing a real person is slightly easier because you have a road map. When you're playing someone fictitious, there's myriad ways in. With a real person, there's boundaries, and that sometimes makes the work easier.
+- You can suffer for your art, and you can make your own self suffer for your art. You don't need anyone else to do it for you.
+- My favorite film is 'All About Eve'.
+- I had quite a scattered childhood. I was Irish in London, because I had my secondary school education there. I never really fitted anywhere. I didn't feel it was a negative thing, and I was never made to feel different - I just knew I was.
+- My job as an artist is to speak up for those who might be perceived as the losers. Or those who can't shout. No wonder public-school people always get into politics or acting: they're taught to shout that much more loudly.
+- I think if you want to make a performance authentic, there are a certain amount of leaps of faith into the unknown that you have to take. Otherwise, you're not really risking anything. I think if you don't risk something in art, it's not really important.
+- Often, it's easier to play someone further away from you because it's clearer who they are. I think if you want to make a performance authentic, there are a certain amount of leaps of faith into the unknown that you have to take. Otherwise, you're not really risking anything.
+- When you work with directors who really love actors, who love their contribution, it feels amazing. But sometimes when you work with directors, you feel like you're in the way.
+- I know I've said it before in interviews, but the idea that all actors have their eye on some sort of prize - it being an Oscar, or fame, or whatever - not all actors I know are like that.
+- I don't trust anyone who doesn't change their mind.
+- People ask me where I'm from. I say Ireland, and they are like 'Really? You don't look Irish.' Then you have to explain... people are intrigued, but sometimes you think, 'Why do I have to tell my whole story every time I open my mouth?
+- People have always made assumptions about me. I become very territorial about my identity because it's been hijacked by so many people with their own projections.
+- We all have as much right to take up our space in the world as one another.
+- Ireland is home. And I'd love to move home. That's always been the plan.
+- I trained, went to college, trained, and got a job. Then got another job. When I wasn't working I worked at a bar, then got another job.
+- I am not hugely famous; I am not a name. For me, it's not the size of the role, it's the material and the people you are working with.
+- Some people say to me, 'You don't sound very Irish.' It's because I have this tendency to iron out my accent: not because I'm ashamed of it but because it makes my life easier if I don't keep having to repeat myself.
+- I don't really know how strong someone is if they're compelled to a life of violence. Is that strong? No. That's damaged.
+- I have not been aggressive in my pursuit of being a star. I've never had a plan. Maybe I need to be more aggressive, because it's quite tough!
+- You know when you're a kid and you get to pick a movie every Friday? I watched everything. There's no particular genre that was appealing. I just loved the idea that you could dress up and play.
+- The god of theater laughs in your face at planning. You can't plan as an actor; there's no way, because so much of it is dependent on other people's choices and decisions that you're at the whim of fate, really.
+- I don't think I've necessarily been able to pick and choose in my career; I don't know how many people do. But I'll tell you what I've been able to do: I've been able to say no. It is the only thing you can hold on to sometimes, is that ability to say 'no.' And I think that in that way, you can create some kind of career.
+- I like connecting with people, and that's what good art is: a point of connection. There's nothing better, on stage or on film.
+- I don't like the term 'colour-blind' - because I don't want people to be blind to my colour.
+- Ninety percent of my roles, I've had to fight for. It's only a really small percentage of people who get handed roles.
+- I think if you don't risk something in art, it's not really important.
+- When you connect to someone on a human level, and you get to know about them, you can begin to love the things that make them different. That's when fear dissipates, and that's when we can live the life that we're all supposed to be living.
+- I had a very peripatetic childhood, so I bounced around. Lived in Ethiopia until I was, like, three or four and then lived between Ireland and London.
+- Sometimes it's hard to play someone so similar to you, because you can muddy the character. Often, it's easier to play someone further away from you, because it's clearer who they are.
+- America has a black president, but there are no black studio heads, and there just aren't that many black people working anywhere on film sets, let alone in positions of power in Hollywood. That's what needs to change.
+- I was moved by the 'Lovings' story because of my own background as a mixed-race person.
+- There are no actions involved in 'beautiful.' It's such an inactive thing, and it's so subject to each individual's taste and appreciation. It's a lovely word, but I feel like it's been hijacked by really boring, dull people who don't understand how to use words.
+- Stories about race and identity pique my interest for obvious reasons. That's in my body, my brain, my history, my memories - it's all part of my toolbox as an actor.
+- I think kids are amazing. You kind of just deal with stuff, don't you? It's only years later that you have to spend thousands in therapy.
+- I think if we don't understand history, if we don't keep referring back to it, we become complacent. And complacency, as we all know, it leads to repeating history.
+- I don't think I have ever thought of myself as a movie star. I think when I was about seven, I thought it must be lovely to have an Oscar. But the more involved you are in this business, the more that pretence disappears, and you really get to see what you love about it, and what I love is working.
+- I'm always very careful to say I'm Irish-Ethiopian because I feel Ethiopian and I look Ethiopian and I am Ethiopian. But there are 81 languages in Ethiopia, and I don't know any of them.
+- I'm not in any rush to get anywhere. There's a pressure on actors to get somewhere before it's over. But everyone wants longevity, don't they? It's a career. Why be that flash-in-the-pan, taking every job out of worry it'll soon be over?
+- What's really important is the people, first of all. I like working with people who are kind, above all else. I don't really want to work with someone who will manipulate me. The idea that you must treat actors a certain way in order to get a performance out of them kind of disturbs me, and it's disregarding what we do. Our job is to do our job.
+- I'm shy at public speaking, which is tough.
+- I'm not the most articulate person.
+- People have these ideas about comic books and their adaptations as flashy and sort of surface-y, broad-strokes-type projects, but they're not, really.
+- I work best when there's a safety trampoline of kindness.
+- I become very territorial about my identity because it's been hijacked by so many people with their own projections.
+- I didn't become an actor to make money. And I didn't become an actor to be famous - though people always gasp if you say that, as if it's unfathomable that an actor doesn't want to be a star.
+- When I was little, I thought that everyone wanted to hold me as a baby because I was this thing of fascination. But rather than this thing that wasn't quite right, I just felt that my difference was something that was probably very exotic.
+- My whole life is an interracial relationship! It's inescapable. I am who I am.
+- If people want to invade your privacy, they want to invade your privacy. I find it chilling, and I find it awful, and it makes me really nervous. It hasn't happened to me much, but when you have a taste of it, it's bitter.
+- I grew up in an area of Ireland where there weren't many black or mixed-race children. But I never had any hassle; maybe I've blocked it out, but I don't think so.
+- I'm interested in the idea that we all start off as these lovely little babies with all this potential but that circumstances mean that we don't always live the life we should.
+- What I have wanted to do is take roles that are unexpected for people who look like me. Roles that the establishment would say, 'Oh, she couldn't possibly be that.'
+- Women always have to have this soft, maternal, sort of - I don't know - moral center.
+- When you connect to someone on a human level, and you get to know about them, you can begin to love the things that make them different.
+- I think a lot of actors feel like outsiders or miscreants. This profession provides an opportunity to play out all the different parts of ourselves.
+- We need to have a conversation about the fact that black faces are not as visible as they should be, that there is huge inequality everywhere in terms of race.
+- The good thing about auditioning is that you get to test yourself and see if you can play this character - you're also auditioning yourself.
+- When you label someone 'up and coming' or 'the new breakout,' there's this kind of expectation. And I think, like I said before, it's very hard to live up to that expectation when you really don't have that much power as an actor - in terms of your career path and the timing.
+- I grew up in a lot of different places, so I pick up accents pretty quickly.
+- I've gone into auditions, and I think they have an assumption about me when they see my photo, and then I open my mouth, and they say, 'Where exactly are you from? And you were born in Ethiopia? But you're Irish, but you also kind of sound English. That's really strange.'

@@ -1,0 +1,72 @@
++++
+author = "Robert Englund"
+title = "Robert Englund Quotes"
+quotes_len = "66"
+description = "the best 66 Robert Englund Quotes"
++++
+- I actually sing horribly, but I used to dance pretty good. I was a gymnast, and you can usually use those gymnastic tricks with dance. Plus, they're so much fun to do. That wasn't really a big part of my career. It was just a phase.
+- I used to drive up from theatre in Michigan to Stratford, Ontario to watch every show. I idolized the actors from Stratford. I was very influenced by them because they would come down and work at my theatre and get time on their American Equity union cards.
+- Jeff Bridges taught me a lot about how to keep a scene fresh.
+- Fear has been good to yours truly.
+- The modern horror audience is wise to our tricks this lets it in on the gag.
+- As a result of playing Freddy Krueger, I can remember having to look at some medical books, and at some of the disfigurement that fire can cause on people, because they were the source material for some of the prosthetic makeup that I wore. That aided and abetted this fear of death by fire. Which is sort of what happened to Fred Krueger.
+- I'm an actor. Actors are supposed to act.
+- I sat in the barber's chair in David Miller's makeup shop, hours and hours of trial and error. While David poked at me with his crusty brushes, I grew more and more profane. That's how I started to find the voice of Freddy.
+- I'm basically a movie actor now, and my big roles are mostly horror movies - unless I'm doing a guest star or something - and occasionally I try to get back into television.
+- Death by plane crash scares me. I travel a lot, and when you hit turbulence, and post 9/11, that's in the back of my mind a bit.
+- Had I not done Shakespeare, Pinter, Moliere and things such as 'Godspell' - I played Judas in a hugely successful production before I did 'Elm Street' - I'd probably be on a psychiatrist's couch saying: 'Freddy ruined me.' But I'd already done 13 movies and years of non-stop theatre.
+- I have very liberal parents. People forget that Fidel Castro was on the cover of 'Time' magazine, and the one that I remember the most - it's not necessarily my favorite - was when they dressed me as Castro when I was eight years old. I was in fatigues, camouflage hat, beard and cigar. I don't think I did that well with candy that year.
+- The technologies of convenience are making our sphere of exploration and experience smaller.
+- I was trained to serve the writer and director as an actor before I serve myself. Not to say that's gotten in my way, but that's a different way of working than most American actors work.
+- As an actor, you need everything you can get to be truly scary and truly memorable.
+- I didn't make good money on 'Nightmare' until part three. I eventually got some nice merchandising checks.
+- But it's mostly about pacing yourself when you do these movies.
+- I always serve the writer first because I'm English trained, even though I'm American.
+- And in Freddy vs. Jason I like when Jason and I double team Destiny's Child.
+- As a jobbing actor, you can't afford to be choosy; if you're typed, you're generally working. I still feel that way, and the thing is, even within the horror genre, I now get to play all kinds of different roles.
+- I have an Italian comedy at the Venice Film Festival.
+- There'll always be movies that are meant for the big screen, and they should be seen that way.
+- Johnny Depp was the most polite young actor I've ever worked with.
+- 'Nightmare on Elm Street' really lends itself to using new technologies. CGI would be a great way to exploit and embrace the dream sequences.
+- I never played Freddy as real. In the true bible of Wes Craven's outline for the films, Freddy only manifests himself in dreams. And a lot goes into a dream, not the least of which is imagination. So Freddy is secondhand information. Freddy is an urban legend that's been handed down to these teenagers over the years.
+- I wouldn't want the pressure of a Six Feet Under or the pressure of improvising like Curb Your Enthusiasm.
+- I'm a Hollywood kid, and I know that there are only so many stories. Only so many tales around the campfire that we have to tell. Then we have to regurgitate them. Our grandparents' movies were all remakes of silent films - we forget that, but it's true.
+- I actually am grateful for Freddy Krueger, because the big surprise to me - with that sort of double punch of science fiction TV series and then the 'Nightmare on Elm Street' phenomenon - was that I got an international celebrity out of it.
+- While I still do a lot of horror, it doesn't feel to me like I'm repeating myself. I like to stay interested. I'm kind of turning into one of those elder statesmen, like a Vincent Price or a Donald Pleasence. I like to think of myself alongside those guys.
+- It's real simple - we all have nightmares, and the idea you can be in real jeopardy in them is a great gimmick. It's universal.
+- Kids today don't watch a black and white movie.
+- I'm scared by the enormous amount of bottled water being consumed today, instead of people drinking filtered tap water. Did you know that nearly 90 percent of those plastic bottles are not recycled and wind up in landfills where it takes thousands of years for the plastic to decompose?
+- My dad worked as an executive at Lockheed Aircraft and worked on the U-2 and things like that. My mother was a homemaker, and she was vice-president of the Democratic Council of California back in the '50s.
+- If they do something like that, maybe a Freddy Krueger fan, a girl, a really sick goth girl starts killing kids herself and Freddy has to put a stop to it, or they have to fight it out.
+- I've done 'Two Gentlemen of Verona,' I've understudied Iago in 'Othello.' I've done Mercutio in 'Romeo and Juliet.'
+- I think superheroes today are like whistle blowers.
+- Any film you make is a crap shoot.
+- I'm a big fan of Brian De Palma's 'Sisters,' and I also love 'Let The Right One In.'
+- You're going to have to surrender a little bit to the contrivance of how Freddy and Jason get together.
+- We all have to change with the times... it keeps you younger; it's a new challenge.
+- When you see Robert Englund in a movie, you think he is the bad guy, but if I'm not the bad guy, and I'm supposed to just kind of fool the audience, it makes it a lot easier for whichever actor is the bad guy. So I find myself doing a lot of those, I think they're called red herring characters, faking out the audience.
+- I just finished my 62nd or my 63rd movie here, and you know, I do good ones, I do bad ones, I do big parts, I do small parts, I do cameos - but I've allowed myself a pat on the back, because I realized that I've been working in Hollywood now since 1973.
+- I would like to see the technology used to explore more period horror genre works, for example, E. A. Poe.
+- Sometimes jobs are jobs, and when you guest star on television, you're also working with a guest director. You're the new kid on the block, because everyone else is already in the ensemble.
+- Gosh, I'd like to direct Our Town on stage.
+- The roughest make-up I ever wore was for 'Phantom of the Opera' because the phantom's face was all disfigured, and he's trying to pass in public so he can attend his beloved opera. That was make-up over make-up.
+- I was on the cusp - or thought I was on the cusp - of celebrity, the result of starring as an adorable curly-haired alien in the miniseries 'V' on NBC. 'V' was a hit, and then got green-lit as a series. During the hiatus, the only job I auditioned for that fit my schedule was 'Nightmare on Elm Street.' That's the real reason I said yes.
+- I have friends that are much better actors than I am that had to quit the business because they couldn't survive the auditions or the rejections, or people just didn't realize how good they were.
+- Many great horror stories are period pieces and English actors have a facility for historic characters.
+- I always get inspiration from whatever characters say about my character.
+- The truth of it is when you get an audience to laugh and camp along with you, it's much easier to scare 'em again because they're using two sides of their emotions. It's much easier to set them up for a good cheap thrill scare again.
+- We were having a sleepover when I was eight or nine, and we all got to stay up late and watch the original 'Frankenstein.' It was uncensored, so as a child, I saw the scene where he throws the little girl into the lake, and that freaked me out. Though not as much as when he hangs the hunchback.
+- I'd rather be Vincent Price than a red-neck character actor. You can't predict what will happen.
+- Horror movies travel pretty well anyway. They're like action movies: People overseas can watch them and enjoy them, and they're not so culturally specific in terms of their references, and they can follow a good scary story.
+- I know there's a certain love and affection for the homemade on the Internet, and I'm all for that, too, and I appreciate it in alternative music, and I appreciate it in B-movies and in Sundance, independent films.
+- I think there's a time and place to watch an independent film, or catch up on a French action film on your laptop, or Netflix it, or download it, or watch it on-demand. But I think we also have to maintain the sacredness of the movie theatre as church - especially with event screenings.
+- Most of my nightmares involve me forgetting my lines in a stage play.
+- Halloween starts earlier and earlier, just like Christmas.
+- Horror does better when it's bubbling under. It's a niche. It doesn't like the limelight.
+- I went to see a children's matinee at the movie theatre one summer, but at some point they had changed to the grown up movie in the late afternoon, and I ended up seeing this movie called 'The Bad Seed.' It just terrified me.
+- I always wanted to play a monster, and I also wanted to work with Wes Craven.
+- I do genre films because I like them or because I need the money. I make a star's salary when I do horror because I can still open a movie in Italy or Spain or Germany.
+- The last time we had Freddy in reality was part two and Freddy sort of went out on his own.
+- Some actors get by with behaving, not acting. You've got to sell the effect. I act more in the 'Nightmare' movies because it's not like me. I'm acting, not reacting.
+- I did a lot of stuff before I became known for horror. I did a lot of small films in the '70s, in all kinds of styles. I worked with all kinds of people when I was just starting out: I was incredibly lucky.
+- When I was a boy, I read a terrible article in a big weekly American magazine called the 'Saturday Evening Post.' In the middle of this family magazine on my parent's coffee table was an article about this family that was camping, and they were all mauled by a grizzly bear in their sleeping bags.

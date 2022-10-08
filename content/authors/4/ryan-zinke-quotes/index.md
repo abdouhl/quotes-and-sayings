@@ -1,0 +1,102 @@
++++
+author = "Ryan Zinke"
+title = "Ryan Zinke Quotes"
+quotes_len = "96"
+description = "the best 96 Ryan Zinke Quotes"
++++
+- I would be in support of giving the military commanders more latitude in their rules of engagement rather than be restricted to the point we're tying someone's hands behind their back.
+- If ISIS strikes, it's going to strike Americans - not Republicans or Democrats. This is not partisan politics.
+- Putin drops bombs. We drop leaflets.
+- I believe in the value of life. I have fought for that value. I am the only candidate to carry a right to life bill, protecting unborn victims and ensuring that all life should be protected.
+- Having too many layers of approval in a dynamic battlefield environment delays our ability to fight and win, especially when troops are engaged in combat.
+- Special ops isn't the answer to everything. Special ops is not the main guard.
+- Our veterans have already given everything they have to support and defend our nation - some of them sacrificing life and limb.
+- Canada has as much or more control of the border than we do. Getting into Mexico is a lot easier than getting into Canada.
+- I think the troops deserve the best equipment on the battlefield, the best training, and American armor if they get in trouble.
+- When you have a script where we say we are just going to do air operations alone within the territory of Iraq, what happens is the forces then that we want to target will move their forces, colocate with hospitals, schools, embed themselves to be very, very difficult to conduct air operations against.
+- I've served in 25 nations. I've seen where people don't trust their government. We're there. In the military, the last option is to send in the SEALs.
+- I will work tirelessly to ensure our public lands are managed and preserved in a way that benefits everyone for generations to come.
+- My heart is heavy for the people of Paris, Beirut, and other nations affected by ISIS terrorists.
+- If you get the government off our back, there's no economy in the world that can create more jobs in the long-term for everybody.
+- We say to those few who seek to publicize anti-Semitic views that they shall find no safe haven here.
+- Our nation owes a debt of gratitude to anyone who serves honourably. I think it's despicable that a president would put veterans on his website and list them on an enemies list.
+- I look forward to making the Department of Interior and America great again.
+- I believe in American exceptionalism. As a Navy SEAL, I fought so that I would never have to see my president bow to anyone.
+- We use our land for hunting, fishing, hiking, and to create jobs. Our outdoor economy is a billion dollar economic engine for the state that creates jobs.
+- In the exodus out of Iraq, we're seeing the effects of just leaving. We left before there was control of chemical weapons stockpiles, without a status-of-forces agreement. We left before the Sunni and Kurds we fought with and fought alongside with were stable, or without empowering them. We left on a political rhetoric.
+- Senator Tester is wise enough to make sure his voice is heard in a positive manner to get things done.
+- I love my country, and the mental and physical demands of the Navy SEALs was what I had been training for my whole life growing up in Montana.
+- The climate is changing; I don't think you can deny that. But climate has always changed.
+- The United States should have stepped up and destroyed ISIS at its origins rather than wait until ISIS grew their capabilities and influence.
+- Whether you're a man or a woman, you should get the same degree of healthcare from our VA.
+- We have a duty to fight ISIS; air operations alone will not defeat ISIS.
+- We've walked away from our treaty obligations in Ukraine, putting NATO at risk.
+- The federal government needs to do a much better job of managing our resources, but the sale or transfer of our land is an extreme proposal, and I won't tolerate it.
+- My wife, she was an early-adopter to Trump and a supporter of Trump - earlier than me, by far.
+- May God bless Montana, God bless America, and God bless the troops who defend her.
+- Our military sons and daughters that are placed in harm's way deserve the right equipment, the right training, and the right rules of engagement to win decisively on any field of battle.
+- I'm proud of Congress as a body. At the end of the day, we're the people's house, and we should be very mindful that we represent the people.
+- Under our rules of engagement, if I were ISIS, what I would do is collocate my headquarters next to a school or a hospital and ensure that there would be collateral damage. They know our rules of engagement as well as we do. They operate with impunity.
+- Nicknamed 'Mad-Dog Mattis' by his men, he was a command warrior in the old George Patton mode. He wasn't an armchair general by any definition of that much-maligned term. If a Marine re-upped at a location where he was present, he would personally go to that Marine and thank him or her for rejoining.
+- In American history, it's about hard work and self-reliance. It's not about collecting giveaways or being on unemployment forever. That the economy moves ahead for people who are going to work to realize the American dream, own a home, send your kids to college. I think it's the founding cornerstone of America.
+- At the end of the day, I think you're on high moral ground when you respect Montana and you respect the Constitution and you do your duty as a Senator. We need to put Americans' and Montanans' interests in the front seat and politics in the back.
+- The Democrats are besides themselves because they don't understand Trump. They don't understand: you don't get between the American people - because Americans are upset.
+- I have seen America's sons, daughters, mothers, and fathers fight valiantly for our freedom and pay the ultimate sacrifice to defend us.
+- We need to make sure these Islamic terrorist organizations don't become mainstream. We're fighting an ideology as much as a group of radical terrorists.
+- I just want to be a really good congressman. You should look at what you are today and be the very best you can.
+- As a kid who grew up in Montana, I resent regulation being formulated and forced in Washington from bureaucrats that have never been to Montana.
+- There's a reason Montana produces more SEALs than any other state. As a collegiate athlete, I enjoyed the mental and physical challenges Division I football presented.
+- The quality of our Airmen in Montana coupled with the proven mission excellence of the 120th Airlift Wing, and historical need for assets to fight the devastating forest fires we continue to see in Montana and the Northwest United States, should have mandated the relocation of these assets to Montana.
+- I strongly endorse Donald Trump because we need a president that will put our veterans in front of the line rather than watch them die while in line.
+- Radical Islamic terrorists and those who fund it remain a credible threat to America and a clear and present danger to democracy.
+- When you're asked by the president to serve, it's awfully hard to say no, and I'm loyal.
+- When I joined the SEALs, no one knew what a SEAL was. What intrigued me was the level of commitment, the love of country and desire to be the best in the world at your vocation. Watching American exceptionalism in action.
+- I'm an advocate for a full spectrum of energy policy, but we're never going to get there with solar cells that are going to power this country.
+- I could literally go on for pages upon pages about Mattis and how influential this man was to me and many others who fought alongside him.
+- A lot of what a military officer does is not just leading troops in combat. It's also doing budgets. It's solving complex problems. If you can sit down with warlords, you can certainly sit down with different parties and folks with different interests and come out with an amenable solution.
+- The northern border is a different problem set than our southern border. We're not going to put a fence between America and Canada, across Glacier Park. I grew up there. We can use some technological controls. We work with the Canadians more, and there's a lot of property we share, along with tribal lands.
+- Congress has the constitutional responsibility to control the power of the 'purse'.
+- We need to secure our southern border. Clearly, the southern border is now a nexus between immigration and national security. It's a sieve.
+- The status quo is not working, and I believe that Donald Trump is going to be a phenomenal president.
+- In my experience, given how large the border is and given how many people are coming across the border, I mean, look, if a child can come across the border, and we know there's hundreds of thousands of children that have, then what makes you think that ISIS and terrorists can't?
+- As a president, we need a businessman who understands that business is not usual - someone who's not going to put up with business as usual in Washington, D.C. Having a businessman who's not going to put up with business as usual in Washington, D.C., is exactly what we need.
+- I want to be a part of the team that's 'making America great again' in whatever capacity I can serve.
+- The right rules of engagement means giving our forward commanders the authority and flexibility to take the initiative and win. Trust our forward deployed warriors to do their job. Political appointees running the war from Washington is just wrong.
+- If you find a node that you can penetrate, that you can eliminate, and draw more information for future operations, I think it's prudent to do.
+- I've been to war, and I know the consequences and sacrifice it takes. If we must fight, we fight to win.
+- The ability to reach a catastrophic forest fire quickly can not only save millions in fire suppression costs, it can save structures and, most importantly, lives.
+- I support a robust economy where agriculture and businesses are able to compete in a fair and open global market.
+- To me, there is no doubt: inaction abroad emboldens actions on the home front. They are related.
+- The Sunnis no longer recognize the centralized government as a legitimate power. The Shia militia that is moving around is calling out war crimes that are anti-Sunni. So, the Sunnis are in a tough spot. Do they move to an ISIS, which is a radical Islamic terrorist organization? Or do they defend themselves? Or do they give up?
+- In the case of the Syrian refugees, most of them are male. Most of them are of military age, and yes, it is a significant security issue in that a background check is only as good as the authorities have information on them.
+- What works in Washington, D.C. or New York City oftentimes doesn't work out in Billings, Montana, or elsewhere in the country.
+- You cannot negotiate with organizations that are based on an ideology whose core is to destroy the West and America.
+- I think America is strong enough to fix the problems, grace and honor to D.C. I think energy independence and control spending. We have to go to a balanced budget. Quite frankly, as far as our debt goes, I don't think you can tax your way out of it. I think people are taxed enough.
+- I think the soft underbelly of Russia is - what's driving their ability to be aggressive is their energy. If you take the energy out of their economy, Russia is not so strong.
+- In order to prosecute war, you have to take some risk.
+- To be a Navy SEAL, it's three and a half years training before you're ever put into harm's way the first time.
+- As a former Commander, I gave an oath to defend the Constitution against all enemies foreign and domestic. As a state senator, I gave that same oath. As a Congressman, I gave an oath to defend the Constitution. There are some things that are not negotiable: Faith, my family, and the Constitution are dead center. It is nonnegotiable to me.
+- We often fight wars with our young.
+- We have more natural resources - coal, oil, wind - across the board not only to be energy independent but to be a leading exporter.
+- I believe in the value of life. I believe we must prepare our children for tomorrow with the family values of my grandparents.
+- Technology certainly is going faster. Dynamics on the battlefield are faster. And so, I think you do need, you know, a warrior that is adept in technology, you know, certainly skilled.
+- Gen. Mattis is a warrior. What I appreciate about Gen. Mattis is he understands the principle that if you go to war, you go to war to win.
+- America is smarter than the politicians. America is demanding a change and not more of the same cronyism, not more of the same deception, corruption, and business. Washington, D.C., needs to be shaken up.
+- As a Navy SEAL, our motto is obviously 'Never Quit,' and our only easy day was yesterday. Send in the Navy SEALS - I think it's time to send the Navy SEALS to Washington!
+- I was making Molotov cocktails long before I knew the name for them.
+- There's no assigned seats in the House. I spent the first couple months just getting to know my Congress. So I kind of wander around.
+- Clean air and clean water are absolute top priorities when we talk about responsible energy development; however, the final rule issued by the Obama administration does nothing to further protect our resources.
+- When a recruiter first told me about the Navy SEALs, I knew it was the right fit.
+- Our foreign policy and our military policy is make sure that we fight on foreign shores and not shores here.
+- Our moral compass - it's always been Judeo-Christian.
+- If you put our guys in harm's way, you better support them with the right equipment, the right rules of engagement, the right Medevac, the right quick-reaction force.
+- One of our pillars has to be national security - our nation's security both domestically and abroad.
+- Too many of Montana's own have fallen in the line of duty fighting radical Islamic terrorists, like 31-year-old husband and father of four, Blackfeet warrior Army Corporal Tony 'Many Hides' of Great Falls.
+- On the House side, when Donald Trump came, he received multiple standing ovations.
+- Obama and his Democrat allies in Congress have proven they will use bait-and-switch tactics to move more unvetted refugees into our communities. This will inevitably put our nation and our citizens at risk for future terrorist attacks.
+- Americans don't want to see our military become Republican or Democrat. Americans appreciate that our military belongs to all of us.
+- As someone who grew up in a logging and rail town and hiking in Glacier National Park, I am honored and humbled to be asked to serve Montana and America as secretary of interior.
+- I have always been a strong supporter of public lands and have voted against the transfer or sale of public lands. My position is known and well-established.
+- We have more women serving in the military than any time in our nation's history, and yet the VA has not done a pivot to look at women's healthcare issues.
+- I think it's a reasonable request to ask: if you're going to write a piece of regulation that affects Montana, I think you should know the difference between Butte and Bozeman.
+- I love Teddy Roosevelt... As a country, we need to think big again.

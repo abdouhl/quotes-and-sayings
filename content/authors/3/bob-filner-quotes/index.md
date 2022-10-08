@@ -1,0 +1,27 @@
++++
+author = "Bob Filner"
+title = "Bob Filner Quotes"
+quotes_len = "21"
+description = "the best 21 Bob Filner Quotes"
++++
+- Unfortunately, my district like many others across the country has a problem with gangs, which is why I introduced this amendment.
+- Rosa Parks' courage, determination, and tenacity continue to be an inspiration to all those committed to non-violent protest and change nearly half a century later.
+- Childhood obesity is best tackled at home through improved parental involvement, increased physical exercise, better diet and restraint from eating.
+- Congress is headed in the wrong direction with this bill which removes any and all incentives from the food industry to improve their products for children.
+- These are busy times for the Border Patrol, the customs agents, immigration folks; but if we are going to send these agencies to fight a war on drugs, to fight a war against illegal behavior, we have to send them the proper tools.
+- As Congress continues to debate ways to address illegal immigration, we must remember the many hard-working legal immigrants that contribute so much to our nation's economy and culture.
+- Congress is dysfunctional.
+- I was on the San Diego school board for 4 years, where I watched children successfully matriculate into elementary schools from Head Start programs from all around our city.
+- We as a Congress have a moral obligation to bring justice to the families of these victims. Furthermore, as a society based on laws, we have a responsibility to ensure that criminals don't go unpunished.
+- Our policy for the last many years has been to deter the Chinese government in Beijing from ever coming into the position where they thought they had enough leverage over the U.S. to cross the Straits of Taiwan.
+- However, don't let these statistics mislead you, gang violence is not limited to California and or big urban areas - that might have been true a while ago but it is no longer the case today.
+- I'm a hugger of both men and women. As it turns out that those are taken in an offensive manner, I need to have a greater sense of awareness of what I am doing, and we will correct that, and I am taking those steps.
+- I started my political career facing lynch mobs.
+- If the President really wanted to know exactly how Rove and Libby were involved, he could walk down to their offices and demand that they answer him honestly.
+- Studies indicate that these children are more susceptible to advertising and even less likely to understand the purpose of this advertising.
+- However, as a parent, as a grandparent, as a former educator, I know that these practices alone when we are dealing with young children are insufficient. We will never control this rising epidemic without greater accountability from the food industry.
+- The government gets it right on Head Start. We are providing opportunities for children in underserved areas where parents may not be able to afford preschool so they can begin their schooling with a running or Head Start.
+- To all the women that I've offended, I had no intention to be offensive, to violate any physical or emotional space. I was trying to establish personal relationships, but the combination of awkwardness and hubris led to behavior that I think many found offensive.
+- With more than 1,300 sites of care, VA operates the largest integrated health care system in the county.
+- We have seen that, in another unfunded mandate, the so-called No Child Left Behind Act, which created tougher standards, and we all support that, but Congress did not provide the money to attract and hire the best teachers.
+- Three thousand jurisdictions across the U.S. are estimated to have had gang activity in 2001. In 2002, 32% of cities with a population of 25 to 50 thousand reported a gang-related homicide.

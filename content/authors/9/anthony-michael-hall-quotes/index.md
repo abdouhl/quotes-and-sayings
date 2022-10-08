@@ -1,0 +1,32 @@
++++
+author = "Anthony Michael Hall"
+title = "Anthony Michael Hall Quotes"
+quotes_len = "26"
+description = "the best 26 Anthony Michael Hall Quotes"
++++
+- I would say probably Pirates of Silicon Valley just because I'm proud of the work, playing Gates.
+- 15 years later, it's all the TV stars with the film deals, whether it's the cast of Friends or That '70s Show now with Ashton and other people doing stuff.
+- They all matter to me, whether I'm working on a Sam Jackson film for a week or I'm the star of my own TV series - I take it all very seriously, and I have a healthy respect for the work in general, despite the role.
+- In the years since I worked with John Hughes, there were many years where I literally had hundred of doors slammed in my face because I wasn't that kid anymore, and I wasn't a character actor, and I wasn't a leading man, and I wasn't whatever Hollywood was looking for.
+- Cutting edge, breakthrough, television. That's what we want to do.
+- That, we encourage, and I think we're doing a pretty good job with the website and also the DVD, like the first season came out and the second season's being prepared now.
+- Well, I've just gotten accustomed to just being in Canada for five and a half months a year.
+- Obviously with the onset of cable and satellite, there are more opportunities for programming and original programming, so it creates more opportunities for actors and producers and directors and everything.
+- But on this show, it's a good question because in the 35 shows that we've done now, I've really made a consistent effort to really shadow the directors because in many ways they have to be more prepared than feature directors.
+- Movies are just ridiculously expensive.
+- We don't want to show our hand to the fan base or give up too much too early.
+- You want to do work that is remembered, you want to be a part of something that's remembered.
+- I mean, before this, I would have said playing Bill Gates, because I'm playing someone obviously who is alive and is the richest man in the world. That was a heavy responsibility.
+- You have film actors doing TV, rap stars doing TV, with everyone kind of crossing the line.
+- It's funny, like 15 years ago when I was a kid doing all the John Hughes movies, I remember Bruce Willis was the only guy who was transitioning from television into film.
+- I think my favorite, and Coppola and that whole thing. East coast Italian directors I guess.
+- So I think it's fair to say it's even more of a challenge for some of these actors that are coming up, because there's such a pressure to look good, to be sexy and be palatable to people on whatever level.
+- I think the obvious answer is I was raised in New York City, so growing up, not only myself but my family, like my father, we would watch a lot of Scorsese films.
+- I think it's even harder because I think as always, Hollywood is sort of glamour central for the world, and the entire world looks to it for not only entertainment, but the whole idea of the youth factor and youth being sold to our culture via young actors and actresses.
+- There've been many a season where I couldn't get work, and I think that you learn character development and you learn how to really want what you do in life when you can't really do it.
+- I think in both of those situations, it's important as an actor to learn, despite the success I had as a kid, that it's important to understand what it means to be a small fish in a big pond.
+- First of all, it was in my contract. I knew I would be directing an episode.
+- There are people who do De Niro and Walken impersonations.
+- I think that obstacles lead to growth and ultimately, the most learning I've done in my life is between jobs.
+- Like any show, I think some episodes are going to be stronger than others, but I think it's a good show that people enjoy and I hear the reactions too.
+- Well, I've learned something from Michael Robison just about maximizing your shots. For example, if I'm shooting a scene and someone's driving at the wheel, you could steal an insert in the same shot.

@@ -1,0 +1,40 @@
++++
+author = "Aaron Swartz"
+title = "Aaron Swartz Quotes"
+quotes_len = "34"
+description = "the best 34 Aaron Swartz Quotes"
++++
+- Large corporations, of course, are blinded by greed. The laws under which they operate require it - their shareholders would revolt at anything less.
+- Now, as far as I know, nobody has ever put up the U.S.'s nuclear missiles on the Internet. I mean, it's not something I've heard about.
+- I was around computers from birth; we had one of the first Macs, which came out shortly before I was born, and my dad ran a company that wrote computer operating systems. I don't think I have any particular technical skills; I just got a really large head start.
+- Through the Internet, I've developed a strong social network - something I could never do if I had to keep my choice of peers within school grounds.
+- At the end of the day, we have an economy that works for the rich by cheating the poor, and unequal schools are the result of that, not the cause.
+- Social Security got passed because John D. Rockefeller was sick of having to take money out of his profits to pay for his workers' pension funds. Why do that, when you can just let the government take money from the workers?
+- Information is power. But like all power, there are those who want to keep it for themselves.
+- Writing an encyclopedia is hard. To do anywhere near a decent job, you have to know a great deal of information about an incredibly wide variety of subjects. Writing so much text is difficult, but doing all the background research seems impossible.
+- Say yes to everything.
+- Seriously, who really cares how long the Nile river is, or who was the first to discover cheese? How is memorizing that ever going to help anyone? Instead, we need to give kids projects that allow them to exercise their minds and discover things for themselves.
+- When I go to a library and I see the librarian at her desk reading, I'm afraid to interrupt her, even though she sits there specifically so that she may be interrupted, even though being interrupted for reasons like this by people like me is her very job.
+- I'm not such a nuisance to the world, and the kick I get out of living can, I suppose, justify the impositions I make on it. But when life isn't so fun, well, then I start to wonder. What's the point of going on if it's just trouble for us both? My friends will miss me, I am told.
+- Even among those who I would not count as 'friends,' I have met many people online who have simply commented on my work or are interested by what I do.
+- Being around some of the bright lights of the technology world and having them expect great things helps you sit down and do it seriously.
+- We need to download scientific journals and upload them to file-sharing networks.
+- Computers will be able to do all the mundane tasks in our daily lives.
+- Normally, I just sit in my quiet little room and do the small things that bring me pleasures. I read my books, I answer email, I write a little bit.
+- There's all sorts of stuff people want to publish anonymously.
+- The world's entire scientific and cultural heritage, published over centuries in books and journals, is increasingly being digitized and locked up by a handful of private corporations.
+- Most people, it seems, stretch the truth to make themselves seem more impressive. I, it seems, stretch the truth to make myself look worse.
+- I have developed my most meaningful relationships online. None of them live within driving distance. None of them are about my own age.
+- The Open Access Movement has fought valiantly to ensure that scientists do not sign their copyrights away but instead ensure their work is published on the Internet, under terms that allow anyone to access it.
+- With the death of bin Laden, it's finally time for Congress to bring back the pre-9-11 legal norm, before we decided it was okay to toss out our civil liberties if the 'bad guys' were scary enough.
+- Senator Wyden continues to be the Senate's truest champion of an open Internet.
+- What if there was a library which held every book? Not every book on sale, or every important book, or even every book in English, but simply every book - a key part of our planet's cultural legacy.
+- I first met Jimbo Wales, the face of Wikipedia, when he came to speak at Stanford.
+- Assume nobody else has any idea what they're doing, either.
+- We must erase bin Laden's ugly legacy, not extend it: by ending the Patriot Act's erosion of our civil liberties, we can protect the freedoms that make America worth fighting for.
+- The library world is set up on this model where the library is a physical building and has a number of books and serves a geographical community.
+- Now, the typical way you make good things happen in Washington is you find a bunch of wealthy companies who agree with you.
+- Real education is about genuine understanding and the ability to figure things out on your own; not about making sure every 7th grader has memorized all the facts some bureaucrats have put in the 7th grade curriculum.
+- Big stories need human stakes.
+- Nearly 75,000 Demand Progress members have urged Congress to fix the Patriot Act.
+- Without the ability to talk about government power, there's no way for citizens to make sure this power isn't being misused.

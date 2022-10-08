@@ -1,0 +1,34 @@
++++
+author = "Ian Mcelhinney"
+title = "Ian Mcelhinney Quotes"
+quotes_len = "28"
+description = "the best 28 Ian Mcelhinney Quotes"
++++
+- It used to be that if I was stopped in the street at all it would be for Ser Barristan Selmy, but now it's just as often, if not more often, for my character in 'Derry Girls,' I find it extraordinary.
+- 'Derry Girls' just has a sense of knowing exactly who these people are and also a fun memory of how things were, even in spite of all the chaos around them. It's very entertaining and it stays wonderfully buoyant because it focuses on the kids and the families.
+- Adrenaline, swords - you just get off on it.
+- For years, I was just Joe Bloggs. There was no excitement until 'Game of Thrones,' and then people started recognizing me.
+- I would quite like to see stories that are not necessarily to do with the violence, because I think there was quite a lot of normality in our world - but it is never reflected on the screen.
+- The thing that surprised me the other day was, and I was quite taken aback when I realized it, I am nearly five-and-a-half years out of 'Game of Thrones.' I last filmed on it in the winter of 2013 and it's kind of becoming, bizarrely, a bit of a distant memory.
+- I was living in Britain and then America, but it wasn't until I returned to live in Ireland in the late '70s that I really became aware of Seamus Heaney. I discovered quickly that his poems are very accessible.
+- The Sons of the Harpy are basically the people who represent the old regime. They don't want Daenerys in there governing them. Daenerys has this attitude about the fighting pits being reopened, which is part of their tradition. There's quite a considerable resentment to the fact that she doesn't want this to happen.
+- It's weird... I've been an actor for a long time and you can walk around more or less anonymously.
+- Ordinarily, when you go to see a play, an awful lot is presented in front of your eyes.
+- On another level I'd unfortunately read the books. I knew Barristan had a different story in the books and I was hoping for a bit more of Barristan alive before he met his comeuppance... well, comeuppance is unfair, he didn't deserve a comeuppance.
+- Being part of 'Game of Thrones' is amazing, really incredible.
+- I've met people who've watched 'Derry Girls' in Australia and America and it's incredible. I think the constant access to it, meaning you can watch it again and again helps.
+- With 'Stones is His Pockets' you have effectively a bare stage with two actors and yet a whole world in rural Ireland is created. There's the countryside, the bar interior, the dressing room and the star's bedroom.
+- There are still times when the person who is challenging you as an actor is also the person who sometimes challenges you as your child.
+- One of the issues with the fight scene - especially with actors - is that when the adrenaline gets going you lose the plot. Before you know it, you've hit somebody and you've hit them harder than you meant to.
+- It's strange to be getting into your dotage and suddenly discovering that you have a fanbase.
+- One of the problems that comes up time and time again seems to be this notion of being 'pure' Irish. If you are Protestant, born in the Northern part of the island and deeply into the Protestant tradition, that somehow does not make you a legitimate Irish person. Yet there is a huge British influence in parts of the South.
+- But I think you have to accept - as I have accepted - that the demands of TV are different than the demand of book writing.
+- But I love the change and the variety directing brings.
+- Whatever the actor does on stage they have to be happy with it, because they are the ones doing it.
+- Christopher Gore is a great character, portrayed with wisdom and understanding.
+- Going back to when I was younger in this business, you did something that would be screened in various places and this sort of popularity never occurred to you. Now you do these things and there are so many more platforms, there's many more things being put out on a global basis.
+- Sometimes all you can do is sit back and be amazed.
+- I very much enjoyed my time on 'Doctor Who.' The team were a delight to work with and everyone was very supportive and welcoming. All in all it was a blast.
+- It's always stressful working on a new piece, but it concentrates the energy.
+- If someone said to me, 10 years ago, that I'd be spending effectively my retirement years in sci-fi and fantasy, I'd have said, 'Well, don't be ridiculous.'
+- There are certainly many British plays which go down far better with Dublin audiences than they would in Belfast.

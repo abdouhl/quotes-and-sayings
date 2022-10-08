@@ -1,0 +1,72 @@
++++
+author = "Robert Scoble"
+title = "Robert Scoble Quotes"
+quotes_len = "66"
+description = "the best 66 Robert Scoble Quotes"
++++
+- At Rackspace, I'm building a media house which will celebrate small teams who are having world-wide impacts through their building or use of new technology.
+- Facebook is teachable. If you hide items, you'll see fewer of those kinds of items in the future. Like more items, and you'll see more of those in the future.
+- I got lucky because my dad moved us to Silicon Valley before it really was known worldwide as an important tech hub.
+- What's really going on is, on your iPhone, you have 200 apps, and they're all collecting a little data on you. Twitter knows a certain thing, Foursquare knows something else, my Fitbit app knows something else, my Waze app knows something else.
+- If you're in business, and you don't understand how that word of mouth works, you won't be able to take full advantage of it, how to get full adoption by getting that network to talk about you.
+- I believe Larry Page is moving Google from an advertising-based company to a commerce-based company.
+- I'm so tired of the privacy advocates.
+- Over at Barb Bowman, she's arguing that we should turn off Facebook's tracking of ads. I totally disagree; those trackers make newsfeed filtering work better and potentially could help bring me better ads, which improves my life.
+- I counted how many seconds it takes to get my smartphone out of my pocket, open it up, find the camera app, wait for it to load, and then take a photo. Six to 12 seconds.
+- I'm just an early adopter; I subscribe to more things than normal people and have a high level of inbound and a high level of noise.
+- We are moving into a world where companies will be able to offer us products and services based on our last two hours of activity. This is both exciting and frightening at the same time.
+- My favorite conference so far has been Davos, the World Economic Forum. The people there were really incredible.
+- People thought I was an idiot, but I saw social networks were going to be more important, and it turned out to be true.
+- On mobile, make sure Facebook's app can know where you are. That not only makes features like Nearby Friends possible but also makes your feed have a few items from your location.
+- Use photos and videos often. The best startups post lots of imagery and videos. The worst ones? Text only.
+- I want Facebook to pick the best 20 items to show me every single time I refresh that screen.
+- Once you become known for one thing, it's easy to become known for a second thing, a third thing, and a fourth thing.
+- Apple, at its best, isn't a technology leader.
+- Oh, some day I'll tell you about why I wrote more than 1,500 Gmail filters. They throw away more than 300 emails every day. Every day. It's the best thing I ever did for my productivity.
+- I was first in line for the iPhone, but I'm not a fanboy of any company - I'm in favor of anything that's best of breed.
+- I'd try to become known as a world expert on 'something,' to take a small niche you can define.
+- The problem with Flipboard is that it's an app, not the Web, and I keep hoping someone will show me a really well-designed Web app that shows me that the Web can still win.
+- Never change the URL of your blog. I've done it once, and I lost much of my readership. It took several months to build up the same reader patterns and trust.
+- Photography let me show other people how I saw the world. Math required me to do work that made my head hurt.
+- I'd rather deal with a big company, because at least I can sue them, and see them, and know what they're doing. Google, for instance, shows you everything they've collected on you, with a clearly written privacy policy. They tell you what they're doing with it. I'm not scared by that.
+- The more Zuckerberg knows about you, the more media he will be able to bring you.
+- Unfriend people who do not post to Facebook or engage with anyone else. You'll find your posts start getting reach they never did before. Why? Facebook only releases your posts to a few people at first and watches what they do with it.
+- Investors can see that Facebook is feeling old and tired and isn't seeming to be that innovative.
+- I do not see Windows Phones anywhere in the world except Seattle.
+- I get a lot of email, so if you're sending me an email, if you want to rise above the clutter, put something on it: say, 'Hey!'
+- Let's be honest - you work at a big company because it's comfortable. You don't have to work 80 hours per week, and you get paid, have nice benefits, and the family is all happy.
+- My favorite computer of all time? The Apple II that got me started, of course.
+- It's not enough to have a hacker culture anymore. You have to have a design culture, too.
+- Things that are interesting, people will pass around the Internet, around the world. And the blogosphere is only the tip of the iceberg.
+- You see 6,000 times more tech companies in San Francisco than you see in Seattle. All the money is in San Francisco when you look at the venture fund maps. The PR is in San Francisco. The centricity of the industry is in San Francisco.
+- Make sure you like, comment and share other people's items. That teaches Facebook what kinds of things you like to see in your feed.
+- There's smarter people than me. But you cannot have any one guy running 18 billion-dollar businesses. It just doesn't make sense to me. I've met some extraordinary leaders in my time. They struggle with running one billion-dollar business.
+- Turn on all security features like two-factor authentication. People who do that generally don't get hacked. Don't care? You will when you get hacked. Do the same for your email and other social services, too.
+- I've seen this over and over again: people love it if you step up their experience. No one turns down an upgrade to business class in a plane.
+- There's more noise that comes with wearable computing, things that let us take pictures every 30 seconds as we walk around living our lives, and a huge number more photos per person will exist.
+- The contextual age means we're going to have to go to war on noise.
+- Facebook is looking to help you distribute content to who you want to distribute to. Facebook gets a lot better if you put each of your friends into either your 'close friend' or 'acquaintance' list.
+- The problem is Twitter is designing the metaphorical equivalent of a Toyota Prius. A car for the masses. While I want a Formula One race car.
+- Be the authority on your product/company. You should know more about your product than anyone else alive if you're writing a blog about it.
+- I see something happening in the world, and I want to share it. It's why, during 9/11, I wrote every few minutes what I saw happening. It's why I write about meeting Steve Wozniak or Bill Gates or Larry Page.
+- Everyone is on Facebook. It is very rare that I can't find a startup. Out of the 72 Y Combinator startups, almost all of them were on Facebook.
+- It's amazing that about 10% of startups couldn't be found on Facebook because they had common names or names that weren't searchable.
+- Apple knows a lot of data. Facebook knows a lot of data. Amazon knows a lot of data. Microsoft used to, and still does with some people, but in the newer world, Microsoft knows less and less about me. Xbox still knows a lot about people who play games. But those are the big five, I guess.
+- It's amazing when I walk through an expo hall and can't figure out what a company does just by walking past its booth.
+- Link to your competitors and say nice things about them. Remember, you're part of an industry.
+- Apple has hundreds of stores around the world that are beautiful, and they have a distribution system and a staff of 40 or 50 people that will help you.
+- I find that it's not the numbers but the quality of the audience. That's why it got to be such a big thing when I left Microsoft, because I had an interested audience; not huge, but passionate. The passionate ones are the ones who change society.
+- I always tell people, start with what you're passionate about. If you truly are passionate, you'll keep it up.
+- The people who can step up my experience are those who have a common set of experiences with people I know. Think about it. How often did a total stranger come into your life to make your evening better? Not very often. But the friend of your friend? That happens all the time.
+- Facebook is studying emotional reaction to things and bringing you fewer of things you don't engage with and more of what you do.
+- I knew tech was going to be increasingly important in my lifetime, so I focused on it early.
+- Post fast on good news or bad. Someone say something bad about your product? Link to it - before the second or third site does - and answer its claims as best you can.
+- If there's a danger at Facebook, it's the assumption that Facebook has us all locked in and we aren't going to go elsewhere.
+- Everything you do on Facebook will affect what comes in your view in the future. If you like crappy things that you don't care about, you'll see more crappy brands that you don't care about in the future, and it might even affect your experiences when you walk into bars, churches, schools, shopping malls, etc.
+- With the advent of wearable technology, companies will soon be able to better provide ads to customers based on their real-time activity.
+- There is a shirt company that is making sensors that go into your clothing. They will watch how you sit, run or ski and give data on that information.
+- I happen to be fortunate: I live in San Francisco, and I can afford a $600 phone. Or two of them!
+- The problem with Microsoft is that it's so committee-driven and slow.
+- Highlight just hasn't proven to be very addictive to either me or my friends. We talk about it often. I keep running it.
+- IOS users tend to be ones that really care about being online all the time. They also tend to be willing to pay for that. You might say they are richer users, which is partially true.
+- This is what Steve Jobs understood: Brands are defined not by the best thing on the product but by the worst thing.

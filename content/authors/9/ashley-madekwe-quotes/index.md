@@ -1,0 +1,64 @@
++++
+author = "Ashley Madekwe"
+title = "Ashley Madekwe Quotes"
+quotes_len = "58"
+description = "the best 58 Ashley Madekwe Quotes"
++++
+- I grew up in London. My parents and I lived in West Norwood, then we moved to Norbury, and I went to the Brit School. I'm a South London girl at heart.
+- I am a Topshop homing pigeon! I can walk into the Oxford Circus branch and ferret out the best bits in minutes.
+- When someone comes to visit me, they have to bring tea - you can't stay in my house if you don't bring me tea.
+- My ginger tabby cat Oscar - he's got his own passport - he comes everywhere with me.
+- There's no rhyme or reason to how I dress.
+- I still credit Adrian Lester with being one of my biggest influences.
+- I've read 'Valley of the Dolls' at least four times. It's so epic!
+- I love trashy reality TV - all of it.
+- Nude nail polish wins hands down over intricate nail art.
+- I always carry multipurpose products in my handbag.
+- I love tea.
+- I love women that have an ease to the way they dress. I think Vanessa Paradis and Alexa Chung do that very well.
+- I've teamed up with BaubleBar to curate a collection of gorgeous jewelry pieces. I worked closely with the BaubleBar team to design a collection that encompasses my style and all of my go to pieces.
+- Don't be afraid to pile on the midi rings! I like to play around with metals and pair delicate rings with chunkier ones.
+- I like shopping from the comfort of my bed whilst my husband is asleep beside me.
+- When the weather is really hot, I tend to live in denim cut-offs.
+- I like to play around with mixing high-end with more affordable pieces.
+- The second I tell myself I have to do something, I'm sure to do the opposite.
+- I throw a leather biker jacket over everything. It adds an instant downtown cool vibe and stops a look becoming too girlie. Bonus points if you wear it like a cape!
+- I hate it when people are impolite to waiters or to the valet or the guy in the supermarket. There's no need for that; it doesn't cost anything to be polite.
+- I can remember hearing the theme tune to Dallas when I was supposed to be in bed. I would sneak down and try to watch it through the banisters. My mum loved that show.
+- On the 'Revenge' set, even if they're not showing my feet, I'll still wear my heels because it gets me in the feeling of Ashley Davenport.
+- When I first started working on 'Secret Diary,' I definitely felt like I needed to shape up. The idea of being in my knickers on TV was a great incentive! Now I try to eat right, and I go to Bikram yoga three or four times a week. I have my 'naughty' days, and I indulge in pizza and cake, but so what!
+- I'm known for changing halfway through the day if my mood swings.
+- The water in L.A. tastes like bleach. I literally have to make my tea with Evian water.
+- I'm terrible at posting regularly; I don't deserve the blog success!
+- A colorful Chanel bag is a way to mix up anything.
+- It's not exactly under the radar, but when I'm in London, I love to visit Liberty. It's my favorite department store, and they have a room entirely dedicated to chocolate and truffles.
+- Fashion is ultimately a form of self-expression. That's why I love trying out new things.
+- I started my blog as an online diary. I moved to New York for a job, and I kind of wanted to keep my pictures all in one place. Also, I just love style blogs and wanted to join in on the fun!
+- Mascara is my daily essential. I pile it on top and bottom lashes during the day. If I'm going out, I'll add the individual Eylure lashes at the outer corners for more drama.
+- Nobody is all good or all bad.
+- Topshop makes the best skinny jeans for my shape. I order online or stock up when I'm back in London.
+- I think the best way to keep a relationship hot is to simply try to make time for each other. That's it.
+- I like what Proenza Schouler is doing. I also love the Miu Miu chunky embellished shoes and really like Prada as well.
+- I like Elizabeth Arden Eight Hour Cream, as it's great for soothing dry skin and adding shine. I use it instead of balm, too.
+- My first job was a film called 'Storm Damage' for the BBC. I was 16 and working with really respected British actors. I didn't have an agent at the time, and it kind of threw me into real acting.
+- Comfort is key for a barbecue.
+- I've been known to spend an afternoon on ASOS.com. There's just so much on there, and I can't stand not seeing all the new arrivals just in case I miss out.
+- I like pieces that have everyday appeal and can be worn anywhere!
+- I'm usually pretty good about meeting people. I try to remember they are human, too!
+- On shooting days, I have all my accessories, and I style the final look.
+- Daphne Guinness, who makes couture seem wearable, is an icon who influences what I wear.
+- If I'm outside, I want something flat on my feet.
+- I'm happy with embellishment in a chunky Prada-esque way, but I'm not into sequins!
+- I don't see myself as famous at all so I'm continuing my life as normal.
+- I love anything leopard print, but sometimes an all over print can be a bit much.
+- A light cotton cami is always great to stay cool.
+- I like TV on demand and Cheetos.
+- If I love something, I wear it to death!
+- Creating a character is about what they look like. The look speaks volume to the audience.
+- You should see some of the things people tweet me. There have been death wishes on my Twitter timeline.
+- I wish I wasn't eating Cheetos every night. Those are my favorite - I'm addicted to them!
+- Statement earrings and statement necklaces each deserve their own moment. I never wear the two together; it looks overdone.
+- I always have loved witches.
+- I originally wanted to be a pop star. I wanted to be Kylie Minogue. My dad thought that was a very silly ambition and introduced me to drama classes. Once I became fixated on that, there was no stopping me.
+- I was definitely nervous turning up on my first day to shoot with Woody Allen.
+- It often looks like an actor's had a big break out of nowhere, but in reality, they've been working their way up, little by little, for a while.

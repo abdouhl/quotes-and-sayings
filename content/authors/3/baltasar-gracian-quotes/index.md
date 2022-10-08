@@ -1,0 +1,69 @@
++++
+author = "Baltasar Gracian"
+title = "Baltasar Gracian Quotes"
+quotes_len = "63"
+description = "the best 63 Baltasar Gracian Quotes"
++++
+- It is a great piece of skill to know how to guide your luck even while waiting for it.
+- Never do anything when you are in a temper, for you will do everything wrong.
+- True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
+- Nature scarcely ever gives us the very best; for that we must have recourse to art.
+- It is better to sleep on things beforehand than lie awake about them afterwards.
+- A beautiful woman should break her mirror early.
+- The envious die not once, but as oft as the envied win applause.
+- Better mad with the rest of the world than wise alone.
+- To oblige persons often costs little and helps much.
+- Work is the price which is paid for reputation.
+- Let the first impulse pass, wait for the second.
+- At twenty a man is a peacock, at thirty a lion, at forty a camel, at fifty a serpent, at sixty a dog, at seventy an ape, at eighty a nothing at all.
+- Attempt easy tasks as if they were difficult, and difficult as if they were easy; in the one case that confidence may not fall asleep, in the other that it may not be dismayed.
+- Always leave something to wish for; otherwise you will be miserable from your very happiness.
+- True knowledge lies in knowing how to live.
+- Don't show off every day, or you'll stop surprising people. There must always be some novelty left over. The person who displays a little more of it each day keeps up expectations, and no one ever discovers the limits of his talent.
+- There is none who cannot teach somebody something, and there is none so excellent but he is excelled.
+- One must pass through the circumference of time before arriving at the center of opportunity.
+- We often have to put up with most from those on whom we most depend.
+- Those who insist on the dignity of their office show they have not deserved it.
+- The wise does at once what the fool does at last.
+- To be at ease is better than to be at business. Nothing really belongs to us but time, which even he has who has nothing else.
+- Never open the door to a lesser evil, for other and greater ones invariably slink in after it.
+- Let him that hath no power of patience retire within himself, though even there he will have to put up with himself.
+- Know or listen to those who know.
+- Begin with another's to end with your own.
+- Advice is sometimes transmitted more successfully through a joke than grave teaching.
+- Things do not pass for what they are, but for what they seem. Most things are judged by their jackets.
+- A man of honour should never forget what he is because he sees what others are.
+- Luck can be assisted. It is not all chance with the wise.
+- Aspire rather to be a hero than merely appear one.
+- Even knowledge has to be in the fashion, and where it is not, it is wise to affect ignorance.
+- Be content to act, and leave the talking to others.
+- I strive to be brief, and I become obscure.
+- Never have a companion that casts you in the shade.
+- Evil report carries further than any applause.
+- Without courage, wisdom bears no fruit.
+- Little said is soon amended. There is always time to add a word, never to withdraw one.
+- A wise man gets more use from his enemies than a fool from his friends.
+- Dreams will get you nowhere, a good kick in the pants will take you a long way.
+- Don't take the wrong side of an argument just because your opponent has taken the right side.
+- He that can live alone resembles the brute beast in nothing, the sage in much, and God in everything.
+- A bad manner spoils everything, even reason and justice; a good one supplies everything, gilds a No, sweetens a truth, and adds a touch of beauty to old age itself.
+- Never contend with a man who has nothing to lose.
+- Hope is a great falsifier. Let good judgment keep her in check.
+- To equal a predecessor, one must have twice they worth.
+- The things we remember best are those better forgotten.
+- Fortune pays you sometimes for the intensity of her favors by the shortness of their duration. She soon tires of carrying any one long on her shoulders.
+- Friendship multiplies the good of life and divides the evil.
+- Respect yourself if you would have others respect you.
+- Fortunate people often have very favorable beginnings and very tragic endings. What matters isn't being applauded when you arrive - for that is common - but being missed when you leave.
+- There is always time to add a word, never to withdraw one.
+- When desire dies, fear is born.
+- A single lie destroys a whole reputation of integrity.
+- Hope has a good memory, gratitude a bad one.
+- It is good to vary in order that you may frustrate the curious, especially those who envy you.
+- He that communicates his secret to another makes himself that other's slave.
+- It is better to have too much courtesy than too little, provided you are not equally courteous to all, for that would be injustice.
+- Great ability develops and reveals itself increasingly with every new assignment.
+- He that has satisfied his thirst turns his back on the well.
+- Quit while you're ahead. All the best gamblers do.
+- Have friends. 'Tis a second existence.
+- Many have had their greatness made for them by their enemies.

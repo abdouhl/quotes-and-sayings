@@ -1,0 +1,16 @@
++++
+author = "Anne-Marie Slaughter"
+title = "Anne-Marie Slaughter Quotes"
+quotes_len = "10"
+description = "the best 10 Anne-Marie Slaughter Quotes"
++++
+- If we're going to have better choices for women, we've got to have better choices for men.
+- What mothers need, as well as fathers, spouses, and the children of aging parents, is an entire national infrastructure of care, every bit as important as the physical infrastructure of roads, bridges, tunnels, broadband, parks and public works.
+- When I used to teach civil procedure as a law professor, I would begin the year by telling my students that 'civil procedure is the etiquette of ritualized battle.' The phrase, which did not originate with me, captured the point that peaceful, developed societies resolve disputes by law rather than by force.
+- Someone must transform income into the food, shelter, clothing, nurture, discipline, education, minding, nursing, transportation, and emotional support that creates life outside of the office, permits survival of the race, cares for the ill and disabled, and makes life livable when we can no longer care for ourselves.
+- The false pride of perennial celebration, of wearing flag lapel pins while betraying the values that the flag stands for, is like the self-esteem curriculum for toddlers, where everything is praised and no achievement ultimately has meaning.
+- Over my lifetime, women have demonstrated repeatedly that they can do anything that men can do, while still managing traditional women's work at the same time. But the same expansion of roles has not been available to men.
+- We should be proud of our country when we have done something to be proud of, when we have lived up to our own standards. But the flip side of genuine pride is being able to recognize when we have fallen short, and to hold ourselves to account.
+- Patriotism demands the ability to feel shame as much as to feel pride.
+- Young men keep telling me they don't 'have it all' either. And they may have a point. But if you define 'having it all' as the opportunity to have a successful career and a family, I'd say this. When a man tells his coworkers he's going to have a child, no one asks him how he'll manage or if he'll be coming back to work.
+- Believe it or not, we will actually be better and happier workers if we are allowed to be better parents. We might even rediscover our capacity for fun.

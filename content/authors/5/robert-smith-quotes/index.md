@@ -1,0 +1,104 @@
++++
+author = "Robert Smith"
+title = "Robert Smith Quotes"
+quotes_len = "98"
+description = "the best 98 Robert Smith Quotes"
++++
+- You know, the Internets made us more aware of what people think about us.
+- If any of our songs ever did make it on the top ten, I'd disband the group immediately.
+- Each time I play a song it seems more real.
+- For a period in the '90s, I felt that the Cure was massively undervalued. But there has been a paradigm shift. There's a bunch of newer bands coming up who've grown up listening to the Cure and don't understand that you're not supposed to like us.
+- When you're in a young band for the first time, geographically you're in the same place and you tend to go out and socialize. You play more shows, you spend more time together. You're a unit. As you grow older, inevitably you develop a life outside the band. I think it would be tragic if you didn't.
+- I'm not really obsessed with death.
+- Whatever I was doing, even when I was at school, I never repressed anything that I felt. I wasn't flamboyant; I was actually quite reticent most of the time. But if I felt I had to do something, I did it.
+- It has always seemed slightly uncomfortable, the idea of politicised musicians. Very few of them are clever enough to do it; if they're good at the political side, the music side suffers, and vice versa.
+- I could write songs as bad as Wham's if I really felt the urge to, but what's the point?
+- I don't think of death in a romantic way anymore.
+- I do a job I really, really love and I kind of have fun with. People think you can't be grown up unless you're moaning about your job.
+- I don't dislike my peers because they're still around and remind me of what I'm doing. I never liked them anyway. I never liked U2, the things they've done over the years.
+- Living, it's awful for me.
+- I wore makeup when I was at school, and I wore makeup when glam started. I started wearing it again when punk started. I've always been drawn to wearing it. It's partly ritualistic, partly theatrical and partly just because I think I look better with it on.
+- A lot of journalists give me a hard time about how I look, but I've never met a journalist I'd rather look like.
+- When punk came along, I found my generation's music. I grew up listening to the Beatles and the Rolling Stones and Pink Floyd, 'cause that was what got played in the house. But when I first saw the Stranglers, I thought, 'This is it.'
+- I really enjoy what I do, and who I'm with and where I am. Having said that, I'm not really a person of habit, because what I do in my job is travel around the world and play concerts to people, and occasionally do very weird things.
+- Refusing to grow up is like refusing to accept your limitations. That's why I don't think we'll ever grow up.
+- I hardly ever listen to any of our old stuff now. Once the songs have been recorded and put on to vinyl they become someone else's entertainment, not mine.
+- I just play Cure music, whatever that is.
+- You put on eyeliner, and people start screaming at you. How strange, and how marvellous.
+- There's no hope of me becoming completely relaxed on stage. If I did, I'd sit down and doze off.
+- Nobody notices me. Nobody thinks I'm me. But then I look less like me than most of the people coming to our concerts.
+- I'm not a morose person; it's just that my best songs reflect on the sadder aspects of life.
+- I became an adult in an extreme way. I was recently sorting some old photographs and I found another.
+- I don't find the technology threatening. A lot of people my age, my generation, find it difficult to immerse themselves. But I would never preclude the idea of using any technology if I thought it suited the end result.
+- I'm happy quite a lot of the time. I've done far more than I ever thought I would have, so I'd be very hard-pressed to walk around miserable.
+- They may not like us, but they can't get away from knowing who we are.
+- I'm not going to worry about the Cure slipping down into the second division; it doesn't bother me because I never expected to be in the first division anyway.
+- I write with a pen and paper. Never on a laptop.
+- I'd rather spend my time looking at the sky than listening to Whitney Houston.
+- Reading is something I've really missed, not being able to enter people's worlds.
+- I wouldn't want to think people doted on us, hung on every word, or wanted to look like us.
+- Irony is the recourse of the weak-minded wimp, I think. I hate bands that deliver their songs with knowing smiles on their faces, so that if those songs fall flat they can say 'Ah well, we never really meant it anyway.' It's so dishonest.
+- You don't really know a song until you play it live.
+- In some cases, I quite like irritating people who need to be irritated.
+- Both me and my wife's extended family all live within a 50-mile radius. Like me, a lot of them did time in London then started drifting back to the countryside and the sea. Perhaps it's a homing instinct.
+- It's only people that aren't goths that think the Cure are a goth band.
+- I started out in the 'Cure' reflecting things that I thought were important, and it's reached a point where it takes over and becomes the thing that is important.
+- Without faith that there's a world beyond the one we live in, I don't see how it's possible to get rid of angst.
+- Sometimes I'll get to the end of a song, open my eyes and there's all these faces peering at me. It's quite horrifying.
+- I'm in the strange position of the world drifting away from me, but you know what? I'm actually quite content with that. It doesn't bother me in the slightest. I don't feel like, 'Oh God, I'm being left behind.'
+- Everything I do has the tinge of the finite, of my own demise. At some point you either accept death or you just keep pushing it back as you get older and older. I've accepted it.
+- When you're on stage, the real world just drops away for that time. It's pretty intense.
+- I married somebody who likes the way I look. If I changed my hair every year, and I reinvented myself in time-honoured pop fashion, I think understandably the person I'm married to would grow slightly sick of me.
+- The problem as you get older is, from my perspective, after a certain amount of songs, you tend to start writing something and then you stop and say, 'Wait, I think I've written that before.'
+- Every animal would rather die themselves than lose their offspring. But it's just genes, isn't it? All of our existence is spent worrying about the next generation, but we don't actually seem to get anywhere.
+- The idea of reinvention has always seemed bizarre to me.
+- Whenever I'm home, I haven't got any makeup on. But even in the studio, before I do vocals, I put makeup on.
+- I honestly don't class myself as a songwriter. I've got 'musician' written on my passport. That's even funnier.
+- I don't want The Cure to fizzle out doing 45-minute shows of greatest hits. That would be awful for our legacy.
+- My whole life I've played music for my own personal enjoyment and the idea of it becoming a machine or a business is just horrible.
+- I think, at heart, unless you discover faith in something else, something other, it's very hard to shake the thing that you're adrift alone.
+- I always place myself as the archetypal Cure fan. I'm the wrong age, but I still think that if I like anything particularly, our fans will.
+- I've always spent more time with a smile on my face than not, but the thing is, I don't write about it.
+- I had no desire to be famous; I just wanted to make the greatest music ever made. I didn't want anyone to know who I was.
+- If you acquiesce to one interview, there's always another waiting in the wings. Also if you're interviewed repeatedly, you just start repeating yourself. I don't like to do that.
+- But everyone I know reaches a point where they throw out their arms and go beserk for a while; otherwise you never know what your limits are. I was just trying to find mine.
+- It's really easy to slide into a depression fueled by the pointlessness of existence.
+- I look thuggish when I shave my head and wear big boots. I walk into a newsagent and people think I'm going to jump the counter.
+- You can't allow other people to put a price on what you do, otherwise you don't consider what you do to have any value at all, and that's nonsense.
+- Perhaps not as badly applied and not as obvious, but for thousands of years, people have worn makeup on stage.
+- I think that if you become a parent, you stop being a child, and your position in relation to your parents changes.
+- There were only two times in my life when I've actually felt down about things and gotten myself into a full mental mess. One of the times was in 1982. I had a horrible time for a few months and felt pretty desperate. Then again in 1984, for various reasons, not all of them within my control. Since then, I just wander in and out of black moods.
+- The idea of appealing to people of a like mind and like spirit always appealed to me.
+- People think it's funny that I enjoy dreaming so much. I just use it as a form of entertainment. It's very private. I don't see my dreams as separate. I mean, half the time I'm wandering around dreaming anyway.
+- No, come to think of it, I don't think the Cure will end, but I can make up an ending if you want me to.
+- I've never regretted not having children. My mindset in that regard has been constant. I objected to being born, and I refuse to impose life on someone else.
+- When we started I wasn't the singer. I was the drunk rhythm guitarist who wrote all these weird songs.
+- I've got a presence on all the social networks, in fact, but I've never once sent a message. I'm there because otherwise, someone's going to pretend to be me.
+- I never answer if someone knocks on my door and only the band and my manager have my phone number. In any case my phone doesn't ring so I never notice it. I occasionally just walk past and pick it up to see if anyone's there.
+- I lose myself in music because I can't be bothered explaining what I feel to anyone else around me.
+- Like I can't cry for myself so I will let this song take all of the things inside I can't let anyone else see and offer it up, as if the sound were some kind of god, and my pain is some kind of sacrifice.
+- If you feel alienated from people around you, it's because no one tries to understand you.
+- Performing doesn't come that naturally to me, even though I've done it for years.
+- I would be more familiar with Janet Jackson than I was with the Teardrop Explodes or Joy Division, because I didn't want to listen to my competitors for fear of nicking ideas off them.
+- The very first concert I ever went to on my own was actually Rory Gallagher. In a one-month period in 1973 or '74, I saw him, Thin Lizzy and the Rolling Stones. I wasn't really a big Rory Gallagher fan, but I thought his guitar playing was fabulous. But Thin Lizzy, they were fabulous.
+- I get a much more extreme reaction when I have my hair really short. I look thuggish when I shave my head and wear big boots. I walk into a newsagent and people think I'm going to jump the counter. It's a much more extreme reaction.
+- I've got a Facebook page, but I've never put anything on it. I've got a presence on all the social networks, in fact, but I've never once sent a message. I'm there because, otherwise, someone's going to pretend to be me.
+- It's really nice meeting people after a concert. Still, it's very weird to be at the center of a group of 30 people all listening to what you're saying. When that group turns into 300 people, it goes on from weird. Some people revel in it, and I don't.
+- I never liked Queen. I can honestly say I hated Queen and everything that they did.
+- I don't care where the Cure is placed in the pantheon of rock. I don't care if we're perceived as relevant. We're never worried how we fit in. I don't even want to fit in.
+- I still frequent my parents' house. I go there to escape, back to the bedroom that I grew up in. Just to sit there and feel small.
+- Apart from the fact that I've got a strange job, I do lead a fairly normal life. I do my own shopping. I don't feel constrained by who I am because of what I do; I often feel disappointed by my lack of ability. I get frustrated at myself, but I think everyone does.
+- Anyone can rehearse and play constantly any song in the world.
+- I've discovered special makeup by a company called M.A.C. You could wear it on the surface of the sun and it wouldn't move.
+- I had every intention of 'Bloodflowers' being the last Cure record. I thought it would be fantastic to finish with the best thing we'd ever done, but I wasn't sure we could pull it off.
+- I have never liked Morrissey, and I still don't. I think it's hilarious, actually, what things I've heard about him, what he's really like, and his public persona is so different. He's such an actor.
+- Hendrix was the first person I had come across who seemed completely free, and when you're nine or 10, your life is entirely dominated by adults. So he represented this thing that I wanted to be. Hendrix was the first person who made me think it might be good to be a singer and a guitarist - before that I wanted to be a footballer.
+- My earliest memories are sitting on the beach at Blackpool, and I know that if I went back, it would be horrible. I know what Blackpool's like - it's nothing like I imagined it was as a child.
+- You don't always have to sing dark things to be thoughtful.
+- I just don't feel comfortable anymore with the kind of attention that I'm getting. It's purely the numbers of people that want a bit of the Cure or want a bit of me.
+- You can't drink on an eight hour flight, pass out, and then go onstage... well you can, but then you're Spandau Ballet.
+- If I put a value on my music, and no one's prepared to pay that, then more fool me, but the idea that the value is created by the consumer is an idiot plan; it can't work.
+- I think the rock'n'roll myth of living on the edge is a pile of crap.
+- I'd like to record somewhere really different. Rent a really big house and get a mobile in and set up in the dining room. Maybe New England; it'd be nice in September or October.
+- I despise people who revel in the ignorance of not being able to play their instrument.
+- I am very self-conscious a lot of the time.

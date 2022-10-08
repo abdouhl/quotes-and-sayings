@@ -1,0 +1,106 @@
++++
+author = "Rumaan Alam"
+title = "Rumaan Alam Quotes"
+quotes_len = "100"
+description = "the best 100 Rumaan Alam Quotes"
++++
+- There is a tendency to presume autobiography in fiction by women or minorities. Guys named Jonathan write universal stories, while there's this sense that everyone else is just fictionalizing their own small experiences.
+- I married the man I love when the state of California said I could. We made a family through adoption, as New York State said we could. From the outside, our family - two dads, two sons via adoption - seems like an experiment, but what family isn't an experiment?
+- To be five years old is to be surprised by life. I'm amused by my children's awe at quotidian things - a toy helicopter, a bubble bath, the visible tentacles on a plate of calamari. And I'm envious of their ability to attain something I often can't: a state of transcendence induced by art.
+- I always like it when writers posit writing as an act of empathy. It's such a grand turn of phrase, such a noble ideal; empathy is so worth aiming for in life that the same must hold true in art. But personally, I can't think too deeply about that when I'm working, or I'd never get anything down on the page.
+- I reject the notion that one should feel guilty about what you don't know.
+- A writer cannot be judged for his project, only its execution.
+- In a strange way, Louise Erdrich is perhaps our least famous great American writer; she is not reclusive, but she is reticent, and her public appearances give the impression of a carefully controlled performance. But Erdrich has also shared many of her most intimate emotions and experiences, in some form, in her novels.
+- Truly smart people and truly smart dressers share one thing in common: They make it look easy.
+- There are probably some readers who don't want a great American writer to acknowledge that cleaning out the bottom drawer of the refrigerator has ever crossed their mind.
+- When you are what we call a 'minority writer,' a writer of color, a writer of any kind of difference, there is some kind of presumption of autobiography in everything you produce. And I find that really maddening, and I resist that.
+- Blackness, any sort of difference, is not a burden. Relegating blackness or other sorts of difference to serious books that explicitly engage with issues creates a context in which it can seem like one.
+- Baking is a matter of precision and timing, but I just make things up as I go.
+- The culture looms much larger than you do as a parent, and one can hardly rely on the culture to impart the lesson that womanhood is valuable.
+- I have a theory that because my kitchen is small, you can't preheat an oven and deal with dough at the same time, although maybe it's just that I'm a bad baker.
+- I'm a square. I always wanted the standard-issue American dream: beautiful home, loving husband, couple of kids. I met another square, and we got married; a year later, we had a baby; three years later, had another.
+- Subtlety doesn't work with kids.
+- If you can't empathize with other people, then you will never really be able to write well about them.
+- That a friendship ends doesn't mean it was weak from the outset; that it ends says nothing about its importance.
+- I love fiction's ability to allow me to inhabit a wholly different life.
+- Children's literature - the product of adult guesswork - often fails to account for its audience's slippery grasp on the world.
+- Instead of a passion for the Yankees or fly-fishing or birding, I want to pass on to my sons a love of books, music, and art. I accept that this is partly about the gratification of my own ego, but it's also one of the only ways I know of making a rich life. That's what we all want for our progeny.
+- Parenting advice is mostly useless because every family is uniquely its own; artistic advice is mostly useless because every artist works in their own way. Thus, figuring out how to balance the two has an intense specificity.
+- Because the designers at Baby Gap and Crew Cuts have determined it would be cute if kids dressed like their dads, seemingly every American male between 2 and 52 dresses identically.
+- Class is very, very fertile territory for American artists, and it has been for a long time.
+- Summer is meant to be for travel, for exploration, for leisure, but sometimes budgets and schedules dictate otherwise.
+- Is deciding what you like an instinct, a sense that arrives as swiftly as my autoimmune response to cat dander? Or is it the result of reasoned consideration, the way wine tasters swish pinot noir around in their mouths, spit it out, and reach for complex metaphors about chocolate and tobacco?
+- Uzodinma Iweala is a fine and confident novelist.
+- You can't control what's going to happen to the book you're about to publish.
+- Fashion has underscored the interchangeability of men for a long time, maybe from the outset.
+- Family is whatever you say it is.
+- My husband and I adopted our children through a private agency, Spence-Chapin Services to Families and Children. As a nonprofit organization, it relies on client fees as well as donor support to do its work.
+- For a long time, I thought that I was an enlightened parent by virtue of being an enlightened person. What a fool.
+- If you've ever watched a television cartoon, you know that kids don't appreciate subtlety, though perhaps that's because they're not often offered it.
+- It comforts the adult conscience to remember that, amid history's grave injustices, there were still great lives.
+- Does a bona fide chimichurri have cilantro in it? Who cares? Cooking for your family, unless your family includes Joel Rubouchon, is liberating in that regard.
+- Checking your phone during dinner is no less rude than reading 'People' during dinner, which I once saw a woman do at Blue Ribbon Brooklyn as she dined with her husband/boyfriend/whatever.
+- It's not that a literature for children of color doesn't exist; it's that so much of the extant literature is lacking in the essential quality that makes literature for children so extraordinary a form: imagination.
+- Shopping for clothes is time consuming, it's tiring, and it can feel like a waste of an autumn afternoon.
+- The cultural conversation around privilege has grown vibrant enough that the ultimate privilege is to just ignore it altogether. Some decry this conversation as pernicious. I don't agree.
+- Every sense has the power to transport us through time, but it's taste I find the most mysterious, and writing about it often results in tortured metaphors.
+- The person most qualified to tell the tale of Kareem Abdul-Jabbar is the man himself, as gifted an intellect as he is an athlete.
+- Usually, when you see clothes on a model, by some transitive property, that garment is imbued with her beauty.
+- Fashion is about fantasy.
+- Wishing there were more children's books like 'The Snowy Day' is a bit like wishing there were more grownup books like 'Anna Karenina.' There are only so many masterpieces out there.
+- For many writers, the endless performance of being a writer - tweeting, appearing, making the rounds - is required simply to attract enough attention to make a living.
+- Children's books deal in idealized worlds, so they're a document of how our notion of ideal worlds has changed over time.
+- I don't have a Winslow Homer or a Renoir, but I do have the liberty to live as I like.
+- I'm not black myself, but my sons are.
+- Form ossifies into genre through repetition.
+- Before the arrival of my first son, I gave up on the moribund business of magazine publishing, where I had long dreamed of a career, and went to work in advertising. That I could be paid great money to write was incredibly hard to believe.
+- If writing really is empathy, then understanding your place in society might actually help you achieve it.
+- Every Christmas, I cook an elaborate Mexican dinner.
+- When I look at the list of my favorite works, writers who are women do tend to outnumber writers who are men for whatever reason.
+- Nothing is ever ideal. You have to work all the same.
+- I've spent many hours of my life browsing in stores. At 21, I admired clothes I couldn't afford. At 30, I bought them. At 40, I sometimes go simply for the pleasure, of seeing what is new, of learning what counts as beautiful now.
+- When my husband and I first became parents, we joked that our chubby baby was destined to grow into an Alex P. Keaton Reaganite - the most unlikely, and therefore hilarious, course for the child of an interracial gay couple in gentrifying Brooklyn.
+- Among this country's enduring myths is that success is virtuous, while the wealth by which we measure success is incidental. We tell ourselves that money cannot buy happiness, but what is incontrovertible is that money buys stuff, and if stuff makes you happy, well, complete the syllogism.
+- I do think that I have a sensitivity to the depictions of maybe all minorities in literature. And I think that the experience of people who look like me is so rarely captured in big, mainstream American fiction that you tend to sort of empathize with any character of color who pops up.
+- I know I've had a charmed experience of being a parent, with healthy kids, a helpful partner, access to good day care, and great public schools.
+- History is a story like any other, but black history is a story so devoid of logic that it frustrates the young reader. The young readers in my house, told of slavery and segregation, asked in disbelief, 'What? Why?' We - the parents of black children, the parents of all children - still need to tell that story.
+- I work when I'm alone, but I have children and a family and a job, so alone time is at a premium.
+- Everyone on Twitter - everyone on the Internet - seems so damn certain. Brevity doesn't allow for nuance, and it's a nice complement to confidence.
+- Kids are the ultimate trump card: a way to get out of co-op board meetings or lunch with a friend you don't want to see or your brother-in-law's set at a comedy club. It's fair to use your kids as an excuse to sidestep what you don't want to do; it's less fair to blame them for not being able to achieve what you do want to do.
+- Fiction is just lying.
+- I think that in the cultural imagination, motherhood has a primacy that fatherhood just doesn't; and that's not to say that there aren't many fathers who are active and engaged and for whom that is their life's passion. But somehow, in the imagination, there's something different about maternity.
+- I mourn for the kind of dad I didn't have; I rue my first broken family while taking joy in the one that I've made.
+- Men's fashion's tendency toward uniformity promises little fun, but at least it offers this: If I wear sweatpants and sneakers, I can pass as the American it's safest to be.
+- Children's picture books are a unique record of social evolution: in gender roles and racial politics, as is much discussed, but also in fashion and interior design.
+- This tension between ambition and parenthood, that's not a reckoning that many men face. There are plenty of men who say, 'Oh, I need to be there for my kids, and I can't do x or y professionally,' but for the most part, that's a struggle that belongs to women in society.
+- I didn't know, at 22, that regret is useless. If I could go back and change something - give myself some big break, pass along some secret information, reassure myself that most things would, in fact, work out - I don't think I would.
+- I am not anti-Internet, and I don't think smart phones are a social ill.
+- I grew up in the D.C. suburbs, and what I like about that place is that there's not a strong regional affect in the cultural imagination like there is in Dallas or San Francisco or New York City. You have a little more freedom as a novelist this way. The suburbs become a generic idea, and the place doesn't intrude into the narrative.
+- I work when I work, and that is often dictated by the things I cannot control.
+- Vanity is a sensitive subject for gay men.
+- Lindsay Hatton's novel 'Monterey Bay' so beautifully evokes the landscape of the titular locale, you'll feel transported to Northern California even if you're reading it on the bus on your morning commute.
+- We have all come from a woman in some fashion.
+- With respect to parenting, biological age is not, for men, the concern it is for women.
+- Obama-as-dad is my favorite Obama. Obama-as-executive, with his stubborn faith in reasonableness in times absent of reason, presided over the country during its descent into madness. I find it a comfort that Obama-as-dad presided over a family that leaves the White House healthy and happy.
+- It is true for my family and many others: Adoption has made us infinitely richer in the ways that matter most.
+- Parenting is love, sure, but it's as much about receiving love as it is giving it. Parenthood is a kind of vanity.
+- It's my own personal hang-up, but I find adults who are picky eaters to be the worst. I don't mean food allergies or preferences: I mean picky eaters. We all know one, and they're impossible to go to lunch with or invite over for a dinner party.
+- Writer's block is a fiction.
+- One of the many American ideals that make no sense at all is that we're all a million rugged individualists marching in lockstep. We dress accordingly, at least the men. If it's always been thus, I yearn for the halcyon days of the man in the gray flannel suit because at least that guy had some flair.
+- I don't want the staggeringly wealthy Elton John and his family to represent the standard of gay fatherhood any more than straight people want the stunningly beautiful Angelina Jolie and her family to represent the standard of heterosexual parenthood. Stars are outliers; stars are exceptions.
+- I didn't know, at 22, that everything that happens to you, the good stuff as well as the less-good stuff, accrues and becomes your life.
+- Some writers are prolific; some are shape-shifters. It's rare and intimidating to encounter one who is both.
+- Children are weird. I was going to say 'most children,' but I think this a rare universal law.
+- When you are young, it's deeply annoying to be told that certain things are a condition of your youth. There's almost always some condescension in the proposition that your reality, your hopes, your frustrations, are just a condition of your age, that what feels unique to you is a very common thing after all.
+- Writing takes gall. I like to think that's true even for writers with several books under their belt, writers who have been doing it for years. It takes something - guts, gumption, self-delusion - to ask for a reader's time when we all know there's nothing new under the sun; that it's all been said, or written, before.
+- Contemporary families can be made in many ways. You might step up when relatives or friends are unable to meet their obligation to their children. You might marry someone who is already a parent. Or you might, as in my case, yearn to create a family and decide to adopt.
+- I am a binge reader, with a tendency to throw myself at a writer, immerse myself in their work.
+- That's part of fashion's promise: that a girlfriend or boyfriend or a promotion are just one tie or sweater or pair of shoes away.
+- Genre is a useful thing when organizing texts in a bookshop but immaterial to the particular exchange between writer and reader.
+- I think it's a not-uncommon experience for gay boys, young men, and even older men to spend a lot of time in the company of women.
+- Years ago, I worked at a fashion magazine. I was the lowest man on the totem pole, one of the only men on that particular pole: a little brother with a dozen older sisters whose grace and glamour I so admired.
+- By a considerable margin, my family's largest-ever financial expenditure was the adoption of our two sons.
+- When I was somewhere between child and adult, my father left us. My first family broke apart, but this liberated me to create a new family as I pleased.
+- Shot glasses make me think of youth and a mode of drinking and living that was never mine, even when I was the age for it.
+- Time is a finite resource.
+- When we had our first son, four different people gave us the same present: a copy of Ezra Jack Keats' 'The Snowy Day.' A new child often inspires duplicate gifts - we were given a dozen mostly useless baby blankets, just one more thing to spit up on - but this one was different.

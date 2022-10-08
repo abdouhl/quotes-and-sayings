@@ -1,0 +1,92 @@
++++
+author = "Barbie Ferreira"
+title = "Barbie Ferreira Quotes"
+quotes_len = "86"
+description = "the best 86 Barbie Ferreira Quotes"
++++
+- As a young girl who was not confident in myself, I think I would tell girls of all ages that there is no one type of beauty, and looking towards one standard is the most unhealthy thing in the world.
+- When I was younger and really interested in acting, I would look at all the women on TV, and even the ones who were supposed to be 'geeks' or 'less attractive,' they all looked similar because they were extremely attractive and their bodies were all a certain way.
+- I have a ton of guy friends who talk to me about their bodies, too. But boys are often left out of the body positivity conversation.
+- I don't want people to think I think I am the most diverse thing fashion has ever seen or whatever. But there are so many different walks of life that I don't represent, and there is no one person who does.
+- I just want to make sure girls know they don't have to carry the weight of achieving nearly impossible standards on their shoulders every day.
+- As a child, I was so deeply insecure.
+- We need to overcome the stereotype that genders aren't fluid.
+- I'm more than just a curvy girl.
+- People claim to be progressive by celebrating curvy bodies - but the standards for those hourglass shapes are equally rigid. They mask that with body positivity - but what about unconventionally attractive bodies?
+- I've always struggled a ton with my body image, and I wanted to help other people not feel so ashamed about themselves. It's a completely unnecessary part of everyday life.
+- Modeling for adidas is a dream I never knew I could achieve. I've had it in my mind to work with such a dope ,and it's so amazing that I get to be a part of a campaign with so many powerful voices.
+- I always thought 'plus-size' wasn't a term that was negative - it wasn't something that I felt was something that was making me any different or making me feel like I was lesser than - and I found a community through it.
+- I have been on the Internet for a long time and have always gotten hate on the Internet, so there is a thick skin I have developed.
+- I feel really comfortable and cute in bikini bottoms that have thick sides.
+- Hair-wise, the move for me is to not wash it. I try to only wash it when I have to or for a shoot or something.
+- I felt the term 'plus size' was inaccurate and kept all these beautiful, stunning women with the widest spectrum of body types I've ever seen - mind you, curvy agencies start at a size 6 and go up to a size 18 - from being seen and resonated with.
+- I feel it's very important to remove labels; the progress in fashion will be when people completely cut out the words 'plus size' from their vocabulary and accept that women come in many sizes - especially over a size 4. Once that happens, I feel as though inclusiveness of body type will finally start happening.
+- I've just learned how to put things into perspective and how to not be afraid of change while making decisions for myself. Also, asking for what I want and demanding what I need and being more confident in who I am and my ability.
+- Black high-waisted bottoms go with everything.
+- I always, always take my makeup off last thing at night, no matter what.
+- 'Fat' was a terrible, terrible word for me growing up. When I was able to reclaim it and call myself fat and identify with it, that was the best moment ever. That was the moment I really started to feel free.
+- When you surround yourself with really good energy, really good people, you almost don't even think about your body as anything but something to nourish yourself and keep you running.
+- I typically get 7 to 8 hours, but I'm a 12-plus-hour sleeper. I need to go into hibernation once a week to refuel.
+- Seeing someone that you can relate to in the media is everything as a child, and a lot of people are not granted that luxury.
+- Airbrushing has sold such a false idea of what a body looks like to the point where people can't tell what's real and what's fake.
+- I started my modelling career by sending my pictures to American Apparel and eventually meeting my friend Petra Collins, who started shooting me for magazines around New York. I ended up signing a modelling contract with Wilhelmina Models a couple of years later.
+- Looking at magazines and being someone who wanted to act, as a kid, I was very much influenced by things I saw.
+- I'm completely the opposite of an etiquette icon. I'm brash, and I don't follow any social rules, really. I'm nice, but really, I'm the least-put-together lady in the world.
+- I'm a big runner, and I like to lift heavy. I'm not one for those little two-pound dumbbells - my goal is to be super-muscular in my 40s.
+- You were not put on this earth to do everything to be sexually appealing to people.
+- People try to sell a fantasy with beauty campaigns. Overly Photoshopped, perfect, white, thin figures are a standard that most people still hold as beautiful because the industry says so.
+- I don't really listen to the media or anyone's perception of beauty, so it makes me almost immune to silly comments about my body.
+- Knowing that girls are inspired to not have the burden of self-hate, even if it's a tiny way, makes me happy to no end. It gets me up in the morning and softens a lot of the blows I get.
+- Curvy and plus-size models will just be models once it becomes more normalized and we get more representation and people are used to it and not shocked by it.
+- People are so influenced by the media that they really believe a 38-24-45 plastic-surgery body is normal, and they can't understand why a body would possibly have cellulite or bumps.
+- There's absolutely no boundaries in dressing for any size, ever.
+- I have no doubt in my mind that the new generation has a sense of unity and sensitivity that previous generations lacked. We are strong, and we are visionaries beyond just money.
+- I like girly, colorful bathing suits.
+- I have been watching Youtube makeup tutorials since I was born. I did my own prom makeup and used to do peoples' makeup in high school for money.
+- The way I move, the way I think, the way I handle myself - it might be by accident, but it's who I am, and I've just learned to own that.
+- I don't think there's anything wrong with the word 'curvy' or 'plus-size' because there are women who identify as that, and I'm not offended by it whatsoever because I don't feel like being bigger is anything wrong.
+- You cannot look at someone and say they are unhealthy. You are not a doctor, and if you were, you'd realize why that's silly.
+- I had a lot of difficulty growing up in a society where everything is very closed-minded, especially with beauty.
+- I used to diet all the time as a kid. I started dieting in, like, kindergarten. I don't recommend it, but I also don't judge people who want to do things with their body.
+- The beauty industry is just like the fashion industry - prejudice is ingrained. But with new people coming in with fresh eyes and passion, I definitely am seeing progress.
+- I never thrived in high school.
+- I think that people put a lot of worth into looks. Unfortunately, there's a standard that so many people look up to that is unrealistic for everyone's body type.
+- Don't be afraid to show off who you are.
+- Denim on denim was my go-to look for most of my high school years.
+- People equate health to a picture in a magazine of a 6-foot-tall thin woman with her skin rolls Photoshopped and her waist edited to be tiny, so when they see bodies that jiggle and move around like they do, they assume it's wrong.
+- I used to hate my legs, but I learned to embrace them. They may be bigger than the average person's, but they're beautiful. I love them, and I wear short shorts all of the time.
+- Less is more. I would notice that when I did my makeup, I was putting on more makeup than they did on me at shoots. A little goes a long way, so I definitely learned how to wear less.
+- I like smoothies and things that go down smoothie-cool - when I used to live in Williamsburg, I used to get an acai bowl most mornings.
+- The term 'plus size' is so inaccurate. I'm not plus size; I have never bought an article of clothing that was plus size.
+- I am unapologetically myself, no matter what anyone's opinion is.
+- I was on the cover of French 'Grazia,' which was amazing. It was all over Paris!
+- I'm not overweight. I have and will always eat to nourish my body, and I work out.
+- Showing young girls' realistically captured bodies in ads lets young girls realise that it's okay to have dimples, stretches, rolls, etc. since we're only human.
+- Social media opened up basically every opportunity for me because, traditionally, I wouldn't be thought of as a model.
+- What the body-positive movement wants is to stop categorizing people, and to let people of all body types be able to do anything, whether they're slightly bigger than the average model or a lot bigger.
+- There's so much more to life than how you look.
+- I'm a model, and I happen to model for curvy things, but at the end of the day, I'm still in front of a camera just like anyone else.
+- My favorite models are always going to be the people who are pushing the boundary and challenging what it is to be a model.
+- I like forming connections with people who follow me on social media because they make me feel like everything is worth it.
+- Don't focus on your body. Love it, but know it'll never be up to society's standards because it's all Photoshop and exclusivity. And that's okay!
+- I never saw anyone my size in magazines when I was younger.
+- The lullabies I grew up with were usually Brazilian religious ones, and they still soothe me into sleep.
+- I just think dieting is something that is run by a billion dollar - a multi-billion dollar - industry that isn't always looking out for your heath. There's healthy ways to do it.
+- My favourite movies are 'Jawbreaker' and 'Heathers.'
+- I hate workout classes... Every time I go into one, my anxiety is really high. I leave immediately - like, before the warm up!
+- I used to have a recurring black-and-white dream where I would drive in on a hover car and raid the shoe closets of this huge mansion. I don't know what that means at all, to be honest.
+- There's so much more to people than their differences.
+- I used to be insecure about my butt, but I no longer think of clothes as something to make me look skinnier.
+- I feel like, growing up, yes, I loved looking at fashion. I loved Tumblr.
+- Definitely, when anyone asks me what I eat - I think that's the most disrespectful thing. There's no winning with that question.
+- Acceptance is being able to feel beautiful in whatever you feel comfortable in.
+- I like inviting people over in the evening, because I don't like moving anywhere.
+- At first, I was scared that if I claimed I modeled, people would be like, 'What?'
+- I rarely got retouched when I started modeling, and it was crucial to me to show an accurate, realistic picture of me because that's beautiful, too.
+- Not everyone relates to being a blond girl with blue eyes and is proportioned so she could barely walk if she was a real person.
+- I just love to disconnect from everything sometimes.
+- I think representation is the most important thing in the world. People who are young look up to the things that they see in the media. They want to relate and to be able to say, 'Wow, I can be successful.'
+- Every day, I feel different. Sometimes I don't put on any makeup, and other times, I put on a ton.
+- It's always been a dream to be in a beauty campaign. Anything that can show girls they can look ethereal at any size.
+- Tradition in fashion is held with such a high regard.
+- I love yoga.

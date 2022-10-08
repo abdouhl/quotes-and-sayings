@@ -1,0 +1,25 @@
++++
+author = "Ross Perot, Jr."
+title = "Ross Perot, Jr. Quotes"
+quotes_len = "19"
+description = "the best 19 Ross Perot, Jr. Quotes"
++++
+- If we can't have a great team and a winning team, then I will not be an N.B.A. owner very long.
+- It wasn't really part of the program in the Perot family. Rebellion was not an option.
+- Half of this business is politics. As real estate developers, it's our job to go in there and get beat up.
+- The only hard-and-fast rules a Perot must operate under are getting a sound education; being honest and ethical in our business dealings; treating the people who work for us with respect and dignity; and, finally, a Perot cannot be afraid to take risks when appropriate.
+- My father will always be my hero. He pioneered two successful companies that paved the way for the technology services industry and has devoted much of his life to helping people in need and those who serve our nation in the armed forces.
+- I used to collect computer punch cards from the data centers.
+- A lot of people look at a basketball team as an anchor tenant for an arena. I look at an arena as the anchor tenant for a much larger program.
+- AllianceTexas is a cash machine for our public partners.
+- You really need to be on top of what you own, and you've got to be on top of your record-keeping. Imagine one day if a major bank is taken down and the records are gone.
+- I put it in the back of my mind that someday I would fly around the world.
+- For our teams that do great work, we have a tradition of giving Rolex watches. If you see all the key guys with their Rolexes, that's sort of our Medal of Honor if you do something big.
+- I got to see the American Dream unfold in my living room.
+- I never really thought I'd have the opportunity to run this business. It's an industry I grew up in. I watched EDS being formed in our living room at night.
+- The real estate business was something Dad and I could do together.
+- What I like about land is I can drive out and check on it. It doesn't go anywhere. It's hard to steal land.
+- Every time there's a dip in the market, we buy. If you don't buy the land right, it ain't going to work.
+- Dad endorsed my learning to fly so he would have a live-in pilot, one he could get in touch with at any time.
+- While we share the same set of values, we can - and do - have different business interests. Dad has been there to give me career advice along the way, but he has always let me call the play.
+- I like basketball, but please don't ask me basketball questions because I've got a lot to learn.

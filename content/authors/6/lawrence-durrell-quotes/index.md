@@ -1,0 +1,31 @@
++++
+author = "Lawrence Durrell"
+title = "Lawrence Durrell Quotes"
+quotes_len = "25"
+description = "the best 25 Lawrence Durrell Quotes"
++++
+- Guilt always hurries towards its complement, punishment; only there does its satisfaction lie.
+- I'm trying to die correctly, but it's very difficult, you know.
+- A city becomes a world when one loves one of its inhabitants.
+- Everyone loathes his own country and countrymen if he is any sort of artist.
+- For us artists there waits the joyous compromise through art with all that wounded or defeated us in daily life; in this way, not to evade destiny, as the ordinary people try to do, but to fulfil it in its true potential - the imagination.
+- Perhaps our only sickness is to desire a truth which we cannot bear rather than to rest content with the fictions we manufacture out of each other.
+- Travel can be one of the most rewarding forms of introspection.
+- Like all young men I set out to be a genius, but mercifully laughter intervened.
+- No one can go on being a rebel too long without turning into an autocrat.
+- The appalling thing is the degree of charity women are capable of. You see it all the time... love lavished on absolute fools. Love's a charity ward, you know.
+- Old age is an insult. It's like being smacked.
+- There are only three things to be done with a woman. You can love her, suffer for her, or turn her into literature.
+- I imagine, therefore I belong and am free.
+- The richest love is that which submits to the arbitration of time.
+- History is an endless repetition of the wrong way of living.
+- We are the children of our landscape; it dictates behavior and even thought in the measure to which we are responsive to it.
+- Our inventions mirror our secret wishes.
+- Music was invented to confirm human loneliness.
+- Music is only love looking for words.
+- I had become, with the approach of night, once more aware of loneliness and time - those two companions without whom no journey can yield us anything.
+- It takes a lot of energy and a lot of neurosis to write a novel. If you were really sensible, you'd do something else.
+- Truth disappears with the telling of it.
+- Journeys, like artists, are born and not made. A thousand differing circumstances contribute to them, few of them willed or determined by the will-whatever we may think.
+- A woman's best love letters are always written to the man she is betraying.
+- It is not love that is blind, but jealousy.

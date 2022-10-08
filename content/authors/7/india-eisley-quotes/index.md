@@ -1,0 +1,38 @@
++++
+author = "India Eisley"
+title = "India Eisley Quotes"
+quotes_len = "32"
+description = "the best 32 India Eisley Quotes"
++++
+- Bullying has been around since humans have been around, I think. I think it is wrong.
+- When I was very small, I was obsessed with 'Sybil' and Sally Field's performance in 'Sybil.' I was like, 'Oh, my God, I want to do that!'
+- You can run into people, and they can be someone you thought you were never going to hear from again or never gonna talk to again, and they end up becoming dear friends.
+- I always loved playing extreme opposites, whether it's internal or external.
+- I initially was very drawn to playing a split personality. I've always wanted to do that kind of role.
+- It's a big responsibility, I think, when you play somebody who has existed but also somebody who has just recently passed away.
+- I always enjoy fight scenes and being grubby and bloody and not having to look good. I prefer that very much, as odd as that sounds.
+- I was a real weird kid.
+- It's a tad embarrassing, but there's this show called 'The Dead Files' on the Travel Channel, and I'm completely obsessed with it!
+- 'Forensic Files' is big in our house.
+- It's just not interesting to play happy people.
+- I've never really had that whole 'starstruck' part to me.
+- A lot of the time with jobs that I've booked, immediately I'll read the breakdown, or I'll read the script, and I'm like, 'Oh I'd love to do this, but I'm completely wrong for it,' and they tend to be the jobs that I book.
+- If you don't look after yourself, no one else will.
+- For a lot of people, and I'm one of them, where you are and who you're spending your time with greatly impacts your accent.
+- I was born in L.A.
+- I was always obsessed with crime, crime shows, anything to do with unsolved cold cases.
+- I used to lock myself in my room and memorize scenes from films and reenact them when I was alone.
+- I've always been a fan of investigation shows.
+- There was a period of time when I studied ballet a lot when I was growing up.
+- I prefer film. I think it moves slower, it gives you a chance to kind of get a feel for things. Sometimes TV moves so fast that you don't even remember what you've done.
+- Obviously, just on a visual level, as an actor, when you put on wardrobe and you look in the mirror, you're like, 'Oh, my God. This is great.' It instantly changes your posture and how you feel, and it does affect the performance as well.
+- If I hadn't become an actress, I would be a dancer.
+- As an actor, those kinds of really intense, emotionally packed, dark things, those always very appeal to me greatly.
+- When it's a good director, you can feel when they trust you when they cast you.
+- I'm open to anything, really. I love work.
+- When I'm working, especially when the role is very intense or very demanding, I actually tend to relax just innately afterwards because work relaxes me more than anything.
+- I can sing if I have to.
+- As a painfully shy kid, my fun time was locking myself away and watching movie after movie after movie. Watching a good performance, to me, was like getting a new toy.
+- When you're portraying someone, whether they're real or fictional, you have to find some kind of hook where it feels real to you because if you don't believe it yourself, then no one else is going to believe it.
+- Because I'm quite small and young looking, anyway, I tend to play younger than I am.
+- Just as an audience member, I've always preferred dark things and very heavy, emotional things.

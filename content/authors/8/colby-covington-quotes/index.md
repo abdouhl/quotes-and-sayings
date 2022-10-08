@@ -1,0 +1,106 @@
++++
+author = "Colby Covington"
+title = "Colby Covington Quotes"
+quotes_len = "100"
+description = "the best 100 Colby Covington Quotes"
++++
+- Everybody in the world knows how good I am.
+- Brazil is a dump.
+- Everybody's calling me out. Why do you think everybody wants to fight me? I'm the money fight.
+- Ricardo Liborio is a joke.
+- Super villains and bad guys win in real life.
+- My schtick is trolling people. I love getting a rouse out of people and making them angry.
+- I'm the most hated guy in the division.
+- Every time the UFC brings me out, I'm always professional. I'm always on time. I make weight.
+- Malki Kawa, he doesn't know what he's doing. He doesn't know how to do business.
+- I like fighting, man. I didn't get into this sport not to fight. I enjoy fighting; I actually enjoy getting in the cage.
+- I'm not out to please everyone.
+- I feel like I'm a very dominant fighter.
+- I can beat people on the feet; I can beat people on the ground. It doesn't matter.
+- I dominate, and I break guys' wills. When they come to fight me, they know they're going to be in for a fight, and it's going to be a test of wills.
+- I'm not a yes man. When the UFC says, 'Jump,' I'm not saying, 'How high,' because that's not fair to me.
+- Every time the UFC offers something, I just take it.
+- First off, I don't consider Tyron Woodley a teammate. He trains with Duke Roufus; Roufus is in his corner every fight. He's been doing his training camps at Roufusport. He has an ATT affiliate in St. Louis, but OK, whatever. Just because he branded an ATT so he can make some money, and he had an investor, I don't consider that a teammate.
+- I was actually born in Sacramento, in Rocklin, which is a suburb of Sacramento. I lived there for the first 8 years of my life.
+- I'm the most well-rounded fighter on the planet.
+- I always have a reason for why I do something.
+- I'm a company man. I'll go wherever the UFC wants me to go.
+- I say a lot of truth, and I say something because I mean it.
+- I'd probably be, like, a 2-to-1 favorite over Woodley if we fought.
+- I've got a lot of respect for Brazil.
+- I'm always training, whether I'm training my mind, or I'm training my body. I'm always doing something.
+- I'm the king troll: I troll everybody.
+- The real reason Tyron Woodley doesn't want to fight me is because the last time we were in the gym together, I broke him.
+- You can't come up and attack someone because of free speech.
+- Everybody wants to watch me.
+- I know that my grappling is up there with any grappler in the division.
+- When I fight, people are going to watch me fight. They're not gonna turn the channel to 'Real Housewives of OC' like they will other fighters.
+- I'm not just a wrestler anymore. I'm a very well-rounded fighter.
+- It gets a little tough when you're cutting weight to travel all over the place, when you want to focus on really getting yourself ready to peak for your fight.
+- My pace alone is unstoppable. No one can keep my pace.
+- All these guys that want to act tough and act like they're hard in the street, that's cool, man. I'm glad you want to act hard, and your emotions are driving crazy, but you need to get out of your feelings, nerds.
+- Tyron Woodley can't top me, and Demian Maia has no chance to stop me.
+- Demian Maia is a one-trick pony.
+- I get paid a lot of money to go in there and fight on pay-per-view. I'm not fighting in the street.
+- I'll use wrestling if I need to in fights, but maybe I'll fight another wrestler, and you'll find out how good my striking is.
+- I'm not a liar; I'm a truth teller.
+- In the wrestling world, we say the Judo guys are just the leftover wrestlers that couldn't make the wrestling team.
+- 'Star Wars' is for nerds and virgins.
+- I'm the bad guy of the division.
+- Who retires before they even get to the UFC? Losers, that's who.
+- Robert Whittaker hasn't been that impressive. He got knocked out by choir boy Stephen Thompson.
+- I'm the biggest draw. I do the biggest numbers in this division, and it's not even close. There's a reason all these guys want to fight me. They don't want to fight Tyron Woodley. Because I'm the biggest fight and the biggest draw in the division.
+- As far as standup goes, I really feel like I can stand and bang and trade with anybody in the game.
+- The UFC thinks they run off their brand, but that's not true. The UFC runs off the fighters, so hopefully, these fighters take notice and how I'm going about my business.
+- Ben Askren is a joke. The guy has no skills.
+- I'm a completely evolved fighter.
+- Sao Paulo is a dump. That's a known fact.
+- In my mind, I do have a lot higher wrestling than Woodley. We've wrestled before, and it wasn't competitive, and that's honest.
+- Being at American Top Team, I get the best fighters and best trainers in the world.
+- You have to have a character; you have to build your character. If you understand the pro wrestling scheme of things, then you understand what the promoting is. These guys are friendly backstage, but as soon as the cameras turn on, it's a whole different story: you become that character.
+- I don't really feel like rankings mean anything.
+- I'm the super villain of the whole entire UFC.
+- Usman's a scrub, man. He's not relevant. No one cares about him. People don't want to see him fight.
+- I don't care about people's feelings, and I'm triggering people worldwide.
+- I'm in this to be the best fighter in the world, to put on entertaining shows, and to please the fans.
+- If you have a sleeping disorder, just get TyQuil: Tyron Woodley, the gossip girl.
+- I'm a bad person.
+- I'd love to go to Russia and silence that crowd and give the Russian fans something to cry about.
+- The guys at Team Alpha Male, they're my friends. I have a lot of respect for those guys.
+- Brazil hates me. Oh, big deal. Cry me a river, build a bridge, and walk over it.
+- I know I'm going to lose friends, and I'm going to go on the road less traveled with less people. But at the end of the day, I'm not trying to make friends; I'm trying to make the most money possible.
+- You can't live off your past.
+- If the UFC doesn't like what I'm doing, it is what it is.
+- I live with no regrets.
+- I'll fight anyone they put in front of me, man. I'm here to fight and prove that I'm the best in the world.
+- There's always going to be cliques - everywhere you go, there's gonna be cliques; there's gonna be people that gravitate towards each other.
+- At the end of the day, we're professional prizefighters - stop acting like street thugs. We're not going to fight in the streets.
+- There's never any issues with Colby 'Chaos' Covington. I always do the right things.
+- GSP, that little syrup sucker, he can come get this. He thinks he's the greatest welterweight of all time. I have something else to say about that. I'll destroy him.
+- I'm the only fighter to ever go to the White House and meet with a sitting president.
+- I don't think about the negative in my life. I just think about the positives.
+- If I can't do one thing, which is a lower body exercise, then I'm gonna use my upper body, and I'm gonna get stronger upper body. If I'm not getting stronger upper body, I'll be working on my cardiovascular - swimming or other exercises where I can get my heart rate up.
+- I'm ATT to the bone. I have my close circle of people, my clique - Jorge Masvidal, Mike Brown, Dan Lambert. I'm not friends with everybody. It's a gym, but this is a one-man sport.
+- I've never asked for more money, not one time in my career. I fought Demian Maia for $30,000. The No. 2 guy in the world, I was fighting for $30,000. So I don't care about money.
+- Guys have a lot more to worry about when they're fighting me than they do fighting Khabib. He's just one-dimensional.
+- The difference between me and Tyron Woodley is that Tyron Woodley fights nervous; he fights scared. He doesn't wanna get tired, so the thing with Tyron Woodley is that he doesn't know how to push the pace. He doesn't have cardio. He doesn't have heart. He has a heart, but he doesn't have heart. There's a difference.
+- You can't come in and invade people's personal space because of free speech.
+- If the UFC wanted to give me Warlley Alves, I would show them how chump change he is. And I'd show them how much of a fluke it was that he caught me in a lucky submission.
+- I'm looking for three belts. I'm looking to do something that's never been done in this sport. I wanna go down to 155. I wanna go up to 185 and take the belt.
+- I think that people live in safe spaces these days; they don't want to deal with the controversy and the drama.
+- I'm the ultimate professional.
+- I say what a lot of people want to say but can't say. I'm just a voice of the people.
+- Ben Askren, the only thing we have in common... I have a real belt. He has some belts from back in the day that don't even matter anymore.
+- Tyron Woodley knows how good I am.
+- Nothing about Ben Askren impresses me. He's a one-dimensional fighter. He's never hurt a fly.
+- The division needs a guy like me. It's a bunch of good guys, and I'm the only bad guy in the division. There always has to be a bad guy in every movie.
+- I don't ever cross the line. I step right up to it. I put my toes on the line, but I don't ever cross that line. There are some barriers you just don't cross - you don't talk about religion; you don't talk about race. Those are lines I will never cross.
+- It's going to be an easy fight when I finally get my hands on Tyron Woodley.
+- There's no one in the division that can beat me; not even the champion can beat me.
+- I've really taken a lot of time to work on my Karate, worked on my kickboxing, and Muay Thai.
+- I don't train to be an All-American. I train to be the best.
+- It's not OK to condone violence because of free speech.
+- Sprinkle in a bit of pro wrestling in MMA is good. You get the fans talking. They want that drama.
+- I'm all about Trump.
+- I've trained hundreds of hundreds of rounds of sparring at American Top Team.
+- I'm at the top of the UFC mountain.

@@ -1,0 +1,134 @@
++++
+author = "Lindsey Buckingham"
+title = "Lindsey Buckingham Quotes"
+quotes_len = "128"
+description = "the best 128 Lindsey Buckingham Quotes"
++++
+- Creating a set list is like making a running order for an album. Certain things get pitted against one another that make more sense. One song sets another one off, or it might diminish it. You're just constantly looking for the next thing that's gonna make sense in a particular place.
+- I'm also married for the first time, and I have two kids. So there's some kind of good karma right now.
+- If you want to be an artist in the long run, it isn't necessarily a good axiom to repeat formulas over and over until they're used up.
+- I couldn't put any kind of label on my production aesthetic.
+- The only way I've been able to keep my sanity is to pull back when I feel like it's time to pull back.
+- I'm in the position where I don't have to make commercial music to feed myself, so I have the luxury of being more experimental, if that's what I choose to do. I guess I've earned the right by being in the business for a while and paying the dues and taking the lumps.
+- I seldom look back.
+- If you are gonna participate in a band, you've got to be a band member in good standing, and you've got to think about the needs of the whole.
+- But by taking the time away, getting myself off the treadmill, and just slowing down and learning, I felt I had so much more to give back. And maybe that was something that needed to happen for all of us.
+- When Stevie and I joined the band, we were in the midst of breaking up, as were John and Christine. By the time Rumours was being recorded, things got worse in terms of psychology and drug use. It was a large exercise in denial - in order for me to get work done.
+- Fleetwood Mac was one big lesson in adaptation for me. There were five very different personalities, and I suppose that made it great for a while.
+- After a couple of failed attempts, I came up with a weird tuning where I was dropping the G string down a step so that it became a seventh, and it got me to a place where I could play all these figures fairly easily. It was not an easy thing to work out.
+- It's really touching that we can come back after so long and care about making an album that says as much as this one does. And after all this time, we really do care about each other.
+- My center is not really my singing so much as my guitar playing.
+- The first couple shows I did by myself, I was looking around wondering where the rest of my band was.
+- My personal life is fairly barren.
+- If you talk about the 'Tango in the Night' album, the reason I didn't do that tour was because the album took about 10 months, and it was such an uncreative atmosphere.
+- They tried to get me to use a pick when I first joined the band. They had certain things they thought were appropriate. I tried to adapt as much as I could.
+- When I was a kid, and Elvis Presley broke through to a middle class, white audience, it was a sociological phenomenon that lasted through the Beatles and even a bit through Fleetwood Mac.
+- Defining something being a Fleetwood Mac song is calling it a Fleetwood Mac song, you know? Nothing becomes Fleetwood Mac until that's what you call it.
+- When you make music, and even if it's commercially successful, it doesn't mean that it's going to hold up. It takes time to sort of take stock of what you've done and whether it's got legs and whether it's going to really have a place.
+- The rest of the band had a cynical view towards the way 'Tusk' was made and the reasons why I thought it was important to move into new territory. It wasn't just negativity. There was open hostility. Then I got a certain amount of flak because it didn't sell as many as 'Rumours.'
+- One of the things about Fleetwood Mac is, when we're not together, we don't talk a lot or keep in touch. We keep a healthy distance.
+- I'm very fortunate.
+- If everybody wanted to follow the left side of the pallet like I had on 'Tusk,' there would have been no need for me to do solo work.
+- When I work alone, my process is like painting. With Fleetwood Mac, it's more like movie making.
+- Certainly, whatever I learn while I'm out solo, I bring back to Fleetwood Mac.
+- I don't practice per se. I learned to play on my own, taught myself how to play. I've never really had a lesson, and I don't read music. So all the stuff that I do doesn't come from the normal set of disciplines that they teach you where you sit down and run through scales for a particular number of minutes a day.
+- All of my style came from listening to records.
+- I guess you can look at Fleetwood Mac as the 'Pirates Of The Caribbean' movies and my solo career as indie films.
+- If you go back to 'Louie Louie,' there's the whole element there, where you need to be able to appreciate what 'dumb' is in its profoundness.
+- You could almost say I'm someone who doesn't practice age.
+- I feel like fifteen years with Fleetwood Mac was like working on my thesis, doing research for some kind of paper.
+- There have been times when I've feared for my own well-being in the great scheme of things because, historically, the track record has not been kind to the guitar players in this band.
+- If things are crazy in the studio, usually the road is times 10.
+- I always made the joke that I would have loved to have been a fly on the wall when Warner Brothers first put 'Tusk' on and listened to it in their boardroom as a follow-up to 'Rumours.'
+- That's one of the real downfalls of celebrity. You're something that's about you at some point, and that gets latched onto and pumped into the machinery. Then you start having a million other people telling you who you are, and what you should be doing and why, and it's easy to lose your way.
+- I was always interested in listening to music - and, of course, when my older brother brought home 'Heartbreak Hotel,' that was it.
+- Another thing that was unique about working on this stuff was that I was engineering it. I used many of the things I had learned while I was away from the band. It sort of vindicated my decision to leave in '87.
+- I'm not ashamed of my personal life.
+- I didn't take lessons, and I don't know my scales.
+- It's always been based around the song, and guitar-playing in the service of the song... The sensibility is about songs. I like to think of it as kind of 'refined primitive.'
+- You could say that Fleetwood Mac is a bit of a dysfunctional family, but we are a family.
+- When I was in a band after high school and in college, I didn't even play the guitar. I played the bass because I couldn't play lead, and I didn't have the gear.
+- You work in a band, and it tends to be more like moviemaking, I think. It tends to be more of a conscious, verbalized and, to some degree, political process.
+- The thought of being on my own really terrified me. But then I realized being alone is really a cleansing thing.
+- The writing is all done, so it's all about verbalizing everything from point A to point B, and certainly there's a bit of politics involved, so it's a different thing.
+- After the success of 'Rumours,' we were in this zone with this certain scale of success. By that point, the success detaches from the music, and the success becomes about the success. The phenomenon becomes about the phenomenon.
+- There's a certain kind of idealism attached to 'Tusk' as a subtext to the music, and I think people now can respond not only to how colorful and experimental it is, but also why it was made.
+- You just get out there and be what you want to be. That's part of evolving and part of staying true to yourself - part of remaining alive in a real authentic, long-term sense creatively: not listening to what other people tell you to be.
+- 'Tango' was a good experience, looking back on it, and it seems to hold up pretty well.
+- Some days I would be there at ten in the morning and wouldn't leave till ten at night, and the others would waltz in for a couple of hours and then leave, because I was doing that painting thing. And they were happy to see that being done.
+- I've been playing since I was about 7. I never really used a pick very much. I mean, once in a while, if you're in a festive mood, you might draw a little blood, but nothing significant... But my hands aren't abused, really.
+- Lyrically, you know, most of the things on 'Rumours' were very autobiographical and very much conversations the three writers were having with other members of the band.
+- When I work alone, it can be like dabbling with a canvas. Maybe you paint over bits, and it starts to form its own life and lead you off in a direction. It becomes an intuitive, subconscious process.
+- That's basically what's going on now: Everything is propaganda.
+- The want to return to the fold doesn't mean you can repeat history.
+- I'm not really concerned with the outer success.
+- There is nothing like this extended family that is Fleetwood Mac. And I think you have to say, for all the perceived and real dysfunction that there has been, underneath that, there is and always has been a great deal of love. And that keeps pulling us back together.
+- You can look at 'Rumours' and say, 'Well, the album is bright, and it's clean, and it's sunny.' But everything underneath is so dark and murky. What was going on between us created a resonance that goes beyond the music itself.
+- We've always had the sensibility that you work on the set, and you structure it, much like a play, where once you've got the lines down and blocking right, you freeze it, and then you go out and do what you're doing night after night. You want to structure something that has form and that builds the right dynamic from start to finish.
+- 'Tusk' was clearly a line in the sand that I drew.
+- You get to be a certain age - I am 58 - and it becomes tricky not to become a caricature of yourself.
+- I also learned to be more confident, to trust my instincts more.
+- A lot of people who have gone to music school have gotten their individuality stomped out of them. It becomes harder to find those instincts.
+- Back in 1985, I was working on my third solo album when the band came to me and asked me to produce the next Fleetwood Mac project. At that point, I put aside my solo work - which was half finished - and committed myself for the next seventeen months to producing 'Tango in the Night.'
+- It hasn't always been easy, but you get to a point where you're not doing the solo stuff with any kind of expectation in terms of commercial or a business outcome, you're doing it because you believe in this.
+- I liked 'Rumours,' but to me, there was some point where the focus became the sales, not the music.
+- I think when you work alone - the way I do it, anyway - you could sort of liken it to painting, where there's sort of a one-on-one with the canvas.
+- You come off the kind of commercial success that 'Rumours' had, and you see that there are limitations to that as well as freedoms.
+- As I've grown as an artist, I've gotten more and more in touch with my center, and that center is voice and guitar.
+- I don't know what 'genius' even means. It's just a matter of keeping your eye on the ball.
+- Years on, Christine and John still have a deep love for each other, as do Stevie and I - we've been working together since I was 17.
+- When people just decide they're going to reconvene, there's no guarantee that they're going to have any of that chemistry. Sometimes people try to do that, and it's a struggle to try to recreate what once was.
+- I left Fleetwood Mac to make myself happy, and fortunately, it worked.
+- My foundation is acoustic guitar, and it is finger-picking and all of that and sort of an orchestral style of playing. Lead guitar came later, more out of the necessity to do so because of expectations in a particular situation.
+- 'Big Love' was originally an ensemble song, but it's done now as a single guitar piece.
+- I remember being a kid - if a new member joined a group, I just didn't like that at all.
+- Warner Bros. never really got behind the solo work. They always kind of drew a blank. I think they always were thinking, 'Well, this is nice, but let's get back to what's really important.'
+- There is a real joy to be able to get up and react to each other and appreciate the whole being greater than the sum of the parts, just the chemistry of the group.
+- I just find things that work and embellish them.
+- As autobiographical as say the stuff on 'Rumours' was, I don't think we thought of it as such when we were writing it.
+- What happens with artists, or people who start off doing things for the right reasons, is that you slowly start to paint yourself into a corner by doing what people outside of the creative world are asking you to do, and I think that's antithetical to being an artist.
+- The 12 years I was in Fleetwood Mac before were not particularly happy years. I was not in a very good place, psychologically, when I left. I didn't have a lot of confidence in what I was doing.
+- I'm not that knowledgeable with the guitar - I just find ways that are pretty creative, but it's all within the framework and the limitations of what I can do.
+- I don't really think of myself so much as a writer as a stylist, someone who came into writing from the back door and has found it through a certain very specific and personal means.
+- I do think my lyrics have gotten... not necessarily more poetic, but more open to interpretation; they're less literal.
+- If you look at the whole time I was in the band, I only did, like, three solo albums - two, really. 'Out Of The Cradle,' I had already left because we'd done 'Tango In The Night,' and it was sort of the logical extension of crazy in terms of everyone getting ready to hit the wall with their habits.
+- I can't judge myself by 'God Only Knows.' No one writes songs as good as that.
+- I had to seal off my feelings about Stevie while seeing her every day and having to help her, too. But you get on with it. What was happening to the band was much bigger than any of that.
+- The most disappointing thing to me after 'Tusk' was the politics in the band. They said, 'We're not going to do that again.' I felt dead in the water from that. On 'Mirage,' I was treading water, saying, 'Okay, whatever,' and taking a passive role.
+- You have to look at what 'Rumours' was, what drove the subject matter. You had two couples who were broken up or breaking up. And probably, you could say, success we had achieved was the catalyst for those breakups.
+- I put out an album once every four or five years and it's kind of like starting over every time.
+- You know, I was never totally thrilled with being a Fleetwood Mac member, but surprisingly, I was having such a good time reuniting with John, Mick, and Stevie.
+- When you work with a band, obviously you've got to present them with something they can get a hold of, so it has to be a little more fleshed out as a song. And then where it goes is more collaborative, obviously; it's more political possibly, certainly more a conscious process than a subconscious process, which the painting can be.
+- One thing I admire about the Eagles is they always seem to know what they want. They always seem to know why they want it. They always seem to want it at the same time.
+- When you become successful on the level that Fleetwood Mac did, it gives you financial freedom, which should allow you to follow your impulses. But oddly enough, they become much harder to follow.
+- Arcade Fire seems to be doing very well; certainly, Phoenix is doing very well.
+- I have an amazing wife and three beautiful children, and that certainly makes you less obsessive about your art as a musician - which I've always felt was more like painting than anything.
+- For me, none of the albums after 'Tusk' quite had it. I think we lost something after that.
+- I was playing a Fender Telecaster when I first joined.
+- I love to be in the studio. That's what I like to do best.
+- I don't read music. I've never had a lesson. I don't know anything about music other than what my inner knowledge is.
+- That really was a lot of the appeal of 'Rumours.' The music was wonderful, but the music was also authentic because it was two couples breaking up and writing dialogue to each other. It was also appealing because we were rising to the occasion to follow our destiny.
+- One of the things about Fleetwood Mac, you gotta say, is that it's not very often that you get everyone to want the same thing at the same time.
+- I was lucky enough to meet someone when I was about 46 and had my first child when I was 48, so I got started late, but I also got all that other stuff out of the way and was at a point where I could be a consistent presence at home.
+- Confounding people's expectations was a way to maintain integrity.
+- A house full of new furniture doesn't mean a whole lot.
+- That's the only way to do it. Just like an actor. You can get a great performance if you do a bunch of takes and edit it. You find the moments and string them together.
+- Sometimes you can do the work in the moment, and you don't know whether it's going to really have meaning once time has elapsed.
+- There were a number of false starts where I was trying to make solo albums. They would get constantly folded into group efforts. In retrospect, I can say fair enough, that you call yourself a band member, and you've got to step up to the plate when the need arises.
+- When I work alone, and I'm in my studio, and I'm playing a lot of the stuff myself, I think the style of it becomes something a little different.
+- This time, there were no drugs involved. The hours were completely normal daytime hours. I think we were able to appreciate the interplay, where before we had taken it for granted.
+- I honestly think part of the appeal of 'Rumours' was that it was sort of heroic. We managed to push through in the face of so much personal adversity.
+- You're not going to reinvent the wheel every time you go out, because that would disappoint the audience.
+- Most people don't know who the hell I am. But that's not really important.
+- I actually like Taylor Swift. I admire what she's been able to do on some levels.
+- We're not one of those bands that throws the names of all their songs in a hat and pulls them out right before they go on stage.
+- Those 12 years, they were ambiguous at best.
+- We really were poised to make 'Rumours 2,' and that could've been the beginning of kind of painting yourself into a corner in terms of living up to the labels that were being placed on you as a band.
+- That's one strength that Stevie has. She's really not a strong instrumentalist in any way. Her instrument is her voice and her words. And it keeps her focused on the very center of that.
+- Even though I had pushed through the Tango album, it was just not a very good environment to be in on a daily basis. In many ways, this is the best time of my life.
+- Sometimes I wish we were the Eagles. That's one thing they've always been able to do is want the same thing for the same reasons.
+- There have been several occasions during the course of Fleetwood Mac over the years where we've had to undermine whatever the business axioms might be to sort of keep aspiring as an artist in the long term, and the 'Tusk' album was one of those times.
+- I'm trying to break down preconceptions about what pop music is.
+- There is a lot of pressure to top yourself... to come up with a 'Rumours II,' and that seemed like a trap.
+- Ironically, that was quite a bit of the appeal of Rumours. It's equally interesting on a musical level and as a soap opera.
+- Studio D has a lot of symbolism for me.

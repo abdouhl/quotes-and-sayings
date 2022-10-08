@@ -1,0 +1,24 @@
++++
+author = "Christopher Fowler"
+title = "Christopher Fowler Quotes"
+quotes_len = "18"
+description = "the best 18 Christopher Fowler Quotes"
++++
+- I consider myself a kind of a nerd, because when we go to the coffee shop in the mornings, we sit there in a very neat row with our laptops. It's just like being at work, but with coffee and panini. And, of course, you don't get paid.
+- I don't divide my reading into demographic categories, any more than I'd divide my friends into groups along ethnic or sexual lines. The thing I look for most is a sense of literary rawness - bareback fiction, if you will.
+- Broadly speaking, there are two approaches to crime: the realistically detailed police procedural, usually grim and downbeat, and the more left-field, joyous theatre of ideas in which past masters once specialised. Knowing that I would never be able to handle the former, I set about reviving the latter.
+- I have never met an author who did not read voraciously as a child.
+- The queen of crime, Agatha Christie, was always more concerned about the clockwork cleverness of the plot, never the investigator.
+- There's a melancholy sense of things lost in the shabbier British seaside towns; of comfortable failure and better times long gone.
+- Reality TV has blown away the need for a roster of familiar faces in films. Plus, films became franchise and didn't need stars. But the real difference between stars and celebrities is that stars have training and talent, and celebrities just have exposure.
+- My father worked in a scientific lab where he designed and built glass instruments. He was regarded as brilliant at his job and once constructed a human brain in glass just to show off his skills.
+- My father Bill had a problem with Christmas. Although he appears in old photographs to possess a whippy, muscular frame, he was actually a frail man and usually managed to cause some kind of drama just before the festivities began.
+- By the time I reached the sixth form at my local grammar school, my father would glower at me every time I passed him with a stack of books under my arm, warning me there was no money to go to university.
+- My bedroom was filled with reading material: books salvaged from dustbins, books borrowed from friends, books with missing pages, books found in the street, abandoned, unreadable, torn, scribbled on, unloved, unwanted and dismissed. My bedroom was the Battersea Dogs' Home of books.
+- I've always loved what I'd term 'dark fiction' writers, everyone from J. G. Ballard to Mervyn Peake and Philip Pullman. I'm not sure it's a genre, but it's what I like best.
+- For me, imagination would always provide a means of escape.
+- I left school on a wet Thursday afternoon, found a room in a shared house in North London, and started my first job on the following Monday as a courier for an advertising agency.
+- When Sir Arthur Conan Doyle conceived Sherlock Holmes, why didn't he give the famous consulting detective a few more quirks: a wooden leg, say, and an Oedipus complex? Well, Holmes didn't need many physical tics or personality disorders; the very concept of a consulting detective was still fresh and original in 1887.
+- As a child marooned in a post-war South London backwater with no ready cash and a bafflingly dysfunctional family, I had to glean my amusement wherever I could.
+- I didn't bother with television myself because it consisted largely of windmills, puppets and pottery wheels, interspersed with elderly men smoking pipes while they discussed Harold Macmillan in Old Etonian accents.
+- Too many new writers dress up old cliches.

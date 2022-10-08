@@ -1,0 +1,26 @@
++++
+author = "Robert Mankoff"
+title = "Robert Mankoff Quotes"
+quotes_len = "20"
+description = "the best 20 Robert Mankoff Quotes"
++++
+- Cartoonists create so many cartoons on any given topic that we can follow the life cycle of a comic idea and how it evolves over time more quickly than we can with a form like the novel.
+- There are no cartoons about happy marriages.
+- One question about a joke is, how well is the strangeness of the situation resolved? At 'The New Yorker', we retain a lot of incongruity, tapping the playful part of the mind - Monty Python-type stuff. We also try to use humor as a vehicle for communicating ideas. Not editorial comment, but observation.
+- I am a 'made' cartoonist, but I was born a comic.
+- I think funny is just the foundation. I don't really think, to some extent, funny is the absolute most important thing. It should also communicate some idea through the medium of cartooning. Just to be funny is... You know what, the things that you laugh hardest at aren't cartoons.
+- Humor levels the playing field. I understood that early on - that was something I had.
+- There's public humor, and there's private humor, and they're all appropriate in their own way, and you shouldn't - just as you wouldn't have a megaphone and say certain things that you would say around your friends - things that are perfectly all right within your close social group with whom you share a certain context.
+- People often ask me about my upbringing, and if there was anything particular about it that made me become a cartoonist.
+- The most offensive thing that ever occurred in 'The New Yorker' would be, like, the mildest thing at a Chris Rock concert.
+- I was the founder of the 'Cartoon Bank' in the '90s. I was interested in finding ways for cartoonists to supplement their incomes.
+- I don't think most people know what's going to be in their obituary, but I do.
+- The interesting thing about humor is that in humor, you - in logic, something is A or not A. In humor, it's both A and not A.
+- Professional humorists and cartoonists have to go through a stage in which they have to kill their own internal editor just so they can get stuff out. So whether they believe it or not, they need me on the other end to do that editing for them.
+- 'The New Yorker' didn't invent the magazine cartoon, but it did really establish it.
+- The line between humor and bad taste is your audience, in which some people will find everything offensive, and some people will find nothing offensive, but the truth is that most humor originates in what would be called bad taste.
+- I will pick a raft of cartoons. And then later, it'll come time to run this cartoon. And I'll look at it, and I won't quite get it anymore. Because sometimes the grenade goes off in the moment, and then it doesn't repeat down the line.
+- Cartoons are like fruit flies. Biologists use fruit flies because their large chromosomes and short life cycle make them ideal for studying hereditary changes.
+- One of the first comic things you do is imitate.
+- I'm pretty adept with computers and Photoshop for my blog, and I found my style with a conversational voice and an image-ready column.
+- Each cartoon needs the right amount of wrong.

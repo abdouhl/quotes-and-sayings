@@ -1,0 +1,19 @@
++++
+author = "India De Beaufort"
+title = "India De Beaufort Quotes"
+quotes_len = "13"
+description = "the best 13 India De Beaufort Quotes"
++++
+- I have a sewing machine that I adore, and I spend a lot of time sitting in front of it when I'm not working. And any excuse to paint or draw or do something artistic with my hands really gets me going. Definitely aspiring.
+- It's fun to be an actor and dress up, but I'm happy being me and just loving accepting my personal style.
+- I had no interest in being an actress what so ever, and when I was about 14 or 15, I was signed to a company in England. They owned a children's TV show which they put me in as a singer, and I was on the show for three years, and I left the show when I was 18 and started looking for a record contract.
+- My dream evening is wearing my sweatpants, eating something delicious and watching TV with my boyfriend.
+- I always knew I wanted to work in entertainment, but I actually really wanted to be a singer more than an actress.
+- School was rough for me. I was a good student in middle school, but high school wasn't so fun. I still pulled through, though! I excelled in art, fashion, history and English literature - anything creative. Math and science I struggled a bit more in.
+- My style is quite clean, vintage, and almost French in a way.
+- I'm a big fan of people like Rachel Bilson and Kate Bosworth. I think they're so chic and have this cool edgy-rocker feel. For about a month I tried to do that, but what I realized is that I can't be anything other than what I am.
+- You're a smaller fish in the U.S. There's just so many more TV shows, and actors, and actresses. Where as in the U.K. you're in a much smaller market there.
+- My personal style is ever changing.
+- Ballyhoo is for your classic girl, who is fun and fearless. This is for the girl who is not afraid to dress fun.
+- High school is the time to find yourself and to explore with fashion and create your own identity.
+- Every trend in my high school was terrible! I used to wear my hair in a tight bun and let two long pieces hang in the front. I'd also wear really dark eyeliner and bright pink eyeshadow. For some reason, my friends and I thought it was really fashionable to wear a short tie with our uniforms.

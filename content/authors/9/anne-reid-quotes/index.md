@@ -1,0 +1,62 @@
++++
+author = "Anne Reid"
+title = "Anne Reid Quotes"
+quotes_len = "56"
+description = "the best 56 Anne Reid Quotes"
++++
+- Inner talent gives you that ease. It's not a remarkable thing - just a knack that gives you a very nice life.
+- You can wear yourself out by saying yes to things you don't want to do, and nobody really minds if you say no. I enjoy my own company. I'm never at a loss for things to do.
+- I think it's such a clever idea, that you fall in love when you're 16, and then you have this fantasy about that person for the rest of your life.
+- I'm enormously proud of being the ancestor of a convict. That's mad, isn't it, but I really am.
+- I don't think I've ever been lonely in my entire life. I love to shut my front door and be on my own.
+- I tell myself things will be different in a few years' time, but this is the most wonderful, golden time for me. I'm basking in the success of 'Tango', really loving it.
+- The day that changed my life was 3 July 1986, when I went to see American actress and singer Barbara Cook at London's Donmar Warehouse.
+- My first big disappointment is always, why don't I look like Julie Christie? Then I realise I don't look remotely like Julie Christie, and that's always a great sadness to me. Because I used to think I might have done, at one time. And I'm too fat. And I'm too old. You always see your faults, you see.
+- I like my own company.
+- What I really want is an Oscar.
+- I'm not homophobic. I mean, who cares? You know the state of the world, and you're only here for about 70, 80, years, so why do people worry about somebody's sex life? It's bonkers, really.
+- I now do my own cabaret act, singing and telling stories about my life.
+- My parents were adorable. They were very kind, and very broad-minded compared to people of their generation.
+- My favourite time of year is two weeks before Christmas when everybody's up for it - you're having lunches with people, drinking Cosmopolitans, and getting ready for something exciting!
+- I'm past it now - love. I can't imagine it happening again.
+- I think that the romantic suspense that you used to get between people like Ingrid Bergman and Cary Grant is much sexier than seeing people taking their clothes off and getting into bed, which is voyeurism.
+- I'm more temperamental. As I've got older, I've become more demanding.
+- I'm sick of it when people start to say it: 'Aren't you amazing?' If they start to say it, I hit them.
+- I like waking up in the morning and thinking, 'Mmm, I might go to Paris today.' I don't want to ask anyone if they want to come with me or mind me going. I like being my own agent. I have my grandsons and son. If I didn't have them, it would be different.
+- Maybe I'll get into a Bond film... I always thought I'd be a Bond Girl when I was young.
+- We are just party people. We always had a drink in the evening with the music on and space to dance. It was that kind of a family.
+- I would have liked Sir Laurence Olivier to ask me to go to the Old Vic and let me play all the roles Judi Dench got.
+- You never know what life is going to throw at you, really, do you?
+- I have notebooks all over the place. I write little stories for my cabaret.
+- In my day, the films you got were about mature people, people with some kind of weight.
+- I never thought of getting married again. I'm quite difficult to live with, I think.
+- My father fought in the war, and then he was posted all 'round the world with his job. So I didn't know him very well when I was young.
+- Wouldn't it be lovely if there were no such things as birth certificates? If I really thought I was 53, life would be much better. I'd love to blow up all the birth certificates.
+- Camila Batmanghelidjh of Kids Company - what a wonderful woman.
+- Christmas Day itself hasn't always been great. My parents went abroad when I was very young, and I went to boarding school. We had a few Christmases before that - I remember a big sack of presents and Mummy cooking goose.
+- Your confidence is destroyed when you find out you can't trust people.
+- I'd make every weapon on the planet unusable. Every bomb. Every gun.
+- If someone, a director, tries to tell me the way to do something, I'm not good at adapting. I need time to go away and think about things.
+- I'm terribly happy at the moment - someone up there must be looking out for me.
+- The British tend to be uptight; they shy away from being tactile.
+- I think people can't believe I can still walk and talk and get on the stage without assistance.
+- I've a very sweet tooth. Wish I didn't.
+- I'm afraid sometimes I cram too much into my schedule. And I'm not very domesticated. I'm absolutely hopeless in the kitchen.
+- I'm not really emotionally dependant on anybody except my son, my daughter-in-law, and my grandchildren. But a partner... I haven't felt like that for so many years, I don't really remember what it was like.
+- Get an Alan Bennett script; then everybody will want to do it, no matter how big they are.
+- I did a play in Bolton - 'Billy Liar.' I turned it down at first but then thought, 'What the hell else can I do? I'm no good at anything else.'
+- 'Downton' took a long time to catch fire in America, but we have been getting good reviews for 'Tango.'
+- You don't feel old when you get old.
+- I don't ever think of myself as coming from a particular class because my father was working class but made his living as a newspaper foreign correspondent - someone of no fixed abode, as he used to say - who was as comfortable dining with the Mountbattens in India as he was having a pint with the boys. He was very gregarious.
+- Jasmine - it brings back memories of India with my parents.
+- My father was full of tales. He said his family were ministers in the Church of Scotland, or they were lawyers.
+- I'm quite surprised I ever got married in the first place.
+- I don't do so much acting work now, as there aren't the parts except for 'Tango'. So if I didn't have the cabaret work, I don't know what I would be doing.
+- I've accepted stuff even if it's a few lines, because I think it's better to be seen.
+- I did go to public school, but that's only because my parents were abroad. As a matter of fact, I think that's helped my work. I can go from Victoria Wood's 'Dinnerladies' to playing Barbara Cartland, from 'Coronation Street' to playing Celia in Last 'Tango'.
+- My teacher at RADA said I was going to have trouble when I left because I wasn't an obvious juvenile lead, although I could do both comedy and drama. But I understood enough to know that my career was going to be a marathon, not a sprint.
+- I used to lie in bed and imagine I was performing at the Albert Hall, not that I'd ever been there. I took lessons with a German teacher when I was quite young. But it turned out I had a very high soprano voice, which I didn't like at all.
+- I get very spiky if people treat me like an old lady.
+- For the first part of my career, I did what I was told, and I wasn't getting anywhere. I'd get in such a state when I was asked to do something, and it didn't feel right, and I'd end up feeling that I wasn't very good.
+- I should be in an old people's home now, counting the roses in the wallpaper. It's a good life, isn't it?
+- Now that I know about my great-great-grandfather, I feel that John Reid and I would have got on well together.

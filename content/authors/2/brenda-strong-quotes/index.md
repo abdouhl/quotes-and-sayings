@@ -1,0 +1,14 @@
++++
+author = "Brenda Strong"
+title = "Brenda Strong Quotes"
+quotes_len = "8"
+description = "the best 8 Brenda Strong Quotes"
++++
+- There's an integrity and a strength to women who have been raised in rough country.
+- I have such respect for guest actors. They don't know all the characters as deeply as the regulars, and the cast isn't your family, so you have more at stake.
+- I'm a Yogi and a tea drinker, and having a gun is the last thing that one would expect of me as a human being.
+- There are a lot of people who dream of overnight success, of being Brad Pitt getting discovered for 'Thelma and Louise,' but that doesn't always happen. I represent that stick-to-it-ness that it takes to build a career over time, guest spot by guest spot. Looking back from here, I wouldn't have wanted the journey to go any other way.
+- I practice yoga even when my schedule doesn't allow me to teach. I've been practicing for 17 years, since before it became hip.
+- Yoga reduced my stress and bodily tension. It allowed me to bring my body back into balance, to emerge from my fertility struggle with my sense of self esteem and self worth intact, and to forge a stronger bond with my husband.
+- I think whenever you have a product you are always trying to improve it. Whether it is a commercial project out on the market or it's a creative collaboration, you are always looking to keep you audiences more engaged.
+- My grandmother was the daughter of pioneers, as was my grandfather, and they were farmers. And they worked the land, and there is a grounded value system that becomes inherent in knowing what's real and what's powerful. And understanding the material nature of not only man, but beasts and profit and all of those things that you fight for.

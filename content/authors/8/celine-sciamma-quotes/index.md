@@ -1,0 +1,68 @@
++++
+author = "Celine Sciamma"
+title = "Celine Sciamma Quotes"
+quotes_len = "62"
+description = "the best 62 Celine Sciamma Quotes"
++++
+- When I made my first film I was 25 years old, and that's pretty rare. Being so young my experience and the thing that I wanted to talk about was teenagehood, plus in France we have that strong tradition of the coming-of-age story being made as your first film.
+- I was kind of a tomboy when I was the age of the character. I could be mistaken for a boy - sometimes I found it cool and sometimes I found it hard, but I remember the excitement.
+- I think I was a child at 12-years-old, which seems amazing today.
+- I'm a woman director and my movies are shown all around the world.
+- We are always told that with women's rights and opportunities for women there's been constant progress, and it isn't true. It works in cycles.
+- It's always a balance between something that touches you intimately and something that you think is going to be generous - I like to find intimate, subtle subjects and bring them into strong story telling.
+- The cinema should offer new images, create new memories.
+- I'm always embarrassed when I'm asked about meaning, because it is what you make it. The meaning is yours, so it's not about what I think. It's for us all to reflect and change perspectives.
+- I don't care about being a pioneer. People act like it would be cool to be a pioneer. I'm okay to be looked at as that, but it's just that we don't get transmitted our cultural heritage as women artists.
+- My films have mostly been about the rise of desire as the discovery of oneself.
+- Love educates us about art. Art consoles us from lost love. Our great loves are a condition of our future love.
+- I don't feel like I have a special connection to childhood.
+- To me synchronised swimming is a metaphor for the job of being a girl. They have to fake their smiles, they're made up like dolls and they can't show the effort they're making, yet under the surface of the water it's a struggle and a sacrifice.
+- But what I think I like about coming-of-age stories is that there's everything in them. It's a genre that kind of contains everything: you have the chronicle, you can go into naturalism, but it's also about transforming physically, so it's kind of a fantastical genre.
+- Wonder Woman' is thinking about me. It's thinking about my pleasure, about my sisters, about the history of cinema and women's representation. It gives us joy but also rage.
+- I think that childhood is innocent, but not in the way we usually believe. I think it's a very sensual age, where emotions and feelings are so strong just for the simple fact that we are living them for the first time.
+- Thinking about making a love story without music was really frightening, Sciamma admitted. Because every love story we know, we think about 'Titanic' we think about the music, we think about 'Gone with the Wind' we think about the music, we think about 'E.T.' we think about the music, and every love story has its own tune, 'That's our song.'
+- I think movies, I think art, can change the world.
+- A kid is always locked down inside their family. In the film, I felt like talking about loss and death, which we've had a lot of right now, but you know, the experience of lockdown maybe gave me more courage to believe we could create cinema while all locked in our houses.
+- Lady Gaga is not saying anything new, she's just quoting something that's already been said, and staging it. It rarely seems sincere. That's why I always try to say something authentic.
+- I like 'Girlhood' because it has this universal feeling, and that's also the project of the film, to bring very contemporaneous characters into the big fiction, and the classical idea of a heroine's emancipation.
+- I like the sensitive look of traditional French films and the fact that the children are often portrayed as rebels, but I also like the way the American tradition stylises everything and is full of fantasy around childhood.
+- I wrote the screenplay for 'Water Lilies' while I was studying screenwriting at La Femis film school in Paris, and the director Xavier Beauvois, who was on the graduation committee, told me I had to make the film myself.
+- Really, with 'Water Lilies', the project was to end the movie where other movies would begin.
+- I consider my first three films a trilogy and I was finished with discussing the topic of teenagehood and coming of age.
+- I mean, putting women in the center of a movie and not talking about men, that's already political, right?
+- Ninety per cent of what we look at is the male gaze. They don't see themselves anymore.
+- I wanted to talk about women artists but I wanted to depart from the biopic dynamic, that trope where a strong woman succeeds in a very oppressive world. This idea that 'it can happen if you want.'
+- I always wish for the audience to feel less lonely when they leave the room. To have the film as a companion, as a shelter for themselves.
+- I filmed 'Water Lilies' in Cergy-Pointoise, a middle-class suburb about 20 km outside Paris. It's where I grew up and where Eric Rohmer filmed 'My Girlfriend's Boyfriend' in 1986.
+- I want to do the most feminist, radical film.
+- With 'Back to the Future', time-traveling lets you go back to a better, more comfortable life where your parents are happy and you have a lot of money - the capitalistic version of time travel.
+- I don't write a synopsis, I don't write a treatment. I write scene by scene.
+- I decided to put cinema at the centre of my life when I was 13 and going through the biggest crisis of my life: teenagehood.
+- I wanted the ending of 'Water Lilies' to be open, so that everyone can have their point of view about what will happen to the girls.
+- So I guess with females, it should be acknowledged that we're more hybrid. We can be anything. Maybe we're more free to create.
+- We all have to deconstruct the looks in ourselves. It's easier if you see different cultures and different imagery than just the pure straight male gaze and that you're aware that images are political. Not everybody is.
+- A few weeks ago I went to a screening of 'Portrait of a Lady on Fire' at Utopia. I'm not a very introspective person but when I get on that stage, it feels even more overwhelming than showing my films at the Cannes film festival. Because standing there, I'm so close to my past. I can see how far I've come.
+- I think my movies are very much about the female gaze... But it's not going to happen magically if you're a woman. It's still something you have to deconstruct, but it's not something you have to be vigilant about.
+- The dream of the theater for for me is that it's a room full of adults and kids. I want kids and grownups to be totally focused on the same object.
+- I identify myself with the male gaze, I grew up with the male gaze, I've been excited by the male gaze. I'm a product of that culture.
+- Shooting with kids you only have three hours on set per day, so you have to know what you want. You have maybe four or five takes to get a scene.
+- Normally I'm watching people become actors in the process of making the film. It's very important you have a lot of respect when you are dealing with young people. You are in charge of everything about the process. You're an adult and they're not.
+- What's universal in America about teenagehood is a middle-class white boy with average dreams.
+- When I turned 13 all of my life was designed around earning money to buy cinema tickets.
+- When you are bringing a love story to screen, how do you embody desire and love? How do you get away from the conventions of romantic comedy where it's love at first sight?
+- Well, I think I'm trying to be in the middle of two traditions, the French tradition, which is about being fair and staying close to reality, and the American tradition which is about making up a stylized universe, made of shapes and colors.
+- We're always being told that there's a linear progress regarding women. It only gets better, especially for women artists. It's not true.
+- I'm not a big Avengers person. I don't have a lot of that culture. But you can totally enjoy 'WandaVision' without having that.
+- Working with young actors is really going with trust. I never see them act beforehand. Because that's not their job. It's my job to make it happen on set.
+- Of course, every movie is political, some people just deny it because they like the world the way it is.
+- My grandmother introduced me to musicals and Fred Astaire and Cary Grant and all the American comedies and classics.
+- That's why I like my job so much, cinema is a nation. I see on Twitter, there's people are calling themselves Portrait Nation. That's beautiful. To me, it's about campaigning for cinema, that's my commitment.
+- My work has always been about not being conventional and male gaze is convention.
+- Films made by women belong to the history of cinema; it's just that we get erased pretty quickly.
+- Well, regarding actors, my idol is Catherine Deneuve, but not in relation to my work, I'm just a fan. As far as genres, I've been reading a lot of science fiction, and I would love to make a fantastic film.
+- As a screenwriter, you're always being told: a good scene is one where somebody wants something, the other one doesn't want to give it.
+- My film-making is the privilege of French cinema. I would have to do things totally differently elsewhere. But I think I could learn from that and have fun being part of a bigger collective.
+- I grew up in a world where stories and images were made and told by men. So I know this world very well. I am moved by this world.
+- I do not want to belong to cinema history. I am a woman - I know I'm doomed anyway.
+- Directing adults is not the same kind of collaboration as you have with a teenager or kid.
+- Every film relies on our brain and heart to expand its universe. 'Petite Maman' leaves room for your story to be looked at in that room.

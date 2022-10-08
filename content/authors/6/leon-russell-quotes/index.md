@@ -1,0 +1,86 @@
++++
+author = "Leon Russell"
+title = "Leon Russell Quotes"
+quotes_len = "80"
+description = "the best 80 Leon Russell Quotes"
++++
+- My feet are giving out on me. But I have a wheelchair that folds out on my tour bus. I've also got this little tricycle, so if I want to go someplace, I get those out.
+- I've avoided the press and a lot of stuff that would have made me more visible just because it's not my style.
+- Actually, I didn't listen to country music very much in Oklahoma. I listened to blues and rock n' roll.
+- Karen Carpenter was just a singularly amazing singer. There was just not anybody like her.
+- I started out playing 'Chopsticks.'
+- I started playing in nightclubs when I was about 14 in Oklahoma.
+- I was playing with George Harrison one time, and George loves takes. This song was up to Take 160. I said, 'George, do you want me to play the same thing or 160 different things?' It drove me crazy because, in general, I'm ready to play my part.
+- My hobby is silence.
+- I had a whole bunch of bad country songs, so I put 'em all on an album.
+- I've always sort of been at odds with radio programmers.
+- I played on a few Frank Sinatra sessions.
+- I like that old style of country music - it seems to me that a lot of the modern country music is rehashed rock n' roll.
+- I really am serious abut catfish farming. I'm very interested in aquaculture.
+- I was with my band at a karaoke bar in Japan when it was very big there, and they got up and made fools of themselves without practicing properly. I didn't understand why they were doing that. It was like they were making fun of the genre by performing badly. But I didn't get up and sing, so I don't know what it feels like.
+- The doctor who pulled me out at birth damaged my second and third vertebrae. But without those tugs, I probably would have been a regular guy selling insurance in Texas or something.
+- One of the features of being a piano player is playing as an accompanist for other people.
+- Watching yourself on film, if you've never watched yourself on film before, you want to go crawl into bed and stay there for a week.
+- I'm pretty serious about what I do.
+- For years and years, I would sit in my studio, and I wouldn't have any inspiration. I'd write one or two songs a year.
+- There was a period in my life when I was trying to write standards: songs that everybody recorded. I did a pretty good run of it.
+- My first job in a country band was after I moved to California.
+- I remember reading 'Catcher in the Rye,' but I don't think I got it.
+- I was always trying to write standards, songs that anybody can sing. I figured that's where the money was.
+- I scarcely talk to reporters at all.
+- Songwriting was very tough for me... I would go in and sit and hope for inspiration to come, and it was rarely forthcoming.
+- I had two parts of my body: my left side, which was strong and somewhat dumb, and the other side was weak and hard to control but perhaps smarter. It gave me a very strong sense of the duality of the plane that we live in.
+- I was raised in the Methodist Church, which is a very Germanic, military kind of music they have there. I heard this other music on the radio: Pentecostal. That was right up my street.
+- I'm happy to have a job. I play a little, write a little, perform some. It's not like it's an engineered, well-manufactured plan or anything. I just do what I do.
+- I had a band with David Gates. There was just a lot of opportunity at that time. But I left for Los Angeles the week after I graduated high school, and I actually left to try to get into the advertising business. That was really why I went out to L.A. My music career was almost an accident.
+- I have a certain amount of difficulty dealing with too much limelight.
+- I am not aware of my public image or what people think of me. I don't evaluate myself that way.
+- I belonged to the Columbia Record Club, and that's where my records came from. For some reason, I was in the 'jazz' category. I got Benny Goodman records and Miles Davis, J.J. Johnson and Kai Winding, and that kind of stuff. I really was not a jazz guy at all, but I knew some of those names.
+- I used to write on pads with a pen but had trouble reading the words the next day. Years later, Bob Dylan taught me to just write and write on a laptop computer. Then I'd print that out. When it was time to write a song, I'd go through the pages and sing melodies to words that moved me.
+- I make records all the time. But making records is not quite the same as getting them to the audience.
+- If everybody'd agree to quit using money, I'd be happy to play for free every day for awhile. But I don't play benefits or any kind of fund-raisers. I prefer to play at hospitals, for people who otherwise can't see us. But I can't see playing for causes, whatever the cause may be.
+- I think probably my main advice to new artists is if you want to be in the music business, you need to be dang serious about it because it's a rough business.
+- I love bipolar people.
+- I'm not so much of a person for causes, unless I specifically - for instance, if it's my cause, or some poor people's, I'll try to help. But you won't find me playing for any peace candidates - or any candidates.
+- Sometimes one misses the sign posts as you're going down the road. They aren't as obvious as they become when you get to the end of the road, so to speak.
+- Apparently I was a Billboard top touring act of 1973, but nobody told me.
+- The first canon of my religion is that you shouldn't try to convince anybody to believe like you do.
+- My chops have always been sort of weak, because the right side of my body was paralyzed a little bit. It was very limiting. I have to design stuff I can play, and it took me a year and a half to figure out how to hold a guitar pick.
+- My whole family's been involved with music, and it's been so since the minstrel days.
+- Oklahoma was a dry state, and consequently, there was no liquor laws. And I was able to take advantage of that by playing in nightclubs at the age of 14. It was real handy.
+- I'm almost totally politically inactive.
+- Words have been the most difficult thing for me. Melodies have been the easiest for me; I have more than enough melodies to go around.
+- I studied classical music for a long time, maybe 10 years, and I realized finally I was never going to have the hands to play that stuff.
+- I'll work as long as I can. I'm happy with my life.
+- When I say I don't get involved in politics, I merely mean that I don't talk to reporters about it.
+- I've grown up on Bob Dylan and all that, but there was a certain standard set up by people before 1955.
+- Both economics and politics are false sciences.
+- I'm kind of the Forrest Gump of rock n' roll.
+- For a couple of years, I'd work from 6 to 11 P.M., then 1 to 5 A.M., and then got up and tried to go to school. That was pretty rough, but I got a lot of experience playing music.
+- I got this book called 'How to Write the Popular Song.' I read that and went through all the things they suggested, and I learned how to do it.
+- When I was born, I had a birth injury in my second and third vertebrae. It gave me what they called spastic paralysis, which is actually cerebral palsy.
+- I'm just concerned with going about my business and making the records I want to make.
+- I don't think there's any danger of me playing Indian music. However, I did a song of George Harrison's 'Beware of Darkness' that was kind of like that. That was an illusion. I was playing that on a thumbtack piano, and Jim Gordon was playing tablas. He's an amazing player. That was as close to India as I ever got.
+- I would have to say Sam Cooke is the one I admired most. His artistry and vocal, just the way he did it.
+- All my writing takes place during the recording of the master tapes. I never do have songs when I start up an album. I actually write them while I record.
+- I was on the road with Jerry Lee Lewis when I was 15 - I can't imagine not doing it. That's what I do.
+- I'm not as aware of categories in music as some people are. To me it's just music. I'm interested in all kinds of music.
+- I didn't start out to become famous, so when it disappeared, I thought, well, that happens sometimes.
+- The Pentecostals had horns, drums, guitars, huge choirs, and screaming and dancing and all kinds of stuff. That was for me.
+- I am happy with what comes, I don't have expectations of any stature.
+- I used to play on Phil Spector's records, and he liked to use three pianists.
+- I wish I had gone into industrial plumbing. That's a joke.
+- It's kind of depressing to make a lot of records and not get the kind of response they deserve.
+- It's like, baseball is a very good game, but it's very difficult to explain to somebody, if you stop and think about it. I just feel my life is like that.
+- I was afraid of the press.
+- I've always felt I struck out with Doris Day. Her son, Terry Melcher, was a producer I worked for at Columbia, and one day, he asked me to go to her house to play piano on a song she was doing. So I get there, and she has about 30 dogs running around the place - turns out she's a dog rescuer.
+- California always struck me as a police state.
+- For years, when I was popular, I would face the blank page to write, and I couldn't think of anything that I thought was good enough.
+- I started writing rather late in the game. I was fascinated about the story about how Bob Dylan, for 'Nashville Skyline,' wrote between takes. So I'd try to sing new songs off the top of my head. I had rather less than spectacular success on that. But a lot of my songs were done that way.
+- I often haven't heard the music since I've recorded it. I don't listen to it. When I do hear it, like at someone's house, I'll listen. I'm probably the most pleased with the stuff I did with New Grass Revival.
+- I have damaged nerve endings on the right side, so my piano style comes from designing stuff I can play with my right hand. And some of it effectively mimics classical stuff.
+- When I was in grade school, I had a little duet act with a guy who was a beautiful singer, and somebody recorded it on a wire machine. They played it back for us, and I went, 'I hear Donald, but what is that other ugly voice?' It turned out to be me, of course.
+- All the time I had my success, I didn't know what I was doing. I struggled and struggled and hacked things out without any insight as to why.
+- I like the Beatles very much, and there are certain things about the Stones that I like.
+- I'm always having people come up to me and say I saved their life - but I don't remember it!
+- When you play with another piano player, it's just second nature to play the parts that need to be played.

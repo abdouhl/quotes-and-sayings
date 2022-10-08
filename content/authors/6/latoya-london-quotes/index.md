@@ -1,0 +1,30 @@
++++
+author = "Latoya London"
+title = "Latoya London Quotes"
+quotes_len = "24"
+description = "the best 24 Latoya London Quotes"
++++
+- Under so much pressure and the situation that I was in, that was the personality that came across with me.
+- I know I'm happy and can't wait to see where my career will go next. This isn't the end for any of us. I can understand why they are upset but I want them to move forward and look for the future.
+- 2006 is all about getting your house in order and I mean that metaphorically.
+- First off, it's wonderful how much people are supporting me and felt I should have stayed in the competition.
+- People want to get to know you. I don't think America got a chance to know me in that short time.
+- I want to tap into different styles. Something definitely mature, sultry, sensual, easy listening that everyone can enjoy. Every one of every race and everyone that likes different styles.
+- Right now the focus is the album that is released and then the tour coming up. After the tour they will let us know about the options and offers that came in for us.
+- Jasmine apologized and said she was sorry and said she loved me, she couldn't believe it and said she thought it would be her. All of them were really, really sorry that it happened to me.
+- Actually, 19 is in charge of our career at that point. FOX publicity is in charge of the publicity that we get. I'm fine with it, it is really organized.
+- It's funny, we all really, really got along. I don't know how it was in years past but this year, I was really with a good group of people. No one tried to sabotage each other or steal the other ones moments.
+- We will go on tour, that will be a boost for me. After that I can focus on LaToya. If I didn't have them, so many people would be coming at me right now and I wouldn't know what to do.
+- Off camera, I am not so quiet, I have a fun time, relaxed.
+- Randy said I could call him for anything, Paula said that she loved me and said how much of a star I was. Simon was like, keep up the good work and I'll have nothing to worry about.
+- I think what was frustrating to see a lot of good people go. You don't picture it, you don't imagine it, don't think it could happen. When it does, you are puzzled.
+- I think American Idol is a great career launcher. A blessing for all of us.
+- I think she has more gospel style than I do. I think I'm more, umm, you know mainstream I guess. I don't know if we split the vote. That could be possible but I don't think we are the same at all.
+- I wanted to bring back that big, ballad type of music that we used to love so much. Whitney Houston, Mariah Carey, when they first came out, that's what I grew up singing.
+- I want to get into movies, not just TV series.
+- Last I checked, the album was #82 out of the top 200 on the Billboard charts thanks to you all. I pray that keeps moving up and with your help it will.
+- Comparing in the past years, Tamyra Gray and everyone else that didn't win but their careers are doing well.
+- Well, being that, at the house and being in the competition, it was very hard to be with family. We couldn't have visitors out of respect for everyone else there. But, being the American Idol, the focus would have been on me.
+- People love to see reactions, they love to see emotions that come about.
+- Let me just worry about me. I'm not worried about anyone else. If you're doing fine, great; if you're struggling, I hope things get better for you. But I've got to be worried about my career.
+- I would love to do a Broadway play. I would love to do big screen also, motion picture.

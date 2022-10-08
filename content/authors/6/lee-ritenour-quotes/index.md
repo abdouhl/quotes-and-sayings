@@ -1,0 +1,18 @@
++++
+author = "Lee Ritenour"
+title = "Lee Ritenour Quotes"
+quotes_len = "12"
+description = "the best 12 Lee Ritenour Quotes"
++++
+- I used a baritone guitar with a very unusual tuning that became the body of the composition, while the classical guitar is on top of it with the main rhythm part.
+- I had redesigned my entire amplifier system for this tour because airlines are very strict now.
+- I always love making albums. I'm passionate about it and it's something that's healthy for the soul and spirit.
+- My son Wesley has just turned 13. He was 12 during the recording of this record and he is quite a drummer already and has been studying drums since he was four, but he's also very interested in African percussion and studies percussion.
+- Well, Smoke n' Mirrors has very much a world music flavor and it doesn't park itself in one country. It borrows heavily from the Brazilian angle, which is dear to my heart, and I recorded several albums with that flavor.
+- If you play the very subtle jazz tunes with acoustic pianos, acoustic bass and it's a dead standard, you are going to play very differently. It depends on the music.
+- Arranging is the way I put my stamp on my music as much as my guitar playing.
+- Even though there are some great keyboard players on the album, there are a number of songs with no keyboard on them and the backing is all guitar oriented. This is first time I've ever done this actually.
+- In 2010, I had been playing guitar for 50 years.
+- I've done a lot of albums and I kinda know when I'm onto something that was inspirational for me to record and create, and this was one of those projects where I really enjoyed making the album.
+- I always recommend to any player to always compose their own music. It's one of the best things you can do to find a road to your own style.
+- Zamajobe is great. She's a terrific singer from South Africa.

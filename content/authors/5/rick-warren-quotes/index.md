@@ -1,0 +1,66 @@
++++
+author = "Rick Warren"
+title = "Rick Warren Quotes"
+quotes_len = "60"
+description = "the best 60 Rick Warren Quotes"
++++
+- The only way you can serve God is by serving other people.
+- You're not really ready to live unless you know what you're willing to die for.
+- The role of the church and the government are fundamentally different. The church must always show compassion - always.
+- So I would say God hates war, but God loves every soldier.
+- I'm not a policymaker, I'm not a pundit. In fact, I don't have any interest in it. It's not on my agenda.
+- The Bible tells us that Jesus Christ came to do three things. He came to have my past forgiven, you get a purpose for living and a home in Heaven.
+- The Scriptures are the truth from God.
+- But dogs, which have no ability to sin nor moral conscience, do not have an ability to reject Jesus.
+- If you're alive, there's a purpose for your life.
+- The Constitution is man-made, so it is not perfect. It's not the basis of my beliefs. My belief system is based on the Scriptures which come from God.
+- It is mind-boggling to me that the Almighty power created everything I see; the Bible says that God created the entire universe just so he could create this galaxy just so he could create Earth so he could create human beings so he could create a family.
+- Now God has never shouted out to me. I've never heard God speak audibly. He doesn't have to.
+- Law is downstream from culture. By the time you make a law about something, you're reacting, not acting. I'd rather shape the culture.
+- What gives me the most hope every day is God's grace; knowing that his grace is going to give me the strength for whatever I face, knowing that nothing is a surprise to God.
+- And you know, when you've experienced grace and you feel like you've been forgiven, you're a lot more forgiving of other people. You're a lot more gracious to others.
+- If God only used perfect people, nothing would get done. God will use anybody if you're available.
+- Faithful servants never retire. You can retire from your career, but you will never retire from serving God.
+- You were made by God and for God, and until you understand that, life will never make sense.
+- It's easy to demonize from a distance.
+- God gave us the gift of life in heaven. Many people are given this gift, but they never open it. They never do anything with it.
+- You never know God is all you need until God is all you have.
+- The Bible tells us that there are some things worth fighting for. In fact, the Bible says there's some things worth dying for.
+- I can't imagine God not allowing my dog into heaven.
+- There are illegitimate parents, but I don't believe there are any illegitimate children.
+- That's the big difference between Christianity and other religions. The difference between Works and Grace or Do and Done.
+- The actual number of atheists is quite small outside of Europe and Manhattan.
+- History shows that when the church accommodates culture, it weakens it.
+- The church must always show compassion, always.
+- Living in the light of eternity changes your priorities.
+- The Bible is very clear that God has a purpose. But even if I know that purpose, I can't fulfill it if I'm out of shape.
+- In the Old Testament, it says that if you have the power to do something good, then you have to do it. You're not to avoid helping somebody in their time of need.
+- I believe in the separation of church and state, but I do not believe in the separation of politics from religion.
+- We're a nation of laws, but the good thing about America, is that laws reside in the people and people can change the laws.
+- God is looking for people to use, and if you can get usable, he will wear you out. The most dangerous prayer you can pray is this: 'Use me.'
+- The first thing that we need to say is that God is grieving, too. Uh, a lot of people try to make it sound like 'well everything that happens is God's will.' That's nonsense. God allows everything, but God does not choose everything.
+- God is love. He didn't need us. But he wanted us.
+- In Psalm 72, Solomon prays for power and fame but he says the purpose of influence is to speak up for others and one is the immigrant. He doesn't delineate between legal and illegal.
+- The death of my own son has made me more sensitive. It's made me more compassionate.
+- I just think the Internet has made us ruder.
+- Now the only way you can serve God on earth is by serving others.
+- I happen to agree with many of the liberal emphasis on compassion, justice and equality. I just disagree that it's the government's role to provide everything.
+- My ultimate goal... is for you to live the life you're intended to live.
+- I serve a higher power, Jesus Christ. I make no apologies in saying that.
+- I'm not getting to heaven on my integrity. I'm not getting to heaven on my goodness.
+- Most people don't realize, I really have no faith in politics. I'm not a politician. If I thought you could change human hearts by laws, I would, but I don't.
+- Being reminded about the incredible power of God's love, and living as He intended, is the most powerful motivation to change.
+- During the next 90 days, people are going to be more open to the Gospel than in years. It is God's responsibility to make people receptive; it is our responsibility to sow the seed.
+- What surprises me most about God is that the creator of the universe should want a relationship with me.
+- Churches know more about poverty than any government will ever know, because we're dealing with the poor every day.
+- Well actually I don't think it's a bunch of bad things that send us to hell. I think it is rejection of God's grace.
+- During my days of deepest grief, in all of my shock, sorrow and struggle, I sat at the feet of God. I literally spent hours each day reading God's word, meditating on scripture and praying. I intentionally spent a significant amount of time being still before God.
+- I never have been involved in politics.
+- Well, in the first place, military service, they don't call it service for nothing. You are actually serving your country. And it is a worthy and valid vocation.
+- Humility is not thinking less of yourself, it's thinking of yourself less.
+- Most of us want to have enough... good works to get into heaven, but enough bad works to be fun.
+- I never get involved in policy. Never.
+- When life doesn't make sense, we can still have peace.
+- Transformation is a process, and as life happens there are tons of ups and downs. It's a journey of discovery - there are moments on mountaintops and moments in deep valleys of despair.
+- You can like somebody without agreeing with all of their policies.
+- You drift through life and let things happen to you, or go by design and say, 'This is what I'm intended to do.'

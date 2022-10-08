@@ -1,0 +1,24 @@
++++
+author = "Claire Bloom"
+title = "Claire Bloom Quotes"
+quotes_len = "18"
+description = "the best 18 Claire Bloom Quotes"
++++
+- I don't think actresses' lives in general are very good.
+- I learned from watching and I learned form doing.
+- When I was in England doing Romeo and Juliet as a child star, I was interviewed by the British press, who are even more vicious and cruel than the Americans. So I have been extremely guarded ever since.
+- In my day, people didn't do nude scenes. I mean they didn't exist.
+- I've spent my life pursing excellence as an artist, which is what I always wanted to do anyhow.
+- I started on a very high note and I was alwasy able to choose. I want to be able to do that until my last breath. And to do that, you have to have money.
+- My face has always been my fortune anyway, not my body.
+- I had a burning ambition. Otherwise, I wouldn't have accomplished it.
+- I remember seeing some little wrinkles in my early 30s and thinking they were interesting. But you know the horror of it is that the screen image has to be perfect.
+- I am interested in the art. I'm a professional woman.
+- I don't enjoy the life of an actress, but I don't want to go into that.
+- You can't pretend to be a Sharon Stone or a Marilyn Monroe. You really can't fake that.
+- Film is different for me now. If the money is good and it's not totally revolting, I'll do it.
+- I have no intention of discussing my private life with anyone.
+- In any of the arts, you never stop learning.
+- In my book, I was trying to get into my own soul.
+- There are several paths one can take, but not every path is open to you.
+- Security has no place in the life of an actress.

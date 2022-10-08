@@ -1,0 +1,16 @@
++++
+author = "Lisa Kristine"
+title = "Lisa Kristine Quotes"
+quotes_len = "10"
+description = "the best 10 Lisa Kristine Quotes"
++++
+- Slavery is illegal everywhere, but it exists all over the world.
+- In 2009, at the Vancouver Peace Summit, I met a supporter of Free the Slaves, an NGO dedicated to eradicating modern-day slavery; weeks later, I flew down to Los Angeles and met with the director of Free the Slaves; thus began my journey into exploring modern-day slavery.
+- My son, who is five, was adopted from Ethiopia. My daughter was adopted from Guatemala. Her parents died of typhoid and malaria. We got her from an orphanage. They are the lights of my life.
+- Oddly, I'd been to most of the locations where I started photographing slavery many times before. I even considered some of them homes-away-from-home. But there can be dark corners in familiar places.
+- I see myself as a witness to humanity.
+- When people think of slavery, they think of an era from the distant past. Grainy photographs from Civil War times. And yet it goes on.
+- Around the world, human traffickers trick many people into slavery by false promises of good jobs or good education, only to find themselves forced to work without pay, under the threat of violence.
+- My work is about the establishment of trust. For someone to share their authenticity with me is a soul-to-soul thing. It's not a lens-to-soul thing.
+- One advantage of photography is that it's visual and can transcend language.
+- The stones in your driveway may have come from the slaves who spend all day breaking rocks because it's cheaper for the company to get them from India, where the labor is free. We are all connected. And we all have human value. That's what my work is about.

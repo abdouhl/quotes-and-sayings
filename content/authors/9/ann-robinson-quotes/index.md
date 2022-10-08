@@ -1,0 +1,18 @@
++++
+author = "Ann Robinson"
+title = "Ann Robinson Quotes"
+quotes_len = "12"
+description = "the best 12 Ann Robinson Quotes"
++++
+- I almost feel like Mars has been taking care of me for all of these years.
+- The results of this survey are shocking and should be a wake-up call to men and women that drinking and smoking too much not only gives you a bad headache in the morning but can affect your ability to start a family.
+- I don't mind being a tourist at all, and a gawker. I just walk around.
+- Oddly enough, George Pal always began and ended something with The Bible. All his pictures had a religious undertone. God was always there, protecting us.
+- I was always a show-off - as a kid I was never afraid to make a fool of myself, and I guess that's still true.
+- George Pal had total control, and he was there on the set every day. You never met a more charming man in your entire lifetime - what a lovely gentleman.
+- I think the average citizen is going to see no less than a $1,500 or more increase in what it's going to cost for basic living next year,... Taking sales tax off food isn't going to take care of all of that, but I think it's a way that we can help.
+- And I got to play lead with Gene Barry - a fellow who has never, ever been hard on the eyes!
+- People are not recognisable, but places have to be recognisable.
+- You didn't have to go on location if you could just shoot down City Hall, LA.
+- At that time, people wanted to be frightened. The Thing had come out, The Day the Earth Stood Still had come out, and these were all frightening movies.
+- It's a hard thing to legislate. You can't legislate good taste and you can't put a number on it in terms of square footage. It's a question of where individual rights end and community rights begin.

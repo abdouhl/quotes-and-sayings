@@ -1,0 +1,33 @@
++++
+author = "Corin Nemec"
+title = "Corin Nemec Quotes"
+quotes_len = "27"
+description = "the best 27 Corin Nemec Quotes"
++++
+- It has given me an insight into what it's like as an actor to come into a show in the middle of a production and fit into a group that's already established.
+- Every role varies greatly, just as emotions vary greatly.
+- I have not thought too much about the psychology or life of the character Jonas in some time.
+- I've done a number of readings at poetry lounges in Vancouver and Los Angeles. I've compiled a book of poetry that's completed, and two others I'm working on.
+- It is a Modern day, and these times need Modern solutions to Modern problems.
+- I decided I'd never do a series again, but I was offered a pilot for a series through Eddy Murphy Productions, and that was the gig that got me Parker Lewis.
+- My favorite episode of Stargate? All of them! My favorite episode of Parker Lewis? All of them!
+- I can't sing. Definitely no ambition in that area.
+- There were time when I was into method acting that I did have moments of residual character emotions, because the method bases your emotional responses as a character on emotional experiences from your real life.
+- It's all about creating a back story for the character and developing emotional responses that are true to life in relation to the character. It isn't necessary to live a tragic life to create from that place.
+- Never let life impede on your ability to manifest your dreams. Dig deeper into your dreams and deeper into yourself and believe that anything is possible, and make it happen.
+- I very rarely get nervous as an actor. Very rarely.
+- In LA, too many people want to go the quickest route from A to B. Method acting offers them that.
+- Art is about expressing the true nature of the human spirit in whatever way one wishes to express it. If it is honest, it is beautiful. If it is not honest, it is obvious.
+- It would be far to general a statement to try and describe the daily life of an actor in Hollywood, but I am quite certain that cappucinos have something to do with it.
+- Emmanuel Lewis was amazing to work with. I'll love that guy to the end of time.
+- I like good stories. Quality products and character are what's important. Even if the script isn't that strong, if I challenge myself with a great character, I'll go for it.
+- I have my ethics and morals. I have my anchor point of what is right and wrong in real life, but I'm not afraid to entertain any and every aspect of personality in relationship to creating a character.
+- What motivates me in art is the ugly and beautiful nature of the truth. It has to be truthful and honest, even if it is ugly and grotesque.
+- I'd just gotten into Los Angeles from Texas, where I live, and the phone rang and it was the guy calling about the Willie Nelson video. I was totally excited about it.
+- I pitched a storyline, and as far as I know it's been picked up. It's for the third and final episode I'm contracted to do. But I can't give any spoilers.
+- I did private study for about a month, five days a week, six hours a day. I came to understand the character in ways that I never would've previous to that. I was so innocent in respect to ways of creating characters.
+- I had the benefit of experiencing a hundred times more than the average kid. I don't look back with regret at all. It was the best life ever.
+- I got to do a whole slew of TV movies playing the bad guy, including an episode of Smallville. That would never have happened if I hadn't done the Stand.
+- Even though I was theatrically trained, learning to develop a character was an awesome experience.
+- I try to find what is closest to me in the character. There's many sides to personality, but it's a matter of, do you entertain those specific areas of your personality, or are you afraid to entertain them?
+- Stargate by far is the top of the pile when it comes to Sci-Fi. The quality is great. They have really good writers, production design, lighting, wardrobe.

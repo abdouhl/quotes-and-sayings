@@ -1,0 +1,25 @@
++++
+author = "Charles Sturt"
+title = "Charles Sturt Quotes"
+quotes_len = "19"
+description = "the best 19 Charles Sturt Quotes"
++++
+- The main consideration with those who, possessing some capital, propose to emigrate as the means of improving their condition, is, the society likely to be found in the land fixed on for their future residence.
+- On the subject of emigration, it is not my intention to dwell at any length.
+- In this eventful period the colony of New South Wales is already far advanced.
+- Australia is properly speaking an island, but it is so much larger than every other island on the face of the globe, that it is classed as a continent in order to convey to the mind a just idea of its magnitude.
+- In a colony constituted like that of New South Wales, the proportion of crime must of course be great.
+- We had not seen any natives for many days, but a few passed the camp on the opposite side of the river on the evening of the 25th. They would not, however, come to us; but fled into the interior in great apparent alarm.
+- It is to be feared that those who emigrate to New South Wales, generally anticipate too great facility in their future operations and certainty of success in conducting them; but they should recollect that competency cannot be obtained without labour.
+- These matters having been arranged, I had a temporary awning erected near the river, and was for three or four days busily employed writing an account of our journey for the Governor's information.
+- I had no inducement to proceed further into the interior. I had been sufficiently disappointed in the termination of this excursion, and the track before me was still less inviting.
+- One of the greatest objections which families have to New South Wales, is their apprehension of the moral effects that are likely to overwhelm them by bad example, and for which no success in life could compensate.
+- Yet, upon the whole, the space I traversed is unlikely to become the haunt of civilized man, or will only become so in isolated spots, as a chain of connection to a more fertile country; if such a country exist to the westward.
+- If we strike a line to the N.W. from Sydney to Wellington Valley, we shall find that little change takes place in the geological features of the country.
+- Now it is evident that a little insight into the customs of every people is necessary to insure a kindly communication; this, joined with patience and kindness, will seldom fail with the natives of the interior.
+- The increasing importance of Sydney must in some measure be attributed to the flourishing condition of the colony itself, to the industry of its farmers, to the successful enterprise of its merchants, and to particular local causes.
+- We moved leisurely towards Mount Foster, on the 22nd, and arrived opposite to it a little before sunset.
+- Farming implements are as cheap in Sydney as in England.
+- The staple of our Australian colonies, but more particularly of New South Wales, the climate and the soil of which are peculiarly suited to its production, - is fine wool.
+- The year 1826 was remarkable for the commencement of one of those fearful droughts to which we have reason to believe the climate of New South Wales is periodically subject.
+- Mount Harris is of basaltic formation, but I could not observe any columnar regularity in it, although large blocks are exposed above the ground. The rock is extremely hard and sonorous.

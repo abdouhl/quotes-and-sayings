@@ -1,0 +1,15 @@
++++
+author = "Francois Arnaud"
+title = "Francois Arnaud Quotes"
+quotes_len = "9"
+description = "the best 9 Francois Arnaud Quotes"
++++
+- Today, the Pope is only a religious figure. At the time of 'The Borgias,' he was also a political leader, a financial leader, and the head of an army. I think popes are much less relevant today than they were then.
+- I'm not sure I'll find acting satisfying creatively forever. If you get the good roles, it's great - if you have the freedom to choose your projects and not just do anything and everything.
+- I started studying theater in school, and then I got into drama school at, like, 19, and it was a national drama school in Montreal, and so it was just you and nine other students for three years, and it was really intense.
+- I didn't act professionally before going to drama school. I don't know if I had the confidence. I didn't think I'd get in when I first auditioned for drama school, and then I did.
+- I watched 'E.T.' when I was a kid every day. Well, not all of it every day; I'd pause it and start over again. But I've watched 'E.T.' about 400 times in my life.
+- As an actor, as much as I'm interested in how you make movies and TV shows, even as a kid, I've always hated making of featurettes and special features on DVDs. I think it breaks the spell.
+- I think there comes a point in probably most father-son relationships where the son kind of starts becoming the parent.
+- I just go wherever work brings me. I share a house with friends in L.A., and I share a house with friends in Montreal when I'm there.
+- The first play that I saw was 'Cyrano,' and I remember going home - I was like nine years old - and trying to learn the monologues.

@@ -1,0 +1,51 @@
++++
+author = "Laurie Anderson"
+title = "Laurie Anderson Quotes"
+quotes_len = "45"
+description = "the best 45 Laurie Anderson Quotes"
++++
+- The thing that's characteristic of my performance is that I literally do drag the whole studio onto the stage.
+- You can do bigger and bigger things. For what?
+- The only stuff I don't like are Broadway musicals. I hate them. I don't even like to talk about it. I can't bear musicals.
+- I have written a lot about snakes. There's something pretty primordial about it.
+- One of the things I learned from working on the Olympics was, the world does not need another big multimedia show.
+- Paradise is exactly like where you are right now... only much, much better.
+- I think a lot of people in Washington are extremely suspicious of NASA.
+- I don't take compliments so well. I always hang my head and shuffle and kind of try to immediately forget.
+- As a New Yorker, I'm someone who lives on an island and looks across to America.
+- My secret dream is to write an epic poem. That's probably the most pretentious thing I've said.
+- Why do you have to translate and decode things? Just let the image be. It will have a special kind of reality that it won't once it's decoded.
+- I'm an average enough person to point to the things I've gotten to see that are awe-inspiring.
+- I'm not usually where I think I am. It's kind of spooky.
+- I've never really had a hobby, unless you count art, which the IRS once told me I had to declare as a hobby since I hadn't made money with it.
+- I'm a real workaholic.
+- The fewer expectations you have, the better.
+- I just sort of wish people would dance differently. It reminds me of teenage sex.
+- It's good to take a longer view and think, What would I really like to do if I had no limitations whatsoever?
+- It's just such a great miracle when things do work, and they work for such a wild variety of crazy reasons.
+- I've been trying to avoid goal-oriented behavior.
+- People only stutter at the beginning of the word. They're not afraid when they get to the end of the word. There's just regret.
+- People are really suffering these days. There's a lot of corporate triumph and a lot of personal despair as they wonder what are they working for.
+- I think women are excellent social critics.
+- My job is to make images and leave the decision-making and conclusion-drawing to other people.
+- I hate zoos.
+- I think artists who are attracted to working on the Net will adjust their work to the capabilities of a very small screen.
+- Writers want to summarize: What does this mean? What did we learn from this? That's a very 19th-century way of thinking about art, because it assumes that it should make our lives better or teach us something.
+- Something that has so much power must have life. Instruments have life.
+- My work is more about trying to ask good questions and not trying to come up with big shows. Every fashion company is doing that, every car company is doing that.
+- When love is gone, there's always justice. And when justice is gone, there's always force. And when force is gone, there's always Mom. Hi, Mom!
+- You can do great things with low-tech stuff.
+- As an artist I'd choose the thing that's beautiful more than the one that's true.
+- I so much appreciate it when anybody tries to make something and tries to be an artist - I'm happy to see the work.
+- I have written a few children's books. The first book that I wrote was for children. It was called 'The Package', and it was a mystery story in pictures. It had no words.
+- The world is a strange and wonderful place.
+- At the School of Visual Arts in New York, you can get your degree in Net art, which is really a fantastic way of thinking of theater in new ways.
+- A lot of words in English confuse the idea of life and electricity, like the word livewire.
+- Performance art is about joy, about making something that's so full of kind of a wild joy that you really can't put into words.
+- I really like books that you can kind of hear as much as think about, that are so graphic and visual.
+- A lot of the work in United States is highly critical of technology. I'm using 15,000 watts of power and 18 different pieces of electronic equipment to say that.
+- If there are bases on the moon, that would be the end of the moon as we know it.
+- A lot of artists who have a certain style are expected to more or less keep doing their style. It's so easy to get into that rut of production.
+- The problem with prototypes is they don't always work.
+- Besides all those whaling details, Moby Dick is about someone who's looking for something so huge, something they've wanted all their life, yet they know when they find it, it will kill them.
+- I see and write things first as an artist, second as a woman, and third as a New Yorker. All three have built-in perspectives that aren't neutral.

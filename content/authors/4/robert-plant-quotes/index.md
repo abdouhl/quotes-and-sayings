@@ -1,0 +1,85 @@
++++
+author = "Robert Plant"
+title = "Robert Plant Quotes"
+quotes_len = "79"
+description = "the best 79 Robert Plant Quotes"
++++
+- The past is a stepping stone, not a millstone.
+- I realized what Led Zeppelin was about around the end of our first U.S. tour. We started off not even on the bill in Denver, and by the time we got to New York we were second to Iron Butterfly, and they didn't want to go on!
+- I really had to think and learn about musical intervals.
+- I'm not a flowerchild or anything like that... whatever it was.
+- I'm a grandfather now.
+- We are trying to communicate a fulfilled ideal. Does anybody remember laughter?
+- I think I could sing and shear a few sheep at the same time.
+- You would find in a lot of Zep stuff that the riff was the juggernaut that careered through and I worked the lyrics around this.
+- Entertainment isn't just based on the very structured syndrome of European popular music, and it's great that there are so many thousands of people who are of the same opinion.
+- Alone I'm nothing.
+- I'm so aware of the fact that if I hadn't taken the chances that I've taken along the line, I probably wouldn't be getting the best out of my voice anymore, I might have messed it up in that awful, predictable place.
+- I don't know how much more expressive you can get than being a rock and roll singer.
+- Lately, I'm spending more and more time working with non-rock musicians and leaving the mainstream - almost dissolving into another world, musically.
+- Whenever I have bid a hasty goodbye to a loved one, I've always made sure that my record collection was safely stored away in the boot of the car.
+- People say that I'm a millionaire, but that's not true - I only spend millions.
+- My vocal style I haven't tried to copy from anyone. It just developed until it became the girlish whine it is today.
+- I'm just lucky because my kids are grown-up - I love them, very proud of them, and we are in close contact as big-time friends, but they don't need me that much now and I can actually enjoy this wonderful world of music.
+- There's nothing worse than a bunch of jaded old farts, and that's a fact.
+- I wanted my voice to be a tenor sax, really.
+- When I was a kid, I was following black soul music.
+- I think we're in a disposable world and 'Stairway to Heaven' is one of the things that hasn't quite been thrown away yet.
+- I don't think I've aged gracefully.
+- I've stopped apologizing to myself for having this great period of success and financial acceptance.
+- I hate cliche.
+- You know, people can't fall in love with me just because I'm good at what I do.
+- I don't want to scream 'Immigrant Song' every night for the rest of my life, and I'm not sure I could.
+- Old men do it better. We're not so sensitive in certain areas.
+- When you're 20 years old and you're making points with volume and dynamism, it's a fantastic thing to do.
+- All over the world, the idea of creating an melange of international musics, it's a very healthy thing.
+- You feel quite distant by playing at huge stadiums year after year, where you only can see a great darkness in front of you.
+- The events between 1968 and 1980 were the kind of cornerstone for everything I've been able to do, they gave me the springboard.
+- The trouble is now, with rock'n'roll and stuff, it gets so big that it loses what once upon a time was a magnificent thing, where it was special and quite elusive and occasionally a little sinister and it had its own world nobody could get in.
+- A daily blog would just about finish me off completely.
+- There's a similarity between European and North African folk musics.
+- I've still got a twinkle in me.
+- I've got the big name, but I've always wanted to be in a band, one of a band.
+- I hate wasting time.
+- No, I've never thought that I was gay. And that's not something you think. It's something you know.
+- You have to ask these questions: who pays the piper, and what is valuable in this life?
+- I like to comprehend more or less everything around me - apart from the creation of my music. It's an obsessive character trait that's getting worse. I don't switch the light on and off 15 times before I leave the room yet, but something's going wrong.
+- To rock isn't necessarily to cavort.
+- How can you consider flower power outdated? The essence of my lyrics is the desire for peace and harmony. That's all anyone has ever wanted. How could it become outdated?
+- Since I was a kid, I've had an absolute obsession with particular kinds of American music. Mississippi Delta blues of the Thirties, Chicago blues of the Fifties, West Coast music of the mid-Sixties - but I'd never really touched on dark Americana.
+- It's sort of a feeling of power onstage. It's really the ability to make people smile, or just to turn them one way or another for that duration of time, and for it to have some effect later on. I don't really think it's power... it's the goodness.
+- I've been scared and I've liked not hanging on to stuff where I know that I'm in my comfort zone.
+- Led Zeppelin has been there through three generations of teenage angst. And there's a generation of kids now who won't know it, post-Linkin Park.
+- So for a long time I closed my eyes to the possibility of America having a white voice.
+- I think I surprise myself.
+- Now I'm a blithering oaf hanging on to the coatsleeves of commerciality.
+- There's no point stepping up to the golden platform if you're going to repeat yourself.
+- I have to try and change the landscape, whatever it is.
+- My dad played fiddle as well.
+- I can't moan about any of it. I had a great time in the goldfish bowl.
+- So many white kids, English kids - we had no culture.
+- It's a two-dimensional gig being a singer, and you can get lost in your own tedium and repetition.
+- It's crucial that I kind of keep up, without drifting into the backslapping land of cliche and lifetime achievement awards.
+- Theatres are built because they were the boards for entertainment.
+- I owe everything to the musicians I work with.
+- The kind of vocal exaggeration that I developed was based on what key songs were in.
+- I like the idea of being alone. I like the idea of often being alone in all aspects of my life. I like to feel lonely. I like to need things.
+- Does anyone remember laughter?
+- You can't give up something you really believe in for financial reasons. If you die by the roadside - so be it. But at least you know you've tried. Ten minutes in the music scene was the equal of one hundred years outside of it.
+- I can find my way from 500 A.D. through to 1066 pretty well as an amateur historian.
+- I daresay one good concert justifies a week of satisfaction at home.
+- I think Led Zeppelin must have worn some of the most peculiar clothing that men had ever been seen to wear without cracking a smile.
+- People have got to let their bodies breathe a little bit more. That's the great thing about being a pompous, jumped-up rock god. There's plenty of air around you.
+- If I didn't do what I do, I wouldn't be as young as I am.
+- It's not some great work of beauty and love to be a rock-and-roll singer.
+- I think that passion and love and pain are all bearable, and they go to make love beautiful.
+- There are always generic terms like 'Americana', but there are no boundaries as to where it can go.
+- Soon, I'm going to need help crossing the street.
+- I think I'm prone to panic.
+- I know that bands that haven't put out a record for 10 years are playing to 20,000 people a night. But that's not the achievement.
+- I still like to get carried away - but passively.
+- There's nothing new under the sun - you just get a can of paint out.
+- There have been people I've warmed to over the years but, as the situation I'm in is so fleeting and transient, I've always known it's going to be over kind of real quick.
+- Music is for every single person that walks the planet.
+- You can't even imagine how it felt to have a cassette that you could take with you with a microphone so you could put down an idea and not have to hum it a million times to remember what it was.
+- I'm British - ostensibly British - but I don't know where I really belong, you know?

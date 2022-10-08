@@ -1,0 +1,34 @@
++++
+author = "Bill Cunningham"
+title = "Bill Cunningham Quotes"
+quotes_len = "28"
+description = "the best 28 Bill Cunningham Quotes"
++++
+- The best fashion show is definitely on the street. Always has been, and always will be.
+- I go out every day. When I get depressed at the office, I go out, and as soon as I'm on the street and see people, I feel better. But I never go out with a preconceived idea. I let the street speak to me.
+- I'm not interested in celebrities, with their free dresses. I'm interested in clothes.
+- I could never concentrate on Sunday church services because I'd be concentrating on women's hats.
+- If someone is wearing something terrific, that's what I want to photograph.
+- I took to New York life like a star shooting through the heavens.
+- I'm a zero.
+- Fashion is a mirror, reflecting the culture.
+- My family all thought I was a little nuts.
+- I go to different places all the time. And I try to be as discreet as I can. My whole thing is to be invisible. You get more natural pictures that way, too.
+- The main thing I love about street photography is that you find the answers you don't see at the fashion shows. You find information for readers so they can visualize themselves.
+- I made hats until I went into the Army. I was drafted during the Korean War.
+- I don't pay attention to celebrities. I don't photograph them. They don't dress so... interestingly. They have stylists. I prefer real women who have their own taste.
+- I started photographing people on the street during World War II. I used a little box Brownie. Nothing too expensive.
+- Everybody else does work - I have too much fun.
+- I had always been interested in fashion.
+- Women have always been a good influence on me.
+- I'm really not good with money, and I don't pay attention.
+- Legacy? I'm a worker in the factory; all we care about is today! A legacy... what a bunch of baloney.
+- There's nothing free. Stay independent and don't fall.
+- Most of my pictures are never published. I just document things I think are important. For instance, I've documented the gay pride parade from its first days.
+- I came to New York in 1948 at 19, after one term at Harvard. Well, Harvard wasn't for me at all.
+- When I'm photographing, I look for the personal style with which something is worn - sometimes even how an umbrella is carried or how a coat is held closed.
+- Money's the cheapest thing. Liberty and freedom is the most expensive.
+- I just loved to see wonderfully dressed women, and I still do. That's all there is to it.
+- The problem is I'm not a good photographer. To be perfectly honest, I'm too shy. Not aggressive enough. Well, I'm not aggressive at all. I just loved to see wonderfully dressed women, and I still do. That's all there is to it.
+- I let the streets talk to me. The streets speak to you - how you find out what's new, what people are wearing, what people aren't wearing.
+- I'm not interested in celebrity.

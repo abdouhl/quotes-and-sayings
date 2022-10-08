@@ -1,0 +1,116 @@
++++
+author = "Robert Redford"
+title = "Robert Redford Quotes"
+quotes_len = "110"
+description = "the best 110 Robert Redford Quotes"
++++
+- In fact you've got your hands tied behind your back when somebody chooses to take a low road in to you, there is nothing you can do about it, and so you just live with it and move on.
+- Going to Santa Fe is like going to Greece. It's not that special compared to other areas. The pinon pines are no different than pinon pines elsewhere. But there has been culture there longer than in most places, and you feel it.
+- I am a cynical optimist. Big opening weekends are like cotton candy. The films you will remember over time are the films that stick in the consciousness of the audience in a good way.
+- I think that people should be paying a lot more attention to other issues, rather than who's the top 10 this or... who's the sexiest or the most beautiful.
+- Films don't always tell a story; some films can achieve effect just by being razzle-dazzle or rock n' roll. That's part of the fare that's out there. And that's okay. For me, I place more value on a story.
+- Once the festival achieved a certain level of notoriety, then people began to come here with agendas that were not the same as ours. We can't do anything about that. We can't control that.
+- When you're making a movie, you don't think about the outcome. That's something I'm grateful for: whenever I go and do a new project, I never think about the outcome. It's always just about the work at hand. That's the fun part. The other part is always something I've had a struggle with, which is promoting the film. I know it's important.
+- I began by doing a lot of character work on TV, just fun acting parts.
+- I'm an impatient person, so it's hard for me to sit around and do take after take after take.
+- Usually I like to improvise. Sometimes, depending on the nature of the piece, I like to improvise because I think it brings certain freshness and a reality to it, as long as it doesn't go too far out of the box.
+- I'm interested in that thing that happens where there's a breaking point for some people and not for others. You go through such hardship, things that are almost impossibly difficult, and there's no sign that it's going to get any better, and that's the point when people quit. But some don't.
+- When I go for a project, I wonder what underpinning a project will have that's going to give the audience some emotional access to it.
+- I think independent filmmakers, documentary filmmakers - they are journalists.
+- Storytelling is important. Part of human continuity.
+- We program the festival, after 20 years, exactly the way we did on the first day.
+- The Right has such antiquated ideas - if they took charge, I think they'd want to close the parks, open the land up for development. It's an ongoing battle to keep the parks strong.
+- For me, personally, skiing holds everything. I used to race cars, but skiing is a step beyond that. It removes the machinery and puts you one step closer to the elements. And it's a complete physical expression of freedom.
+- I guess I don't like the fact that my life is becoming less and less my own - the prevailing attitude that you have an obligation to deliver yourself to the public. Actually, you're delivered to the public whether you like it or not. I guess if you don't like it, you should stop doing what provokes it. In my case, that's acting.
+- Times change; Hollywood is not the same as it was when I first entered the business. It felt to me like it was starting to narrow down and centralize itself around what would... make money.
+- It's an honor putting art above politics. Politics can be seductive in terms of things reductive to the soul.
+- The technology available for film-making now is incredible, but I am a big believer that it's all in the story.
+- I don't know what your childhood was like, but we didn't have much money. We'd go to a movie on a Saturday night, then on Wednesday night my parents would walk us over to the library. It was such a big deal, to go in and get my own book.
+- I wanted to get out of this country and experience different ways of seeing the world. So I went to Europe, but I went as an artist. I was increasing my skill set and exploring storytelling through painting.
+- For 'Jeremiah Johnson,' nobody wanted to make that film. I went to Sydney Pollack, and I said, 'Sydney, I live in the mountains, and I would like to make a film about a person that had to exist in the mountains and survive in the mountains.'
+- People say I've gone against Hollywood, but I've tried to be independent within Hollywood, tried to be my own person.
+- A few years after that first visit, I applied for a job in Yosemite.
+- Journalism has changed tremendously because of the democratization of information. Anybody can put something up on the Internet. It's harder and harder to find what the truth is.
+- I'm not much interested in sport just as sport. I wouldn't be interested in making a golf film or baseball or fishing film.
+- Well first of all it's a business and it's a tough business, and you have to have the strength to survive all the set backs all the failures that make this a mean business, that's getting meaner and meaner every year in my opinion.
+- Park City is developing itself, almost to death.
+- Be careful of success; it has a dark side.
+- I don't see myself as beautiful. I was a kid who was freckle-faced, and they used to call me 'hay head.'
+- I think documentary filmmakers need as much protection as possible under journalist's privilege. How else is the public to know what is going on?
+- What I would like to do is a thriller. I've been wanting to do that for a long time, but one that was not at all dependent on special effects. Just purely psychological, but will scare the hell out of you. That's what I would like to do. I have not found it yet.
+- The way you really find out about the performer's seriousness about the cause is how long they stay with it when the spotlight gets turned off. You see a lot of celebrities switch gears. They go from the environment to animal rights to obesity or whatever. That I don't have a lot of respect for.
+- I had just arrived in New York from California. I was nineteen years old and excited beyond belief. I was an art student and an acting student and behaved as most young actors did - meaning that there was no such thing as a good actor, 'cause you yourself hadn't shown up yet.
+- Celebrity is a big part of the American social system. I'm certainly grateful for what it's done for me, but I do think that celebrity is overdone in our society. I think it's got a dangerous side to it.
+- When people start thinking of you more as a persona, they are less inclined to allow you to move into different areas. Sometimes they're wrong. Sometimes they're just very stereotypical or restricted in their own thinking of what they'll allow you to do.
+- If you want to slice into America, it's pretty red, white, and blue in terms of how it goes about things, but there's a gray area there, and I've always been interested in where things are complicated.
+- I love making films more than anything, but it's tough.
+- The focus of entertainment is taking away from what the public needs as news. I think investigative journalism will always be important and always find its way, be it on the Internet or wherever.
+- Golf has become so manicured, so perfect. The greens, the fairways. I don't like golf carts. I like walking. Some clubs won't let you in unless you have a caddy and a cart.
+- Any time I saw people treated unfairly because of race, creed, whatever - it struck a nerve.
+- Filmgoers are starved for new ideas, voices and visions.
+- I spent two summers working at Camp Curry and at Yosemite Lodge as a waiter. It gave me a chance to really be there every day - to hike up to Vernal Falls or Nevada Falls. It just took me really deep into it. Yosemite claimed me.
+- I didn't know the technical language of filmmaking, so I said, 'OK, I'm going to do my own storyboard,' because I had to explain to the crew and the technical people what I wanted.
+- I have no regrets, because I've done everything I could to the best of my ability.
+- I started as an actor in the theater playing a lot of character parts, and suddenly, I found myself in this place where it felt like I was getting locked into a kind of a stereotype, and it did bother me.
+- I really do miss being able to go through life a little less noticed.
+- When I was a kid, nobody told me I was good-looking. I wish they had. I would've had a better time.
+- I think the environment should be put in the category of our national security. Defense of our resources is just as important as defense abroad. Otherwise what is there to defend?
+- I've always liked speed. I own a car that I shouldn't be talking about because I'm an environmentalist, but the 1955 Porsche Spyder 550 RS is the finest sports car ever made.
+- As an actor and as a person you come together with being in familiar territory although that has not been my whole life. That's been a part of it. I think a lot of people associate me with the west because of Sundance.
+- Because, you know, you're in Utah. And because of its political conservatism, if you can make it there, you can make it anywhere.
+- Radio, newspapers, they were normal parts of my life. In those days, you had to go somewhere to watch television and leave something to see it.
+- Lastly get emotionally connected to your story so you can deliver it, you know, if you can't deliver the emotions to your script there's no point to your story. Story is the key.
+- I'm not a facelift person. I am what I am.
+- I'm not a left-wing person. I'm just a person interested in the sustainability of my country.
+- I was never a good student. I had to be dragged into kindergarten. It was hard to sit and listen to somebody talk. I wanted to be out, educated by experience and adventure, and I didn't know how to express that.
+- I can't go into a bar anywhere without someone starting to play 'the Entertainer'.
+- When I was a kid, all I knew was that I felt more comfortable sitting in one chair than in another. And now I realize it was because one chair was older. I still respond directly to the age of things.
+- Never revisit the past, that's dangerous. You know, move on.
+- I'm fascinated by journalism. I put a keen eye, not a negative eye, on its role, particularly how it is changed by the times we're living in.
+- Sport is a wonderful metaphor for life. Of all the sports that I played - skiing, baseball, fishing - there is no greater example than golf, because you're playing against yourself and nature.
+- I had a mild case of polio - not enough to put me in an iron lung, but enough to keep me bedridden for weeks. As I came out of it, my mom wanted to do something for me. She realized that, growing up in the city, I'd missed out on a lot of nature.
+- Generally speaking, I went through that. I came to a place where I realised what true value was. It wasn't money. Money is a means to achieving an end, but it's not the end.
+- Part of me is drawn to the nature of sadness because I think life is sad, and sadness is not something that should be avoided or denied. It's a fact of life, like contradictions are.
+- I think a lot of people thought my career started with Butch Cassidy.
+- When you get older, you learn certain life lessons. You apply that wisdom, and suddenly you say, 'Hey, I've got a new lease on this thing. So let's go.'
+- It's good to say, 'Look, I can't always be right, but my gut tells me this' - and then you confirm with your gut.
+- It's hard to pay attention these days because of multiple affects of the information technology nowadays. You tend to develop a faster, speedier mind, but I don't think it's necessarily broader or smarter.
+- I'm not interested in a film about golf but I am interested in golf as a metaphor.
+- I don't think about when it's going to stop and what you do before it stops. You just keep moving.
+- I just wanted to paint and sketch and tell stories by drawing.
+- I was seen in earlier years by family members and people of authority as somebody wasting his time. I had trouble with the restrictions of conformity. It made me edgy.
+- People are becoming more and more aware of how the dominance of development and business is altering their lives and, in particular, their own heritage.
+- I've been able to carve out spaces for myself. At Sundance, I'm in the mountains - my property is private. I get on a horse and ride for three, four hours. Sometimes five. I get lost. But when I'm in, I'm in.
+- I have a lot of land. I bought it because I had a very strong feeling. I was in my early twenties, and I had grown up in Los Angeles and had seen that city slide off into the sea from the city I knew as a little kid. It lost its identity - suddenly there was cement everywhere and the green was gone and the air was bad - and I wanted out.
+- 'Butch Cassidy' was the only film I ever enjoyed making.
+- Storytelling was a way to see the world bigger than the one you were looking at, and that had great appeal for me. I think, since that was part of my upbringing, it became part of me, and I wanted to pass it along to my kids and my grandkids.
+- If you talk about an issue, what comes back is a description of what you're wearing. Reporters only want to know how tall you are and if your teeth are capped.
+- Health food may be good for the conscience but Oreos taste a hell of a lot better.
+- Money speaks in Utah.
+- Whereas money is a means to an end for a filmmaker, to the corporate mind money is the end. Right now, I think independent film is very confused, because there's excess pressure in the marketplace for entertainment to pay off.
+- I never had a problem with my face on screen. I thought it is what it is, and I was turned off by actors and actresses that tried to keep themselves young.
+- I'm always drawn to stories that people don't know about, particularly when they're inside of a story that everyone knows about.
+- All of the films that I've made are about the country I live in and grew up in... And I think if you're going to put an artist's eye to it, you're going to put a critical eye to it. I've always been interested in the gray area that exists between the black and white, or the red and blue, and that's where complexity lies.
+- The big moment for me was making 'All the President's Men'. It was not about Watergate or President Nixon. I wanted to focus on something I thought not many people knew about: How do journalists get the story?
+- I believe the American people care a lot about the environment.
+- Ambiguity is something that I really respond to. I like the complexity of it.
+- Sundance was started as a mechanism for the discovery of new voices and new talent.
+- It felt to me like America was always wanting to resolve things too quickly, without thinking through what the costs and consequences would be and how that affects an individual living in that world. Then as I grew up and went about my life, I think I just got more and more interested in that gray area where things are not so easily quantified.
+- I haven't seen 'The Revenant,' but I'm sure it was great because it has a lot of talent involved.
+- He's meant to be that classic Homer, Ulysses, Hercules - a character who goes out or has some gift of some kind. He goes on a journey of discovery and part of that is falling into darkness - the temptations of life.
+- What I would do is when I was younger I would draw in a sketch book something that happened in my life and then write a little something on the side about what happened or what the story.
+- The important thing about a sport is the people who devote their lives to it.
+- I did not, like my children and people today, grow up with television as part of my life.
+- There is nothing I can do about this stuff and I am pretty well ok with the fact that I think Sundance is not going to be stopped by it, because he Festival is itself now, and doesn't need me out there to talk about it like I did years ago.
+- I've always felt that almost every part I've played has been a character part. I mean, I look at it that way. I can't help how I look or how I seem to people.
+- When I started, I was an artist; I wanted to be an artist. I became an actor almost by accident. I acted for fifteen years and tried to produce. I looked for stories that were the story beneath the story that you thought you knew, like 'The Candidate'.
+- I remember my dad came from Ireland and Scotland, and so he carried with him the fear of poverty. So when I wanted to break loose, it kind of made him very nervous.
+- You can't completely control the sport - Tiger Woods comes close. The test is against yourself and nature's own way. I find golf a particularly good metaphor for this story.
+- I am passionate. I am political about my country, about what it is, how strong it is, how strong it remains.
+- Hollywood was not a place I dreamed of getting to. I never could take seriously the obsession people have about being a celebrity or getting to Hollywood - I was born next door.
+- I believe in mythology. I guess I share Joseph Campbell's notion that a culture or society without mythology would die, and we're close to that.
+- When I became successful, I put up a caution. I didn't think it was fair to have the shadow of that kind of success thrown on my family. And I was cautious about being taken by things that could destroy you.
+- I'm not a lawyer, but I do know this: we need to protect our ability to tell controversial stories.
+- I have the freedom to take chances, to say no. I have the freedom to be who I really want to be, rather than have to conform to this or that just to stay alive.
+- For me, the Sundance Institute is just an extension of something I believed in, which is creating a mechanism for new voices to have a place to develop and be heard.
+- I work because I want to work. Work keeps me going.

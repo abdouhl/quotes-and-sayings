@@ -1,0 +1,104 @@
++++
+author = "Ritesh Agarwal"
+title = "Ritesh Agarwal Quotes"
+quotes_len = "98"
+description = "the best 98 Ritesh Agarwal Quotes"
++++
+- We are the first company anywhere in the hospitality sector to introduce technology-based solutions to the suppliers side to help them manage operations.
+- By 2023, we will be the world's largest hotel chain.
+- SoftBank's $100 million investment helped cement our reputation as a start-up with a promise.
+- I started taking programming lessons at the age of 10.
+- One should accept failure, and be willing to learn, unlearn and relearn again.
+- I love Mark Twain's words - 'I've never allowed college to interfere with my education.'
+- When I go to colleges for talks, I encourage the students to drop out.
+- I started my life on the ground selling sim card, telecom products and so on and learned a heck of a lot doing that.
+- We are reviewing and evolving our business plan as times go. But in the long term, we remain confident about creating a large scale business.
+- A lot of hotels have beautiful chandeliers because the asset owner is emotional about having chandeliers in the property. I always say that the customers aren't going to have chandeliers for breakfast. You'd rather take that money and give great breakfasts to the customer.
+- It is very important to find a calling and pursue it.
+- I can speak Odiya, Telugu, apart from Hindi and a little bit of Rajasthani, so, truly Indian from that context.
+- Geopolitical impact is going to become one of the big risks for companies which are global.
+- Oyo is not a market place. Oyo is a fully fledged hotel chain that leases and franchises assets.
+- At the end of every year our management regroups and thinks about things we did right and what we could improve.
+- People regardless of age are able to do a good job if they're inspired by the leader they work with.
+- To deliver predictability, we have partnered with Biotique for in-room toiletries, Airtel for Wi-Fi and DTH, and small laundromats in cities to provide clean linen in our rooms.
+- Leaders at Oyo aspire for ambitious targets which act as directional north stars for building for scale.
+- There is always room for improvement in experience and it can be achieved if one listens to the customers carefully.
+- While one is in the process of coming up with a truly innovative solution, it is essential to keep an open mind.
+- I started Oyo right out of my high school, with limited resources.
+- We have, at various levels, invented how hospitality experiences would look like. At lot of levels, we have transformed how the hospitality experience would be by processes and technology.
+- Oyo has no plans for an IPO because we are focused on execution.
+- There were business challenges, a lot of imitators sprung up, but we built a product that customers love.
+- Small hotels are going to be in vogue. In my view, small is going to be the new big, wherein people will rethink a lot about going back to that 1,000-room hotel versus going to a 40-room niche hotel.
+- To provide affordability, we have made a few acqui-hires such as a data analytics firm to help us deliver the cheapest room prices in every town.
+- When you scale up your business there will invariably be small groups of vested interests unwilling to see the new ground reality.
+- Customer expectation and need was quite limited when we started in 2013.
+- I dreamt of running my own business even as a kid, but if not a CEO, I would have probably been a pilot.
+- On the customer side, we are continuously making enhancements to our app and activating new partnerships to make their travel experience seamless through the OYO app.
+- In our education system, we're so focused on the building blocks that sometimes we try to keep the kids from looking at the larger picture.
+- Whether it is unbranded hotels, branded hotels, whatever it is, anywhere where a customer can get an experience that is subordinate but for a price that is equal or higher than the market, we want that to change.
+- That's our thesis, to operate in a few places and make them home, rather than operate in many places and not have significant ownership.
+- I grew up in Rayagada in Odisha, in a middle-class family. But I always had the entrepreneurial bug.
+- We have partnered Highgate to create our first key flagship property in Las Vegas - Oyo Hotels & Casino.
+- What we are unlikely to do as a leading brand space is just buy revenue or partnership with hotels.
+- One big learning from Thiel fellowship was think really big and create an impact, without thinking if anybody has done it before.
+- There are causes that are dear to me personally including encouraging entrepreneurship, improving livelihoods as well as helping humanitarian rescue and relief efforts.
+- Strong focus on customer experience coupled with strategic investments in proprietary technology has helped us maintain a high net promoter score while empowering our hotel partners.
+- Everybody has a dream of being the most impactful company in their segment worldwide.
+- Long story short, right after my twelfth grade, the six months between school and university, and that is the time when I came to Delhi and I said that let me try and build a company of my own.
+- Masayoshi Son is one of the most innovative and impactful thinkers and problem-solvers of our generation.
+- No one in my town had ever gone to Kota. I mean, it was a big deal if people went to Bhubaneswar.
+- Initially, when we were running just one hotel in Gurgaon, I used to handle housekeeping, sales, CEO duties, etc. I would literally wear the OYO Rooms uniform for housekeeping and would show the room to customers.
+- Building culture as part of your team is extremely important.
+- Other people's view was that saving a rupee is a rupee earned. But for our family, earning two rupees is a rupee earned. That means spending that 1 rupee to make that happen is what it is. It is a difference of risk-taking appetite, going out and doing stuff.
+- For me, it is about having a passion for solving a big problem and leaving a huge impact. Once you have that, everything else falls into place.
+- Whenever I go to Odisha, I make it a point to converse in Odia.
+- As I grew up, I was born and brought up with a view of, if you can get an engineering degree, getting a job is remarkably easy and that's the ambition you should have.
+- Post 10th grade, I came to the northern half of the country. I realized that the usual education did not excite me at all because I felt how will understanding trajectory motions in chemistry help me solve real-life problems?
+- As an entrepreneur and on behalf of the company's management, I am thankful to have been given the opportunity to rededicate ourselves to the company's mission of building the world's most loved hospitality brand that is focused on bringing a better lifestyle for the common man.
+- Stay away from family when you are working on a startup.
+- One of the things that's consistent, if you speak to hotel owners or customers across the world, is that the proposition of Oyo is very valuable for each one of them.
+- The only constant in my life besides OYO is Lisa, my dog. She's a Lhasa apso. The only reason I shop is to buy accessories for Lisa.
+- At heart, I am still the guy who loves tinkering with machines and writing code.
+- I was a small-town boy with big dreams.
+- For people who earn on an average about RS 15,000 a month and who travel a lot, if the salary is late then the landlord will throw him out. I know how life is after that because I have been there.
+- I had three other siblings, and I was the youngest of the lot.
+- I was good at studies and played sports. The only difference was I had big dreams even as a child - I always knew I wanted to be an entrepreneur.
+- My mom is surely worried that the fact that I don't have a college degree will impact my chances of finding a bride.
+- From my perspective, as an entrepreneur, one is wired to take risks. You, of course, need to be smart and take calculated risks, and then do all you can to make it worth the risk.
+- I had gone from a small town in the eastern corner of India to San Francisco, and I was very lucky to get that.
+- We want to be a daily brand but not once-in-a-while brand.
+- Companies that raise capital do it on the basis of past performance and unique competencies of the business. We cannot raise capital if we are not creating sustained value.
+- I know what time a customer checked in, what he ordered, did it get delivered on time, did he order for sling bags, and so on. And when the customer checks out, he can walk out like how you get out of cabs because if you have a wallet it's completely hassle-free.
+- 2017 has been a watershed year for us. We steered our growth trajectory by upgrading and bringing beautiful living-spaces in the value economy segment through OYO Rooms, while launching our operated brand Townhouse.
+- Coorg will be the new Switzerland, Goa will be the new Thailand. If we predict these trends correctly, while market size may shrink, we will have a good opportunity to use our model.
+- My home has three-tier security, which is valuable to me considering I get five death threats a month.
+- Our first cultural attribute is over-communication rather than under-communication.
+- Nobody or no company in this world can say they have got everything right and it has been a perfect journey.
+- I love gorging on 'chhena poda.'
+- Showing your ID while entering or doing a manual check-out when leaving - are these the things you do at home? No. If I have them in hotels, how will you feel at home during your stay then?
+- We use innovative technology to facilitate standardization of services, amenities and in-room experience, thereby helping maintain service standards.
+- Our focus area would be recruiting people along with building great technology as well as building a great brand.
+- Dropping out of college was never the plan, but it made me eligible for the Peter Thiel Fellowship. I was the first Asian to win that grant!
+- COVID-19 is unlike any other challenge the world has faced, affecting people from every socio-economic background and causing a disruption in operations and processes across industries.
+- My parents always wonder why I work round the clock and I never had an answer, until one day I came across a street full of Oyos. I saw so many families and friends on holiday there. This made me happy - life had come full circle in that moment!
+- We are building OYO to be the preferred hospitality brand for consumers in the new post-COVID reality.
+- Every weekend I would take a train to Delhi and sneak into startup events. I really enjoyed meeting entrepreneurs who were solving big problems. They were way smarter than me. I knew this is where I had to be.
+- My father ran a grocery store.
+- We actually distribute using AirBnB because they're the vacation management company and they distribute us, which is why AirBnB is also a small shareholder in our company.
+- As a responsible consumer brand, we have not just built for the short term, but build for longer-term relationships.
+- For me as a young kid, my parents took me to random cities. I stayed at my relatives and the biggest trouble I had was watching TV on my own.
+- The reality of a startup is you have failures very often.
+- We want to convert broken, unbranded assets around the globe into better-quality living spaces.
+- I went for two days to the Delhi Campus of the University of London and did not go back again.
+- Capital is always available for good companies, but the only question is value at which you raise capital. In bad times, you raise capital at low valuation, and in good times, you get a fair price. It separates winners from the rest.
+- There are so many people who are dependent on me. You know, setting expectations, and then feeling afraid. But I am a firm believer in the fact that good work has always been recognized.
+- Abhinav Sihna is my partner and the COO of Oyo, and is also the head of the United States division. He spends all of his time building out the United States market for us and has moved out here full-time.
+- I grew up in Rayagada in Orissa state in eastern India. Few people have even heard of it.
+- I don't dissuade people from formal education. What I encourage them to do is to follow their dreams.
+- We build OYO with basis of building a team which is not just great for our segment, but we possibly have the best team any start-up can possibly have.
+- Hygiene is going to be a key consumer question post-COVID. Our sanitized stay offerings and commitment towards ensuring minimal contact-based check-in is an important step.
+- Indian companies have a very exciting global opportunity, Indian companies are well-respected globally, doors of business are more open. So that has been a focus for us, how do we globalise faster?
+- The scale of impact that people aspire to create, based out of the Bay Area, is truly incredible.
+- In markets such as the US, China, we want to continuously improve our products and services to win market share.
+- I'm a college dropout. My parents thought they had three respectable children, and I was the black sheep.
+- We are an asset-light transformative platform that converts sub-standard unbranded hotels/unutilized vacation homes into quality living spaces, with easy to book, hassle-free check-in experience.

@@ -1,0 +1,54 @@
++++
+author = "Lance Archer"
+title = "Lance Archer Quotes"
+quotes_len = "48"
+description = "the best 48 Lance Archer Quotes"
++++
+- Everybody in this business has lost. Undertaker's lost at WrestleMania, and that was never supposed to happen, but it did.
+- It's fun living the life and traveling and getting to do things that I otherwise probably would never do but it comes with a cost of loss of privacy and being away from loved one a lot.
+- I really hope with New Japan - I was really considered a tag team guy, Killer Elite Squad had an amazing run for seven years.
+- Global Force is creating a product that has people from independents, and guys who people know are good in their area, and they'll take on guys from around the world in New Japan, Mexico, Puerto Rico, Australia.
+- So, you never know what the future holds for cross-promotional situations. I think it would only benefit everybody if and when that situation happens.
+- I'm looking forward to making people open their eyes and recognize exactly how good I am at what I do.
+- AEW is creating more eyes and more opportunities and more chances for the business to grow.
+- Michael Hayes was the one that brought me up to be part of ECW. I had long hair, a braided goatee.
+- He's got the look. He's got the ability to speak. He's got the ability to step in the ring and back it up with his wrestling skill. It's an amazing, unique combination that Ricky Starks has.
+- That's the cool part about it is AEW is a very open company to moving forward and changing wrestling as a whole.
+- I've been kind of a journeyman. My five-year stint at TNA. My short cup of coffee in WWE. The last eight-and-a-half years in Japan. I wanted to prove to the world that I absolutely belong as a singles competiton.
+- For me, to be the first G1 match ever in the United States was a really cool experience. And Will Ospreay and I, I think, went out there and tore the house down.
+- I've been blessed. 20 years in the business of professional wrestling, all over the world, a bunch of different companies.
+- Luckily, I have been a part of New Japan Pro Wrestling for eight years and it's been a great run with a lot of cool things and amazing experiences.
+- I think initially with the ECW product it was a perfect place. Even though it was WWE's ECW, it was a perfect place for the young talent to kind of get their feet wet and figure out the lay of the land and to figure out how the WWE works and then you can transition better into Raw or SmackDown.
+- I was at an autograph show, and there were a lot of people from TNA there doing meet and greets. One of the girls from TNA there asked me why I hadn't joined yet and I said I'd tried and it didn't work out. She asked me to give her a video and pictures, and a few days later I got asked to do a tryout.
+- One of the best talkers to ever step foot in the ring is Jake 'The Snake' Roberts, and he proves it every time he steps out there and cuts a promo.
+- The things that we have, the opportunities that we continue to do with the backstage vignettes, throwing guys into ceilings, trash cans, lockers, and everything I can find to put them in and through, that itself has been fun for me.
+- You can't explain the energy that you actually get from real fan.
+- Everything that was happening with AEW in the world of professional wrestling and the worldwide attention that it was grabbing, for me, like I said, when it all came about, when the opportunity to sign with AEW came, and it came like out of nowhere.
+- When I started with New Japan in 2011, there was a total of five or six foreigners on the roster.
+- I've been battling a sciatic issue for a long time. It comes and goes, goes up and down, but I've already worked through it.
+- The only semi serious injury I have had was when I strained my MCL. But I'm always beat up in some form or another.
+- And when you asked why I signed with AEW, that's what I saw, was chance for a new future and everything has been extremely cool with me in AEW so far.
+- Will I end up in TNA? Who knows. Will I end up back in the WWE? Who knows. I'm going to push forward. I'm going to become as big and better as I've ever been.
+- I have had some amazing opportunities. I don't take anyway anything that I have had from my past but I think I am really capitalizing on it.
+- Everybody goes through ups and downs and wins and losses, bumps in the road, and I don't let anything like that slow me down.
+- Pro wrestling is pro wrestling and it's one of those industries where things change on a dime. I'm coming up on 19 years in a business with various companies and often one day you're there and the next day you're gone.
+- That first match there in Dallas for the G1 was the first time they'd really seen me work as a singles competitor in a really long time. This was kind of a coming-out party. I took it as an opportunity to really kind of reinvent myself. And really start the journey that is The Murderhawk Monster.
+- I had some amazing opportunities through TNA, even my time in WWE. Just to be able to go out there and walk out there in a WWE arena is an opportunity in itself but I don't think I was ready to capitalize on that.
+- You see people come in and out of WWE and the business all the time in different situations.
+- It's never a good feeling when leaving your dream job.
+- I work with kids in camps and help in training seminars and situations going to schools and stuff like that, there's guys and girls that do some amazing, amazing wrestling.
+- Yeah, I went for the TNT title and didn't work out, but I kept kicking some butt, throwing people in ceilings and waiting my turn.
+- I love Japan. I loved going out there and I love the fan base, and I loved everything that I was doing out there, but the opportunity to come home and to be on U.S. television and see my friends and family, the idea was to be able to tour the U.S. and be a part of that.
+- This business changes on a dime daily. You have your ups and downs, goods and bads.
+- My interpermotional dream match would be with Undertaker. I respect who he is and what he has done in this buisnesss and is someone I've tried to mold myself after in many ways. I think it would be a classic Big man match.
+- I'll just say it was a combination of a lot of people within the AEW upper office that decided that it was a good idea to have the 'Murder Hawk Monster' on AEW television.
+- As far as me, I'm just looking forward to the future. There's a lot of people that look to the past. I've learned from the past, absolutely. I know my past absolutely. I'm not discrediting or... ignoring my past in any way, but my focus has always been moving forward, moving forward into the future.
+- I worked with Kenny Omega in Japan. But we never wrestled each other.
+- You had to have two VCRs, and you had to tape everything, and you had to make a choice - you either watch WWF or you watch WCW, or you watch one half of one show and the last half of the second show or whatever the case was back then.
+- I think that's the most interesting part about social media these days. You have such direct contact with anybody and everybody.
+- I simply believe that I am that star that WWE is looking for. But in this business you have to be put in the right spotlight for that to be recognized. Give me that spotlight and you won't be able to look away.
+- For me, it's always just taking your time, biding your time, doing what you can when you can with what you got.
+- My best moment with Sting was when they made a little movie, this kind of biopic of him. I go to be in it and hit him with a chair.
+- I was actually in Japan when I had the conversation with the TNA brass about my situation coming to an end with them.
+- One of the bigger things, I think, was learning and trying to find out who Vance Archer was, and who Vance Archer is, and who Vance Archer would end up being.
+- So it was really cool just reinventing myself, changing my look, my image, my intensity, my ring-work style, everything that went along with it.

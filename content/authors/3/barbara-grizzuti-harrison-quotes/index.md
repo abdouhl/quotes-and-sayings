@@ -1,0 +1,17 @@
++++
+author = "Barbara Grizzuti Harrison"
+title = "Barbara Grizzuti Harrison Quotes"
+quotes_len = "11"
+description = "the best 11 Barbara Grizzuti Harrison Quotes"
++++
+- Belief in the absence of illusions is itself an illusion.
+- There are no original ideas. There are only original people.
+- Our awesome responsibility to ourselves, to our children, and to the future is to create ourselves in the image of goodness, because the future depends on the nobility of our imaginings.
+- Beware of people carrying ideas. Beware of ideas carrying people.
+- True revolutionaries are like God - they create the world in their own image. Our awesome responsibility to ourselves, to our children, and to the future is to create ourselves in the image of goodness, because the future depends on the nobility of our imaginings.
+- Women's propensity to share confidences is universal. We confirm our reality by sharing.
+- I refuse to believe that trading recipes is silly. Tuna Fish casserole is at least as real as corporate stock.
+- Fantasies are more than substitutes for unpleasant reality; they are also dress rehearsals, plans. All acts performed in the world begin in the imagination.
+- Kindness and intelligence don't always deliver us from the pitfalls and traps: there are always failures of love, of will, of imagination. There is no way to take the danger out of human relationships.
+- Desire creates its own object.
+- The most painful moral struggles are not those between good and evil, but between the good and the lesser good.

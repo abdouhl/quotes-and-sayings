@@ -1,0 +1,56 @@
++++
+author = "Chris O'Dowd"
+title = "Chris O'Dowd Quotes"
+quotes_len = "50"
+description = "the best 50 Chris O'Dowd Quotes"
++++
+- Well, when you're the youngest of five, parents kind of lose interest more and more through the children. I think my eldest brother was under loads of pressure to do something amazing with his life, but by the time I came around they were like, 'Well, let's hope he doesn't kill a guy.'
+- Hey, I think comic actors are the best actors.
+- I come from a musical kind of family.
+- After 'Bridesmaids,' women know who I am.
+- In comedy it helps if there's a friendly atmosphere on the set.
+- I'm a huge, huge believer in love. Huge!
+- When I was a kid, I wanted to be serious, like Daniel Day-Lewis. No one really dreams of being a comic actor, do they? Now I realise how stupid that is - and it's because comic acting isn't taken seriously enough. It's a discipline. You know instantly - either you're funny and getting the laughs, or you're not.
+- Comedy writing is taking the brief thought and going with it.
+- L.A. is fun, but it feels like one of those towns in the north of Scotland where there's an oil rig just off the coast and whether or not you work for the oil rig, everyone is connected to it.
+- I cook rarely, but I've kind of got two or three dishes that I stick to. I do a great sweet potato and lentil curry.
+- Going out with other actors is never good; actresses are neurotic, and actors are horrendous egotists.
+- All of this talk of recession offends me. I am delighted that bankers have less money.
+- I'd like to think that I'm getting slightly more mature as time goes on, but I don't know if my fiancee would necessarily agree.
+- I'm a Hawaiian shirt guy. I've made that life decision.
+- There tends to be a jealousy in England towards countries that are successful.
+- I'm more like a spoon symbol. I think women just want to spoon me.
+- I don't think the public here buy this idea that women and men speak different comedic languages.
+- Being at the genesis of the creative process is definitely something I want to keep doing. It's just such a great buzz.
+- I'm probably working on three different scripts at any time, so there's never a time where I've got nothing to do.
+- The bottom line is that female writers aren't being given enough opportunities by male producers.
+- I get asked all the time if I want to do more dramatic acting, and I really doubt that dramatic actors get asked if they want to do more comedies. I don't really know why that is.
+- I often talk to myself while walking down the street. I did it as a kid.
+- I'd like my super power to be puns; I'd like to be great at puns: pun power. Then I could go on loads of panel shows and live off that forever.
+- Put it this way: singing is not my day job.
+- I just am so tired of really badly written women. It's so boring.
+- I would be nothing if it wasn't for the town where I grew up and the people who gave me my inspiration.
+- The fame thing has happened very gradually, so I've been kind of lucky.
+- I grew up among strong women so I know what it's like to be loved and humiliated in a heartbeat.
+- I don't mind being slightly fat-ish, I just don't want to be fat.
+- Louis C. K. makes me laugh, I must say.
+- I don't know if I'd do an action movie because I don't know if I could keep a straight face; honestly, I just think it's so silly. Like, I love watching them but I can't imagine me doing one.
+- I play very sweet characters, so people look at me like I'm the kid from 'The Wonder Years,' rather than Brad Pitt.
+- For some reason, I find that in the course of my career I've worked with more women than most men have.
+- When I say I hate nostalgia, I hate things set in the recent past where everything is shiny and new.
+- Social media is great, I guess, but it feels like technology is the sapper of innocence.
+- What I think improv is great for is making dialogue more natural.
+- I've always been conscious of the fact that there aren't enough Irish voices on British television compared to the amount of Irish people who live there.
+- I never go to these showbiz parties. I avoid them with a 10-inch pole.
+- I feel like I need to start wearing a T-shirt saying 'This is not a photo opportunity'. People are so lovely but you do find that when you're out you spend 40% of your time posing for photographs.
+- People in England talk about stupid Hollywood idiots, but the industry attracts some of the cleverest people in the world.
+- I think I'm going to keep my Irish accent forever now in any movie I make, because chicks dig it and that's all I care about now!
+- I've gone up for loads of jobs in the past that I knew were going to be terrible, and I've done my best, and I still haven't got them. So I think I've been lucky in who's decided I'd be worthy of their time.
+- I grew up in a house of forthright women.
+- A guy who's actually self destructive is quite fun to play.
+- I definitely want to keep working in Ireland, and without being too worthy about it, if it's possible to bring work into the country, that's no harm.
+- Reviewers are the worst laughers in the world.
+- Beyonce is the most amazing woman in the world.
+- I mean, I'm an uncle of seven or eight, and I don't mind it at all! Kids are great. Kids are the best six-hour experience you can have!
+- I think there's something in the fact that it's hard to be good looking and funny. You have to have an oddball quality; people have to sympathise with you to find you funny.
+- When I was about 13 I realised girls weren't going to kiss me because I was a gigantic, weird looking creature from the depths. I was like 6 ft. aged 11.

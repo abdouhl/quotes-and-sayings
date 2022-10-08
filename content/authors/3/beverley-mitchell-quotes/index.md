@@ -1,0 +1,20 @@
++++
+author = "Beverley Mitchell"
+title = "Beverley Mitchell Quotes"
+quotes_len = "14"
+description = "the best 14 Beverley Mitchell Quotes"
++++
+- My best friend and I love to make fish faces.
+- I think the hardest part about being a teenager is dealing with other teenagers - the criticism and the ridicule, the gossip and rumors.
+- I was in New York and I walked into this pet store and came out with a dog.
+- I was never really obsessed with the whole guy thing to begin with.
+- Even though college has been hard, I don't want to give up.
+- Still, it's tough trying to combine my acting career with my college career.
+- In real life, one of my friends was killed in a car accident during our sophomore year.
+- I started working on a line of clothes last year, but right now we're kind of at a standstill.
+- Actually, the kids at school don't treat me any differently at all just because I'm on television.
+- Mostly, nothing's really changed. I'm still the dorky nerd that I always was.
+- If I had to give one piece of advice to incoming college freshmen, I'd say always be true to yourself.
+- I think it's so important to keep learning and keep your brain active.
+- Nowadays, I could not care less about making other people like me. I'm a good person, I don't need to do that anymore.
+- Part of growing up is just taking what you learn from that and moving on and not taking it to heart.

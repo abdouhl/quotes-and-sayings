@@ -1,0 +1,18 @@
++++
+author = "Cecile Mclorin Salvant"
+title = "Cecile Mclorin Salvant Quotes"
+quotes_len = "12"
+description = "the best 12 Cecile Mclorin Salvant Quotes"
++++
+- Jazz sometimes can be really complicated and inaccessible to people because they don't know what to start with. You can start with something that you love, but if you start with something that you hate, then it's like, 'You know what, I hate jazz.' It took me a lot of time to catch on to jazz, too.
+- Eventually, the more I listened and became obsessed with singers, I feel like the more I realized that I had my own little thing that I could do. So this is why I just became obsessed with looking for new singers, unknown singers, people that maybe have been forgotten, and really checking them out and analyzing what they do.
+- I like bold statements. I'm very nearsighted, and I'm terrible at the whole contacts thing. I figured, 'Why not get some glasses that are fun, that contrast with my skin tone and brighten things up.'
+- I had a hole in my voice. I still do. We call it a hole, but it's an area in the voice where it's air. And my classical teachers were just so frustrated with me because I would have these deep, low notes that were really strong, and the higher register was strong, but right in the middle area, it was really hard.
+- Most of the people that I learned and experienced jazz with have been with foreign white people, mostly from France. Excluding my family.
+- My compositions are, I would say, like pages ripped from a diary that I don't really want to share, but that I almost feel the need to share. It's a way for me to get things out that I can't get out in life, you know, in real regular conversation with people.
+- I was lucky enough to grow up in a house where we listened to all kinds of music. We listened to Haitian, hip hop, soul, classical jazz, gospel and Cuban music, to name a few. When you have access to that as a child, it just opens up your world.
+- Thelonious Monk was one of the musicians I most connected with early on. I'm a huge Betty Carter fan, and the way that Abbey Lincoln and Shirley Horn grew immensely from the time they were young is so inspirational.
+- Jazz in the 1920s and '30s was dance music, teenage music for parties, for being wild and young. There's this punk feeling I really love. It was something so radical and different and new and not codified. People didn't have a definition of what they were doing.
+- My dad was born in Haiti, and my mom was born in Tunisia. She is the daughter of a white French woman and a black, half-Guadeloupian, half-American man. My mom traveled the world a lot. She went through Africa, South America, and the Caribbean. She just got to experience a lot of different cultures, and that came through my childhood.
+- I never wanted to sound clean and pretty. In jazz, I felt I could sing these deep, husky lows if I want and then these really tiny laser highs if I want as well.
+- I was brought up in a house with a lot of appreciation for music, all kinds of music, including jazz. But I never knew that it could really be a career. I didn't know any jazz singers. I never saw live jazz. I only heard these records.

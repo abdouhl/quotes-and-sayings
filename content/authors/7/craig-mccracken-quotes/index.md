@@ -1,0 +1,27 @@
++++
+author = "Craig Mccracken"
+title = "Craig Mccracken Quotes"
+quotes_len = "21"
+description = "the best 21 Craig Mccracken Quotes"
++++
+- Well, for one thing, the executives in charge at Cartoon Network are cartoon fans. I mean, these are people who grew up loving animation and loving cartoons, and the only difference between them and me is they don't know how to draw.
+- The storyboard artists job is to plan out shot for shot the whole show, write all the dialog, and decide the mood, action, jokes, pacing, etc of every scene.
+- First, there was 2 Stupid Dogs. Then, Dexter's Laboratory. And now, Powerpuff Girls. There were a lot of little things in between, but those were the main ones.
+- But to me what seems to be missing in a lot of portfolios is Cartooning.
+- One of the main things I do is focus on ideas and what stories we decide to tell, but probably the biggest part of my job I'd say is working on the storyboards.
+- I'm a geeky toy collector, and to have toys of your own characters is unbelievably cool.
+- I started working at Hanna-Barbera in '92 on 2 Stupid Dogs.
+- The shows are either 11 or 22 minutes and they move pretty quickly, and that's part of the charm of them - so it was just trying to keep that in mind and keep the energy of the story moving, even though we were dealing with a longer format.
+- Yes, it's a prequel. It tells the story about how the girls were born with superpowers, but they weren't necessarily heroes at the beginning of this movie, so the movie is about the events that happen in their life to make them decide to be heroes.
+- We chose the actors thru a series of auditions when we started the show.
+- There's a lot you can do without words.
+- For a long time I wanted to be a comic strip artist but when I started doing them in my teens they were getting really elaborate with tons of poses and a lot of information.
+- I've been drawing since I was about 3 and I come from a family of artists.
+- Basicly what I had to do was do a 7 minute board and pitch it to a room of big wigs from the network and based on that they determined if I would get a short or not.
+- The reason they look the way they do is that the first drawing I did of them was really small so I didn't draw fingers, nose, ears, etc and this drawing had a certain appeal that I really liked.
+- It really just gives you a sense of when you need to have dialogue and when you don't, and if your pictures are telling the story, you don't need to have all this talking.
+- I'm hoping that word-of-mouth on the film - people seeing it and liking it - that that will drive more people to the theaters, because I haven't seen the billboards or the posters or anything.
+- I'm always thinking about what I might want to do next, but there's still things I want to do with Powerpuff - so I can keep going with this one for awhile.
+- Anything you see on the screen was at one point approved by me.
+- So what I do is supervise the boarding process trying to get the shows the way I'd like them to be. And in some cases I've completely redone a board myself even though I'm not credited for it.
+- Basicly I'm in charge of all creative aspects of the show.

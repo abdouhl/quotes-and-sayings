@@ -1,0 +1,26 @@
++++
+author = "Bernard Cornwell"
+title = "Bernard Cornwell Quotes"
+quotes_len = "20"
+description = "the best 20 Bernard Cornwell Quotes"
++++
+- One book at a time... though I'm usually doing the research for others while I'm writing, but that sort of research is fairly desultory and I like to stick to the book being written - and writing a book concentrates the mind so the research is more productive.
+- Writing is a solitary occupation.
+- Anyone who claims to have an entirely clear conscience is almost certainly a bore.
+- Book tours and research provide a lot of travel - too much, I sometimes think, but we do take vacations.
+- I'm fortunate that the books sell, but even more fortunate to live in Chatham, to be very happily married and to have, on the whole, a fairly clear conscience.
+- What I mean by that is that the point of life, as I see it, is not to write books or scale mountains or sail oceans, but to achieve happiness, and preferably an unselfish happiness.
+- And yes, there's a simplicity to writing books because you're not a member of a team, so you make all the decisions yourself instead of deferring to a committee.
+- Agents will read unpublished work because they might make money, and that's their job. It isn't mine.
+- So the books have a greater appeal to a British audience, but that hasn't stopped them making best-seller lists in places like Brazil, Japan and at least a dozen other countries.
+- Of course some days are easier than others, but my worst day is better than being in most humdrum occupations.
+- I sometimes wonder what would have happened if the first book had not sold... doesn't bear thinking about, but I suppose we'd have made it work somehow.
+- Judy couldn't move to Britain for family reasons, so I had to come to the States, and the U.S. government wouldn't give me a Green Card, so I airily told her I'd write a book.
+- Television is a young person's medium.
+- So far it's 43 books in 25 years.
+- Looking back, of course, it was irresponsible, mad, forlorn, idiotic, but if you don't take chances then you'll never have a winning hand, and I've no regrets.
+- At risk of sounding foully pompous I think that writers' groups are probably very useful at the beginning of a writing career.
+- I know nothing about producing TV drama and any involvement on my part is liable to prove an obstacle to the producers, so I prefer to be a cheerleader and let them get on with it.
+- It's fun. I sit down every day and tell stories. Some folk would kill to get that chance.
+- I'll happily mentor anyone who wants mentoring, and most of that goes on by internet rather than face to face.
+- Then you start another book and suddenly the galley proofs of the last one come in and you have to wrench your attention away from what you're writing and try to remember what you were thinking when you wrote the previous one.

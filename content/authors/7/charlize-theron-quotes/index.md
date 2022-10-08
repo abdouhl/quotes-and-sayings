@@ -1,0 +1,68 @@
++++
+author = "Charlize Theron"
+title = "Charlize Theron Quotes"
+quotes_len = "62"
+description = "the best 62 Charlize Theron Quotes"
++++
+- Yet there's a hunger in me still. I'm like only beginning. I feel like I still have so much to learn.
+- I think of myself as a highly sexual creature.
+- I think today women are very scared to celebrate themselves, because then they just get labeled.
+- There's only so much you can do, but if somebody doesn't give you a chance there is nothing you can do.
+- I like what I do, and I'm very fortunate now to be in a very nice place. Which is that I don't have to work anymore. So the work that I do now is purely because I really want to.
+- I grew up in South Africa and I would look at maps and we were at the bottom of the world. There was this whole thing up there. I was always reading encyclopedias about the world. So travel was something I was always attracted to.
+- I do not think that condemning people who murder and killing them necessarily sends out the right message.
+- So how critics will perceive your film or your work, or whether your movie is going to make $100 million at the box office, or whether you are going to be winning any awards - well, you have no control over that.
+- Countries and states which have capital punishment have a much higher rate of murder and crime than countries that do not, so that makes sense to me, and the moral question - I struggle with it morally.
+- And I do think that earlier in my career, I did make a very conscious decision to make sure that I was doing work that wasn't necessarily given to me, and that people didn't necessarily think that I would be able to do.
+- I learned everything about love, watching 'Splash.' That's why I'm still single, so thanks Tom Hanks and Daryl Hannah for that.
+- I am human, and, yeah, I have very bad days.
+- People are so involved with immediate care, but at the same time there needs to be investment in educating people as adolescents when they're still HIV negative.
+- I only worked on Men of Honor for three weeks, but I walked away with so much. Because Bob is the kind of actor who gives you the opportunity to really go there. And we really had to go there. I mean, we were both playing drunks.
+- Something I learned very early on in my career is that there are a lot of things that you do not have any power over.
+- And I was victim to that very early in my career, where I would go into auditions, and I'd be wearing a big T shirt, a big baggy T shirt and loose jeans. You know, to try and show people that there was more to me than just that.
+- If I don't like seeing myself on the screen, I think when I start seeing that, that's when I think I'll stop.
+- At the end, the realization is that she had to get to a place in her life where she could drop her guard and make peace with the fact that whether she had a small amount of time, that she had to kind of live it completely through, instead of living by the rules.
+- And doing a film in that period, and having to really celebrate what they wore back then, how they sat and how they spoke. You know, what the etiquette was back then for a lady. All of those things are like putting on a wig and transforming yourself, which I love.
+- I'm always open to a relationship, but I'm not putting those feelers out there now.
+- I had called her up a couple of weeks before then, because I had heard this vicious rumour that she did not like the movie. It was very upsetting for me. I am very sensitive to that, because I am portraying her life and did not want her to be unhappy.
+- I treat my relationships like marriages. The ceremony isn't that important to me.
+- I guess there are very few actors that I've worked with that I would like to work with again. You never think you'll have that chance and, if we didn't do Italian Job together, there wouldn't be another one that could be right.
+- They really stay just characters to me. I look at them, and I don't see always the same person up there. And hopefully, people will see that too. Because it's very easy to bore people, and that's a killer. So hopefully that won't happen.
+- I mean, I'm new but I've always been very interested in film making process and I've been lucky enough to work with film makers in my past that have been very encouraging to let me hang around. I get so emotionally vested - that the producer part of me was natural.
+- When they watch a movie and they know that you're in a relationship, you just kind of watch that constantly.
+- I am a relationship girl. That's kind of just how I'm made... When you're in my life, it's actually very contained.
+- I'd love to get pajamas. Good, nice and warm flannel ones.
+- I've always known I wanted a family.
+- I was going to go to Macchu Picchu and then I just ended up working the whole year.
+- You always have this fear in a movie of just being somebody's woman.
+- When I'm working I don't have room to think about myself and my own issues. It's really freeing. There is no room for me, which is really nice.
+- I always knew I would adopt. Always.
+- At least I know that one film-maker in my career has had the initiative to come to me and thought of me as being capable of doing interesting and complicated work, and so I have a new-found belief that other film-makers will see me in a different way, the way that Patty did.
+- So far I'm not surprised by anything about being a mom. It's all pretty great - but that's what I expected.
+- You are only as great as the opportunities that are given to you.
+- I have been working a lot, and I like it. And you know, it's hard for me not to. I guess I've been working a lot because I get to play with brilliant people.
+- I think in life we want to challenge ourselves.
+- From the moment this baby came into our home, those two dogs have never been more in love. It's the most beautiful thing I've ever witnessed. People keep saying, 'Oh, you're a single mom.' I'm like, 'Actually, I'm not. I've got two boys helping.'
+- Hey, I'm a girl, and we like to play dress-up.
+- I guess because I pay so much attention to the physical part of the character, I don't look upon it as like Charlize Theron up there. I don't think of them as like Charlize Theron films.
+- I can only hope to be 10 percent of the mom mine was to me. She encouraged me to be confident and enjoy life. That's what I want for my son.
+- So I did that for a long time in my career, and I waited for parts to play myself just physically down a little bit. But I do feel like I'm at a place in my career now where I don't necessarily fret about that too much anymore.
+- I have very talented people dress me and put my makeup on, stuff like that. But I do love that look, and I think it's maybe because I grew up on that old glamour.
+- Modeling was never a passion of mine.
+- My mom has made it possible for me to be who I am. Our family is everything. Her greatest skill was encouraging me to find my own person and own independence.
+- I'm happy for people who want to get married. It's not my thing.
+- I grew up on Bette Davis movies, and Marlene Dietrich, Marilyn Monroe.
+- You can never get to a place of comfort in this business. As soon as you hit that little cushy spot, somebody's gonna kick you out. So I have a constant need to do it better.
+- I have OCD, which is not fun. I have to be incredibly tidy and organized or it messes with my mind and switches off on me.
+- You know, I don't think any mother aims to be a single mom. I didn't wish for that, but it happened.
+- I mean I tried to transform myself through characters throughout my career.
+- I hate actors who come and quote Nietzsche.
+- I feel 100% sure that I have the career that I have today because of independent filmmaking.
+- I had these fangs because I had jaundice when I was a kid and I was put on so many antibiotics that my teeth rotted. They had to cut them out. So I never had milk teeth. That was tough, you know, being in school having photos taken while I was pretending I had teeth. It was hideous.
+- I think substitution is a huge part of acting, but I don't personalise my work that much.
+- I have a problem with cabinets being messy and people just shoving things in and closing the door. I will lie in bed and not be able to sleep because I'll say to myself: 'I think I saw something in that cabinet that just shouldn't be there.'
+- There's nothing I despise more than people trying to be something that they're not.
+- If I knew that 3D was going to be such a big deal, I would have gotten that boob job 10 years ago.
+- I've always been very aware of balance and, even before I had a child, my life always takes priority to my work.
+- Marriage equality is about more than just marriage. It's about something greater. It's about acceptance.
+- If they ever do my life story, whoever plays me needs lots of hair color and high heels.

@@ -1,0 +1,16 @@
++++
+author = "Charles Tupper"
+title = "Charles Tupper Quotes"
+quotes_len = "10"
+description = "the best 10 Charles Tupper Quotes"
++++
+- A privilege may not be a right, but, under the constitution of the country, I do not gather that any broad distinction is drawn between the rights and the privileges that were enjoyed and that were taken away.
+- That children shall be compelled to receive religious instruction which is in antagonism to the wishes of their parents, is what no man with say sense of justice would suggest.
+- That text-books be permitted in Catholic schools such as will not offend the religious views of the minority, and which from an educational standpoint shall be satisfactory to the advisory board.
+- It is idle to waste time and discuss whether it was within our power and duty to see whether we could prepare a Bill better than the Remedial Bill.
+- My great desire has been to remove from the political arena a question of this kind that is calculated to prevent us getting a verdict upon the important political issues that separate the two parties in this country.
+- The hon. gentleman had better spare his interrogations if they are as senseless as that one.
+- It is admitted by everybody that rights and privileges enjoyed by the Roman Catholic minority in Manitoba down to 1890, were taken away by legislation of 1890.
+- I do not see any reason why they should not be given the means to give their teachers just as high an education as is secured by attendance at the Protestant schools.
+- You have the Roman Catholic Church, the Church of England, the Presbyterians, the Wesleyans, represented in each school, and they are each to take alternate days.
+- The position the Government finds itself in is not one of constructing a law, but of carrying out a decision given by the Judicial Committee of the Privy Council.

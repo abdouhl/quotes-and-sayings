@@ -1,0 +1,26 @@
++++
+author = "Ann Mclane Kuster"
+title = "Ann Mclane Kuster Quotes"
+quotes_len = "20"
+description = "the best 20 Ann Mclane Kuster Quotes"
++++
+- The truth is that contraception saves lives, prevents unplanned pregnancies, improves outcomes for children and reduces the number of abortions.
+- Most families rely on two incomes to make ends meet, and when a woman earns less, we put working families at a huge disadvantage.
+- Go into the auto mechanic, you've got to know computers to be able to work on the cars.
+- From routine hospital visits and prescription drugs, to emergencies and hospice care, Medicare covers the full range of health services that our nation's seniors rely on every single day.
+- Thanks to health reform, women across the country with private insurance can get birth control without paying out of pocket. This lets women make the health care decisions that are right for them and puts every one of us in charge of our own reproductive health.
+- What I believe in, in terms of getting our economy going again, is that we need to invest in opportunity today for prosperity tomorrow.
+- I believe in less government interference in people's personal lives, including whom to marry, when and whether to bear a child and how to raise kind and compassionate children.
+- Whether we are talking about access to affordable birth control, feeling safe from violence in our homes, or being able to earn the same amount of money as our male counterparts, these are rights that all people deserve, and they are being threatened.
+- My mother-in-law, Nanny, spent her working years as a bookkeeper at a medical office in Columbus, Ohio. Like so many Americans, she worked hard and paid into Medicare, knowing that one day she could count on having high-quality health care when she needed it most.
+- We've got to be delivering young people, and people that are getting reeducated, people who are getting reemployed, into the marketplace with skills to work together, to understand computers, and to be able to be a part of that 21st century economy.
+- We shouldn't be undermining Medicare for those who need it most in order to give more tax cuts to those who need them least.
+- Get more competition into the New Hampshire marketplace, and then we'll find that there will be insurers that will compete on convenience as compared to cost.
+- We need to invest in people's lives so that they can do the jobs of the 21st century.
+- The Republicans here in Concord and down in Washington D.C. would have us believe that the War on Women is a phony war. Michele Bachmann and Fox News would have us believe that the whole thing is 'political fiction.'
+- For the past 25 years as an adoption attorney, I have witnessed the extraordinary courage and compassion of women - from age 14 to 40 - facing unplanned pregnancy. Not once did I believe that the government should interfere with their personal and private decision.
+- Unplanned pregnancy is an equal-opportunity affliction.
+- I stand with the majority of Americans who believe that women will make the right choice for their families and everyone will win.
+- Politics was sort of a way of life in our family.
+- I represented women with unplanned pregnancies from age 14 to 40, and they range from living in their car to living in the nicest neighborhoods in town.
+- Make no mistake: I will work with both Democrats and Republicans to cut wasteful spending and reduce our debt in a balanced, responsible way.

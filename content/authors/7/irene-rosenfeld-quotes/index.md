@@ -1,0 +1,38 @@
++++
+author = "Irene Rosenfeld"
+title = "Irene Rosenfeld Quotes"
+quotes_len = "32"
+description = "the best 32 Irene Rosenfeld Quotes"
++++
+- I truly believe that the combination of a strong top line together with a strong bottom line is what makes for a sustainable business.
+- I've received many good pieces of advice throughout my life.
+- I talk a lot about taking risks, and then I follow that up very quickly by saying, 'Take prudent risks.'
+- During a transformation, it's understandable to be hesitant about moving too fast, especially at the outset.
+- Major organizational changes create uncertainty.
+- It's fair to characterise me as competitive and determined, but anyone who works with me will attest to the fact I believe very strongly in the notion of servant leadership.
+- Sports have always been a really important part of how I energize myself, as well as how I relax. I spend a lot of my spare time with my family playing tennis, biking and rollerblading.
+- Major organizational changes create uncertainty. But the point is to move quickly - faster than you are comfortable - because in hindsight, you will always wish you had made changes even sooner.
+- The most important role of a leader is to set a clear direction, be transparent about how to get there and to stay the course.
+- Endorphins are a very powerful thing.
+- I hate to see people frustrated or leave a company for an opportunity they could easily have had at their current company if they had only asked.
+- People need to know that what they're doing is making a difference and that their leaders notice and appreciate their efforts.
+- I think my father was somewhat disappointed in not having had a son, and in that way I was the nearest thing he had.
+- Even in developing markets, we're seeing the growth of digital communication is proceeding at a very rapid pace.
+- I think all of us are multitasking a little more today than we used to or than we would like to. And I think that the issue of work-life balance is a critical issue for every company around the world.
+- Parenting is one of the best management training programs there is.
+- There's no question that consumers are looking for value today.
+- Do what in your heart you know is right. It is easy to get caught up in your ambitions, but no job is worth not being true to yourself.
+- When investors, particularly investment bankers, talk about splitting up companies, there's a lot of discussion about multiple expansion, and the reality is multiple expansion is an outcome, not a strategy.
+- I've done more travel than I need to in my lifetime.
+- Our emerging workforce is not interested in command-and-control leadership. They don't want to do things because I said so; they want to do things because they want to do them.
+- Mom was a housewife; Dad was an accountant. They taught me a lot about the value of working hard.
+- I am very excited and delighted to be an important part of the development of corporate America.
+- I grew up in business at a time where there weren't very many female role models, and so in the early days, we wore little bow ties like the guys, and we talked about the Army even though we weren't in the Army. And the reality was that wasn't the right way to approach the business world.
+- Exposure to a diversity of disciplines has been exceptionally helpful to me.
+- People vote with their hearts, not their heads.
+- I believe very strongly in the value of having a diverse team around me that comes from very different backgrounds and different points of view.
+- Leaders tend to focus on 'what to do,' but the real issue is more often 'how to do it.'
+- You can't play it safe if you want to get ahead.
+- I've always challenged myself and the people who work with me to take new approaches to traditional business challenges, to push the envelope and constantly ask whether our sacred cows are still producing great milk.
+- How you manage change can make all the difference.
+- I think my very best piece of advice is be yourself.

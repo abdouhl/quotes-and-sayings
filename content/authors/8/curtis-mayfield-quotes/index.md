@@ -1,0 +1,32 @@
++++
+author = "Curtis Mayfield"
+title = "Curtis Mayfield Quotes"
+quotes_len = "26"
+description = "the best 26 Curtis Mayfield Quotes"
++++
+- Being a young black man, observing and sensing the need for race equality and women's rights, I wrote about what was important to me.
+- This accident, or incident, happened in the most secure place I could have felt I was in: Walking onstage with my guitar, you know?
+- Coming up in Chicago, we heard a lot of blues.
+- When I was just coming up, I always wanted to be able to perform to a large crowd with a symphony.
+- I was writing songs from when I was 12. My songs always came from questions that I need answers for.
+- Our purpose is to educate as well as to entertain.
+- I used to love to sit and listen to the old people talk about yesterday. There's a lot of good information there.
+- As a kid, sometimes you have nobody to turn to. I could always go back to some of the sermons and talk to myself in a righteous manner and put that in a song.
+- My fights and arguments, even with God, went down on paper.
+- I was a very observant child. Almost anything could become a song to me.
+- My art and my creativities were totally something that was of my own heart and mind. I could never let anybody dictate to me what I should write and how I would write it.
+- With a spinal cord injury, which most people don't really know about... there are many, many complications that actually lead you through your life, and sometimes you're up, sometimes you're down.
+- Painless preaching is as good a term as any for what we do.
+- Reading the script, I started feeling very deeply bad for Freddie. Between his friends, his partners, and his woman, he was catching a hard time. 'Freddie's Dead' came to me immediately.
+- Maybe the words that I say is just another way to pray.
+- With all respect, I'm sure that we have enough preachers in the world. Through my way of writing, I was capable of being able to say these things and yet not make a person feel as though they're being preached at.
+- To talk about the '60s almost brings tears to my eyes. What we did. What we all did. We changed the world.
+- I don't like to appoint myself to nothing, knowing I'm no better than anybody else. But it always makes me feel good to know I try to do the best I can, and those who might observe say, 'Hey, I can take a little something from that person.'
+- My teacher told me I'd never amount to anything. I left high school at 15, after one year. But my real teachers were all the people around me. And I was a good listener.
+- I think my grandmother was one of my biggest influences.
+- I didn't put Priest down. He was just trying to get out. His deeds weren't noble ones, but he was making money, and he had intelligence. And he did survive. I mean, all this was reality.
+- How many 54-year-old quadriplegics are putting albums out? You just have to deal with what you got, try to sustain yourself as best you can, and look to the things that you can do.
+- I didn't have to leave my neighborhood to be surrounded by the things that 'Super Fly' is about. It was easier than most scripts because it was about an environment that I knew.
+- Everything was a song. Every conversation, every personal hurt, every observance of people in stress, happiness and love... if you could feel it, I could feel it. And I could write a song about it.
+- We weren't the Temptations, but when we came out onstage, the people always gave us a special respect because our songs were of an inspirational quality.
+- Through my fans and my children, my wife, just good people, I'm coping.

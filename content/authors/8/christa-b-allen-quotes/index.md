@@ -1,0 +1,21 @@
++++
+author = "Christa B. Allen"
+title = "Christa B. Allen Quotes"
+quotes_len = "15"
+description = "the best 15 Christa B. Allen Quotes"
++++
+- Along with rock climbing, I hike and I like to go to the beach, anything outdoors and anything that takes me out of the everyday.
+- I carry a disposable camera. It takes me back to my childhood, when you had to develop your film and wait to see what pictures you got.
+- I travel with chocolate - Godiva with caramel. When the craving hits, I have to have it. I share, but if I'm on my last one, I've been known to say, 'Sorry, I'm out!'
+- Leonardo DiCaprio as Jack in 'Titanic' was my childhood crush!
+- I feel like any experience you can have which adds to your repertoire of things you've done and can add to your character - I'm willing to try.
+- I'm dying to go to India... because the culture seems so vastly different from what I'm used to in the States. I would love to do some yoga there. And be amongst people who are so different than myself. There's so much you can learn from people who grew up in a different environment.
+- I like to travel any chance I get, even if it's just a local vacation to San Diego or Palm Springs or wherever. I just like to get out and do stuff and see the world.
+- I think the years leading up to 21 were a bit more fun than 21 and beyond might be.
+- Sometimes work is a bit slow, and I always wanted to be a princess at Disneyland. There were 1,500 of us who auditioned, and 11 of us were hired. I went through all of the training, but never ended up actually getting to play Belle because 'Revenge' started. It was the time of my life, though!
+- I like to get a rise out of my mom with what I wear - I always go for the tallest heels or something super trendy.
+- I don't use a wallet. My money is just free-flowing in my bag.
+- I want to play a princess or some woman from royalty or aristocracy. If I get to have an accent, even better. And I want to play a butt-kicking superhero, like Catwoman.
+- On my first day shooting '13 Going on 30,' Jennifer Garner had yellow tulips sent to my trailer. I'll never forget them.
+- I love school, but when I was going to school, I sort of used it as an opportunity to figure out what I love to do.
+- My hair is too fine to bleach. I get so much breakage, it's not worth it to dye it.

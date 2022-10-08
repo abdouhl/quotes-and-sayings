@@ -1,0 +1,31 @@
++++
+author = "Charles E. Wilson"
+title = "Charles E. Wilson Quotes"
+quotes_len = "25"
+description = "the best 25 Charles E. Wilson Quotes"
++++
+- For more than 150 years free men in our countries have had the opportunities to educate themselves, choose their own religions, select their own occupations, accumulate capital and invent better ways of doing things.
+- The only sound approach to collective bargaining is to work out an agreement that clarifies the rights and responsibilities of the parties, establishes principles and operates to the advantage of all concerned.
+- In my fifty years of experience and memory, I have seen the most amazing increase in the standard of living of a people ever achieved anywhere in the world. This is why I am so sure that our system of free competition and industrial development is sound and must be preserved.
+- A study of the history of wages back through the years indicates clearly that when the cost-of-living rises appreciably wages have shortly been adjusted upward also.
+- Canada has great natural resources, and its people have the spirit and ability to develop them.
+- Furthermore, the spirit of enterprise which had its first intellectual development in England has especially flourished here as well as throughout all of Canada, while the same spirit has become less virile in the land of its origin.
+- Costs of manufactured articles importantly depend on the cost of raw materials as well as labour.
+- The prices of raw materials do not fluctuate directly with the labour cost of producing them.
+- No one should be so naive as to think that wages among organized groups will not be increased, under pressure if necessary, to make up for increases in the cost-of-living, nor should anyone ordinarily object to such adjustments.
+- That it is logical, fair and reasonable to maintain the purchasing power of an hour's work in terms of goods and services the employee must purchase in his daily living.
+- No one should suffer from the great delusion that any form of communism or socialism which promotes the dictatorship of the few instead of the initiative of the millions can produce a happier or more prosperous society.
+- The thing that contributes to anyone's reaching the goal he wants is simple wanting that goal badly enough.
+- Unfortunately, in collective bargaining one party or the other too often tries to gain an advantage - a bargain, like buying something in a store for less than it is worth.
+- Your future is still before you. Your land is a vast storehouse of mineral and agricultural wealth awaiting further development for the benefit of mankind. It potentialities are magnificent.
+- No plan can prevent a stupid person from doing the wrong thing in the wrong place at the wrong time - but a good plan should keep a concentration from forming.
+- There is no royal road; you've got to work a good deal harder than most people want to work.
+- Furthermore, there is no good ethical or economic reason for asking workmen and current producers to forego all economic gain in order to increase the purchasing power of all the wealth accumulated in past years.
+- Our recent 5-year labour agreements, in Canada as well as the United States, are based upon experience, logic and principle rather than on pressure, propaganda and force.
+- Many people do not realize that where unions have bargaining rights employers cannot raise wages or improve benefit plans any more than they can reduce them without of the consent of the union.
+- Our expanding Canadian operations are concrete evidence of General Motors confidence in Canada.
+- That the way to achieve higher standards of living for all is through science and technology, taking advantage of better tools, methods and organization.
+- Our thinking behind these agreements is that we want all jobs in General Motors to be good jobs.
+- That co-operation and peace rather than industrial strife and strikes will best promote the prosperity of the employees the company and all of the people and even strengthen the nation.
+- If workmen are denied any increase in real wages and they can look forward only to a better standard of living through reduction of prices, progress for them is terribly slow, and they become impatient and dissatisfied.
+- There may be some backward countries where the mass of the people are on a subsistence level and where, as an aftermath of wars or partial crop failures, the standard of living has to be drastically reduced, but this certainly is not the case in our prosperous nations.

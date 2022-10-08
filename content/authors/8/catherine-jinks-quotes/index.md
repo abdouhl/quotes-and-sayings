@@ -1,0 +1,17 @@
++++
+author = "Catherine Jinks"
+title = "Catherine Jinks Quotes"
+quotes_len = "11"
+description = "the best 11 Catherine Jinks Quotes"
++++
+- I'm not a risk-taker; that's probably why I write - because when you're easily bored, but you don't like taking risks, you end up doing it all in your head.
+- I always had a soft spot for Sherlock Holmes and used to imagine helping him out.
+- In primary school, I was bored witless by Australian history.
+- The fact that I ended up married to a decent man is still a source of amazement to me, thanks to 'The Women's Room.'
+- There's nothing quite as exciting or moving as the very finest literary non-fiction.
+- Mostly I wanted to be a writer, though for a couple of years there I wanted to be an animator, because I loved drawing and capturing beautiful movements.
+- I'm a very nervy kind of person, who finds it almost impossible to relax.
+- When you're a dweeb, when you're really young, it stands out. But as everybody gets older and more conservative, it's not an issue any more.
+- I write books for all age groups - young kids, teenagers and adults - because I get a range of different ideas.
+- I was lucky enough to be a child during the renaissance of Australian children's literature, when people like Ivan Southall, Colin Thiele, Lilith Norman and Wrightson were pumping out hugely inspiring stuff.
+- I was always told you're not going to make much money from writing. You can actually do it. Now I've built a really good, big house out of words.

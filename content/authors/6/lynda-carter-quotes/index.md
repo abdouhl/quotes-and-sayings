@@ -1,0 +1,38 @@
++++
+author = "Lynda Carter"
+title = "Lynda Carter Quotes"
+quotes_len = "32"
+description = "the best 32 Lynda Carter Quotes"
++++
+- I just adore RuPaul... this guy is a tireless worker, just with everything that he does, and I just think he's so fabulous.
+- I try to avoid cheese, dairy and a lot of meat, but I do like them.
+- I love Ben Affleck. I think he will be a great Batman. Ben can bring the humanity to all his parts. He can play the good guy, the bad guy, but behind that grin he's got, there is always that humanity.
+- I'll tell you what it is... just why 'Wonder Woman' worked. Or 'Bionic Woman,' or any of those, really. It was because it wasn't about brawn... it was about brains. And yes, she happened to be beautiful, she happened to be kind of extraordinary in some way, but she wasn't a guy.
+- I, for one, always expect my husband to read my mind.
+- I always supported gay issues, but I never understood transgender issues. But after I heard Bruce Jenner speak so honestly, so sincerely, and so relatably, I totally got it. I totally understood what he was saying - it was so compelling.
+- I sang in bands as a kid. In high school, I was already on the road doing a single. And that's no fun. Then came 'Wonder Woman' and children.
+- I want to do everything right now! This very minute. I am impatient, but yes I have goals. To be a real well-respected actress whom people know they can rely on to do a good job... whether they like me as a person or not!
+- People always want me to talk about Wonder Woman, so I do.
+- I don't agree with beauty contests. I did it one time. It wasn't embarrassing being Wonder Woman; it was embarrassing walking around on stage in a bikini. It was ridiculous, stupid, and humiliating.
+- We have to start spreading that news - that real men change poopy diapers and coach the soccer team and let their daughters paint toenails all kinds of colours.
+- My son plays guitar, and he's been at the Kennedy Center.
+- Don't marry the first person that proposes to you!
+- There is a part of 'Wonder Woman' inside me and inside every woman, kind of that secret self that women share. We are all caretakers, giving birth, caring for our children and companions and loved ones.
+- I believe every woman in the Bill Cosby case.
+- I just want my audiences to be entertained and feel like they're part of the show. I want to show them a good time and create an experience they're going to enjoy.
+- If I'm in the airport, people will come up and just hug me because they feel like they can - and that's the greatest. They just want to hug because some place, some memory in their lives, I meant something to them.
+- When we look at countries that suppress women's rights, I think that they are missing the point. Women have so much to offer.
+- I had read the 'Wonder Woman' comic books when I was a child; I was much more interested in those than I was in 'Betty and Veronica,' even though I liked those as well.
+- I'd been singing since I was 14 and on the road since high school, and I was very independent. Then I was Miss U.S.A. and had to have a chaperone and spent a year opening supermarkets. It was all so silly, wearing a crown and banner when it was the 1970s and women's liberation was everywhere. That was quite a stigma to overcome.
+- Often in red states you find racism, and where you find racism, you also find sexism.
+- I've been standing with and united with the gay community. I know so many gay men and women that homophobia is such a baffling thing for me.
+- I've lived in Washington, D.C., for more than 30 years, and the Lasso of Truth would come in so handy. I do think Wonder Woman would be all for the first female president!
+- 'Wonder Woman' is much more than a cartoon character. She's fighting for truth and justice and the secret self that exists in all women and girls. There's a moral fiber and a goodness about her that all women have.
+- I think that people like to put you down to one line - a synopis of some kind. And I just don't pay any attention to it.
+- I asked my husband if he was surprised by all the #MeToo stories. 'Yeah, I'm surprised,' he said. Ask any woman, they're not surprised. It's been going on for years.
+- I row my boat on the river. I swim, ski, walk, lift weights, do yoga and Pilates. I don't want to be a weak, sick 90-year-old.
+- You want to see women your own age in films.
+- I just pretty much do what I want to do.
+- I sing because I love it. People may come to my shows because they are curious about 'Wonder Woman' but I hope they return because they enjoy my singing.
+- My only interest in women's clothes is what's underneath them.
+- I'm an adventurer and I enjoy all types of things, and eating is a part of that. It's just too bad we have to watch what we eat.

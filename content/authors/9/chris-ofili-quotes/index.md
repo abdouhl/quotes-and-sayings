@@ -1,0 +1,41 @@
++++
+author = "Chris Ofili"
+title = "Chris Ofili Quotes"
+quotes_len = "35"
+description = "the best 35 Chris Ofili Quotes"
++++
+- Sometimes, as I feel a door or an exit point in my work is closing, I'll try to create an opening so as not to stifle the creative process, which I see as a process that's never-ending.
+- I've always set out to embrace all that I am.
+- Love is a blissful state, but it's not a utopia.
+- 'Death & the Roses' came out of ideas about flagellation and guilt and from looking at Piero della Francesca's 'The Flagellation of Christ.'
+- When I was painting in art school - and I think many painters in the 1980s worked similarly - a finished painting would often be constructed from lots of other paintings underneath. Some of these individual layers of painting were better than others, but that was something that you would often only realise retrospectively.
+- Moving to Trinidad was a great experiment. I never knew what it would do to my work or even if it would be accepted by people and not be seen as me just falling off the edge of the earth.
+- I just hope that when black people look at me, they don't see someone superhuman. They see themselves.
+- I'm black, and it's a very important part of what I am. I'm not embarrassed about it.
+- I love Manchester. I love Manchester United. But I would really struggle to be creative there. I feel a bit lost, over-familiar maybe. Maybe too stuck in my own web of history.
+- I was an altar boy and heard the Bible being read out repeatedly. The stories have stayed with me, although they're completely remixed in my head. And often, when I do further reading, I'm quite surprised by the difference between the real story and my memory of the story.
+- London was an exciting place to work at one point because, socially, it was very progressive - a catalyst. There were very interesting artists making all types of work, but it got to a point where the social aspect became claustrophobic.
+- There's a magic that comes from playing entirely to who you are. I've got my specialist subject - in the Mastermind sense - and I wouldn't change it, or who I am.
+- I believe in God, but I'm not dominated by it.
+- I'm aware that success can overwhelm you. The perception of you can be elevated to such a status that it's not you any more.
+- I wouldn't say even that I'm a broadly political person. But on occasion, I have felt that I have no choice but to paint something with a strong moral stance.
+- There was a point in time where the thought of people even talking about me made me anxious. Physically.
+- The Notorious B.I.G.'s album 'Ready to Die' is an incredible chart of a man's life - it begins with his birth, you hear his mother giving birth, and it goes through the decades.
+- I try to bring all that I am to my work and all that I experience. That includes how people react to the way I am - the prejudice and the celebrations.
+- I really like the language of painting.
+- A lot of what Trinidad is about is the feeling of the place, the atmosphere of the place, particularly at night, and the mystery of the forest.
+- When I left the Royal College, I decided I would only make paintings that I would want to look at myself, that felt close to my life.
+- I've always found music inspired me in the studio to try to do new things. If someone comes out with a new album, it's like, 'Gosh, they've been working hard - so should I.'
+- The studio is a laboratory, not a factory. An exhibition is the result of your experiments, but the process is never-ending. So an exhibition is not a conclusion.
+- I think visual seduction is really a lovely thing. To be able to look at something and feel you want to get closer and closer to it, and as you get closer to it, the more you drop your guard.
+- We all studied math, but we don't go around spewing numbers. Religion should be used in the appropriate way.
+- I was listening to a lot of hip hop, music like Public Enemy that was about raising consciousness, and I realised I could feed that directly into my work, using images in a way that was a bit like sampling - taking images from diverse places, exploring the contradictions without trying to hide the seams.
+- The studio is a place where I can experiment before I'm prepared for an idea to become a body of work, or a new way of working, or a way of working that can sustain me over a period of time.
+- I was brought up a Catholic and was an altar boy.
+- I don't think I met anyone posh until I went to London.
+- Trinidad was an opportunity to start all over again, to have another stab at it. The mystery and atmosphere of the place have entered my palette a lot more than I thought they would.
+- I don't quite know how the urban music category came about, but I suspect it had something to do with trying to maximise sales.
+- Change is not indecision.
+- Doubt is important because it suggests progress. Total certainty can mean there's no assessment of things. Doubt, if you don't panic, can allow newness to come in and challenge something that's an established mode.
+- Often I think changes within my work have been seen as sudden changes or sharp changes, but for me they're not that sudden. They have been there in the studio, but not so much in public.
+- The church is not made up of one person but a whole congregation, and they should be able to interact with art without being told what to think.

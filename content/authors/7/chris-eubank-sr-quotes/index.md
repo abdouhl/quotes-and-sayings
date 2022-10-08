@@ -1,0 +1,106 @@
++++
+author = "Chris Eubank Sr."
+title = "Chris Eubank Sr. Quotes"
+quotes_len = "100"
+description = "the best 100 Chris Eubank Sr. Quotes"
++++
+- Benn was brute force, wasn't he? But he found God when he was 40... and the only reason I beat him, was because I was brought up in the church. It teaches you to be calm to be objective and steady and the reasoning I used beat him - and he found it when he was 40. I didn't change anything: there is only one way, to be calm, gentle and true.
+- My objective as a mentor, as a father, as a manager and as a former participant of the great game of boxing is to protect mine, but also the opponent. Especially if I can see things which I have experienced before.
+- I was sensitive, I was emotionally intelligent.
+- Fear gives you your intensity, it gives you your game.
+- Boxing isn't just about fighting people, it's about being a standard bearer. You become a beacon for the people.
+- I effectively stood on the shoulders of a giant to make a little bit of noise myself. I'm a by-product of Muhammad Ali.
+- My mother imparted on me that I must be a good custodian of my father's name and that is what I ask of my children. One should conduct themselves in the correct manner, respect one's elders and do the right thing.
+- When people speak disparagingly about others, they are really damaging themselves.
+- Fighters who speak disparagingly about fighters from years gone by do us all a disservice. It is treacherous.
+- The feeling between two fighters is profound. We go places where normal people don't go. You smell a man's blood, it smells like rust. You get into a clench, you feel his strength, you feel his desperation, he feels yours. You're sharing this.
+- Art to me means lot of things - images and words. I may be no artist myself, but I recognise the pleasure you get from a new proverb or a new painting. It puts you in a particular frame of mind. Visually I like art, philosophically I like art.
+- I am always fully in tune with the interviewer, who is usually trying to make me look silly. My objective is quite the opposite during an interview: I never use my wit or my intellect to make the interviewer look silly.
+- The people who have done it - I have been in there - a lot of people love boxing but they have not actually been in there, and haven't tasted the bitterness of a beating.
+- Sometimes you can win by persevering, pushing and pressuring your competition.
+- I'm an entertainer, aren't I? I think.
+- I am a sensitive, emotionally conditioned human being, and I have suffered racist abuse.
+- Talent and skill goes out the window after eight or nine rounds.
+- I'm a gentle, considerate, giving man.
+- I've prospered because of my father. I know I'll never be his equal, but I've prospered because I've honoured my parents.
+- You aren't going to show me something I haven't seen. Nobody can bring something to me that I don't already know, not in boxing. That's where I've mastered my trade, I can't talk in other fields.
+- I probably give 80% more to my children than my father gave to me and still it doesn't come up to scratch. I don't feel guilty about it. Do my children love me? I think that is self-evident. Will they have psychological scars? No, because they have a wonderful mummy.
+- It's the only thing that allowed me to win so many championship fights and allowed me to put up with the bigotry of the media, the keyboard warriors, the critics. I've endured it all because, spiritually, I am buoyant, alive.
+- You play football, rugby, tennis. You do not play boxing. When a sportsperson is in a game, when it gets too much, you quit. But in boxing you can't quit. You have to be taken out.
+- I'm interested in aesthetics, language, art, fashion, everything.
+- When someone has speed they throw four punches to your one, you cannot beat them.
+- If you are learning how to box, any type of support will make you weak. Any type of support is counterproductive.
+- I was a speed freak once. I had an Aston Martin when I first made it big and I used to take it to its limits. I once drove from Lewes to London in 45 minutes - mad.
+- I moved to New York aged 16, and worked part-time in a Korean store in South Bronx selling groceries, bread and confectionery. I earned $10 and it was painful because I didn't want to be there. I also worked in Debenhams as a kid, and a Wimpy in Brighton when I was 20.
+- I've became a coffee drinker since I gave up boxing. I also love to eat anything cooked by a Jamaican. Carbs like rice, yellow yam, Renta yam, sweet yam. Also salt fish fried with onions.
+- If your image is going out to people, you have a duty to make it the best it can be. That's why I always wear make-up on camera.
+- I think a great deal of my son, I love my son. The things I do are unthinkable. I do them because he even though he can't see the pain on my side, I still give and give for what? So he can have a better future.
+- The only thing I have to do in this life is stay black and die. No one can force me to do anything.
+- I can slip a punch, not by three inches, but by a centimetre. Just have it brush past me. And raise an eyebrow at the same time.
+- If you choose to do something that you know you cannot do, or that is going to be very difficult, then you are a fool!
+- Bankruptcy, divorce, these are feathers in my cap, I suppose. I have a wisdom which has been born from these things.
+- I've always been a giving man; it doesn't cost me anything and it's a pleasure to give what I know.
+- If you don't produce the goods, you're very quickly forgotten.
+- A lot of people think my head is flat.
+- I beat many good fighters and many who were better than me and the reason I beat them was because I was persistent, I was willing to go through those pain barriers.
+- I'm not bankrupt of fun, life, my dignity, my character, my essence.
+- When I say my family suffered for my anti-war protesting, one of the many fallouts was having to send my two sons to America because I couldn't keep control of them when the divorce happened... there are consequences for your actions.
+- I went to a foreign land, New York City in 1982 and had no money, no respect in the gym. Everyone thinks you're full of it. The remit in those days was break his heart, get him out of the gym.
+- When I was 11 my school held a sports day near Crystal Palace. We were told we were going to play a rugby match. The ball was eventually passed to me and I was obviously expected to run with it. I took one look at all these players charging towards me, placed the ball on the ground and walked off the pitch.
+- Everything controversial is good for boxing.
+- I am not a meathead.
+- The harshness of my upbringing did not affect me in the negative. But it has affected many people in the negative.
+- My father, who was illiterate, smoothed iron for Ford Dagenham and we'd get up at 5;30 A.M. to give him a jump-start. My mother was a nurse and part of the Windrush generation. Growing up in east London, we were financially poor, but rich in hope and dignity, and we were happy.
+- I see myself as a martial artist. I'm a creative fighter. It's not about hitting the guy and hurting him, it's about scoring points, with grace.
+- I failed my HGV licence three times.
+- The Watson fight was the worst beating I ever took in a ring, but I couldn't quit.
+- I'm a good man and a bad fighter... I've got the gladiator in me.
+- However controversial Mayweather may be, he doesn't bring down the name of boxing. The fast cars, the jets and the money causes controversy but that does not bring the game down.
+- My father never played with me. I can remember my father picking me up - once. I can remember my father telling me behind a closed door that he loved me - once.
+- Every fighter has a duty to boxing to not bring themselves or the sport into disrepute by foul language or behaviour so that boxing can be seen as a gentleman's sport.
+- I'm not bankrupt of effervescence. I'm not bankrupt of craic.
+- One man's terrorist is another man's freedom fighter.
+- Broccoli is not as bad as people make out. It might give you wind, but I'd prefer to have wind and have good health. Health is the number one thing on the planet. However, I am quite partial to rum and raisin ice cream.
+- You see, there are many types of wealth and money is only one of them. I have different wealths, like the wealth of my health.
+- I've always had something much more than money, which is respect. When I was champion, people looked into my heart and some said, 'We may not like Mr Eubank, but we respect him. He fights beyond the call of duty and he never quits.'
+- Solitude is the companion of warriors.
+- Geezers might say, 'I wouldn't wear make-up even if I was going on TV,' but why not? You'll look better. I can most frankly be called a geezer - I've earned the right to be called a geezer, a proper stand-up guy, that kind of thing - and if I can wear make-up, so can you.'
+- I shouldn't be called eccentric. I should be called a normal guy.
+- There are certain things you must not say in spite of the fact that supposedly democracy means free speech. No. You are not allowed free speech. If you speak freely, you are then deemed as I was, to be a subversive.
+- I want to jump into rivers off of high ridges when I'm 75.
+- The reason why I'm such a successful pugilist is that no one knows my limitations better than me. I am quite good, but I am not the best in the world. But I am one of the best and I'm quite content with that.
+- Most of the planet is covered with water, so there must be a clue to its worth in that fact.
+- No one escapes the long arm of the law, they are a business, they are very good at what they do and eventually they will catch up with you.
+- To be exceptional you have to be alone, that's the life of a warrior.
+- Fear is what activates your tools; your jab, your movement, your speed, your ability to absorb punishment.
+- When I finished boxing, all that was available was commentating. But that's not me. I've got too much artistic licence to get out.
+- In accordance to the way that Benn speaks, he is not educated. Sure, he's educated to a certain extent, but under different circumstances he would be a bouncer on some door in the West End and he'd have three kids from three different women... I am a superior person to that. I have finer points.
+- The first martial art my son learnt aged around ten was jiu-jitsu so he can already wrestle. I'd have no concerns about Christopher boxing someone from MMA.
+- I have always been the sort of person to give advice to those coming up behind me and I will continue to. It's what I do, what I am.
+- I want to enjoy the magic of the instrument which is my body.
+- Boxing? She's like a woman. If you've never wooed her, never won her, you always look back wondering what would have happened had you had her. If you caught her and had a long relationship, you don't really look back. Do I miss her? No, because I've had her, I've moved on.
+- Fortunately, I was technically skilled, so I didn't have to bludgeon people, I didn't have to batter them.
+- I am benevolent.
+- Michael Watson is a part of me. It's in my head, it's in my grain. There are scars within me. Therefore, those scars are what allows me to steer and protect other fighters.
+- To be accused of ignoring my roots is pig ignorant.
+- From the age of 17, I lived the life of a hermit and dedicated myself to gym life, first in the South Bronx and then back in England. I was in a bubble and I bypassed a lot of popular culture.
+- Money's just a medium. I am extremely wealthy in all other regards.
+- Let me tell you, the jodhpur in the world of fashion is a formidable adversary to the trouser. It gives automatic swagger to anyone who wears them.
+- I tell my children, look at what your father did, you can do anything you want.
+- I don't drink in public. I don't swear on TV. All I want is for people to say Chris Eubank is an all-right guy.
+- There's a correct way to succeed. The incorrect way is to do things incorrectly.
+- I am not a conventional man.
+- I'll fight anyone I can beat. I'm a businessman first and a boxer second. I'm looking for the readies. The aim is to win at all costs.
+- What can you say to someone like me? When you've got 19 world championship wins, it's almost like you're cursed because you're too good.
+- I am tough. I am relentless.
+- I am a strong father.
+- For lunch I like corned beef, white rice and fried onions, which I've eaten for as long as I can remember. My father used to make it; now, no one does it like me.
+- I admire rugged hard men who play rugby because it's something I would never contemplate.
+- Most people seem to think I am something of a character and the things that have befallen me are par for my course.
+- At 19, I decided to turn professional and accepted my first fight for $250 at the Atlantis Hotel, Atlantic City, on October 3 1985. It set up my whole career and life.
+- DeGale has the pedigree that is spoken about in terms of gold medallists and former world champions.
+- Obsession is a synonym for magic. Magic is a synonym for genius. It's a knack. It's an aptitude.
+- Boxing is a mug's game.
+- Yes, I have spent. I have lived and had accidents. It's all part of life's wonderful experience.
+- I've tasted the bitter beatings.
+- Boxing is the more dangerous activity from the rugby player's and the general public's point of view, but to me rugby is far more dangerous so I would prefer my sons to box. I love my children too much and do not want to watch them getting hurt. This is in no way intended as a criticism of rugby, which I consider to be a fantastic sport.

@@ -1,0 +1,52 @@
++++
+author = "Clare Balding"
+title = "Clare Balding Quotes"
+quotes_len = "46"
+description = "the best 46 Clare Balding Quotes"
++++
+- A lot of interviewers are looking for the dark side. They want to know about the depths of your despair and fear.
+- I really love good food occasionally, but I need time to enjoy it, and I need to be hungry.
+- Very rarely will you listen to the radio in a judgmental way, the way you'll watch telly.
+- Sport develops your brain. It helps your learning. It's not an add-on at the end of the day.
+- I find people interesting. People trying hard are interesting. People with a passion are interesting - whether it's old cars or taxidermy or knitting.
+- I didn't just grow up with horses; I wanted to be one.
+- I hate being alone, even for 10 minutes.
+- When you're little, your father is your hero. Mine was. Then it all becomes more complicated.
+- It had become boring to write: 'I like Clare Balding'. To say: 'I don't like Clare Balding' is much more newsworthy.
+- If you look back at British history, women being allowed to play sport in schools meant they had to change their clothing. They couldn't be running around in their long skirts and corsets, because you can't.
+- I hate the fact that public schools like the one I went to have fantastic sports facilities, and state schools don't. That's not fair. That's outrageous.
+- I have never understood the clamour for waif-like women whose flesh acts merely as a thin veil for their bones - much as I would love to be thinner, I would hate to take it so far that I had no actual shape at all.
+- Not everyone has to have children. If everyone had two or three, we'd run out of room.
+- I am many things, but one of the things I am is a lesbian.
+- Particularly when you're young, you're terribly flattered by people who like you, so you think you love them.
+- I get a lot of abuse on Twitter. It's mostly homophobic, but what can you do? I just either ignore it or laugh.
+- I know sport can change the world, and that matters to me.
+- I've never been particularly maternal.
+- I've always been fascinated by intelligence and how our brains work, and how they can be improved.
+- The most important quality in a partner is a sense of humour.
+- The British have a unique relationship with horses. They are etched into our landscape in chalk, they have been written about, painted, sung about, celebrated and gambled upon for centuries.
+- I cannot be a placard waver for every campaign; that's why I have mostly kept quiet about gay marriage.
+- Weekends are a real luxury for me because I'm usually working.
+- I felt like a misfit at school, and I think that's quite common.
+- Lots of women don't realize that they're gay until they're grown up.
+- Swimmers provide much healthier role models for teenagers than the catwalk.
+- Being made to feel like an irrelevant child was probably an asset. Benign negligence is not a bad parental attitude or at least a cross between a benevolent dictator and benign negligence - you should just let kids crack on with it.
+- If you are fearful, a horse will back off. If you are calm and confident, it will come forward. For those who are often flattered or feared, the horse can be a welcome mirror of the best in human nature.
+- Like so many kids, I just wanted to fit in, and I see now that I spent most of my life trying to be what I wasn't, trying to get people to like me.
+- I think 'ambitious' is one of those adjectives used for women in a derogatory way.
+- I don't make decisions for money or popularity. I do things because they're right for me, and they're interesting and challenging.
+- Women's sport helps break down a lot of barriers for women in other areas, whether in religion or politics.
+- On the beach, I take my clothes off under a towel.
+- You come across words all the time that are everyday sexism. I was described as 'competently bossy' and 'bossily competent' by a male journalist, and I thought, 'Gosh, 'bossy' is never used of a man.'
+- I've had so many things, good and bad, said about me. I'm way beyond worrying about what people say.
+- Having thyroid cancer in 2009 really didn't change my life at all. I wish I could say that I had this epiphany. But I knew I was lucky before that, so it's not like I suddenly realised how lucky I am.
+- I want to make the world a better place, for women, mainly.
+- People like to think of you as a certain person, or a certain type of person, and they do love to give you a label. We like luggage labels, and we like people labels.
+- I think all kids should have something they feels is theirs.
+- Swimming and athletics are the big gigs at the Olympic games. Cycling and rowing are pretty big for Britain, but globally, the two big things are athletics and swimming.
+- You hear the word 'cancer,' and you think it is a death sentence. In fact, the shock is the biggest thing about a diagnosis of cancer.
+- I play golf - even though I'm awful at it.
+- Sports commentating is the answer for a restless brain like mine. I can never get bored because there is an infinite amount to know.
+- Dad is a really surprising guy. Every time I think he's going to be useless, he ends up doing something amazing and saying exactly the right thing.
+- I think I can be spiritual, and I can feel that I want to live well, I want to do things that I'm proud of, and I think that's important. Now, do I need a church to tell me that? Actually, no, I don't.
+- Fitting in is boring. But it takes you nearly your whole life to work that out.

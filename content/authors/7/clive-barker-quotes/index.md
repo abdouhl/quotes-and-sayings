@@ -1,0 +1,63 @@
++++
+author = "Clive Barker"
+title = "Clive Barker Quotes"
+quotes_len = "57"
+description = "the best 57 Clive Barker Quotes"
++++
+- My imagination is my polestar; I steer by that.
+- We actually say in 'Nightbreed,' 'God is an astronaut, Oz is over the rainbow, and Midian is where the monsters go.' There's a lovely sense in which there's a simple thesis being played out here. These are things you understand as a child out on the play yard.
+- Interestingly, although the 'Books of Blood' were greeted with cries of righteous horror - and smirks - I didn't think of them as being particularly excessive. God knows what I did think was excessive at the time, but I didn't think they were.
+- I wanted to fold into the 'Hellraiser' narrative something about the guy - the Frenchman Lemarchand - who made the mysterious box, which raises Pinhead. I figured, 'Well, what would have happened to him?' He might well have been taken to Devil's Island, and I thought that would be a pretty cool place to start the movie.
+- When I was looking for financing while making 'Hellraiser,' I wish there was a studio like Project Greenlight Digital Studios behind me.
+- I firmly believe that a story is only as good as the villain.
+- It is the creature that stands at the center of horror movies, not those who have made it their business to bring the beast down. We're all the same.
+- I have the normal complement of anxieties, neuroses, psychoses and whatever else - but I'm absolutely nothing special.
+- I'm feeling much better than I have been for many years. You know, I... there have been a couple of days when I thought maybe I wasn't going to make it to the evening. I don't feel that anymore.
+- I was always aware of the ticking clock of time, always. I was very aware that I had a lot to do, and I wanted to do those things in the best possible way that I could and probably the biggest way I possibly could.
+- One of the things I'm trying to do over and over again in my books is create new mythologies, create new ways to understand the complexity of the world. I think what mythology does is impress upon chaotic experience the patterns, hierarchies and shapes which allow us to interpret the chaos and make fresh sense of it.
+- 'Hellraiser' was what 'Hellraiser' was. It was a $900k movie, and there wasn't anything I would have done differently. But 'Nightbreed' was taken away from me. It was thought that its meaning wasn't... Its meaning didn't chime with the producers.
+- The 'Hellraiser' situation was pretty darn wonderful and very unusual. Nor did I understand how radically unusual the thesis of 'Nightbreed' was.
+- I don't like PG-13 horror movies. I think they're a contradiction in terms.
+- I'm not the expert on the great gameplay. I come in for the character design, monsters, atmosphere. I'm not the technician.
+- I say 'spectacle' rather than 'story' because in the end, it isn't the intricacies of narrative that draw us to horror films. When it's there, I'm grateful for the director's skill at telling an exquisitely nuanced tale filled with psychological insight, but it is the spectacles that I take home with me.
+- Books should make somebody look at how they feel, be honest with themselves.
+- Some people think that horror films are some sort of second class filmmaking, and the only way to bypass that thinking is being proud of the fact that we do it.
+- Horror fiction shows us that the control we believe we have is purely illusory, and that every moment we teeter on chaos and oblivion.
+- Pinhead needed to say goodbye. He had a farewell speech to make. It was truly as simple as that.
+- I'm a gay man, living an out life for a long time, and it's tiring and anger-making to hear people continue to spit out the same old dreary cliches about the fact that gay men are doing something unnatural, and there'll be a price to pay when the Rapture happens.
+- 'The Scarlet Gospels' does, by general consensus, seem to mark a new high - or low, depending on your point of view - in its excessiveness, in its extremities.
+- I've got deeper journeys to take. Metaphysical journeys. Journeys to see Christ. Shaman journeys. It's what I've been elected by God to do.
+- Nothing ever begins. There is no first moment; no single word or place from which this or any other story springs.
+- Gather experience... Look at what you should not look at. A feeling of anxiety is the sure and certain evidence that you should do this.
+- There's a lot of places where the image of a cube as a thing of power is pertinent. I don't know why that is. I don't have any mythic explanation for it, but it seems to work for people.
+- The thought of making a movie in which the monsters were the good guys was just financial suicide.
+- There was supposedly no point showing 'Nightbreed' to critics because the people who see these movies don't read reviews, in brackets, even if they can read at all! Immediately it was disqualified from serious criticism. Therefore, it had to be sold to the lowest common denominator.
+- I don't feel there's any reason to apologise for having a wicked imagination. I think it's important as a maker of fantasy and of horror.
+- I want to be able to still surprise myself, even shock myself, whether it be sexual content, whether it be about the theological content, whatever. I want to be able to knock myself sideways. Otherwise, what a waste of a life that would be.
+- I used to think that you'd open the door, and there was Narnia. Increasingly, I think it's all around us.
+- Neil Gaiman is a star. He constructs stories like some demented cook might make a wedding cake, building layer upon layer, including all kinds of sweet and sour in the mix.
+- My grandfather was a ship's cook, and he came back from the Far East very often with strange little toys. One of the things he brought back was a puzzle box, which obsessed me for a long time.
+- Though I respect hugely the effort and the care and the beauty of games, I want to be working with people who want to create the 'War & Peace' of games, the 'Citizen Kane' of games, and not just be warming up George Romero.
+- We live in the Age of the Next New Thing; we're assaulted day and night by tastemakers telling us what the next hit will be, the next style, the next cool.
+- I certainly knew from an early age... how to tell stories; how to create pictures in other people's heads.
+- I have a vision of the world as being a lot darker, perhaps, than I did when I was 31 and wrote the 'Books of Blood'.
+- I don't take accusations of selling out lightly.
+- Hell is reimagined by every generation. We have to reinvent the worst so that we can reinvent the best.
+- For a writer, and particularly a writer of my genre, which is the fantastical, I think that it's to my advantage to feel remote from and disconnected from the world of deal making.
+- I love the idea of stories being about great beginnings and terrible endings.
+- Teaming up with Adaptive Studios and Shudder is a wonderful opportunity to support emerging filmmakers in finding the new horror icon. This is also a great chance to scare and entertain audiences at the same time.
+- All I've ever wanted to do is darken the day and brighten the night.
+- Nobody cares for the product I, and a host of other horror directors, make.
+- I think I'm less and less labelled a 'horror writer'. The books tend not to go on horror shelves any more, and when they do, I tend to take them off.
+- Be regular and orderly in your life, that you may be violent and original in your work.
+- As for theatre, there's ups and downs to everything. Theatre is ephemeral. But that is part of its charm because you can always say the production was better than it was.
+- If there was a horror movie showing somewhere in Liverpool between 1967 and 1975, I saw it.
+- What I tried to do is deliver movies that have worked for me more than once.
+- I'm a great dog fanatic. My own dog died a little while ago and I take it very personally when things die - it's a major offence.
+- I love meeting people who've read my books. The prime reason to be on the planet is to make things I can show to other people: paintings, books, movies.
+- It is great good health to believe, as the Hindus do, that there are 33 million gods and goddesses in the world. It is great good health to want to understand one's dreams. It is great good health to desire the ambiguous and paradoxical.
+- You can plan to be brave - it's even better if you just try to be brave.
+- I remember when I watched 'Hellraiser' with my mother. She cried when she saw my name in the opening credits, and I had to tell her that that was the happiest she was going to be for the next two hours.
+- There's a lot of art and comics and movies being paid homage to by game designers.
+- My life is in the art that I make, and I'm very happy with it.
+- 'Underworld' was my first filmed book. I think there are about seven of my lines in it.

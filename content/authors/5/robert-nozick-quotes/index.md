@@ -1,0 +1,33 @@
++++
+author = "Robert Nozick"
+title = "Robert Nozick Quotes"
+quotes_len = "27"
+description = "the best 27 Robert Nozick Quotes"
++++
+- There are only individual people, different individual people, with their own individual lives. Using one of these people for the benefit of others uses him and benefits the others. Nothing more. What happens is that something is done to him for the sake of others. Talk of an overall social good covers this up.
+- The scientists often have more unfettered imaginations than current philosophers do. Relativity theory came as a complete surprise to philosophers, and so did quantum mechanics, and so did other things.
+- Utopia is a framework for utopias, a place where people are at liberty to join together voluntarily to pursue and attempt to realize their own vision of the good life in the ideal community but where no one can impose his own utopian vision upon others.
+- There is no social entity with a good that undergoes some sacrifice for its own good. There are only individual people, different individual people, with their own individual lives.
+- Unsuccessful businessmen and workers do not have the same animus against the capitalist system as do the wordsmith intellectuals. Only the sense of unrecognized superiority, of entitlement betrayed, produces that animus.
+- I think a lot of Marx was quite sloppy. There was all sorts of politically aggressive language when he lacked arguments for things.
+- It's the level that allows us each to live our own chosen lives. But I notice not everyone agrees with the primary importance of that level, and I try to account for how they don't.
+- Evolutionary cosmology formulates theories in which a universe is capable of giving rise to and generating future universes out of itself, within black holes or whatever.
+- The fundamental question of political philosophy, one that precedes questions about how the state should be organized, is whether there should be any state at all. Why not have anarchy?
+- I guess my tendency is to think essentially that the new wrinkles won't do the job if the old major idea didn't, and so you have to try something different. Then maybe they can all be combined in some coherent piece.
+- The history of philosophy is actually full of people who argue for rather wild and incredible views, and their reputations are based on the skill of arguing for them.
+- Intellectuals feel they are the most valuable people, the ones with the highest merit, and that society should reward people in accordance with their value and merit. But a capitalist society does not satisfy the principle of distribution 'to each according to his merit or value.'
+- I think philosophers can do things akin to theoretical scientists, in that, having read about empirical data, they too can think of what hypotheses and theories might account for that data. So there's a continuity between philosophy and science in that way.
+- Certainly the emphasis I place in this chapter on coordination of behavior and cooperation to mutual benefit is something that ought to be very congenial to people in the libertarian tradition.
+- What I was really saying in 'The Examined Life' was that I was no longer as hardcore a libertarian as I had been before.
+- The major public goals in my life are intellectual goals. There are various philosophical things that I want to work on and work out.
+- Faith is caused by an encounter with something very real but which has extraordinary qualities which intimate the divine; the belief is due to an encounter which specially mirrors some divine quality.
+- From each as they choose, to each as they are chosen.
+- Whoever makes something, having bought or contracted for all other held resources used in the process... is entitled to it. The situation is not one of something's getting made, and there being an open question of who is to get it. Things come into the world already attached to people having entitlement over them.
+- Examples one finds in the philosophical literature are somebody who's seen the trial of a child of theirs, where they're being proved guilty of some crime that would drive the parent into a depression, maybe a suicidal depression.
+- What hadn't been realized in the literature until now is that merely to describe how severely something has been tested in the past itself embodies inductive assumptions, even as a statement about the past.
+- It is, from another angle, an attack on requiring proof in philosophy. And it's also the case, I guess, that my temperament is to like interesting, new, bold ideas, and to try and generate them.
+- Through the evolutionary process, those who are able to engage in social cooperation of various sorts do better in survival and reproduction.
+- Perhaps faith is a faith in one's self, the belief that one wouldn't feel so moved by the encounter if it weren't divine, a trust in one's own deepest positive responses. To doubt it would involve a self-alienation.
+- There is no justifiable prediction about how the hypothesis will hold up in the future; its degree of corroboration simply is a historical statement describing how severely the hypothesis has been tested in the past.
+- The libertarian position I once propended now seems to me seriously inadequate, in part because it did not fully knit the humane considerations and joint cooperative activities it left room for more closely into its fabric.
+- The fact that we don't keep repeating tests in the same arena is not because the probability of the hypothesis showing its falsity in other arenas goes up after it has passed tests in one arena.

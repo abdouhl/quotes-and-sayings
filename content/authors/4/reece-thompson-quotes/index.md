@@ -1,0 +1,16 @@
++++
+author = "Reece Thompson"
+title = "Reece Thompson Quotes"
+quotes_len = "10"
+description = "the best 10 Reece Thompson Quotes"
++++
+- You learn from everything.
+- When I was 10 or 11, I was on this TV series called 'Dead Man's Gun' and Henry Winkler was a guest star. He hung out with me and my brother the whole time. We had no idea who he was. Our parents were star struck.
+- My ex-girlfriend said to me, 'I'm surprised at how normal you are since you were homeschooled.' But I was only homeschooled because I wanted to be an actor. My parents are both teachers.
+- A friend and I started a band together. I am kind of learning how to play instruments. We write stuff over Skype or e-mail. I send one part and he writes another.
+- I'd love to create my own stuff. I've always written stuff, but it would be nice to have my hand a little deeper in the clay, so to speak.
+- I'm not a big sweet guy, I have more of a savory palate.
+- A couple of friends and I started a sketch comedy group when we were teenagers, just for fun and to start creating stuff. It was a blast.
+- It's always a learning experience every time I'm on set.
+- Regardless of what level the actor's at, you always learn something. And you can learn something from bad actors as well, who I've also worked with in the past.
+- I love 'Skins'. I was a huge fan of the British series. I love how everyone is freaking out about it.

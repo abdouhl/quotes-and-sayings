@@ -1,0 +1,52 @@
++++
+author = "Chris Messina"
+title = "Chris Messina Quotes"
+quotes_len = "46"
+description = "the best 46 Chris Messina Quotes"
++++
+- 'The Mindy Project' is really best when you're loose, and we improvise a lot, and that's what's best.
+- I don't know if women gravitate toward me, or I gravitate toward them.
+- When I'm doing a drama, I like to find the comedy; when I'm doing a comedy, I like to find the heart and drama.
+- I was in a movie called 'Before & After' with Meryl Streep. I was edited out of the movie, but no one told me. I think I was 18 or 19 years old. I sat across from her and asked her every question about acting. I completely embarrassed myself.
+- The truth is really funny. It's uncomfortable sometimes, it's dramatic sometimes, but it's really funny. Life is funny.
+- A lot of acting, as I grew up wanting to do, is kind of like magic... I'm not comparing myself to him in the least bit, but if you knew what Daniel Day-Lewis was doing every step of the way and what he was eating, I don't think when he popped up as Lincoln we would quite believe it.
+- Ultimately, making movies, if you don't have a big star, it's hard to do. Or if it's not a star director.
+- I like to eat.
+- When you do a movie, you shoot, and then you go away. A lot of the times you walk about from the movie, you say, 'Oh, I get that scene now... Oh, that whole ending - I wish I could have done another shot.'
+- I'm from another time period. E-mailing sometimes, for me, is difficult.
+- When you go to a college for acting, at least the college I went to, it's like everybody just singing and dancing and acting, and they all come together, and everyone's talking about head shots... It just turned me off. I was like, 'What is this? I don't understand this. People are singing in the hallways.'
+- I think as an actor, you're constantly putting yourself out there, and a lot of times failing - and failing in front of a bunch of people - and sometimes you have a good moment and something clicks.
+- I was so bad in school that acting gave me some kind of identity and gave me a home.
+- There's been a lot of times that I thought I'd never work again; I was really bummed out.
+- Probably the best part about being an actor is that you get to be a traveling wanderer.
+- That is the fun of being an actor. You play all different kinds of people.
+- How precise you need to be when you're in a comedy, and the honesty you need and to have those two things meet up and have the execution just right, I always found very difficult.
+- For the longest time, I was always like a guy that people would think they went to high school with. They'd be like, 'How do I know you?' After, we'd play a guessing game. I'd say, 'I'm an actor,' and they'd go, 'Oh, what have you been in?' I'd list my credits, and they wouldn't really remember me.
+- The main thing about doing a comedy is that you spend most of your days really happy and laughing.
+- I think Aaron Sorkin is like Shakespeare. When you go through it, there is a rhythm and clues all over the place of how it should be played.
+- I honestly think comedy is probably the hardest stuff to do.
+- You don't get to rehearse much on TV. You are kind of rehearsing on film. Depending on the way you work, that's either a good thing or a bad thing.
+- I don't have much interest in gingerbread houses - except in eating them.
+- I am a big fan of movies from the '70s.
+- I'm lucky to just be a working actor. There are so many great actors out there and I'm just lucky to have gotten work.
+- I haven't watched a lot of television, but when I was kid, I watched 'All in the Family,' and I liked Archie and Edith a lot.
+- What's monotonous about being an actor and often makes me want to throw in the towel or drive a car off a bridge is the auditioning - the waiting around.
+- Well, it's always strange to kiss someone with 10, 20, 40 people around.
+- Doing something like 'Damages,' I played a character with post-traumatic stress. I was playing with sleep deprivation. I was not sleeping; I stayed up for three days at a time, drinking Red Bull. I would get shaky and tired and hyper.
+- I'm from Long Island. Strong Island.
+- Honestly, one of my favorite things about a director is when they understand what an actor brings to their role.
+- When you do a play, you do it for a couple months, and it just gets in your bones. You can learn about somebody that way.
+- If you're playing your character and you're running into all these people who know who you are and treat you in a way that doesn't pertain at all to the character, it takes you out of it more, so when you're alone in a city where people don't know you, you can kind of pretend even more and get into the head space of where you need to be.
+- I'm not a cook. I don't think I ever will be.
+- It's always flattering when somebody you really respect and like wants you to be involved in their project - let alone writes a part with your voice in mind.
+- I like romance in films. I like love in films.
+- One of the interesting parts of being on a television show is you often don't know the fate of your character until you're reading the script. I always look forward to finding out.
+- I would love to close my eyes and see myself with my girlfriend when we're 99 years old and I have a pipe and she's knitting a sweater, and I hope that's the way it goes. I think it's a challenge every day.
+- I love 'Boardwalk Empire.' I really love that world. I love that style. I love all the actors on it.
+- I like talking about acting. I'm comfortable talking about acting.
+- As corny as it sounds, I'm often pinching myself going, 'What great opportunities and great parts and great people that I've gotten to work with.'
+- Yeah, I think everybody has the crises of questioning themselves at some point or other in their lives. Is this where I should live? The job I should have? The girl I should be dating? Is this the friend I should have?
+- I like funny things, but I don't find myself particularly funny.
+- I've spent so much of my youth trying to change people or change girls and then having it done to me and people wanting me to change.
+- I did a lot of small black-box theater in New York when I was starting out. I'd get a group of actors together to do workshops and readings. And I ended up directing three or four productions.
+- My mom was a dance teacher, so she put me in dance school when I was a kid. I did everything. I used to take ballet.

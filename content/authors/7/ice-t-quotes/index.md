@@ -1,0 +1,84 @@
++++
+author = "Ice T"
+title = "Ice T Quotes"
+quotes_len = "78"
+description = "the best 78 Ice T Quotes"
++++
+- I'm on the front line and I am a rapper.
+- Most interviewers are looking for a headline. They're not skilled. They're looking for shock value.
+- Every once in a while, I hear somebody call me Tracy to try to let me know that they know me, you know, personally. But most of my real friends will call me Trey, or 'Ice' was basically short for Iceberg. So they would call me - some of my boys call me Berg.
+- If I'm going to be a jazz player, I need to understand Miles Davis.
+- So from an actor's perspective, you really have no idea how you're acting.
+- Oh man, nobody is as tough as Mr T. Ice T is pretty tough though as well.
+- A lot of the younger kids now can rap, but they're scared of the crowd. Mastery of that stage is an MC. I don't know if you've seen any great MCs on stage but when you do it's like wow, this is more than the words to rhymes.
+- Well, I am very happy that I was able to play a part in bringing music from the streets onto the radio and into modern culture, I worked very hard and always believed in the sounds I was creating.
+- Jay-Z is like a rap-savant, he doesn't have to write the rhymes down, he can create complex raps in his head. I mean he does memorize it, he just doesn't write it down on paper. He doesn't freestyle onto the track, it's all thought out.
+- Because I first made my name as a rapper claiming South Central L.A., people often assume I'm strictly a West Coast cat. But my family was actually from back East. I was born in Newark, New Jersey, and grew up in Summit, an upscale town in north Jersey.
+- I think L.A. radio is learning from the Bay. The Bay is a very classic place. Mac Mall, C-Bo, all that stuff, they love their artists, they're old school up there. My first big concert was playing in the Bay; I played the Fillmore.
+- No, I'll stay Ice-T. This is what got me here, I'm always going to stay true to that. If it weren't for hip-hop I wouldn't be doing all these other things.
+- When I first got into the rap game, I had an early dream of unifying rappers.
+- Military is a great place for a jock. That's the first thing they test you, they test you physically. If you can run, if you can do the pushups, it's not as hard a transition. If you can't do that, you're going to have a problem because they're going to really work it out of you or work it into you.
+- When I was in the 12th grade, I got my girlfriend pregnant. I just got out of school, she was a 10th-grader. I'm a teen parent, and I'm at a point where I'm like, 'Man I've got to do something.'
+- I have to grow with my audience.
+- Everything we do helps the new artists in the long run.
+- I think, people look at me, and they say, 'You were very aggressive,' I say, 'Yeah,' you know, and I've made a better life for myself, for my son, so I should reflect that with my music now. I shouldn't still be rhyming like that; that would be me lying.
+- I couldn't possibly have lived all the things that Ice-T on the records lived.
+- You have the core hip-hop, which would just be beats and breaks, more something like what you hear with DJ Premier. Then you get into the more highly produced hip-hop, which is something like what DJ Khaled does. But at some point, it starts to get kind of pop.
+- My mother passed when I was in the third grade, my father when I was in the seventh, and that's when I was shipped to Los Angeles to live with an aunt.
+- Redemption just means you just make a change in your life and you try to do right, versus what you were doing, which was wrong.
+- When I first started out in music, I was so negative. I was knee-deep in the streets. Then my friends started going to jail. They said, 'Boy, you better start taking this seriously; you got a chance to do something with your life.' That's when I realised I had to focus. The music led to the acting.
+- I make an effort to keep it as real as I possibly can.
+- I'm a big fan of all styles, even Biggie and Wu-Tang, but I gotta do my thing.
+- Ice-T in the music has done some outrageous things.
+- My father's family came from Virginia and Philadelphia. He wasn't a brother who talked a lot. He was a workingman, a quiet, blue-collar dude.
+- I started writing rhymes first and then put it to the music. I figured out I could lock it to the beat better if I heard the music first. I like to get a lot of tracks, put the track up and let the music talk to me about what it's about.
+- I've evolved, but I'm the same dude, I'm just in a different place. We all change, we all grow. I shouldn't be in the same place that I was 30 years ago; I should be more intelligent, you know.
+- I have no hatred for cops. I have hatred for racists and brutal people, but not necessarily the cops. The cops are just doing what they're told to do.
+- I'm in a very good place to make records. Needing to make money off music is very dangerous.
+- I'll never sell 14 million like Hammer, I just wanna do a good Ice-T show.
+- Some music comes from a real place; some music comes from your imagination. It's difficult to find out what's real and what's not, especially with the gangster stuff.
+- I think that men need to have a little bit of manism. You have feminism. I don't have a problem with that.
+- I've never been competitive with anybody but myself.
+- I don't have to put out another rap record. I can do it at my casual pace.
+- Being cool is when you win, you don't get too happy; and when you lose, you don't get too mad.
+- The right to bear arms is because it's the last form of defense against tyranny.
+- I don't feel that rap has been respected as an art form. Because people have seen rappers rap off the top of their heads, they don't think it is difficult.
+- I think when people say 'real hip-hop,' they want it more buried in the streets. They want it more connected to the streets and the grime and the roughness of the streets. They don't want the fluff.
+- The best way to listen to the album is to put it on, get some Moet, lay back with your boys, and kick it.
+- I started rapping before anybody had ever bought a car from it. It was truly about the art form and the culture, more so than now, where it's a successful way to make money. Back then you had to be doing it because you liked it.
+- If I do a song where I'm angry, when it's time to perform it live I'm not mad, I'm happy. I'm at a concert. But I have to somehow drum up that rage. That's acting.
+- I'm normal. I just had a different occupation for a while, and when you're in a different occupation, you have to carry yourself a different way. Most of my art is me bringing you stories from that era of my life. My life now is kind of boring.
+- As an actor, you can do what you want with your role. That's why they hire you; to take the role and make it real.
+- The music led to the acting. But movies aren't something you can just will yourself into. Someone has to choose you, and you have to be quite fortunate to be chosen.
+- I'm at a point where I don't have to wait for the income from the record to survive, so I'm in a comfortable zone, but I'll make rap records as long as I feel I have something to rap about.
+- If you're really a rapper, you can't stop rapping.
+- I think the most successful are the most paranoid. The first thing people do when they buy a mansion is they build the biggest wall you could possibly build around it. What happens is, now you become a target. If I go into the hood, I'm at a disadvantage. They could carry guns. I can't. They can hit me in the face. I can't.
+- We have groups that do that, but I can't rap with the mentality of an 18 year old when I'm in my 30's.
+- You can't come out on a record dissing the system and be on a label that's connected to the system.
+- My father was a dark-skinned brother, but my mother was a very fair-skinned lady. From what I understand, she was Creole; we think her people originally came from New Orleans. She looked almost like a white woman, which meant she could pass - as folks used to say back then. Her hair was jet-black. She was slim and very attractive.
+- I was born in Newark, New Jersey, and grew up in Summit, an upscale town in north Jersey. There was this tiny area of Summit where most of the black families lived. My parents and I lived in a duplex house on Williams Street.
+- I mean rappin' to me is easy, it's something you can do over a week.
+- I want to be able to say that a rap career could be ten albums.
+- My name, my real name, is Tracy. I always thought I was like a boy named Sue. So I made my friends call me 'Tray.'
+- If it sells, it sells. If it doesn't sell, I'll go make a movie.
+- The next day, I got a phone call from him and he told me to come and read for a movie called New Jack City. So I went over there and they told me I was gonna wear dreads and play a cop.
+- You have to come in on a professional level to make it, otherwise you just can't get into rap.
+- I think singing and acting go hand in hand. Take an R&B singer: one song says, 'I love you,' the next is, 'Baby, don't leave me', the next is, 'If you leave me I don't care.' You have to drop in and out of different perspectives.
+- A good emcee will rhyme a lot of different ways. Don't limit yourself.
+- I think men, growing up, you have to go through some form of hardship. You've got to harden the metal.
+- I'm competitive in that I would like to outsell my last record.
+- Any New York group can come to L.A. and sell out every show, but an L.A. group who goes to New York might not do the same because the audience hasn't been introduced to the group.
+- If somebody wants to kill people, they don't need a gun to do it.
+- Los Angeles is a microcosm of the United States. If L.A. falls, the country falls.
+- Hollywood has its own way of telling stories. I was just telling stories that I was familiar with. And it's what I want to do in the future: I want to take my audio cinema and put it on the screen.
+- So you don't have to take us too seriously; I mean, we're already intimidating enough on stage.
+- Ultimately I am happy that everybody is embracing hip hop and the sounds from the streets.
+- AIDS is such a scary thing and it's also the kind of thing that you think won't happen to you. It can happen to you and it's deadly serious.
+- I think everybody wants to redeem themselves after they've done something that might be considered negative. I don't think anyone wants to go to the grave negative.
+- As long as I'm around the cats in the hip hop scene, they'll throw me a track and I'll write a rap over it.
+- I'm just disillusioned with the hip-hop sound right now. It's too materialistic. You know, I'm the kind of guy ... I can't do that. If you track my movement, you'll never see a picture of me with any girl that wasn't mine, or my own car. My jewelry, my clothes. What kind of gangsta rapper has a stylist? A stylist?!
+- 'New Jack City' was a perfect marriage of music and film. They used a lot of musicians: myself, Christopher Williams. People that were popular because of their music were given the chance to act. And the soundtrack was incredible.
+- I ain't got no beef with east coast, I think it's just being hyped up.
+- An MC is somebody who can control the crowd. An MC is a master of ceremonies so not only can you say your rap, you can rock the party.
+- I've never read for a movie, I've always been given them.
+- When you start a business, go for the lowest hanging fruit.

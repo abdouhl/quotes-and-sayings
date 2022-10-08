@@ -1,0 +1,63 @@
++++
+author = "Carol S. Dweck"
+title = "Carol S. Dweck Quotes"
+quotes_len = "57"
+description = "the best 57 Carol S. Dweck Quotes"
++++
+- We found that process praise predicted the child's mindset and desire for challenge five years later.
+- 'Hard-working' is what gets the job done. You just see that year after year. The students who thrive are not necessarily the ones who come in with the perfect scores. It's the ones who love what they're doing and go at it vigorously.
+- We say women have made great strides: in biology, in many areas of chemistry, in many places, women are now the majority of medical students. But when I began my career, that wasn't the case. There were very strong stereotypes in biology and medicine.
+- Males and females can both have a fixed mindset about math and science, but it hurts girls more because they are on the negative end of the stereotype.
+- Our message to parents is to focus on the process the child engages in, such as trying hard or focusing on the task - what specific things they're doing rather than, 'You're so smart. You're so good at this.' Although it's never too late to change, what you do early matters.
+- My undergraduates, at first, get all starry-eyed about the idea of finding their passion, but over time, they get far more excited about developing their passion and seeing it through. They come to understand that that's how they and their futures will be shaped and how they will ultimately make their contributions.
+- This knowledge that you might have to really reorganize and redefine yourself and build new skills is really important.
+- We're not saying people don't need fuel for strenuous work; they just don't need it constantly. People have many more resources at hand than they might think.
+- We want to design interventions to teach people how to harness their considerable willpower.
+- The hallmark of successful people is that they are always stretching themselves to learn new things.
+- People often confuse a growth mindset with being flexible or open-minded or with having a positive outlook - qualities they believe they've simply always had. My colleagues and I call this a false growth mindset.
+- I'm such an egghead.
+- Maybe you don't know how to do something at work. Instead of asking the boss or seeking someone as a mentor, you might not want to show them your ignorance. So, you're depriving yourself of this learning and mentorship. All of these ways are ways that a fixed mindset will hold you back.
+- Emphasizing effort gives a child a variable that they can control. They come to see themselves as in control of their success. Emphasizing natural intelligence takes it out of the child's control, and it provides no good recipe for responding to a failure.
+- Unproductive effort is never a good thing.
+- I grew up in an environment that promoted a very fixed mindset. It was an era that worshipped IQ and thought that your IQ was the most important thing in determining your future. My sixth-grade teacher even seated us around the room in IQ order.
+- You can't just declare that you have a growth mindset. Growth mindset is hard.
+- The mindset ideas were developed as a counter to the self-esteem movement of blanketing everyone with praise, whether deserved or not.
+- When there's a setback, someone with a fixed mindset will start thinking, 'Maybe I don't have what it takes?' They may get defensive and give up. A hallmark of a successful person is that they persist in the face of obstacle, and often, these obstacles are blessings in disguise.
+- Praise your child explicitly for how capable they are of learning rather than telling them how smart they are.
+- The wrong kind of praise creates self-defeating behavior. The right kind motivates students to learn.
+- I loved everything. I loved sciences and I loved humanities. But ultimately, I felt that in the humanities, you know, you're writing about things that already exist. But in the sciences, you're discovering things that no one has known before. Ultimately I chose psychology because it seemed to combine science with things that I liked to think about.
+- I was very invested in being smart and thought to be smart was more important than accomplishing anything in life.
+- When we praise children for their intelligence, we tell them that this is the name of the game: Look smart; don't risk making mistakes.
+- When you have a limited theory of willpower, you're constantly on alert, constantly monitoring yourself. 'Am I tired? Am I hungry? Do I need a break? How am I feeling?' And at the first sign that something is flagging, you think, 'I need a rest or a boost.'
+- We're finding that many parents endorse a growth mindset, but they still respond to their children's errors, setbacks or failures as though they're damaging and harmful. If they show anxiety or overconcern, those kids are going toward a more fixed mindset.
+- I open 'Mindset' with examples of kids who thrive on difficult challenges.
+- I have seen schools across the country working long and hard to embed a commitment to the unlimited development of every student into their cultures. The result, in terms of motivated learners and test scores, often is spectacular.
+- When I was in graduate school, I became very interested in why some kids took on challenges and were able to bounce back from setbacks whereas others shy away from difficulty and really crumble when they hit failures. I became fascinated with people who had that kind of courage to take on challenges.
+- I've always been interested, since graduate school, in why some children wilt and shrink back from challenges and give up in the face of obstacles, while others avidly seek challenges and become even more invested in the face of obstacles. So this has been my primary question for over 40 years.
+- Everybody who's been successful has gotten lots of help and input from many, many people.
+- Chinese culture is already telling children to work hard. That's not growth mindset because they're working hard for the product, not for the growth or the joy of learning.
+- In one world, effort is a bad thing. It, like failure, means you're not smart or talented. If you were, you wouldn't need effort. In the other world, effort is what makes you smart or talented.
+- As the growth mindset has become more popular and taken hold, we are beginning to find that there are pitfalls. Many educators misunderstand or misapply the concepts.
+- When someone endorses a fixed mindset, it can limit them, even if they're successful at the moment, because if they start struggling and tumbling, they can lose their confidence, but also, they may not create a growth mindset environment for others.
+- I teach a freshman seminar every year, and we delve very, very deeply into their mindsets. They read scientific articles, but we also focus on what their mindset is, and they learn to recognize when they are in more of a fixed mindset, because we're all a mixture.
+- When entire companies embrace a growth mindset, their employees report feeling far more empowered and committed; they also receive far greater organizational support for collaboration and innovation.
+- The loudest voices both in the U.S. and abroad often are those that preach hatred and exclusion. But hatred and exclusion will not bring employment.
+- Some students start thinking of their intelligence as something fixed, as carved in stone. They worry about, 'Do I have enough? Don't I have enough?'
+- Everyone is a mixture of fixed and growth mindsets. You could have a predominant growth mindset in an area, but there can still be things that trigger you into a fixed mindset trait.
+- Do you think it is possible to increase your intellectual ability? For decades, I have studied the power of this belief to become reality and watched as the concept of maintaining a 'growth mindset' has taken root in education and parenting circles.
+- What we found was that the greater proportion of process praise, the more likely the child was to have a mindset five years later that welcomed challenges and that represented traits as malleable, not a label you were stuck with.
+- Children love this idea that their brain is like a muscle that gets stronger as they use it.
+- With a growth mindset, kids don't necessarily think that there's no such thing as talent or that everyone is the same, but they believe everyone can develop their abilities through hard work, strategies, and lots of help and mentoring from others.
+- One very common thing is that often very brilliant children stop working because they're praised so often that it's what they want to live as - brilliant - not as someone who ever makes mistakes. It really stunts their motivation.
+- Most experts and great leaders agree that leaders are made, not born, and that they are made through their own drive for learning and self-improvement.
+- I had the great good fortune of getting my Ph.D. in the very first year that universities were actively seeking women faculty. The government was putting pressure on universities to hire more women.
+- You don't know what your abilities are until you make a full commitment to developing them.
+- You try something, it doesn't work, and maybe people even criticize you. In a fixed mindset, you say, 'I tried this, it's over.' In a growth mindset, you look for what you've learned.
+- Scholars are deeply gratified when their ideas catch on. And they are even more gratified when their ideas make a difference - improving motivation, innovation, or productivity, for example. But popularity has a price: people sometimes distort ideas and, therefore, fail to reap their benefits.
+- With a fixed mindset, you're so worried about how smart or talented you are, you don't take on challenges. You don't try new things.
+- As human beings, it is natural for us to pick up signals about what is valued in our environment and to want to embody those values. But being superior and infallible isn't something to strive for. Those values do not encourage people to do what is good for their organization in the long run.
+- Think about being a teenager and feeling like school is just about taking tests you may or may not be interested in, after which someone will judge whether or not you're smart. No one's going to be inspired by that.
+- When I went into psychology, there were very few women.
+- Creating organizations that value a growth mindset can create contexts in which more people grow into the knowledgeable, visionary, and responsible leaders we need.
+- There is a long history of research showing that people are overconfident about their abilities. But it turns out that people in general are not overconfident about their abilities; people with a fixed mindset are overconfident.
+- Business leaders who openly acknowledge people's concerns about becoming obsolete and who invest resources in workers' growth can help create a nation of learners - and perhaps resolve some of the political chaos that's bubbling around us.

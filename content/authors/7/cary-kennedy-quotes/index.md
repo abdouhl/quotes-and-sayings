@@ -1,0 +1,31 @@
++++
+author = "Cary Kennedy"
+title = "Cary Kennedy Quotes"
+quotes_len = "25"
+description = "the best 25 Cary Kennedy Quotes"
++++
+- I grew up in a family that was committed to service, to reaching out and helping others. That's what inspired me to work in public service.
+- While I don't face the same barriers as so many people in our country, I have seen love that transcends borders, race, and country of origin.
+- Immigration is a federal issue. The failing of Washington to implement an immigration system that works for our families and our businesses - it's Washington's failure. For us locally in Colorado, it's really important that all people here feel comfortable with their local law enforcement.
+- We don't ever want to create an environment where people are afraid of their own local police officers.
+- I see it as very important that taxpayers have access to all financial transactions.
+- Climate change is the greatest threat to humanity, perhaps ever. Global temperatures are rising at an unprecedented rate, causing drought and forest fires and impacting human health.
+- I do not like negative attacks.
+- It's an honor to be chosen to serve as Mayor Hancock's deputy mayor. This position comes with great responsibility, but should the need arise, I know I am up to the challenge.
+- When people pay taxes, they are buying a service and benefit for their community. Colorado Tax Tracks shows taxpayers what they pay and what they buy for their money.
+- You don't have to look any farther than the state of California to know that having a 'Gordian knot' of conflicting measures acting upon on your state budget is a recipe for disaster.
+- As Governor of Colorado, I will continue to transition our state away from fossil fuels to more clean, renewable sources of energy.
+- I feel very strongly we need to do a better job with the rainy day fund.
+- Every day, I am blessed by the goodness in our country and the kindness and the generosity of the American people. We share a deep love for this place and a gratitude for the contributions we each make.
+- I'll continue to fight for our schools.
+- I am proud of my record as Colorado's State Treasurer. I have protected the taxpayer's money and grown the value of the state's investments in a very challenging economy.
+- Education needs to be our state's top priority.
+- If Donald Trump takes the nation backwards, we can lead as a state and move forward. It is up to us to stand in opposition to anything that would take Colorado backwards.
+- I am honored to have the support of so many Coloradans across our state.
+- Being honest means being forthright about information, no matter how painful disclosing that information might be.
+- As candidates and elected officials, we have an obligation to be honest.
+- Regardless of who I am, racism against anyone, anywhere should be appalling to everyone, everywhere.
+- Taxpayers need to know if they are getting value for their tax dollar.
+- I grew up in a family with three brothers and sisters who joined my family through the foster care program, and I also have a sister who joined my family through a faith-based organization.
+- My goal as governor is for Colorado to have the cleanest air and the cleanest water in the country, and to be a model for the nation in using clean, renewable sources of energy.
+- Our nation is too strong and too good to let one man tear down everything we stand for. I refuse to let Donald Trump take our country backwards.

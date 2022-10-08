@@ -1,0 +1,20 @@
++++
+author = "Bryan Robson"
+title = "Bryan Robson Quotes"
+quotes_len = "14"
+description = "the best 14 Bryan Robson Quotes"
++++
+- That didn't happen. Still, I had six pretty good years and one where I didn't reach what I wanted for myself or the club. I don't accept that makes you a bad manager or a poor coach. If that is the view I strongly disagree with it.
+- They wanted to jump on their own bandwagon. Bobby Charlton had never made it as a manager. Bobby Moore hadn't either. I think they never stopped trying to put me in the same category. That was the road they went down with me.
+- Nobody is that thick-skinned that it doesn't hurt you. Still, you always know what happens in football. I have got used to criticism, I suppose, having been high profile with England and Man U.
+- In a way, certain sections of the media always wanted to knock me because I had captained my country and been skipper at Old Trafford. It was all a bit odd really.
+- You can't let players do what they wish and be professional. That's a fact. As for the team, Boro had two internationals when I got there in 1995. Now they have more than 15. And they didn't cost the fortune some suggest.
+- I've left Boro in the Premiership, which was always what I wanted to do. Actually that's not quite true. I took them to three cup finals, where they'd never been before. But I had set my eyes on being the first manager in their history to deliver a major trophy.
+- I had to make a change. It was no slight on my staff either. We'd all been at Boro for seven years. But certain players had got too familiar with the set-up. I had to turn it round. Terry was the one man I could think of to do it. So I went for him.
+- In the end, a small section of the crowd, maybe 2,000 to 3,000, turned against me. And that was it. Inside the club they know your best intentions, but the minority shout louder than the rest.
+- If I'd been able to put the collection together in one go, say over two years, we'd have had a special team, most wouldn't stay. One or two glory seasons and they were off. To them, the north-east was too far out. They wanted to be with the big hitters.
+- Could I have walked out then? If I had, Terry wouldn't have accepted the job.
+- All the stuff about being a drinking club, or having players who were not good enough, I treat as rubbish.
+- A lot of people, some of them close to me as well, have said that I sacrificed myself by doing what I did in bringing Terry on board. I didn't see it that way.
+- I was determined to get it right on the pitch. Then, if I had to leave at the end of the season, so be it. I never felt threatened or isolated by the arrangement. We worked together and it worked out.
+- Last season when things weren't working out, I thought we needed a different voice around the place.

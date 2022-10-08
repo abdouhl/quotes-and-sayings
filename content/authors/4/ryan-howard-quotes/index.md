@@ -1,0 +1,28 @@
++++
+author = "Ryan Howard"
+title = "Ryan Howard Quotes"
+quotes_len = "22"
+description = "the best 22 Ryan Howard Quotes"
++++
+- Philadelphia is always going to be home.
+- I just think there's more I can do in this game.
+- Get your work in, do what you need do, and get back up top. I'm a little bit behind the curve as far as not really having a spring training, so you're trying to get your work in, trying to work on things, and at the same time, you're also going out there trying to be competitive.
+- All you can do is just make the most of what you've got. You try to make the most of where you are to get back to where it is that you want to be.
+- You feel a lot more in your hands if the pitch gets in on you and busts you in the handle. It stings. But when you catch it square, it doesn't seem like you feel it as much.
+- If you walk away, don't walk away with something still left in the tank. Then you're wondering like, 'Man, what could I have done?' When I'm done playing, I want to leave it all out on the field.
+- Once you leave the minor leagues, you want to not come back. But it's the path that I'm on, the journey that I'm on.
+- Ron Howard is the family patriarch. When he gave orders, directions, or suggestions to family members, they were not to be questioned. It was considered wrong to disagree with him.
+- I'm cool with everybody. The fans have been nothing but nice to me.
+- Other than playing the game I love, my passion is investing in innovative companies and helping the entrepreneurs behind them succeed.
+- I was perceived to be a first- to third-rounder. I kind of had a tough junior year and fell to the fifth round. At that time, it was motivational.
+- My goal is not to create a better baseball player but to create a superhuman that just happens to play baseball.
+- That was a very aha moment. It was, 'I'm in the big leagues.'
+- Wayne, Jon, and the SeventySix Capital team are best in class and committed to building successful companies. Together, by leveraging the full weight of our knowledge, expertise and relationships, we can make a huge impact at home in Philadelphia and around the world.
+- That's the easiest thing to do, is quit and give up when things are hard. You really see what you're made of when those things are not going the way you want them to go.
+- Things are real easy when you're going good and everybody's all behind you and this and that.
+- I'll walk around the city, and people will come up to me and say, 'Hi,' or 'Keep up the good work,' or whatever, and I'll stop and talk to them.
+- People get it twisted. They see the baseball stuff, and they don't see you as a human being. They see you as someone that just plays baseball.
+- I think I can still go out there and compete, and compete at a high level.
+- The first time I saw Werth in a Nationals uniform, it was like, 'Dude, this is weird'.
+- If someone throws something, we're just supposed to sit there and wear it and get hit. Nah, man, we're human beings first and foremost.
+- While I continue to work towards another opportunity with the Majors, I'm excited to grow my partnership with SeventySix Capital.

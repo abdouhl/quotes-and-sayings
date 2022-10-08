@@ -1,0 +1,15 @@
++++
+author = "Roberto Alomar"
+title = "Roberto Alomar Quotes"
+quotes_len = "9"
+description = "the best 9 Roberto Alomar Quotes"
++++
+- To my mom, I don't know how to describe my mom. She is the most wonderful person in my life. She gave me love. She took me to the ballpark when I was just a little boy running around, hanging around.
+- When I was a little boy, I didn't know what the Hall of Fame was. I was just playing the game of baseball, and I wanted to be just like my dad.
+- A ballplayer doesn't make excuses.
+- John Hirschbeck is a wonderful person with a wonderful family. I'm so glad that we have become friends.
+- I always believed no matter where you are, as long as you're doing what you love doing, you're going to be happy.
+- When I started playing the game of baseball, the more I played and the better numbers I got, the more I started thinking about the Hall of Fame. But I never thought I had a chance to be there.
+- My heart is half Puerto Rican, half Canadian. That is how I feel.
+- Everything I learned about the game of baseball, I learned from my dad.
+- I'm proud of everything that I've accomplished since I was a little boy. That was my dream - to be a ballplayer. I didn't dream to win so many Gold Gloves, or Silver Bats or play in All-Star Games or World Series. I was just dreaming to play the game.

@@ -1,0 +1,98 @@
++++
+author = "Roman Reigns"
+title = "Roman Reigns Quotes"
+quotes_len = "92"
+description = "the best 92 Roman Reigns Quotes"
++++
+- It was an absolute pleasure just to be able to tell my grandkids, 'Yep. I Superman-punched Vince McMahon right in the face twice.' You can put that on my mantle.
+- I always think there's something you can learn.
+- I wash it a couple times a week, but pretty much every night, I put in some leave-in conditioner. I want to say it's like a Moroccan-type, argan oil conditioner of some sort. I don't know; I just use it. I don't really know the details on it.
+- Don't worry about the pressure or the responsibility. Just live in it, have fun, and when everything seems to be going right, just stay humble and remember your family.
+- Being a WWE performer and doing all the different things we get to do, it can wear on you, and you can learn a lot of stuff about yourself. For me, it always reminds me to just stay humble. Just be yourself, love what you do, and enjoy the ride.
+- I'm from a wrestling family, a wrestling dynasty. And as biased as that may be, I firmly believe I am from the greatest wrestling family of all time.
+- Once I got a bit older, and we could see there could be a future in football, it was everyone's blessing to chase that dream. And it did me a lot of good: It put me through college, it gave me an education, it got me a little taste of pro ball and a lot of good memories. I don't regret any of it.
+- My process is walking down to the locker room, laying everything out to how I like it. I'm very particular about setting up my bags and my dressing situation. I love to pull out that portable speaker and blare music even if nobody else likes it. To me, its just keeping everything the same every single night.
+- We always had so many kids in our family, running around the yard, sweaty little kids jumping in and out of the pool, the front door and back doors swinging open and shut, all of the parents getting pissed off telling us to stay outside.
+- My father and a bunch of my cousins and uncles, they didn't have the opportunity to use FaceTime or Skype, all these different technologies and advancements that we have.
+- The Tae-Bo guy has a good body on him. I believe in evolution as far as lifting and training and building muscle. I was doing functional movement before CrossFit was ever a thing. I was playing football, doing platform lifts, all kinds of wacky kettle-bell stuff before kettle bells were kettle bells.
+- This whole wrestling world is a different breed, there's no doubt.
+- You never know what's going to happen with this crazy world of sports entertainment, so I would never rule out the fact that Rock wants to come home.
+- I can't say I'm a full-on gamer, since, basically, I just don't have time for it. I know nowadays, gaming can be a lot like social media. People just stay on it all day long. Like they're logged into the Matrix. But yeah, I enjoy it. When I get the time.
+- To be honest, the cool thing about Cena is he's just in his gear all the time. He doesn't have to get dressed. He comes off his bus, and he's it. All he has to do is pull up his kneepads. You know who is kind of a new Cena is Ambrose. Ambrose can show up in his gear like he just changes his boots.
+- When I had my tryout, just from two days being in the ring, learning to bump, hit the ropes, and things like that, I came home, and my back was just one huge bruise.
+- You can't socialise without being faceless idiots. More people have Facebook friends than actual friends these days.
+- As far as match-ups are concerned, I feel pretty good about matching up with anybody. I'm sort of a hybrid wrestler. I'm extremely explosive; I'm a good athlete. I can move around.
+- I try to live in the moment. When you're in a singles match, you're in there, and the guy's on top of you, and you're in a hold, and you're being smothered: You're in the fight at all times. But when we're doing these team fights, you have a little time to take in the moment and just absorb the energy of the crowd.
+- It's always been my expectation to be the top guy, the face of the company, the one with all of that responsibility. But that should be everybody's goal. I didn't get into this to just be in the middle of the pack. If you want to do that, go work in a different line of work. This isn't the place to camouflage yourself.
+- I'm a character and a sports entertainer and a wrestler, but I'm also a father and a husband and a provider.
+- That's just what I want to do: Create a path that's unknown. It's hard in this business and this world we live in to trail-blaze. To create something different and do your own thing is hard nowadays. That's what I want to do. I want to take these matches to a whole new level and break that bar.
+- I have a really strong opponent in Randy Orton. A former multi-time world champion. He's held just about every title under the sun. And he's done it all in a major way. He's basically wreaked havoc and ran roughshod over the WWE for quite some time. Some people might forget that.
+- At the end of the day, all I can be is me. I'm not John Cena. In my 30 years, I've never been John Cena. I don't even think about becoming him. I just want to be - I want to be Roman Reigns. I want to do things my way. I think that's why I'm in the deep water with Vince McMahon and 'The Authority'.
+- I don't have anything to prove to anybody else other than myself and my supporters and my loved ones, so if my health is good, I'm going to go out there and kill it.
+- I'm not a crazy Twitter guy to where I'm tweeting out stuff every day, and rarely even once a week do I tweet. But I mean, occasionally, I read some stuff.
+- I enjoy being a singles guy. I enjoy commanding the stage with myself and an opponent. It's a different process when you're teammates. Especially with the way we work. We're very unselfish with how we work together in so many different regards. Not just what you see as the final product of the match. Just strategizing, psychology, teamwork.
+- I used to be a lot better looking before I joined WWE. Whatever happens in the ring is real, and for anyone to think any differently would be a big mistake.
+- When it comes to representing the WWE, I don't like calling myself the 'face of WWE' because we have so many faces and so many superstars. We are a team, we're a roster, and we're a locker room. It absolutely takes every man to make this ship sail.
+- Everyone's been through hell to get where they are, and I'm not gonna let anybody talk down on what I've done just cause I didn't do what Daniel Bryan or your other favorite wrestlers did. Don't mean I didn't earn my spot.
+- I'm doing pretty good for myself, and I'm very proud and very humbled at where I'm at, and I'm extremely blessed.
+- This is the deal: You win the Royal Rumble match, you go to main event WrestleMania. That's the process.
+- I don't think anybody else could have gone out there with Brock Lesnar and do what I did. I stand by that, and I'm proud of it. My father and my mother were in the front row watching, and they got to see their son go toe-to-toe with Brock Lesnar. Not many people can say that.
+- There's no way Daniel Bryan can beat me in a Royal Rumble match. It's ridiculous. He's nowhere near as heavy as me; he doesn't have a fraction of the strength I have. There are a lot of ways that Daniel Bryan can possibly beat me.
+- If you're a Daniel Bryan fan, I'm all for that. The more people Daniel Bryan will bring into arenas, the better. The more people I bring in, the better. But when I'm talkin', shut the hell up and let me talk.
+- I like CrossFit. I agree with a lot of their coaching tips and the foundation of functional movements and hard work. They embody all that stuff. But I also think there's a bit of a cult following within the CrossFit community, a bit of a fraternity, which obviously creates a bias and a little bit of a tunnel vision.
+- A lot of people tune in to 'Monday Night Raw,' and they can hear these boos or these mixed reactions, but they're not there for our Friday live event show, our Saturday show, our Sunday show. I get to experience a lot of very supportive nights where everybody is on my side.
+- If it wasn't for women, I wouldn't be here. I'm a mamma's boy at heart. I love my mom. I have the deepest, utmost respect for women.
+- If I'm with my dad, yeah, he's going to talk a good bit about the business. He just kind of mentors me and tells me what he's thinking about my stuff.
+- I'm not the only guy who doesn't have an independent wrestling background. You know, I have a football background, but I also have a wrestling one.
+- I get to partner up with all different types of opportunities.
+- The majority of the time... the people that are critiquing and bashing me, they're making me more relevant, I would think. If you didn't want me around, then just don't talk about me, and try and make it silent out there.
+- As an adult, I've always tried to be a good person my whole life, so I've made good friends, and I've always built great relationships and been friendly with people. I always think what you do to others will come to you, so that's how I treat people.
+- No one wants to be picked at. At the end of the day, we're all human beings with feelings and emotions. Nobody wants to be critiqued and picked apart, but it's the nature of the business. It comes with the territory. For me, if they're not talking about you, that's where you can run into some trouble.
+- There's always something that you can learn and something you can teach.
+- Growing up, I've had plenty of obstacles, but to be honest, I didn't always have doubters. I was a standout athlete, so when that happens, you don't have too many people telling you 'You can't do this,' and 'You can't do that.' I've always been a bit of a people person and a hard worker.
+- I'm wrestling almost every single day of the week. I'm fighting for so much more. I'm trying to capture a life here, a future. I'm trying to put my kid in college. There are so many things I'm doing. I'm representing the biggest wrestling family on earth.
+- That's the real work, being away from my loved ones, my family, my household. There's nothing that's hurt any more than being away from my little girl and missing days, but I'm lucky.
+- Anytime you're out there in between those ropes, you always have to worry about fatigue. If you think about it, people get tired just doing cardio. You get tired doing cardio just by yourself. Now imagine running around, picking somebody up, picking you up, trying to pin you, trying to hold you down. It gets very tiring.
+- Just getting from the airport straight to the gym is gonna be your best bet to knock off that rust and wake yourself up and get that blood flowing. You sit in a car or a plane cramped up, you lose a lot of blood flow and get that swelling in your legs. There are all kinds of dangers in sitting still too long.
+- It takes a very tough man to play defensive line at any level of football, but to be able to do it on a Division 1 level, or a professional level, it takes that intensity, that aggression, and you have to be tough.
+- You can type things on the Internet. You can have no credentials in any area and just get on your smart phone and write whatever you want.
+- If I can stay healthy, then I can wrestle every single week. I want to make every single town that I can, see the whole world, feel every crowd in every arena, and pull those emotional strings. I can't explain what it feels like to be in the center stage connecting with thousands of people, but I'm having the best time doing it.
+- The majority of critics, I would say, are people who have no clue what they're talking about and have never been in a wrestling ring. They've never been a public speaker. They wouldn't even know how to lock up with me if I allowed them to.
+- Every wrestler I've ever had critique me, they were always into my stuff or what I'm doing out there. For a non-wrestler, someone who doesn't even know how to lock up, and if we did lock up, they wouldn't know what to do, for them to critique any of us, it really does pop me.
+- Going from The Shield to singles competition, it wasn't a really big transition for me. Before we were The Shield, we were all singles wrestlers. And we were wrestling a bunch of guys all the time down in developmental.
+- You can either go down the stage like everybody else, or you can go through the crowd like Roman Reigns. I'd take going through the crowd, the WWE Universe, every day of the week.
+- Everyone's a critic: when you are doing something good, everybody wants to bring you down, and that's something I've been told. People want to see you do good, but not too good.
+- I expect The Rock would want to keep his pretty face intact for Hollywood. He better stay away from me in the ring. But honestly, anybody who wants to get into the ring with me and take the world title, just try!
+- For the most part, I don't care what Dolph Ziggler is doing or that Seth Rollins worked out. I don't wanna watch a video of Cena power cleaning.
+- There is always the underground rapper people enjoy, and you want to see him come up. That's kind of how it is in wrestling.
+- It's always good to see the world; always good to see new places. When I'm sitting at home, one of the great things is when my daughter and I watch TV, and when she sees or hears about a place for the first time, I tell her, 'Daddy's been there!'
+- Don't focus on the negativity. Focus on the positivity and the people that want you to do well; then, do it for them and for yourself. Sometimes I do things for myself. Sometimes I do things for my family. Sometimes I do things for my friends.
+- Paul Heyman has known my family from before I was even born. He's seen me as a little guy, he's seen me as a medium guy, and now he's seen me full-grown and competing on the same level.
+- Up until 'WWE 2K15' came out, I was primarily a 'Call of Duty' guy. So a lot of 'Call of Duty'and also a little bit of 'Destiny' as well. But I've always been a big fan of the COD franchise.
+- 'Answer The Call' - we're trying to support the real heroes of our world, the people who protect us and afford us freedom and give us that peace of mind.
+- Everything about me is favored towards wrestling.
+- I've been in the ring with so many guys, and I've been in the ring quite a bit with Randy. The WWE live events are... a little bit different from what you see on TV. It seems to flow better; more matches, longer wrestling.
+- 'WrestleMania' was the best day of my life, the greatest opportunity I've ever been afforded, but at the same time, no one wants to lose the main event for the WWE world heavyweight championship.
+- Daniel Bryan, as a person, I think he is a good guy; I don't know him on a personal note well enough to say anything bad about him. As a competitor, he is a die-hard competitor. He is going to bring everything into this match that he can.
+- The crowd is the crowd. You're gonna take them as an individual performer how you take them. The key is how do you learn from them. How do you use whatever is happening reaction-wise to get better.
+- I'm a workhorse. I'll take anything and everything I can get, and I'll do it with a smile on my face.
+- I've got a couple of grays in my beard and maybe a little salt and pepper in my hair. If I let my hair down and go through it, you'd see a good bit of grays. Maybe from the stress of the road and the crazy business I'm in.
+- I'm a family man. I have a daughter and a wife, and I spend more time on the road with my wrestling family than I do with my actual household and my immediate family.
+- For anyone to say that WWE is fake or anything like that, no sir! It's very physical, and the injuries are real; the blood is real.
+- People call us heroes, but we are nothing compared to our police force and fire fighters and everybody who protects us and makes sure our freedom is held to the highest standard.
+- Personally, for my character, I started as the silent but deadly type.
+- If there's one thing I've shown, I'm not scared of physicality. I'm not scared to take some of my own blood. I play hurt; I play injured.
+- Advice from my experience, for me, I've never taken no as an answer, I don't believe in that. If I want something, I'm going to get it. When people tell me that I can't do something, it just motivates me more. For me, it makes me smile, because I just want to prove everybody wrong.
+- The fans have to realize that as opinionated as y'all are in the way you want it, the company is the same way, and they're gonna do what they wanna do... at the end of the day, I'm just a guy getting rich.
+- I think all The Shield boys will tell you we hold The Shield very dear to our hearts. That was our vehicle to where we are now, and to get out of developmental and out of that hot Tampa warehouse.
+- I love doing a lot of cardio. It's not so much for the way I look. It's for how I perform. If I get in the ring with a 215-pounder, I wanna be able to keep up with him agility-wise. I take that back to my football days of being a large athlete that could move.
+- I've loved to be a part of anything, having an opportunity to entertain, to be a part of a film, or just continue to do what I'm doing, I'm so happy, so just making town after town, doing my thing, but if I have that opportunity to star in a film or be an extra, I don't care; its all a learning experience for me.
+- I can only do my thing and do the best that I can.
+- There's so many great matches that you can think of. I could fantasy book all kinds of stuff, you know, fight a few family members. If we could have Umaga back, I would love to wrestle him in any arena in any town just because of how good he was.
+- I don't care to read about anybody's Twitter. I don't care what you're eating for breakfast or where you just went. For me, it's mainly just to connect with my supporters and the people who are showing a mad amount of love.
+- Sometimes, as a former football player, we have to go into that away game and silence the crowd. And just let them know I am the man. I'm going to be here for a long time.
+- If you have a good support system like your family and your friends around you, then you can't go wrong. So just believe in yourself, do you your thing, and stay strong in what you believe in.
+- Most of my hobbies involve athletics and outdoor activities. I'm willing to learn about anything and converse and pick people's brains, and I ask people to do the same. I'm into learning anything new and trying new stuff.
+- When I came into this business, there was a bar set for me. My goal is to push it as high as I can to make my family's legacy even stronger. To add to the history that's already been created. So for me, it's a huge challenge that I'm willing to fight for every single day.
+- Just being involved in WrestleMania is a dream.
+- Before you know it, I'm not going to be able to tie these boots up and do what I do in the ring for my whole life. We're all getting older, so I'm trying to live in the moment and enjoy everything that's being thrown at me.

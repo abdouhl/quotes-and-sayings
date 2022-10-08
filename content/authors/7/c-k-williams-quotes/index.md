@@ -1,0 +1,17 @@
++++
+author = "C. K. Williams"
+title = "C. K. Williams Quotes"
+quotes_len = "11"
+description = "the best 11 C. K. Williams Quotes"
++++
+- I don't think of reflection on dark things as necessarily dark.
+- One becomes a grandfather and one sees the world a little differently. Certainly the world becomes a more vulnerable place when one has a grandchild, or now I have two. And I think that possibly there's some tenderness that came out of just time and age and being a parent and grandparent.
+- My father read poetry to me, encouraged me to memorize poems. But the writing of it was quite a different thing.
+- I tended to write poems about both social and spiritual problems, and some problems one doesn't really want to solve, and so the problems themselves are solved. You certainly don't want to solve problems in poems that haven't been solved in the world.
+- Sometimes you have a poem that you really want to write and it never happens.
+- Poems have a different music from ordinary language, and every poem has a different kind of music of necessity, and that's, in a way, the hardest thing about writing poetry is waiting for that music, and sometimes you never know if it's going to come.
+- I think poetry always lives its life, and people come to it and people go away from it, 'people' in the sense of larger numbers of people. It's as though you begin to think that poetry is a resource, and that at certain times people seem to need it or want it or can find sustenance in it, and at other times they can't.
+- When you begin to write poems because you love language, because you love poetry. Something happens that makes you write poems. And the writing of poems is incredibly pleasurable and addictive.
+- I don't like denial. I don't like repression.
+- A dark poem is meant to redeem the dark part.
+- If you spend your whole life being depressed about life, you're wasting it.

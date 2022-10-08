@@ -1,0 +1,28 @@
++++
+author = "Billie Holiday"
+title = "Billie Holiday Quotes"
+quotes_len = "22"
+description = "the best 22 Billie Holiday Quotes"
++++
+- Singing songs like 'The Man I Love' or 'Porgy' is no more work than sitting down and eating Chinese roast duck, and I love roast duck.
+- I never had a chance to play with dolls like other kids. I started working when I was six years old.
+- You can't copy anybody and end with anything. If you copy, it means you're working without any real feeling.
+- There's no damn business like show business - you have to smile to keep from throwing up.
+- Don't threaten me with love, baby. Let's just go walking in the rain.
+- They think they can make fuel from horse manure - now, I don't know if your car will be able to get 30 miles to the gallon, but it's sure gonna put a stop to siphoning.
+- If I don't have friends, then I ain't got nothing.
+- Somebody once said we never know what is enough until we know what's more than enough.
+- People don't understand the kind of fight it takes to record what you want to record the way you want to record it.
+- If I'm going to sing like someone else, then I don't need to sing at all.
+- In this country, don't forget, a habit is no damn private hell. There's no solitary confinement outside of jail. A habit is hell for those you love. And in this country it's the worst kind of hell for those who love you.
+- I hate straight singing. I have to change a tune to my own way of doing it. That's all I know.
+- No two people on earth are alike, and it's got to be that way in music or it isn't music.
+- I don't think I missed a single picture Billie Dove ever made. I was crazy for her. I tried to do my hair like her, and eventually, I borrowed her name.
+- One day a whole damn song fell into place in my head.
+- A kiss that is never tasted, is forever and ever wasted.
+- I never hurt nobody but myself and that's nobody's business but my own.
+- I'm always making a comeback but nobody ever tells me where I've been.
+- Love is like a faucet, it turns off and on.
+- Sometimes it's worse to win a fight than to lose.
+- Mom and Pop were just a couple of kids when they got married. He was eighteen, she was sixteen and I was three.
+- You've got to have something to eat and a little love in your life before you can hold still for any damn body's sermon on how to behave.

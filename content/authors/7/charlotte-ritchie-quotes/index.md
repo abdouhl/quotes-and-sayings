@@ -1,0 +1,36 @@
++++
+author = "Charlotte Ritchie"
+title = "Charlotte Ritchie Quotes"
+quotes_len = "30"
+description = "the best 30 Charlotte Ritchie Quotes"
++++
+- I bring my own energy to any part, and in 'Siblings', I get to bring my horrible side.
+- It's always incredible though when you feel like the writer knows the character intimately and can see their life sprawling away outside of the show.
+- I'm not an active person on social media, really. I always get nervous tweeting anything. The moment I tweet, I get this plummeting sense of regret. I delete roughly 95 percent of my tweets immediately.
+- I used to tell really boring stories as a child, about my toy panda's nose falling off, or something equally dull.
+- I think people don't think or talk about death very much. I don't think we're very open about it, at least in my experience.
+- I was given a Roberts digital radio by my mum and dad. I think it's my favorite possession.
+- I used to sing as a living while I was at university.
+- I just wrote out a long description of my best dream and realised telling people your dreams just can't be allowed, it's too boring.
+- Singing in character you can be more of a show off or more modest because it isn't yourself it's a nice way to sing, unusual, a bit like being in musical I guess.
+- My favorite thing is just walking around London in no direction. I love people watching. And you can turn down a street and feel suddenly as if you are in Venice, or you'll be in a Spanish area or somewhere very English or Middle Eastern.
+- My mum's father was a producer and her mother was an actress, so my mum was fully behind me going into acting.
+- I really didn't understand how I got from my singing teacher's living room to the Albert Hall.
+- Nothing annoys me more than uninformed people not considering the effects of what they say.
+- I really liked 'Green Wing'. I wish something like that could come back.
+- I'm just getting to know the local pubs. I do enjoy going out in east London.
+- I can't imagine London is different to anywhere else - people with cars are always the most popular.
+- I wouldn't claim to be a gamer. I have played video games in the past.
+- But I'm the worst sort of gamer because I don't stick to things and I don't really care about winning. It's the same with sports and stuff like that. If it's too difficult I'll stop.
+- I'm a big fan of both Linda Bassett and Pam Ferris, but had to pretend I was calm about it.
+- You have that first joy of finding work, and then to become part of a show like 'Call the Midwife' - which I have watched religiously with my mum since it started -is doubly brilliant.
+- The amount of people online who game is huge. It's a community that's not very visible but is in full force.
+- I used to play 'Grand Theft Auto' when I was an early teen, between eleven and thirteen.
+- And since I have become an actor, not one person has asked me what degree I got.
+- I have this irrational fear of north London - it feels like proper London, scary and fast moving.
+- I'm kind of a bit of a space nerd. I like all of that kind of stuff.
+- I don't really watch shows as a regular routine any more, but I loved 'Happy Valley'. Yes it was depressing, but at least I knew it would all be over in six episodes.
+- I hope radio is more popular than it might seem. There aren't that many radio plays on and I think they have a bit of a bad rep for being not very gripping or low budget or on at funny times.
+- My favorite station is BBC Radio 6 Music, in particular Shaun Keaveny's morning show. It's on while I'm dashing around getting ready. He's a comedian and really makes me laugh, and I love his choice of music - often bands I've never heard before.
+- If I actually thought about 'Fresh Meat' going on television, I just couldn't or wouldn't do it - it's so terrifying!
+- I used to be a bit of a show-off at school, but I've calmed down now and learnt to censor myself.

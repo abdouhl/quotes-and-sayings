@@ -1,0 +1,19 @@
++++
+author = "Charles J. Shields"
+title = "Charles J. Shields Quotes"
+quotes_len = "13"
+description = "the best 13 Charles J. Shields Quotes"
++++
+- In the late 1990s, I left the teaching field to write biographies and histories for young adults.
+- Bernard Vonnegut, named for his paternal grandfather, was born August 29, 1914. He was a serious-looking little boy, even in informal photographs.
+- If you want to write serious books, you must be ready to break the forms.
+- Edith Vonnegut behaved like a guest in her children's lives. To her way of thinking, parenting came under the general heading of household tasks, which, as a wealthy woman, she could pay others to do.
+- 'To Kill a Mockingbird' appeared to highly favorable reviews and quickly climbed to the top of bestseller lists, where it remained for more than eighty weeks. In 1961, the novel was awarded the Pulitzer Prize. A film adaptation was released in 1962, starring Gregory Peck, and received three Academy Awards.
+- On the strength of Vonnegut's reputation, 'Breakfast of Champions' spent a year on the best-seller lists, proving that he could indeed publish anything and make money.
+- 'To Kill a Mockingbird' is really two stories. One is a coming-of-age tale told from the point of view of Scout Finch, a girl of about nine, and her slightly older brother, Jem. The second story concerns their father, attorney Atticus Finch, who has been appointed to defend a black man, Tom Robinson, falsely accused of raping a white woman.
+- There is more to be pondered in the grain and texture of life than traditional fiction allows. The work of essayists is vital precisely because it permits and encourages self-knowledge in a way that is less indirect than fiction, more open and speculative.
+- Harper Lee and Truman Capote became friends as next-door neighbors in the late 1920s, when they were about kindergarten age. From the start, they recognized in each other "an apartness," as Capote later expressed it; and both loved reading. When Lee's father gave them an old Underwood typewriter, they began writing original stories together.
+- My theory is that Kurt had a lot of residual pain from his childhood. And when you pile that on top of his experience in World War II - he was in Dresden when it was bombed and saw a city annihilated. When you combine those two things, my impression of Kurt Vonnegut at 84 was that he was a very pained and haunted man.
+- All great works of literature either dissolve a genre or invent one.
+- If literary terms were about artistic merit and not the rules of convenience, about achievement and not safety, the term 'realism' would be an honorary one, conferred only on work that actually builds unsentimental reality on the page, that matches the complexity of life with an equally rich arrangement in language.
+- The first article carrying Vonnegut's byline, 'This Business of Whistle Purchasing,' a lighthearted criticism of a school fund-raiser, was submitted at the urging of his sophomore English teacher.

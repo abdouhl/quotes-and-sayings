@@ -1,0 +1,105 @@
++++
+author = "Clayton Kershaw"
+title = "Clayton Kershaw Quotes"
+quotes_len = "99"
+description = "the best 99 Clayton Kershaw Quotes"
++++
+- We don't own anything that we have. It is all a gift from God and we are just trying to be good stewards of what He gives us.
+- Jesus is the only true way to Heaven.
+- There's a responsibility to the coaches, to the organization, to the front office, to the owners, to everybody who believes in you enough to give you what you've gotten, to the fans that show up every day and pay to watch you play - all those things combined. It's not fair to take a day off.
+- The way I look at it, 29 teams fail every year and one team succeeds.
+- As a pitcher, you're supposed to succeed, and you're not supposed to give up a hit.
+- You can't have your bullpen throwing three or four innings every night. Just not fair to them.
+- I firmly believe that you are supposed to love everybody. That is God's one boldest commandment.
+- At the end of the day that's why I play the game, to glorify Him in everything I do and to compete for Him.
+- Bases loaded and nobody out is a pretty impossible situation.
+- I think more than anything, just putting in perspective what this baseball thing means and understanding that it is a gift and I didn't do anything to deserve that and realizing that if we continue to look to God to guide our path, you never know what could happen.
+- Everyone talks about how hard it is to have a kid, and that scares you into waiting.
+- Baseball is so performance-based. It's what have you done for me lately. I can get a lot of pressure and you can feel that, but if your life is given to God and your into Jesus there's really no pressure because at the end of the day your life is in His control and you surrender to that.
+- Hitting's the hardest thing to do in sports.
+- People make a big deal about celebrations and what's appropriate and what's not. But just talking with some veteran guys, I think anytime you get a chance to celebrate with your team, regardless if it's winning the division or winning a series, whatever it is, you take advantage of that.
+- Winning the World Series is really all that we play this game for.
+- All I really try to do is whatever hitter gets in there, I just try to get him out in as few pitches as possible.
+- I hate watching myself on video. I don't ever do it. I'm just too hard on myself, and I always go away feeling like, Wow, I've got a ton to work on.
+- I'm not a big thinker. The less thinking the better.
+- It's just amazing the providence God had in my life. God was there the whole time, I just didn't bother to look.
+- I don't think I'm going to ever be the guy that gives soundbite after soundbite. If somebody has a question, I'll answer it. But if they don't, I don't have anything to say, really.
+- When the butterflies in my stomach, when those leave, then I know it's probably time to retire.
+- My goal is to win just for the teammates and the guys in our room.
+- I take a little pride in my diaper-changing, actually.
+- I watch all the pitchers I admire. I love watching Cliff Lee. It looks easy for him when he's on the mound; he's almost like an artist. He knows exactly how to get guys out.
+- There's a lot of times that you got to put yourself out there to fail, you can't be afraid to fail.
+- You never want to be in a defensive mode or have a defensive mindset. You always want to know that you're in control as the pitcher, you make him get hits, you're never passive, always aggressive. If I get beat, I want it to be because I got rocked, got hit hard, never because I walked a couple of guys and before you know it.
+- I don't turn off being a dad. It supersedes being a baseball player.
+- Baseball is just a game, obviously, but it means a lot to a lot of different people.
+- The playoffs is ‑ I think I took it for granted a little bit. My first two years I kind of just thought that always happened, I guess.
+- Baseball is so hard as it is. For me, if you simplify it, it takes a little bit of the weight off, rather than trying to figure out all these other things. It's just peace of mind.
+- If I don't go 200 innings, it's been a tough year.
+- Regardless on winning the Cy Young, I have one goal that never changes, and that's to win every start.
+- Whatever God has given us, we are just the vessel for it.
+- Baseball is going to end some day. I realize that as soon as you retire you know, people forget about you in this game fast! There's the next young guy coming up that's always better than you. So, for me, it's just about using baseball as a platform to do a lot of things.
+- I don't really watch video of myself. Yeah, I don't really - I never really have.
+- I'm a good hitter for a pitcher.
+- I love baseball. I have a huge passion to play the game.
+- I've been fortunate my whole career because I've had great guys to learn from.
+- As competitors, winning is what drives you.
+- They say baseball's a game of failure. Well, that's only true on the offensive side.
+- The more you try to grip control of your life the more God's gonna untangle that from you. He's going to make things go where you have to rely on Him.
+- When you're a kid, you just hope you make it to the big leagues. So to get to go say you're going to play in the World Series, it's an incredibly special moment. Up there with getting married and having kids, it's right up there with one of the best days of my life.
+- It's amazing to see where baseball can take you.
+- Ultimately, baseball is just a game. It's not so much how you play, but how you represent him why you're playing.
+- I learned the slider out of desperation.
+- I'm a big sports fan even outside of baseball. I love watching guys that are supposed to be great, and are great, live up to the expectations. So I really appreciate consistency.
+- No matter how long you play this game, you struggle and your confidence will go here and there at times.
+- There's a lot of variables you can't control in trying to win a game, but at the end of the day it does mean something to win a game in the big leagues and be on the mound.
+- Cali was a name I've always loved.
+- Any time first time out, you just want to make sure you can get hitters out again.
+- Your career goes fast, just a blink of an eye and you're an ex-baseball player, longer than you are a baseball player. I try not to think about it too much, but it seems like it does go fast.
+- I don't care how you get the outs. It doesn't matter to me how bad it looks, how good it looks, how many strikeouts you have. None of that stuff matters as long as you get the outs.
+- Baseball could end tomorrow but you're just understanding that God is in control of it and we are not.
+- If I can make a kid smile playing baseball, that's pretty awesome.
+- On a day I start, I have a turkey sandwich for lunch. I don't consider it a ritual, but I'm anxious on those days.
+- If we have a good day and we win, I'll celebrate and enjoy it. If I have a bad day and I lose, I'll be disappointed and then come back the next day and think about the next team.
+- I think first and foremost when you look at every other religion all over the world - its works based - you have to earn your way to the Kingdom. With Jesus, it's so different because we didn't do anything to deserve Him. He literally died for us and saved us! There's nothing else like that in the world. There is no other God like that!
+- You can't compare regular season to postseason.
+- I started really believing and understanding what it meant to be a follower of Jesus when I was probably in high school sometime. From there, just trying to draw on my faith since then.
+- What a blessing it is to throw a baseball for a living!
+- Watching guys win the World Series looks like a lot of fun. I'd kind of like to do that.
+- When you're out there in the heat of the moment and you're pitching, and it's a big situation, you're saying 'Don't throw a ball, don't give up a hit, don't walk this guy.' But the harder you want to control something the more it gets out of your control.
+- It's always great to do something to impact kids in sports.
+- Yeah, my faith is very important to me.
+- If you're playing baseball, why are you playing baseball? Is it to have success on the field and be a Hall-of-Famer or whatever it is? Sure, that's everyone's goal. But then what? For me, it's about the legacy you leave off the field.
+- I've kind of found out that when I do get into trouble, that when I do have people on base, sometimes the best thing is to throw a little bit more off-speed, back off a little bit.
+- It's an uncomfortable thing to talk about myself, in general.
+- Getting to say you're going to the World Series is a pretty special thing.
+- I'm not trying to strike everybody out.
+- Things change. Routines change. Things have to change. But change doesn't mean less. It just means different.
+- My changeup needs to be better. Until I feel comfortable throwing that pitch - or any pitch - in any count, I've got stuff to work on.
+- Who knows how many times I'm going to get to go to the World Series? I know more than anybody how hard it is to get there.
+- I don't really judge myself, I guess. I don't really judge other players.
+- I know I didn't deserve this, but God has given me this baseball ability. So I've got to do whatever I can to honor him.
+- I've always kind of had a deal with my wife where, in the off-season, I'm kind of clean-shaven, and during the season just kind of let it go.
+- I've failed my fair share of times no doubt.
+- Anytime a pitcher hasn't faced a hitter, I feel the pitcher has the advantage. The more times the hitter sees somebody, the more the advantage goes to the hitter.
+- All the individual stuff is great, but I just want to win a World Series.
+- The goal is always a complete game.
+- I love L.A. I love being out here.
+- I was given a gift to throw a baseball. I didn't do anything to deserve that.
+- I don't know if money is something to really celebrate.
+- Saying you're a Christian shouldn't turn people off. You should love people well and that's Jesus' first commandment!
+- I grew up a Dodger and got drafted by the Dodgers.
+- Just try to live in moment as much as you can each pitch, not worry about what happened after the past has happened.
+- A line drive to the warning track on one pitch, I'll take that over a strikeout any day.
+- I'm a big Taylor Swift fan. I really like her song 'Mean.'
+- God gave me an ability to throw a baseball. He chose me for a reason, and I want to honor Him with that.
+- You play baseball. You play a lot of games. You win a lot of stuff. You win a World Series. But if that's all you've done, what have you got to show for it?
+- It's just Lord be with me... Winning and losing isn't the most important thing. He's not worried about the outcome of the game. He's worried about how I reflect Him and how I'm pitching... I think every time you pitch and every time you go on the mound you have to understand that it's for Him.
+- I don't know, I think everybody deals with nerves and adrenaline a little bit differently.
+- You can make a lot of cases that you can take the win stat out of the game and you can still figure out who the good pitchers are, and I agree with that to some extent. But there's something about your win-loss record, there's something about having wins by your name that means something. Regardless of how important that is.
+- The Steph Currys, the Jordan Spieths, those guys are exciting to watch.
+- I get paid a bunch of money to do this, and so there's a responsibility to my teammates, every single day, to show up and be the absolute best you can be.
+- You can't control the talents He gives you, no doubt about that. But you can control the effort you put forth with those talents.
+- You are not supposed to convert anybody, that's God's job. But at the same time, you can be His disciple and live for Him and when people ask you why are you living for Him, you can show them why and profess your faith.
+- Yeah, strikeouts just kind of happen. It's not something I'm trying to do, I'm just trying to get outs as fast as possible.
+- Sandy Koufax is a great teacher. He just talks about competitiveness and being aggressive - about stride length, power, how to spin the breaking ball. The way he explains pitching is simple, which is something you don't see a lot.
+- When you win the Cy Young, it's like, well, you're a baseball player, that's what you're supposed to do. When you win the Clemente Award, you don't do it to get recognized for your work, but it means so much more than baseball.

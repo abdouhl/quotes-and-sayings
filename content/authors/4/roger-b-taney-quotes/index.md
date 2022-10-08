@@ -1,0 +1,16 @@
++++
+author = "Roger B. Taney"
+title = "Roger B. Taney Quotes"
+quotes_len = "10"
+description = "the best 10 Roger B. Taney Quotes"
++++
+- In large commercial cities, the money power is, I fear irresistible. It is not by open corruption that it always, or even most generally, operates.
+- It is an established principle of jurisprudence in all civilized nations that the sovereign cannot be sued in its own courts, or in any other, without its consent and permission; but it may, if it thinks proper, waive this privilege, and permit itself to be made a defendant in a suit by individuals, or by another State.
+- It will be admitted on all hands, that with the exception of the powers surrendered by the Constitution of the United States, the people of the several States are absolutely and unconditionally sovereign within their respective territories.
+- Unquestionably, it is the duty of every master to watch over the religious and moral culture of his slaves, and to give them every comfort and privilege that is not incompatible with the continued existence of the relations between them.
+- What Dred Scott's master might lawfully do with Dred Scott, in the free state of Illinois, every other master may lawfully do with any other one, or 1,000 slaves, in Illinois, or in any other free state.
+- A sovereignty is always presumed to act upon principles of justice, and if, from mistake or oversight, it does injury to a nation or an individual, it is always supposed to be ready and willing to repair it.
+- Thank God that at least in one place, all men are equal: in the church of God. I do not consider it any degradation to kneel side by side with a Negro in the house of our Heavenly Father.
+- In England, the sovereignty resides exclusively in the person or individual who is king. All Englishmen are his subjects. And the highest peer in the realm... has no share in the sovereignty.
+- Every state has an undoubted right to determine the status, or domestic and social condition, of the persons domiciled within its territory except insofar as the powers of the states in this respect are restrained, or duties and obligations imposed upon them, by the Constitution of the United States.
+- Every intelligent person whose life has been passed in a slaveholding State, and who has carefully observed the character and capacity of the African race, will see that a general and sudden emancipation would be absolute ruin to the Negroes, as well as to the white population.

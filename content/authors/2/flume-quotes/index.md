@@ -1,0 +1,108 @@
++++
+author = "Flume"
+title = "Flume Quotes"
+quotes_len = "102"
+description = "the best 102 Flume Quotes"
++++
+- I love heavy music. I keep Flume nice and melodic, so I save the angry, testosterone-fueled heavy stuff for What So Not. I think it's a good defining thing for the two projects.
+- I like pop music, and I like really weird, strange stuff. It just didn't feel like there was anyone doing both.
+- I did a few DJ gigs at empty clubs, sort of as a warm-up set before Flume was a thing. I did one when I got big enough, and I had five friends come down, and they were the only ones dancing. That was one of my earliest ones. I was super nervous.
+- With Spotify, I think people are discovering a lot of artists they might not discover otherwise.
+- Once I'm in a situation where I can not do anything for three years and go off the map, I'll focus more on writing. Right now, I want to just make Flume awesome... and big.
+- I want to make music that is completely electronic but doesn't feel it.
+- On stage, I like to dress up a bit. I'm not scared to be like a character up there.
+- The minute I saw the front page of the 'Daily Telegraph' - me with my arm around the latest 'X-Factor' contestant - I realised I'd gone into a new realm.
+- I don't think I can name any names or anything, but this is what I've wanted to do for a long time: to have Flume as my creative outlet and to work on the biggest songs in the world, like pop, and come up with the idea and send it off.
+- I'd like to actually work with a lot of other people, and whether it's someone who is completely unknown who I love and think is a talent, maybe I'll work with them, or, like, maybe I'll work with some of the biggest pop stars and write music for them.
+- For me, I actually come from an electronic dance music background: house music, electro house, trance music, even. When I was coming out of school, basically, I discovered Brain Fever, Flying Lotus, J Dilla and all that. That was when I got excited about hip-hop and when the Flume project started.
+- Great songwriting will never die - it's in the DNA of music - but what's new and exciting is pairing that with new sounds that technology is enabling us to make.
+- I love working with people and having them bring something to the table that I couldn't. I think one of my favourite artists to work with has been Kucka. She's Australian, too, and it's great working with her because we kind of have a very similar take on music, and we like a lot of the same stuff. We're not super-precious about ideas.
+- Sydney's beautiful, the weather's great, and the air's fresh and clean, but it doesn't have the scene and the amount of likeminded people. At home, things are very comfortable, but I feel like putting myself out there a bit.
+- Often, when I work with a vocalist, I like to focus on the melodies first.
+- Making sounds that literally no one has ever heard before because the software and the technology's never been there, and pairing that with great songwriting, then that's what's exciting for me. That's what I wanna do.
+- I'd like to do some crazy art installations and design some weird synthesizers and work with other people and make some fun stuff for a bit. Maybe tap into virtual reality stuff or maybe write another record... We'll see.
+- I think Sydney has so much natural beauty; it's just a beautiful city.
+- This life and this job and this position that I'm put in, it forces you to grow up quick. I definitely got dropped in the deep end.
+- I've been listening to a lot of music by Arca.
+- What it is now is basically, I'll sit on my computer; I basically kind of play the computer as an instrument, I guess you could say. I guess I play the Mac. And how it works is, say - I have a program called 'Ableton Live.' And, you know, you'll open it up, and it's just blank. There's nothing there. And then you start.
+- I'm not thinking about the next record really yet. I kind of want to do a bunch of stuff with Jonathan Zawada, the guy who did the album art. I'd like to do some crazy art installations and design some weird synthesizers and work with other people and make some fun stuff for a bit. Maybe tap into virtual reality stuff or maybe write another record.
+- I don't mind playing my music live. It's fun. But what my real passion is is writing music.
+- I'm always really curious about, you know, 'How do you deal with success psychologically?' and all this stuff.
+- Along with 'Free,' where I sing quite a bit, there are additional songs on 'Skin' where you can hear my voice in the background - lots of 'oohs' and 'aahs.' But more often than not, I use my vocals to prompt other rappers and singers to feel calmer, better, bolder.
+- I'm a huge fan of Flying Lotus. I like The XX's stuff.
+- Every kid has a laptop; everyone can make music, so in order to stand out, I think it's important to find that sonic identity, I think my sonic identity - and mine is finding these weird sounds that may not necessarily sound that musical, and make them sound musical.
+- Probably the No. 1 most important thing in my music is not to sound like anyone else. It is hard in this day and age.
+- I know how to make a record that commercial radio or Triple J will smash now... It's kind of hard to stay true and write what you would write if you didn't have that in your head. Because I know I can get way more airplay and get this much bigger... and that's what I'm trying to avoid doing. Trying to avoid the poisons of success.
+- My main inspirations come from early '90s Trance, the French electro movement round '06, then a bunch of artists like Flying Lotus, J Dilla, Moby, The Prodigy. So I'd say it's some kind of experimental electronica with a strong hip hop influence. It's chilled, but people can still get super crazy and dance to it.
+- The thing I find frustrating about rock music is, how different can you make an acoustic drum kit sound, an electric guitar and vocals?
+- I actually found not having a routine was inspiration.
+- I just want to try writing for other people 'cause it's quite exciting.
+- What it is now is basically I'll sit on my computer; I basically kind of play the computer as an instrument, I guess you could say. I guess I play the Mac.
+- I'm not into the attention thing so much.
+- I feel like the first record was really finding my feet, figuring out what music I wanted to make... Now that I've done that, I feel like I've got a much clearer idea of what I want to sound like and what I want to discover. It's exciting.
+- There's no person I aspire to be. I'm just doing my own thing and seeing what happens - not looking to something and trying to be that.
+- I've never been one to want to be the center of attention and be put up on stages every night. That's just not really my personality. I'm comfortable with it now, but my real passion is being creative.
+- I think at first the Flume project really started out as an online thing. I used Facebook and SoundCloud, and I think we got lucky because it felt like a bit of a golden age of those social media platforms. So I managed to create quite a solid fan base online.
+- I just want to write another record that's as good or better than the one I've already made. That's my main goal, to follow up stronger than before.
+- I can't sing, but I'll sing over this chord progression, like, over and over, for however long it takes - sometimes it's, like, two minutes, sometimes it's 20 minutes - until I've found like a hook or something that I'm really happy with. And then, basically, it just like that's my melody, and that's where I start from.
+- I get bored of music really easily, so I always try and make music that makes sense, but then it's just a little bit wrong.
+- For me, I would prefer to not have my face on the album cover. I don't mind being in the public, but it's just not really my personality, and it's not really why I'm into this. I like making art, and that's it. I don't really want to be a celebrity, seriously. I like my privacy.
+- I always regret leaving home if I don't get at least four or five surfs in the week before I leave. I try to be in the water as much as possible before leaving, and it's the one thing I miss massively.
+- To me, skin is alien and kind of weird; it weirds me out. It's strange, but it's also really intimate and personal; it's living, organic. That's how I want the music to sound; I want it to feel alien and strange, but also like it's got a heartbeat, like it's got a soul, like it's not made by a robot.
+- I feel like I ask people who have been in the industry for a while a lot of questions.
+- I had this little Bon Iver phase a few years back; 'Flume' was one of my favourite songs.
+- It's quite fun to mess with the human voice. It's quite special in the sense that the voice is the #1 instrument that we can connect with; it doesn't sound too alien. I think that's the key is to find the line between sounding human and sounding robotic. That's an area that I like to explore a lot.
+- To me it's all about textures, and that's the side of music that I'm finding really exciting. I feel like it's one of the only parts of music that mankind hasn't fully discovered yet.
+- Imperfection is perfection.
+- When I heard Flying Lotus, I was like, 'Wow, okay, everything can be off the grid.'
+- I've grown up by the beach all my life, and I almost get anxiety if I haven't been swimming for a couple weeks or a month. It kind of builds up, so I try and get out as much as possible.
+- I've been having meetings with people, just everywhere in the world, and it's like, 'Hey, really love you to work with me, send me some ideas.' That's the crazy part.
+- I think, in the early years, my biggest influences would have been... Daft Punk was a huge one for me, I bought their main record when I was nine; at a young age, I was into music. The Prodigy, Gorillaz were big ones.
+- There's a lot of creativity in the industry, but I don't necessarily think that the most creative DJs or producers are always the biggest ones. I think it would be nice to see more of an open culture to different music. I think that's happening. With Spotify, I think people are discovering a lot of artists they might not discover otherwise.
+- Combining sounds that are from another universe with the classic songwriting structures never gets old for me.
+- I want to be creative in as many different environments as possible, whether it's doing film scores, writing for TV ads or video games - all sorts of stuff, as long as it requires writing music.
+- I wanna make weird stuff.
+- It was a difficult second record. I had moments where I couldn't write; had moments where I was writing lots. It was just a massive learning process for me.
+- The goal was always to do something that felt human but was 100 percent electronic.
+- My parents used to play me this album when I couldn't go to sleep. It was called 'Deep Forest.' I think it was a self-titled record. It's actually still one of my favorite albums of all time.
+- What So Not used to be a lot more dance-y, and now it's becoming a lot more melodic. Flume has always had that melodic thing, but it's starting to become a bit heavier, so it's just difficult to navigate between the two.
+- I feel like I need to continuously keep evolving and moving.
+- I think it would be nice to see more of an open culture to different music.
+- There was this cereal, and it had a special promotion with a CD inside the box that had a really simple music-making program on it. I got it, and that opened my mind to being able to make music on a computer and seeing all the different layers.
+- It's always the first 10,000 SoundCloud listens; that was definitely a big moment, seeing the online stuff grow and crowds grow.
+- Music is a job, but I figured out ways to get my mind into a place where I could be creative. I actually discovered meditation. It enabled me to clear my mind of all the drama and focus on the music.
+- I think I put a lot of special attention towards creating interesting textures and unique sounds. Music essentially boils down to two main elements: rhythm and melody. I feel tones and textures often get overlooked, so I like to take my time finding the right sounds.
+- In the dressing room, we've just made it really Zen: low lighting, lots of candles, and fresh, healthy food.
+- The thing I find frustrating about rock music is, how different can you make an acoustic drum kit sound, an electric guitar and vocals? It's very stuck, whereas with electronic music, new sounds are being created.
+- The music I was making for people not to dance to was the one they were dancing to.
+- I'm a really heavy sleeper. When I wake up I'm a terrible morning person.
+- I was nine, and I was shopping in a supermarket with my dad. There was this cereal, and it had a special promotion with a CD inside the box that had a really simple music-making program on it. I got it, and that opened my mind to being able to make music on a computer and seeing all the different layers.
+- I've never worked with huge pop acts, I mightn't like it, but it's something I've always wanted to try.
+- I don't think I make dance music. It's not even 4/4. And it's slow.
+- I want to fuse the abrasive and the beautiful.
+- Honestly, production when you first start can be difficult to wrap your head around.
+- I feel like I've got a pretty good presence online through Instagram and Facebook. I just keep it simple.
+- Back in the day, I had this fluoro pink hoodie that I thought was the coolest thing ever. Left it at a party and never saw it again. Probably the best thing that could have happened.
+- A lot of electronic music out there feels cold. I want to incorporate a human element.
+- I struggled with the pressure of having the successful record after the first record. Second album syndrome. I'm living proof; it's very real. It was like a psychological battle to be creative. I used to never feel pressure to be creative; it's always just been a fun thing. And then suddenly it's my job, and people are asking, 'Where's the record?'
+- I never expected to make a lot of money from music.
+- I was delivering papers when I was, like, 10 or 11, and I'd always daydream about being an artist as a full-time thing.
+- I had an idea when I was 18 or 19 to start tutoring people, like the way that people get tutored in saxophone or guitar, but for production. I really enjoyed it, but I don't have time for that any more.
+- Australia is so influenced by America. It's kind of in-between the U.K. and the States.
+- I used to never feel pressure to be creative; it's always just been a fun thing. And then suddenly, it's my job, and people are asking, 'Where's the record?'
+- I find that if I interact more, the crowd gets way more into the music. We also have a full live show happening, and I have lighting crew that travels around with me. We've got this Infinity Prism thing, which is lots of fun. It's an optical illusion device that we carry around.
+- There's a lot of creativity in the industry, but I don't necessarily think that the most creative DJs or producers are always the biggest ones.
+- I definitely wanted the second record to be a much more grandiose thing. I wanted to push myself and make a big statement.
+- I like bangers and really testosterone-fueled stuff.
+- I struggled with the pressure of having the successful record after the first record. Second album syndrome. I'm living proof; it's very real.
+- Meditation is a really powerful tool I have for life now. The only reason I know about it is because I was stressing about writing and a friend taught me it. It's been useful.
+- 'Sleepless' was the first thing that came out and really gained a lot of traction online.
+- I've never been a rap guy, I don't really know that much about rap music, to be honest. I like it, but I think what really happened was just my music seems to work so well with rap music.
+- I want to keep Flume kind of experimental, weird, melodic, pretty.
+- I'm just trying to work out how to write music now, because I've never had the opportunity where my number-one priority is writing music. I don't know how my brain works yet.
+- Everyone can write their melodies and chords and pianos and guitars, but what hasn't been discovered yet are tones and textures, and that's very exciting. Probably the No. 1 most important thing in my music is not to sound like anyone else.
+- I could do another tour, make a record that's very similar, do similar venues. Or I could make a different record, do different venues, and grow. It's exciting to take it to new places, but it's never been my intent to be the biggest thing in the world. That's not what my drive is. I want to make what I want to make, and make a living off it.
+- I was an avid Pokemon card collector.
+- For me, one of the downfalls of electronic music is that it can feel a little soulless or robotic.
+- I think the thing that L.A. had on Sydney is an awesome music scene, especially for what I do.
+- In the right context, you can make ugly sounds, different sounds feel right at home.

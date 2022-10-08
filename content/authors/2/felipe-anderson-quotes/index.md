@@ -1,0 +1,21 @@
++++
+author = "Felipe Anderson"
+title = "Felipe Anderson Quotes"
+quotes_len = "15"
+description = "the best 15 Felipe Anderson Quotes"
++++
+- If an opportunity shows up, or when I present myself at Lazio, I have to present myself very well.
+- It's certainly been very important to have my own family with me. They came with me to Italy, left what they had in Brazil and also adapted to a new country, new culture and new language was difficult but having their support in the good and bad times was fantastic.
+- I just want to do my best for the club, win as many titles as possible.
+- I always dreamed one day to be playing in the Premier League and I am settled here already.
+- I am happy with what I have done until now, but there are things I would like to improve. I would like to do more, there is always margin to grow and reduce mistakes, fix things to get things perfect.
+- I didn't speak much Italian. I did a few courses so I knew a bit before I got there but you have to be there to learn. When I went out for lunch or dinner on my own it was very complicated to order. I spent two months eating the same thing. I always asked for spaghetti carbonara and a fizzy drink. Then I had to diet to lose the weight I gained.
+- I understand almost everything in English. I am just not 100 per cent on numbers, so when I am out I am comfortable ordering food but when I am paying, I have to make sure I am paying the right amount!
+- If you take your eye off the ball or lose focus for even a minute you can lose a game against any team.
+- My favourite museum is the British Museum.
+- Every player dreams of playing for a team like United.
+- I do try to get to a new part of London every week, visit a museum once or twice a week if possible.
+- The Premier League is the best league in the world, and it is very well regarded if you get a chance to play in it.
+- There were times when we didn't have enough food on the table. When it came to the end of the month, I could see my parents were sad because they were unable to give us the best. They had lots of debts. Sometimes they had arguments about it.
+- I have always enjoyed dribbling. That has been a key part of my game and you do get quite a lot of space in England. But the game is very intense and it is difficult to keep it up for the 90 minutes.
+- I was the youngest member of my family and I had always been protected but then I had the opportunity to move very far away at the age of 13.

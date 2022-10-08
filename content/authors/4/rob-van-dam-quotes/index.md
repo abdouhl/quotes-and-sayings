@@ -1,0 +1,81 @@
++++
+author = "Rob Van Dam"
+title = "Rob Van Dam Quotes"
+quotes_len = "75"
+description = "the best 75 Rob Van Dam Quotes"
++++
+- When it comes to X-Men, Ice Man is my favorite.
+- I came into ECW in Philadelphia in 1996 and left in 2001 - a much bigger, worldwide star than I arrived - and I thank ECW for that.
+- I am a professional when I get in the ring.
+- WWE didn't want RVD to get over when I was there. They tried so much to... to... not get me... to... to... keep me from that. They didn't understand why the fans liked me, because I don't fit the cookie cutter formula, because I am a non-conformist.
+- The energy from the fans in Boston is always something we can count on for support.
+- Samoa Joe is a good friend of mine, and I'm very impressed with his in-ring abilities.
+- Professional wrestling was almost like a secret society when I started, like a Mafia, and it would destroy the Sheik to see how much that has changed.
+- Really, I didn't even want to go to WWE in 2001. I knew that it wasn't my favorite style, my favorite showcasing of my abilities, but it was definitely the best business move. At the time, there was nowhere else to go anyway - ECW was gone, WCW was gone. So, when I first came in, I was seriously frustrated trying to adapt.
+- What you see is what you get. I'm the real deal. That's why I can step into the ring after having many months off and not have any rust. I'm still working out, stretching.
+- Single matches, I feel, have always been the ones where I can shine more. Three-way, four-way, you have to split your attention with some other guys, and it can be totally great, but when you get into a battle royal with 20 or 30 other guys, it's just so different from what your agenda is when it's one on one competition.
+- I'm a big fan of non-fiction, and I am a believer that fact is much more exciting than fiction.
+- If you're not in the WWE and bouncing around in the Indy shows, you're not with the best.
+- I've never tried to be like anybody else. I'm a non-conformist in every way, and when it comes to wrestling, that's certainly true, too.
+- I'm one of the biggest Ghost Rider fans ever. He's been a hobby of mine ever since I was seven years old. I actually have a whole room in my house dedicated to Ghost Rider memorabilia.
+- If somebody is willing to take some advice, then I have some, and that's just life in general. A lot of people don't want to hear anything.
+- ECW was the most fun for me artistically. And then, WWE, it was also very fun, but that was part of it. It was also a very stressful, monotonous schedule. There was a lot of politics, adjusting to that, and I am not a politician, and I don't play those games. So that was very frustrating for me as well.
+- I've been Intercontinental Champion lots of times, Television Champion. One of my favorites has been the Hardcore Championship because it reflected my favorite style, and I feel that the X Division belt does that, too.
+- When I hit that Five-Star Frogsplash, I'm pretty confident that if I can crawl over in time, I'm going to get the three-count. So that's kind of always in my back pocket; the fans always know it.
+- I don't remember a Rob Van Dam versus Mick Foley hardcore match. There should have been one.
+- Philadelphia's awesome. It's one of my top home-away-from-homes. When I walk around on the streets there, people recognize me. They think I'm from Philadelphia, because I was there so much and because I'm so associated with Philadelphia through ECW.
+- When I was In high school, I became interested in Greek mythology. I had to know all about the exact dates of all the history.
+- Obviously, I have a lot of respect for Curt Hennig, and I say 'obviously' because I just assumed that anybody would know that 'Mr. Perfect' Curt Hennig was a legend, and someone of that stature is someone that everybody looks up to.
+- It's very important to me I get my autobiography out before I die and someone else writes it and screws up my life.
+- I'm so confusing to wrestling promoters, and I'm used to that, but because I stayed in ECW and learned how to express myself the way, ah, that I could connect with my fans, it made my strong Rob Van Dam character uncompromising... and I owe that to ECW.
+- When I was with WWE, people would have me sign merchandise that I didn't even know existed.
+- I'm a huge fan of mafia history - mostly the Italian mafia but also their associates, as well as Whitey Bulger and the Winter Hill Gang.
+- I'm proud of my independence. And certainly from a business perspective, that's always been a main agenda for me - to make my own position, don't try and be like somebody else, because there already is that somebody else.
+- I'm like the opposite of an 'office guy.' I don't want to be at the arena until right before my match.
+- I've had hundreds and hundreds of concussions, but I don't think that I have any permanent damage. A lot of my peers do.
+- I've always been tough my whole life. I'm able to take a lot of punishment, and that might be an even greater asset than my offense. I'm the guy that can take your best shot, and I'm not going to go down.
+- Anyone in the entertainment business, respectively, is a show-off.
+- Even when I'm not wrestling, I still appreciate all my fans. I take all the compliments to heart.
+- I don't think all the other wrestlers hear the same love from the fans that I do - they are extreme about it.
+- If my spirit is down, then so are the physical and mental levels. That's always been the case. When I'm motivated, my body feels great and I'm ready and excited to go. When I get burned out, I feel it in all three categories - mind, body and spirit. I'm aware and in touch with all three categories.
+- The 18-year-old me wouldn't understand the 43-year-old me because then I wanted to travel and see the world. But I love being home.
+- I don't enjoy the road life or WWE's really hectic schedule.
+- I've been wrestling for many years; I've accomplished a lot - but I take pride in being genuine, honest, and down-to-earth. Those are the qualities I really respect about myself, so I'm really pleased when I see that the energy that I want to exude is well received.
+- Some guys are on the road and can't wait to get home; others are at home and can't wait to get on the road. I'm definitely the one who wants to be home.
+- In Total Nonstop Action, individual wrestlers have a lot more freedom to artistically express themselves versus WWE.
+- For me, the fans missing me and wanting to see me on TV is very important, but the business end of it also has to be right.
+- I have an incredibly dry sense of humor.
+- In front of millions of people that paid to see you at your best, who expect you to be in action-figure shape and condition on that particular night for that moment, you've got to deliver.
+- Acting is fun. I especially like the action sequences. That's what I do best.
+- I stretch for a full hour before a fight because I know I'm going to take a lot of punishment in the ring. That's my secret.
+- The battle royals are usually among my least favorite matches.
+- I attribute my longevity to my extensive stretch routine that I do before every single match or any physical activity. I put myself thought a regimen that really puts my body to the test so I'm not cold, tight, or ready to be injured when I start slamming my body around.
+- Somebody like CM Punk, who stands up and says he's completely sober - he doesn't even take a drink of champagne in a toast because that's just not him - he's a man that's completely full of integrity; you've got to respect that.
+- I've always been trying to do as little as possible, and I'm getting better at it all the time.
+- ECW fans were original. They were part of the show. They were a big part of the show, and other fans in other towns in other countries would imitate the fans that were on ECW television.
+- I'm a real-life action hero.
+- I was told my style was supposed to give me a short career.
+- I've always taken care of myself, and I'm a non-conformist, so I don't accept the negativity that comes with birthdays.
+- I've been so willing to stay strong and stick to my guns for so long when it comes to my beliefs.
+- I grew up really being a comic book geek, and that was a really big part of my childhood.
+- I always hated when I had to do the promos, especially because I got to push their agenda and try to tell you that this championship match is more important than anything in the world to me. Come on. No, it's not.
+- I stand behind what I say and what I do.
+- To try to be a professional athlete and work out when you're not sleeping right, you're traveling day to day, not to mention the bumps and bruises in the ring, and you're trying to eat right - it's a very, very challenging job.
+- You have to believe in yourself and have to believe you are a little bit crazy to be the best.
+- You can't patent a move. It's challenging enough to come up with a move that nobody else does... I try and do things that I would want to see done that I haven't seen other people do. Most wrestlers obviously don't think that way, and instead they steal somebody's move as soon as they've gone on to the next company.
+- I've impacted peoples' lives in such a way that they'll never forget.
+- When I started out, there were many different companies... you could leave and go to a different territory, and there were so many different styles. What we have now is WWE has survived the test of time, and all the other companies have fallen off the face of the earth.
+- I love a match like Money in the Bank; I love a hardcore match, and that's what the Money in the Bank ladder matches are. Throw the rule book out and let out your imagination.
+- I'm not afraid of fear tactics. They don't work on me.
+- Since Sabu was the first guy that I was in the ring with professionally, we have the longest history in my career, and also, we were like minded.
+- The more exciting, flying wrestlers are not going to be your 300-pound wrestlers.
+- I am really thankful for my career.
+- I was a very intelligent kid. I used my intelligence to support my passions. When it came to comic books, I became enthralled in the whole universe. I had to know all the facts and timelines. The whole fictional universe was real to me.
+- I really want to pop the crowd. I want to show off. That is the one thing that I've always loved about my career is I just want to show off. I always hated the storylines.
+- A lot of celebrities are afraid of being out of sight, out of mind. I'm the complete opposite.
+- In any business that you pursue, if you belong at the top, and you're perceived as having that caliber, and you do qualify, then it's something that you want to hold on to.
+- I have an open door with WWE as far as wrestling goes.
+- In ECW, the fans would warm me up. I'd walk around the ring and slap hands with everyone and get ready for the match. I'd feed off that energy, I would use that to create positive energy. In WWE, it's different. It's a timed show; everything is timed. We know - when we get to the ring, we know when there's a commercial.
+- I prefer ECW's style as far as the actual matches I'm capable of having.
+- I'm a strong believer in modern medicine. I think it has its use in society. I think it adds longevity to our life expectancy.
+- Paul Heyman has always been the only guy from the office that ever really had my best interest and really understood me. The other agents and promoters seemed confused why the fans liked me so much, because I was so non-typical for their idea of a wrestler, so they just tried to capitalize on it without owning it.

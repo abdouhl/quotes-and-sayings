@@ -1,0 +1,106 @@
++++
+author = "Boosie"
+title = "Boosie Quotes"
+quotes_len = "100"
+description = "the best 100 Boosie Quotes"
++++
+- I'm a marketing genius.
+- If I feel somebody is doing people wrong, I'm going to rap about it.
+- What 2Pac did to me is he touched me with his music.
+- It's just crazy how the Louisiana court system works.
+- A lot of people in my era didn't grow up on 2Pac, they grew up on me.
+- I want people to take the 'All Eyez on Me' album and go take the 'BooPac' CD and go listen to them.
+- The stuff I rap about is what I've seen, you know? That's basically why I rap more about the struggle than the shine and all that. Because I've seen more struggle than anything.
+- I feel like I got fans that love me for more than just the rap. They love me as a person, they love me as a daddy, they love me as a character. They love Boosie as a whole.
+- I'm always tryna help people get bigger and bigger and bigger.
+- Nobody compares to Drake as far as hits, but Michael Jackson had presence. That's the difference.
+- I'm from poverty, I'm never satisfied with anything I do.
+- I'm a daddy and I'm a businessman also.
+- I'm always on my kids so hard about staying in school and getting their education and I ain't got a GED. I wanted to do that for my kids and for my momma.
+- My stomach was hurting, so I just told the doctor, let me get a MRI. I went and got an MRI and two hours later, they told me I had got cancer. I said something like, 'Hell no. I ain't got no cancer, y'all trippin'.'
+- I'm a fun daddy, but I discipline them too.
+- You know you gotta talk big money when you talking to me.
+- I've got a lot to say about my life, about what I went through in prison and about what my family went through.
+- Me with diabetes, when I talk about it, it lifts people up. When I talk about how people need to take their insulin shots, it make people go take their shots. My words is like a damn preacher.
+- I always talk about the have-nots.
+- When you go to jail you know who real and who ain't.
+- Every TV show is gays. They're kissing each other. It's out of hand.
+- If you go back to the hood in America, I think most of them look at me like an icon. An icon is somebody they wanna be. Somebody who can relate to everything that they're going through at the time. So, I'm definitely an icon.
+- Everything my fans tell me is the way I felt when I was a Tupac fan coming up. My fans tell me, 'Boosie will make you feel like you was in the household watching everything that was happening to me, with your music.' That's how Tupac made me feel, like everything he was talking about I was living. My music do that, you know?
+- I never know what the future holds, so I'm just going to make all the power moves I can, ride that wave of success and accomplish everything I'm supposed to accomplish. I never set no limits for myself.
+- I don't hold my tongue for nobody.
+- I sell out arenas now. I'm a stadium guy.
+- A lot of people were trying to take my life as far as, you know, in the court system. And I was childish, man. I made songs about public officials and things like that. Those people don't forget that and I don't trust people like that.
+- As for the rap game, I feel like the music I got, the rap game wide open for me to take over.
+- In Baton Rouge, blacks have always been looked at differently from other races, and the blacks who are fortunate, don't express themselves like I do.
+- I got my GED in prison.
+- Even if the world just keep spinning, I always got something to talk about because the world so crazy.
+- My music always been based off telling stories and now I really got a lot of stories to tell about my life, what my family went through, what my people went through.
+- I want people to go deep into my music like Baton Rouge does.
+- You should never think like 'You go to jail and you come home a G.' Because it only takes one mistake for you to never come home.
+- Drake come out there and he play his music and everybody just go crazy. Michael Jackson come out there and breathe.
+- Everybody should have health care.
+- I don't have problems from gay people when I see them. I really just have problems on social media.
+- My music is special to people and I'm going to keep on making this kind of music because a lot of people had a struggle like me. You got to feel my music. If you listen to it, if you give me a second, you play three, four songs, you will become a fan.
+- Even when I had plenty money it was still a struggle.
+- The music is the easy part. The business is the hard part.
+- I just make my Boosie music and that puts me in my own lane.
+- You can get somebody to dance and make them jump in the club, but your feet gonna get tired. So when you put it in somebody's heart, it stick with 'em. That's what I come with it. And I can make your feet dance, too. I think that's what separates me from a lot of artists.
+- I'm supposed to be on top of a lot of people who are past me, but their business is better than my business. It ain't the raps.
+- Jail just made me wiser. It made me smarter. It made me wake up to a lot of stuff. And also it made me a better businessman. I had to learn the music business. It just made me a better person as far as the way I live.
+- Whatever I feel uncomfortable about, I just say it.
+- My music, you learn from it.
+- I'm just here to show the world that I make quality music.
+- I don't make one hit wonders.
+- I care about the people saying they're protecting us not protecting us. That's a big zero.
+- I ride or die LSU, I don't care who they play.
+- My circle's small. I'm around positive people.
+- I always felt that my mission wasn't complete.
+- I talk about what other people don't want to talk about. Sometimes I talk too much. Sometimes people misconstrued what I say.
+- I keep my music heartfelt and stick to making real music. I wouldn't even say it's hip-hop music. My music is 'reality rap.'
+- First 2Pac song I heard was 'Brenda Got a Baby.' That was the first one. I didn't even hear it. I saw the video.
+- Ain't nobody gon' tell me how to raise mine. I'm a fight to keep a traditional household. That's just me.
+- If you lose hope in yourself, you'll make your time hard.
+- I'm a teacher.
+- All my gay fans love me.
+- I'm a better artist and I'm a better person because I'm wiser, and stronger and I know who's hip for me and who ain't.
+- I got a big following.
+- I have fans they see me and they cry.
+- My fans come tell me I'm their 2Pac. Their mamas who love 2Pac come tell me that I'm the closest to 2Pac.
+- Gay stuff is everywhere.
+- Sometimes you've got to break the rules to make money, that's just plain and simple.
+- I'm blessed to be a trend setter.
+- I listen to classic albums that I ain't gotta fast forward. If I gotta fast forward it three times, I don't like your music. Well, not your music, not your album. Yeah, I don't like your album.
+- My music is violent, but not all of it. I have songs about God, my kids, and telling other people's kids to chill out and go to school and do right.
+- That's my boy. Young Thug making hits!
+- A lot of people live by telling lies. I live by telling the truth.
+- I like to put people on my record who will fit in with me. I like thug girls like Trina who look good and talk nasty.
+- I just know I'm a voice of the people.
+- 2Pac the only artist that ever made me shed a tear.
+- The 'In My Feelings' album I was fighting, man. I was in my feelings, I was sad.
+- My fans love me so much.
+- 2Pac made me want to rap, he made me want to speak my ghetto story and not be ashamed of it.
+- What I go through in my life, I tend to put it in my music. I always say the things that hurt me the most and that matter to me the most. I can't hold it in, man. It's like therapy.
+- I love God. I'm not no Illuminati.
+- Where I'm from, you get money, you gonna know you got money. You gonna know you got money when you get money.
+- Oh I love Miami!
+- I'm just trying to stay positive, man, and help as many people as I can. Cuz if you don't help people when you get successful, I don't be respecting those people. I don't respect them as a whole.
+- Listen to realness in my music before you judge me.
+- I got diabetes.
+- Get Ya Mind Right,' when you play that it's a club banger.
+- I don't even have to drop an album and I pack out shows. That goes with timeless music.
+- That's what probably will never get me to fall off cause I keep going through stuff and I keep talking about it.
+- I never thought I'd have a clothing line.
+- I run a whole record label, I'm a whole entrepreneur.
+- That's my boy; me and Webbie been together since we were teenagers. Since I was 15, 17 years old, we been in the studio together. We from different hoods, but we been in the studio together, you know. Basically we like brothers.
+- Once you learn from your mistakes and you tighten up your hustle and you know your business, you get rich. That's basically true with anything.
+- I've made my kids strong-willed and strong-minded where they know music from reality.
+- Women can only raise men to a certain point in life. Certain things a man has to teach him or he will be taught by the streets. That's just how it is.
+- Baton Rouge is small, so when somebody like me blowup, who they used to chase around the neighborhood, who was a wild little kid, that affects people.
+- Me and my momma getting together on this foundation for battered women.
+- I always had problems with making singles because I'm not a singles type of guy. I never needed radio to blow me up. I'm a street legend.
+- I'm a real dude.
+- Jail ain't the place to be. Don't glorify jail.
+- My violent music helps most kids avoid that street life because it scares them. My fans aren't blind to the consequences.
+- I'm tired of Nick Saban. I used to love Nick Saban. I don't know what he does on the recruiting side - he's the truth.
+- That's what I do good. I touch people.

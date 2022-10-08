@@ -1,0 +1,32 @@
++++
+author = "Frank Robinson"
+title = "Frank Robinson Quotes"
+quotes_len = "26"
+description = "the best 26 Frank Robinson Quotes"
++++
+- As a black, you find you have to be two or three times better than a white even to play. And when it comes to front-office jobs, management believes you'll never be as good.
+- No. 1, these guys out here on this field. They keep my energy level up. They try hard, they don't complain about things - and I'd just like to be with them when things are good, and hopefully we can win a pennant together.
+- At least when it's in French, I won't know what the heck they're saying.
+- You have to have a short memory as a closer.
+- I've never seen baseball advertise for a job, and I've never heard of whites applying for a job. I mean, there's an old boy network, and it's lily white.
+- It's nice to come into a town and be referred to as the manager of the Cleveland Indians instead of as the first black manager.
+- If he can hit, he can hit. I don't care if he came from Class Z league.
+- The way we're going... if I called up another pitcher, he'd just hang up the phone on me.
+- I always tried to do the best. I knew I couldn't always be the best, but I tried to be.
+- Managers don't have as much leverage as they used to have. We can't really be the boss.
+- People come out to see the players. When do you see a manager anyway? When he's out on the field arguing with the umpires, making a fool of himself and you know you can't win, and when he brings out the line-up card.
+- Al Campanis made people finally understand what goes on behind closed doors - that there is racism in baseball.
+- Pitchers did me a favor when they knocked me down. It made me more determined. I wouldn't let that pitcher get me out. They say you can't hit if you're on your back, but I didn't hit on my back. I got up.
+- No, I don't think my presence will cause an increase in black attendance at Cleveland.
+- If the guys on the bench were as good as the guys you have out there, they'd be out there in first place.
+- During the years I was still playing, I would go to Puerto Rico in the winter and manage. When the day came, I had the experience without having to go to the minor leagues for four or five years and then wait for an opportunity. Still, there's a double standard. Some whites, like Pete Rose, Joe Torre and Ted Williams, never had to go to the minors.
+- All in all, I wouldn't call it a bad outing. It was a short outing.
+- I wanted to show Baltimore that they were getting a good ballplayer.
+- The fan is the one who suffers. He cheers a guy to a .350 season then watches that player sign with another team. When you destroy fan loyalties, you destroy everything.
+- But I'm not going to walk Barry Bonds, like some teams do, in the first inning with nobody on.
+- Close don't count in baseball. Close only counts in horseshoes and grenades.
+- I know a lot of people on the field - players, coaches, managers - are glad that I'm gone.
+- I played with some outstanding players.
+- It was a breaking period for black people coming into baseball, and how many followed depended on Jackie's conduct. But that's not the case now. What and how I do doesn't mean nearly as much as what and how Jackie did.
+- I just didn't have anything to say, so I said nothing.
+- I haven't seen a player in this game, as long as I've been in it, that can't be pitched to... Barry is an outstanding ballplayer. I respect him an awful lot. I also have confidence in my pitchers that they can pitch to Barry Bonds and get him out.

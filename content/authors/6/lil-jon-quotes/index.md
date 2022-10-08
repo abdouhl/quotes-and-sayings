@@ -1,0 +1,106 @@
++++
+author = "Lil Jon"
+title = "Lil Jon Quotes"
+quotes_len = "100"
+description = "the best 100 Lil Jon Quotes"
++++
+- My music is designed to make a club go insane when it goes on.
+- I hate reality shows. It's funny because me and my wife be arguing all the time about reality shows 'cause she loves reality shows and watches them all day, all the time. And I be like, 'C'mon. No. No.'
+- My music is party music. If you can make people party, you can always have an audience for that.
+- I can't walk through the airport without grandmothers and daughters and little kids saying, 'I watch you on Celebrity Apprentice.' That's a good feeling.
+- I love to make people have a good time and I love to make people party.
+- The energy from these records, that's what makes crunk so popular; that's why it's winning, because it makes you move a certain way.
+- You know, my era of DJing was the 90s. I think that was one of the best eras of music, period. From dancehall to hip hop to rock to pop to R&B to everything. I just like that era of music, so I just listen to a lot of 90s overall but definitely 90s hip hop.
+- I like a nice chicken taco. And of course fajitas.
+- Well, you've got to learn how to make fun of yourself - you know what I mean?
+- I guess certain kinds of jazz music could be Crunk. But the average jazz song, no, it's not Crunk.
+- Yeah, I'm walking through the airport, I'm walking through the street, I'm driving in my car, people just start screaming at me - 'YEEEAAAHHH!'
+- You can listen to the records and know: We're really street.
+- If you are having a hard week, turn on one of my songs. Some people are here for different things in life. My job is to make you forget about your troubles.
+- In high school I was the guy all the girls came to with their problems.
+- Sometimes I just got off of an international flight and people are like running up, screaming and hollering, and want to take pictures. They don't really understand like, 'Dude, I'm tired. Just say hello. Keep it moving.'
+- I've been blessed. Every few years, I'll connect with somebody and put out a record with somebody that keeps me relevant.
+- I have a couple different businesses.
+- I think I'm most well-known for 'Yeah.' The word 'Yeah' and my voice.
+- I've been an Internet person since early on, been a social media person since early on.
+- When you're with somebody for some years, sometimes you need a break from 'em. You grow in different directions. That's kind of what happened with me and the Eastside Boyz. They wanted to do different things than I wanted to do, so we separated.
+- Drake gets you bouncin'!
+- The Apprentice' was one of the hardest things I've ever done in my life.
+- It takes time to restore an old historic car - you can't just do it overnight. That's how I look at the administration that came before Obama.
+- I can sit in the boardroom and battle it out, step up and be a project manager, take risks, and put my ideas alongside anybody's.
+- I always want to align myself with stuff that's part of doing good. I don't ever want to put myself with something that's not cool and hip. And if you can keep that you can always have fans to support you as well.
+- When you have a lot of stress and negativity around you, when you cut that away, you cleanse.
+- When I check in at the Encore, they're like, 'Welcome back, sir.' I'm back home, it's like my second home.
+- Vegas shows me a lot of love.
+- I love Vegas cuz everybody who comes to hear me DJ is ready to party.
+- I started DJ-ing in the '90s. DJ-ing is in every record I do. When I make records I make them for DJs.
+- A lot of stuff that I'm involved in is about branding.
+- Vegas' energy is wild.
+- People think, 'Oh, I don't need to worry about him,' and they underestimate me because I am a rapper.
+- Celebrity Apprentice' was something where you don't know what you're going to do the next day. Every two days, somebody goes home, and you don't know if the next day you've got to be the project manager or what's going to happen, so you can't really prepare. You really have to be on top of everything.
+- I think Obama's done a great job.
+- We've never been squeaky-clean from the jump. We've never been Disney or Sesame Street, you know.
+- I've done a good job of not putting myself in a box, being able to transform, and not being scared to try new things.
+- If the beat feels like it don't make you move right, I scrap that and go to another track. Sometimes it takes 10 minutes, sometimes it takes an hour to get one done.
+- Everybody I see, that's the first thing they think of when they see me: 'WHUUUUUT?' or 'YEEEAAAHHH!' But they don't realize that everybody and their grandmother says that to me.
+- I wanted to play drums and if I didn't play drums, I wouldn't make music and drums are the foundation for what I do.
+- When you put the guitars over the 808, it just makes it grittier and grimier. It's just different.
+- Children are our future and every child deserves to have an environment where they can learn and flourish and gain knowledge.
+- When I worked with Jermaine Dupri for his label, he would have So So Def parties and he'd tell me, 'Yo, go on get this thing started.' I had to go get on the mic and get people turnt up. I mean, I don't want to be that turnt up guy all the time. It's part of my job so I do what I gotta do.
+- I've been coming to Vegas for so many years working in Vegas, so many years I might as well live here.
+- I was DJ'ing house music way back when - I'm not like a new house guy.
+- For me, I put Mac Dre right up there with Biggie and 'Pac as legends who have since passed on.
+- I am used to working long hours with no sleep.
+- Children shouldn't have to suffer for any reason.
+- The songs that I've done represent partying, so when people come see me in Vegas they know that they're going to have a good time.
+- As a producer and DJ, I just like makin' great music and hot records for the club.
+- I like producing myself, I like other people producing, I just like it all.
+- I used to DJ in Atlanta, and that's how I kind of got into the music industry.
+- Sometimes I don't want to have to be the guy that gets the party going.
+- I'm all about helping children.
+- I'm here to make people feel like they can release stress, have a good time, be positive and live life.
+- I think people underestimate because I'm the rap guy, I'm a crazy guy, screaming all the time. But that doesn't mean that I'm not intelligent.
+- The teachers teach the children that are going to take care of us. These are our future leaders, doctors, lawyers. So, they need to have everything in their arsenal to teach these kids.
+- I'm always on the road.
+- I ain't going to buy no iPhone.
+- I'm kind of quiet.
+- The word 'crunk' means energy. 'Crunk' is the past tense of crank. So if you crank something up, you are getting it started and getting it going. So 'crunk' is when it's going... when it's off the hook.
+- I Twitter quite a bit, and try to send out some funny stories.
+- I'm the type, when I used to go to the record store I used to buy two or three copies of certain records so I've got a pretty large selection of a lot of 12 inches.
+- Yeah, every artist I think should look at themselves as a brand because the more appealing your brand is, the more money you can make off your brand.
+- The work that Rock The Vote does is incredible. So it's cool to collab with such an iconic organization.
+- My job is to make beats and make something hot.
+- It's always shocking to people, because sometimes when I go on the road and I DJ, they think I'm just gonna perform, so to see me really DJing and playing their favorite song and really rockin', it's a shock to people, and definitely to DJs.
+- Like when you hear Aretha Franklin sing - it touches your soul. Crunk music, it makes you just wanna lose your mind - just be free and wild out.
+- In the 80s, I remember the radio stations would play everything from rock to rap.
+- They let me put the Stanley Cup in my car. I got hookups.
+- Nowhere else in America is everyone really ready to get outta their minds. No pun intended, like my song. Vegas is that place.
+- Zumba is world-wide, respected and it's about health. It's something that you really didn't expect from me. People have been blown away to find out that Zumba and I have partnered up.
+- My full name is Jonathan.
+- I'm not no 'drink wine every day' kind of dude.
+- Something that's Crunk is off the hook. It's popping, it's going down if it's Crunk. A football player listening to his Walkman as he's getting ready for the game, jumping up and down, he's Crunk.
+- I love playing at Surrender because they let me be free and be myself... it's family, you know?
+- Yeah, I actually still have my crates that I used to DJ out of when I was first DJing - my crates that I would travel with and take to the club.
+- Vegas is really rock and roll.
+- When you're living the Crunk Rock lifestyle, you don't let anybody tell you what to do. You live your life to the fullest, you live every day like it's your last, and you party like a rock star. It's just a crazy lifestyle.
+- Of course I'm a big fan of Migos and we crossed paths on the road a bunch of times.
+- Ladies like to kiss.
+- Well, 'Crunk Rock' doesn't mean rock. Initially when I started the album, I did collaborate with a bunch of rock musicians and producers. But as I started to have time to free my mind and catch different vibes, it started to mean something different.
+- I say all the time when someone asks me how I am, 'I woke up today, I'm alive.' Basically meaning people complain about so much, but you know what... you're alive. Some people don't wake up.
+- As a technology guy, and someone in music, I'm on top of technology and social media.
+- I focus all the way on the club. That's why my music sounds the way it does, with the 808, heavy kicks. Every aspect of it is about the club, so I don't really care about the person who's listening on an iPod.
+- I've been wanting to do a Christmas song for forever.
+- No matter what kind of artist you are, you like good music.
+- I was into the Ramones, Bad Brains, all of that, when I was in high school.
+- Vegas people come with the attitude that they're gonna go hard and party. I've partied in Ibiza and all over the world, and I think Vegas is the best party.
+- A crunk attitude you're just rowdy, rahhhhh! You're just crunk. But you add the crunk rock to it, and it gives you some edge.
+- We definitely have to take care of our teachers more. Raise the pay. Give them the tools they need.
+- I'm coming to Silicon Valley to turn up!
+- When I'm doing a set as an artist I'm right in front of the stage the entire time, interacting with the crowd. The DJ set's a little different but they both are great and high energy for the crowd.
+- I like being by myself.
+- I think Hillary is about it for 2016.
+- Even though 'Turn Down For What' is considered an EDM song, it's really a rap song.
+- Before Lil Jon and The Eastside Boyz, nobody ever said, 'I'm a crunk artist. I make crunk music.'
+- I used to do this one club called New York Sound Factory where I played house, hip-hop, and dancehall. I was one of the first DJs in the South to play everything.
+- Every city I record in gives me certain energy.
+- I always try to give all of my fans something special for them.

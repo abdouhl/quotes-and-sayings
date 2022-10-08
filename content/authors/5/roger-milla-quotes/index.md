@@ -1,0 +1,19 @@
++++
+author = "Roger Milla"
+title = "Roger Milla Quotes"
+quotes_len = "13"
+description = "the best 13 Roger Milla Quotes"
++++
+- It's true I'm more widely recognised now and get invited to take part in all sorts of events and projects but as a person, I haven't changed.
+- The president requested me to restore order in the national team. I have been designated to be part of the official delegation to Egypt to help boost the morale of our players.
+- I only really watch sport. That's where you see real joy. I don't like watching much else on TV, because it's generally either twisted or sad.
+- You can be a top, top player for 10, 20 years, then you become a coach, lose two or three games and you're out.
+- Cameroon is a football country - children are born playing football.
+- Everybody knows everything about all the teams now.
+- Cameroon is stronger because it's a country of conquerors, of winners. Cameroon's players aren't necessarily very technical, but that when they play, they play to win.
+- On the field, everyone is equal.
+- I'm a big salsa fan!
+- Here in Cameroon, football is our leading political party. It's football alone that that unites us, it's football alone that brings us good things - football is the window into our country - so we don't mess around with it.
+- They have very good individual players, but they need the collective game. And they still do not have it although there are now only six months left to go.
+- I'm a fantastic dancer!
+- If I can join hands with FIFA and other continental bodies to promote football globally, then I can do more than that to raise African football to new heights.

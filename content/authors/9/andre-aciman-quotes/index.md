@@ -1,0 +1,62 @@
++++
+author = "Andre Aciman"
+title = "Andre Aciman Quotes"
+quotes_len = "56"
+description = "the best 56 Andre Aciman Quotes"
++++
+- With Eric Rohmer - as with Mozart, Austen, James, and Proust - we need to remember that art is seldom about life, or not quite about life. Art is about discovery and design and reasoning with chaos.
+- Am I the only person who wishes he could escape his own life for a few hours?
+- Older students know what they want, which is good.
+- For every life we live, there are at least eight others we've gotten close to but may never know.
+- I flew on a plane the week after 9/11.
+- Authors use 'almost' to avoid stating an outright fact, as though there were something inauthentic, dishonest, unfinished, undecided or even unwholesome - some might say repulsive, tacky, snub-nosed, too direct - in qualifying anything as definitely a this or a that.
+- Irene Nemirovsky was a prolific writer punctiliously devoted to her craft.
+- Rituals are magical.
+- I write - so it would seem - to recapture, to preserve and return to the past, though I might just as easily be writing to forget and put that past behind me.
+- There was a time when Stefan Zweig was the most widely read author in the world. He was lionized everywhere, translated into every language. For the first four decades of the 20th century, his novellas and biographies were devoured by rich and poor, young and old, well read or less so.
+- I was born into a Turkish family that had acquired Italian citizenship. Many members of the family subsequently became British, French, Brazilian, and German, so there was a bit of everything. It was not uncommon for people in the family to speak seven languages: English, French, Ladino, Italian, Turkish, Arabic, and even Greek.
+- My family were finally kicked out of Egypt in 1965 for being Jewish. We managed to remain longer than most.
+- Nothing would have shocked Proust more than to hear that his work was perceived as difficult or inaccessibly rarefied.
+- Rituals are the building blocks of life, my way of cobbling an entire summer together from incidental wisps.
+- A hidden nerve is what every writer is ultimately about. It's what all writers wish to uncover when writing about themselves in this age of the personal memoir. And yet it's also the first thing every writer learns to sidestep, to disguise, as though this nerve were a deep and shameful secret that needs to be swathed in many sheaths.
+- Whenever we're having a great time, we're already anticipating the day when we will remember this great time. Many of us live in that unreal area between the past, the present, and the future.
+- As irony would have it, the very person who inspired me to write a memoir... was the only person to be ejected from it. My brother didn't appear in 'Out of Egypt.'
+- For the religious, Passover is the grateful remembrance of a homeward journey after years of suffering.
+- 'My Night at Maud's,' 'Claire's Knee,' 'Chloe in the Afternoon' are grafted onto my life.
+- Homer, Vergil, Dante, Shakespeare, Goethe, Proust - not exactly authors one expects to whiz through or take lightly, but like all works of genius, they are meant to be read out loud and loved.
+- Losing his wealth, his home, the life he had built, killed my father. He didn't die right away; it took four decades of exile to finish him off.
+- 'Almost' is about uncertainty soon to be dismissed but not quite dispelled. 'Almost' is about revelation to come but not entirely promised.
+- Rituals are how we step into our private field of dreams, a small Elysium all our own. Rituals are made not just for us, but for those we want to pass them on to.
+- We are, each one of us, not just defined by the arrangement of protein molecules in our cells, but also by the things we call our own.
+- An exile reads change the way he reads time, memory, self, love, fear, beauty: in the key of loss.
+- 'Almost' is all about gradations and nuance and about suggestion and shades. Not quite a red wine, but not crimson, not purple either, or maroon; come to think of it, 'almost' Bordeaux.
+- You cannot understand what it means to be poor until you have suffered it.
+- The last thing I want to do is to write about real things. I am not interested in reality and in real human beings and their real day-to-day problems - I just want to say to them, 'Hold still, and I'm just going to unpack, see what's inside.'
+- There are many things about my life that I wish had been different and that I still find difficult to live down.
+- Marseilles, Barcelona, Trieste, Istanbul - each romances the Mediterranean in its own fashion, mostly by embracing the sea in sweeping C-shaped bays that date back to antiquity.
+- What great writers have done to cities is not to tell us what happens in them, but to remember what they think happened or, indeed, might have happened. And so Dickens reinvented London, Joyce, Dublin, and so on.
+- Writing plays fast and loose with the past.
+- Some people have an identity. I have an alibi. I have a shadow self.
+- It is Proust's implacable honesty, his reluctance to cut corners or to articulate what might have been good enough or credible enough in any other writer that make him the introspective genius he is.
+- To those of us who have seen all of Eric Rohmer's films, it is impossible not to remember when, where, with whom we saw each one. I even remember the second and third time I saw his films.
+- There comes the time at every Passover seder when someone will open a door to let in the prophet Elijah. At that moment, something like a spell invariably descends over the celebrants, and everyone stares into the doorway, trying to make out the quiet movements of the prophet as he glides his way in and takes the empty seat among us.
+- Don't all writers have a hidden nerve, call it a secret chamber, something irreducibly theirs, which stirs their prose and makes it tick and turn this way or that, and identifies them, like a signature, though it lurks far deeper than their style, or their voice or other telltale antics?
+- 'Almost' can be a polite way of saying something definitely. It withholds the obvious and dangles it just long enough.
+- My vacations last one hour. Then I get bored, impatient.
+- I like to read the paper online. And I love email. And I love nothing better than to be interrupted.
+- Take away our things, and something in us dies.
+- Chaste love happens all the time, far more frequently than adultery.
+- Egypt wants to be young again. Israel must show it never grew old. Egypt wants to wake up and dream again. Israel must learn to dream though it cannot sleep.
+- In Alexandria, my birthplace and my home, all streets bearing Jewish names have been renamed.
+- Writing the past is never a neutral act. Writing always asks the past to justify itself, to give its reasons... provided we can live with the reasons. What we want is a narrative, not a log; a tale, not a trial. This is why most people write memoirs using the conventions not of history, but of fiction.
+- I can't forget the scene in 'My Night at Maud's' when the very pious engineer in the business suit decides to sit on Maud's bed while she is lying under the covers with only a T-shirt on, determined to seduce him.
+- I may write about place and displacement, but what I'm really writing about is dispersion, evasion, ambivalence: not so much a subject as a move in everything I write.
+- The first thing a writer needs to know is what kind of writer he/she is.
+- Under Nasser, Egyptian nationalism was built on little more than pan-Arab irredentism and anti-Western and anti-Israeli sentiment. Mr. Mubarak retained these powerful brainwashers and allowed the rise of a religious component to further alienate Egyptians from liberal and democratic thinking.
+- I tolerate lots of people I have no patience or respect for. Then, as soon as I can, I rat on them.
+- Exiles see double, feel double, are double. When exiles see one place, they're also seeing - or looking for - another behind it.
+- Proust is interested in minutiae because life, as he sees it, is seldom ever about things but about our impression of things, not about facts but about the interpretation of facts, not about one particular feeling but about a confluence of conflicting feelings. Everything is elusive in Proust because nothing is ever certain.
+- With ritual, I punctuate my days till they no longer belong to who I am today but to who I'll be when I look back in days and years to come.
+- I cannot write if there is a sense of plenitude. I have to hypothesize that there is a loss.
+- The problem with Egypt is that there is no public trust. There is no trust, period.
+- As a memoirist, I may claim to write the easier-to-remember things, but I could also just be writing to sweep them away. 'Don't bother me about my past,' I'll say, 'It's out in paperback now.'

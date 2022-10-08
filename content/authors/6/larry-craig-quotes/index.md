@@ -1,0 +1,18 @@
++++
+author = "Larry Craig"
+title = "Larry Craig Quotes"
+quotes_len = "12"
+description = "the best 12 Larry Craig Quotes"
++++
+- Censure is a limp noodle across the wrist of the president. I think the way we vote on the articles will express the way we feel stronger than any censure vote.
+- Consumers are increasingly feeling that they are being taken for a ride.
+- I urge calm and sensitivity to the fundamental civil liberties of our country.
+- We do not take away the powers of surveillance. We do not take away the right and the power of the government to go after those who would do us wrong.
+- Congress has a responsibility to make sure our taxpayer dollars are being spent responsibly and effectively, and at the same time, that our men and women in uniform have everything they need to carry out the War on Terror.
+- Flag desecration is not a constitutional issue for the courts. It is a political one that belongs to the people.
+- The simple truth is, the short-term solution is for the FDA to allow more importation of safe vaccines from other nations. But the long-term solution is to get more vaccine production within the U.S.
+- We came to Iraq to liberate them and to make our world a safer place.
+- Breast cancer deaths in America have been declining for more than a decade. Much of that success is due to early detection and better treatments for women. I strongly encourage women to get a mammogram.
+- Agreements are always the product of time and place.
+- Laws protecting the United States flag do not cut away at the freedom of speech guaranteed in the First Amendment... Congress made this position clear upon passage of the Flag Protection Act of 1989, which prohibited desecration of the flag.
+- I'm for anything that lets people come here to work legally. There are more protections for workers who are here legally than for those who are not. It's also safer for the workers and employers have a more consistent pool of workers.

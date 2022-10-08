@@ -1,0 +1,14 @@
++++
+author = "Adam Oates"
+title = "Adam Oates Quotes"
+quotes_len = "8"
+description = "the best 8 Adam Oates Quotes"
++++
+- I was a punk. I think that's why I'm such a good person now, because I was such a bad guy then.
+- I was 19 years old, pumping gas and going nowhere. I was kind of a high school dropout at that point because I had left school to play hockey, but no one drafted me.
+- I can't be a hypocrite as a coach because as a player that's what I wanted. I wanted feedback, I wanted communication from the boss. I showed up for work, you can yell at me if you want, but I want input. So that's the kind of coach I want to be.
+- You eat and sleep it all day long and play on the streets until mom calls you in. My story is no different than anybody else's.
+- Even the superstars need to be coached once in awhile.
+- Assistant coaches become a little bit more buddies to the players than a head coach.
+- Growing up as a kid my father was British and a soccer player. His idol was a guy that passed the ball a lot, Stanley Matthews. Our family thought if you could be unselfish your teammates would always like you.
+- I went to the Hall of Fame with my dad. I can't say I really remember too much about it.

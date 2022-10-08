@@ -1,0 +1,36 @@
++++
+author = "Ramakrishna"
+title = "Ramakrishna Quotes"
+quotes_len = "30"
+description = "the best 30 Ramakrishna Quotes"
++++
+- A man is truly free, even here in this embodied state, if he knows that God is the true agent and he by himself is powerless to do anything.
+- The physicians of one class feel the patients and go away, merely prescribing medicine. As they leave the room they simply ask the patient to take the medicine. They are the poorest class of physicians.
+- Through love one acquires renunciation and discrimination naturally.
+- Through selfless work, love of God grows in the heart. Then through his grace one realize him in course of time. God can be seen. One can talk to him as I am talking to you.
+- If you desire to be pure, have firm faith, and slowly go on with your devotional practices without wasting your energy in useless scriptural discussions and arguments. Your little brain will otherwise be muddled.
+- The world is indeed a mixture of truth and make-believe. Discard the make-believe and take the truth.
+- If you first fortify yourself with the true knowledge of the Universal Self, and then live in the midst of wealth and worldliness, surely they will in no way affect you.
+- If you must be mad, be it not for the things of the world. Be mad with the love of God.
+- It is easy to talk on religion, but difficult to practice it.
+- Bondage is of the mind; freedom too is of the mind. If you say 'I am a free soul. I am a son of God who can bind me' free you shall be.
+- Many are the names of God and infinite the forms through which He may be approached.
+- When one has love for God, one doesn't feel any physical attraction to wife, children, relatives and friends. One retains only compassion for them.
+- Unalloyed love of God is the essential thing. All else is unreal.
+- When the divine vision is attained, all appear equal; and there remains no distinction of good and bad, or of high and low.
+- Disease is the tax which the soul pays for the body, as the tenant pays house-rent for the use of the house.
+- More are the names of God and infinite are the forms through which He may be approached. In whatever name and form you worship Him, through them you will realise Him.
+- When the flower blooms, the bees come uninvited.
+- Many good sayings are to be found in holy books, but merely reading them will not make one religious.
+- Unless one always speaks the truth, one cannot find God Who is the soul of truth.
+- One must be very particular about telling the truth. Through truth one can realize God.
+- Pray to God that your attachment to such transitory things as wealth, name, and creature comforts may become less and less every day.
+- To work without attachment is to work without the expectation of reward or fear of any punishment in this world or the next. Work so done is a means to the end, and God is the end.
+- Work, apart from devotion or love of God, is helpless and cannot stand alone.
+- God is everywhere but He is most manifest in man. So serve man as God. That is as good as worshipping God.
+- God can be realized through all paths. All religions are true. The important thing is to reach the roof. You can reach it by stone stairs or by wooden stairs or by bamboo steps or by a rope. You can also climb up by a bamboo pole.
+- Travel in all the four quarters of the earth, yet you will find nothing anywhere. Whatever there is, is only here.
+- God is in all men, but all men are not in God; that is why we suffer.
+- Longing is like the rosy dawn. After the dawn out comes the sun. Longing is followed by the vision of God.
+- If you want to go east, don't go west.
+- The fabled musk deer searches the world over for the source of the scent which comes from itself.

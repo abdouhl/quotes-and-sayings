@@ -1,0 +1,71 @@
++++
+author = "Rahm Emanuel"
+title = "Rahm Emanuel Quotes"
+quotes_len = "65"
+description = "the best 65 Rahm Emanuel Quotes"
++++
+- For all the things that make Chicago great, for all the things that make us proud to call ourselves Chicagoans, the violence that is happening corrodes our core. It is not the Chicago we know and love.
+- Things happened there that I don't think are the finest hours for anybody, whether it was a journalist, the legal system or, in that case of the political system, who would say that was an example of when Washington worked best.
+- I can't imagine being mayor and not having had the experience working for President Clinton or President Obama, or, for that matter, working in Congress. On the other hand, I think I would have been a better adviser had I been mayor first. If I had had this job first, I could have seen the implications of things I was doing.
+- There are too many senior citizens and good residents in Chicago who are sick and tired of having to walk several blocks out of their way when they leave their homes just to avoid the gangs and drug dealers on the street corner.
+- Every policy officer is sworn to protect life, and, under the most extreme circumstances, to take life. It is a staggering responsibility that requires officers to make split second decisions.
+- I saw the president make the tough calls in the Situation Room - and today, our troops in Iraq have finally come home so America can do some nation building here at home. That was the change that we believed in. That was the change we fought for. That was the change President Obama delivered.
+- When people told me 'It's great to be here', they meant at the house, not with me.
+- When parents tell their children not to congregate on corners, especially in groups, out of fear for them encountering the police, what does that say? We have a trust problem.
+- You never let a serious crisis go to waste. And what I mean by that it's an opportunity to do things you think you could not do before.
+- When President Obama entered the White House, the economy was in a free-fall. The auto industry: on its back. The banks: frozen up. More than three million Americans had already lost their jobs. And America's bravest, our men and women in uniform, were fighting what would soon be the longest wars in our history.
+- What is more comforting to the terrorists around the world: the failure to pass the 9/11 legislation because we lacked a majority of the majority,' or putting aside partisan politics to enact tough new legislation with America's security foremost in mind?
+- No officer should be allowed to behave as if they are above the law just because they are responsible for upholding the law. Permitting and protecting even the smallest acts of abuse by a tiny fraction of our officers leads to a culture where extreme acts of abuse are more likely, just like what happened to Laquan McDonald.
+- Bob Rubin was opposed to signing the welfare bill. He's not exactly what I call a flaming liberal.
+- There was no blueprint or how-to manual for fixing a global financial meltdown, an auto crisis, two wars and a great recession, all at the same time.
+- The GOP is broken. They need a Bill Clinton moment with someone to figure things out. Let me just say - and I don't agree with his policies, so let me put a warning label on the side of the packet here - If George W. Bush had never gotten in the disastrous Iraq war, he was trying to modernize the party on a series of fronts.
+- I consider myself a progressive. I have a passion for people who work. To me, this is about forward looking versus backward looking. Ideological gradations are the wrong way to look at it.
+- I still believe the Lewinsky investigation was way off from the focus of what Whitewater was, which turned out to be nothing at the end of the process. And I think that there were people who were determined as political opponents to not allow his presidency to succeed.
+- I do not believe the government has the right to investigate somebody's private life.
+- I remember my father, when I said I was going down to Little Rock to work for Governor Clinton's run for president, he thought maybe somebody needed to check the medication cabinet. He thought somebody was playing around with it. He had never heard of him, he said. I said, 'Well, I think he's going to be the next President of the United States.'
+- Under Superintendent Johnson's leadership, our police department is on a path to earn the respect of every community in the City of Chicago.
+- We have work to do, and Tuesday Americans sent Washington a clear message - get the job done.
+- You have a burden going into any campaign when you're raising money to fund that effort because there's always a desire to spend more money than you have.
+- The American people... want change. They want big ideas, big reform.
+- Chicago is where the whole idea of community policing began. It remains the - the best and the most comprehensive approach we have in changing the everyday conditions that breed crime and violence - and then breed mistrust. We have more work to do. We need better training to live up to the values and the principles of community policing.
+- When it comes to federal elections law, Tom DeLay and his special-interest friends live by one set of rules, and everyone else lives by a very different set.
+- It is one thing to train officers on fighting crime. It is a whole other thing to train them to build friendships and relationships, which are integral to fighting crime. This takes time, effort, and patience on the part of police officers.
+- To deal with what you have to deal with as mayor or president, there has to be an overriding psychological or professional or emotional gratification that would let you go through all the angst.
+- Because of the president's leadership, every American will have access to affordable, quality health care.
+- Banks are slowly but surely lending again, and never again will taxpayers foot the bill for Wall Street's excesses. In case we forgot, that was the change we believed in. That was the change we fought for. That was the change President Obama delivered.
+- I join President Obama and the vast majority of Chicagoans who are tired of waiting for Washington to get serious about gun violence.
+- A strong economy depends on a strong middle class, but George Bush has put the middle class in a hole, and John McCain has a plan to keep digging that hole with George Bush's shovel.
+- I've never been in a place where winning has hurt the ability to do anything.
+- Everybody knows they're on the Obama team: There isn't vice presidential vs. presidential division, there's not a generational pull. People have internalized that this is a real moment in history.
+- I see city finances within the context of an economic strategy... We are going to solve our financial problems by growing the economy, and I have rejected some corners that have called for a slash-and-burn approach, and I've rejected others who have called for raising taxes and leaving government as is.
+- Gun violence in Chicago is unacceptable. It threatens everything we have done together and all of the progress we have made in other areas.
+- What makes an officer's job all the more difficult, dangerous, and demanding is that it rests on upholding that sacred trust with citizens that he or she serves. Nevertheless, I ask every officer in Chicago: reflect on your work, your training, your experience and - to be honest - about the fears and frustrations you bring to that job.
+- I sometimes joke, Paula, even paranoid people have enemies.
+- In millions of encounters each year between the police and the public, it may be too much to expect that every officer will always get it right. But it is not too much to expect that we can put the right safeguards in place to hold officers accountable when they get it wrong.
+- The person who takes the oath of office in the next four months will shape not just the next four years, but the next forty years of our nation. In these next four years, we need proven leadership, proven judgment and proven values. America needs four more years of President Barack Obama.
+- When I talk to Chicagoans who live in our most violence-prone neighborhoods, they do not hate the police. In fact, they tell me they want more cops and fewer gangs. They do not want more officers in cars just driving through their communities. They want officers on the beat in their neighborhoods.
+- Israel has a security concern involving geography. But geography does not have the same value it did in 1967.
+- I would like to run for the mayor of the city of Chicago. That has always been an aspiration of mine even when I was in the House of Representatives.
+- As big a problem as gun violence is for Chicago, it is not beyond our ability to solve. Ending this string of tragedies is our top priority as a city. We are infusing our police department with the manpower, technology and training to meet this challenge head on.
+- The overwhelming number of police officers in Chicago are doing good work under difficult conditions. They put their lives on the line every day in situations none of us can fully comprehend or appreciate.
+- Fighting crime requires a partnership between the police and the community. And we all know that this partnership has been tested in Chicago. It is a problem that has festered in this city for decades.
+- There's no safe Republican district. You can run, but you cannot hide.
+- Laquan McDonald is a wake-up call to all of us. It's a reminder there's a lot broken.
+- No citizen is a second class citizen in the city of Chicago. If my children are treated one way, every child is treated the same way.
+- Today, because of President Obama's courage, kids can stay on their parent's plan until they are 26. Insurers cannot kick you off your policy because you have hit your limit. They will not be able to deny you because you have a pre-existing condition.
+- While Mayor Daley surprised me today with his decision to not run for reelection, I have never been surprised by his leadership, dedication and tireless work on behalf of the city and the people of Chicago.
+- My attitude is govern as if you've run your last race. That's not to say I've run my last race, but govern with a liberation and a freedom; change your mind frame to operate that way.
+- Whose leadership, whose judgment, whose values do you want in the White House when that crisis lands like a thud on the Oval Office desk?
+- As individuals, we will be judged in our lives by the totality of our actions. Not one thing will stand out. And I think that's how we get judged by our colleagues and that's how we get judged by the good lord.
+- They ended up spending a total, their campaign plus the independent, about 1.3 million. I only ended up spending about - not only, but I spent about 2 million. But I had no intention of doing that until I was attacked with a negative ad by an independent group.
+- The world for our law enforcement community has changed dramatically: everything from filling out paperwork to relationships with the community and how they think the narrative is in the media.
+- The fact is, Bush's war policy has failed. It's failed! Who better to say so than Jack Murtha?
+- Representative Willis has introduced a bill, modeled after a Chicago law, to hold gun stores accountable for flooding our streets with weapons. Thousands of guns recovered by the Chicago Police Department can be traced back to just a handful of stores.
+- I don't want to go negative on Franklin Delano Roosevelt, but he didn't pass an economic deal in the first 100 days. We have passed the largest Recovery Act in the history of the country.
+- Rather than doing the kind of fact-checking that normally goes with a story, you ran with certain stories for not wanting to get beat. There's a pressure that exists in your profession. I would be surprised in any honest exchange that you say that doesn't exist.
+- I wake up some mornings hating me too.
+- We can define the rules of police-citizen engagement, but everyday decisions will always be made by men and women in uniform, on the street, in the community, under extreme pressure, in a dangerous world where guns easily fall into the wrong hands.
+- I believe the record I was allowed to help establish by the side of the president was important.
+- We invoke the sacrifices of our fallen heroes in the abstract, but we seldom take time to thank them individually.
+- In the White House, you can be on the pitcher's mound or you can be in the catcher's position. Put points on the board. Show people you can govern. Deliver on what you said you were going to deliver on.
+- President Obama made the right choice, over one million Americans are still working today. The American auto industry is not just surviving. It is thriving. Where Mitt Romney was willing to turn his back on Akron, Dayton and Toledo, Ohio, the president said, 'I've got your back.'
